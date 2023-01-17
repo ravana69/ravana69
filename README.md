@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [[144FPS|60FPS] The Last of Us S01E01 1080p 10bit HMAX WEBRip DDP.5.1 Atmos H265 - 144FPS | 60FPS - 9 GB | 5.6 GB](https://www.1tamilmv.autos/index.php?/forums/topic/171313-144fps60fps-the-last-of-us-s01e01-1080p-10bit-hmax-webrip-ddp51-atmos-h265-144fps-60fps-9-gb-56-gb/&do=findComment&comment=341655)
 - [[144FPS|60FPS] The Last of Us S01E01 1080p 10bit HMAX WEBRip DDP.5.1 Atmos H265 - 144FPS | 60FPS - 9 GB | 5.6 GB](https://www.1tamilmv.autos/index.php?/forums/topic/171313-144fps60fps-the-last-of-us-s01e01-1080p-10bit-hmax-webrip-ddp51-atmos-h265-144fps-60fps-9-gb-56-gb/&do=findComment&comment=341653)
 - [Thunivu &lpar;2023&rpar; Original Motion Picture Soundtrack Hi-Fi Quality 16bit - ALAC - Ghibran Musical - 96 MB](https://www.1tamilmv.autos/index.php?/forums/topic/171312-thunivu-2023-original-motion-picture-soundtrack-hi-fi-quality-16bit-alac-ghibran-musical-96-mb/&do=findComment&comment=341652)
 - [Rise of the Planet Of the Apes &lpar;2011&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - &lpar;DD5.1 - 448Kbps&rpar; - 2.9GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub - Leyon](https://www.1tamilmv.autos/index.php?/forums/topic/168061-rise-of-the-planet-of-the-apes-2011-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-dd51-448kbps-29gb-13gb-x264-tam-tel-hin-450mb-esub-leyon/&do=findComment&comment=341651)
 - [Request your movies as a comment to this topic.!](https://www.1tamilmv.autos/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=341650)
-- [FORCE &lpar;2011&rpar; HINDI &lpar;Music Video Album&rpar; - 1080P - AMZN - WEBDL - H264 - DD® 5.1 @ 448Kbps - #DVD9 SYNC - ESUBS - 1GB 〰️ [Avatar]](https://www.1tamilmv.autos/index.php?/forums/topic/171311-force-2011-hindi-music-video-album-1080p-amzn-webdl-h264-dd%C2%AE-51-448kbps-dvd9-sync-esubs-1gb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=341649)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
