@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Shalamon - Teaser | Vishnu Unnikrishnan | Dileesh Pothan | Sudhy Kopa | Jithin Padmanabhan #shorts](https://www.youtube.com/watch?v=PfKsjjYAF1c)
+- [Ayisha - Arabic Trailer | Manju Warrier | Aamir Pallikkal | M Jayachandran](https://www.youtube.com/watch?v=gGTVlb7LDpc)
+- [17 January 2023](https://www.youtube.com/watch?v=mBf1KH_5yTw)
+- [Chanchala Druthapada Video Song | Navya Nair | Jayasudha | KS Chithra | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=z2j0928o4lw)
 - [Karuppana Kannazhaki | Mamtha Mohandas, Ratheesh Vega | Jayaram, Ramya Krishnan | Aadupuliyattam](https://www.youtube.com/watch?v=VMYliGncpi0)
 - [ഗുണനിലവാര പട്ടികയിൽ ഒന്നാം സ്ഥാനത്തു നിൽക്കുന്ന മലയാള സിനിമയിലെ കേൾക്കാൻ സുഖമുള്ള മനോഹര ഗാനങ്ങൾ](https://www.youtube.com/watch?v=opu0yL6Z_Jw)
-- [Kaathu Kaathirippu - Video Song | Padachone Ingalu Katholi | Sooraj Santhosh | Shaan Rahman](https://www.youtube.com/watch?v=wLbJGCmXXlA)
-- [ആദ്യം കേട്ടനാൾ മുതൽ മനസ്സിൽ കൊണ്ടുനടക്കുന്ന ഏറ്റവും ഇഷ്ടമുള്ള സിനിമ ഗാനങ്ങൾ | Evergreen Songs](https://www.youtube.com/watch?v=OVY0N81BnUM)
-- [മാനത്തെ നിറങ്ങൾ മറഞ്ഞാലും | Manathe Nirangal |Oru Vilipadakale |P. Bhaskaran | S.P Balasubrahmanyam](https://www.youtube.com/watch?v=h71urhm-dQk)
-- [Vittukalayathoru Champion Video Song | Champion (Malayalam) | Sachin Dhanpal | B.Ajaneesh Loknath](https://www.youtube.com/watch?v=mrwWPrUkpOg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
