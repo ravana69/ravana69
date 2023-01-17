@@ -25,6 +25,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vittukalayathoru Champion Video Song | Champion (Malayalam) | Sachin Dhanpal | B.Ajaneesh Loknath](https://www.youtube.com/watch?v=mrwWPrUkpOg)
+- [Manikuyile | Vaalkannadi | Yesudas | Sujatha | Vertical Status Video](https://www.youtube.com/watch?v=bFPkvfoz9h4)
+- [Shwasame  song from the new Movie Santhosham #shorts](https://www.youtube.com/watch?v=31AgblZo1jE)
+- [17 January 2023](https://www.youtube.com/watch?v=JpAMsRS7dmU)
+- [Daivame Nin Hrudayam | Christian Video Song | Lijo Chembakassery | Joji Johns | Anumol | Melody Song](https://www.youtube.com/watch?v=YLQH9BIE7P4)
+- [Raagm Thaanam Swaralaya | Sooryagayathri | Mohanlal | Raveendran | KJ Yesudas | Urvashi](https://www.youtube.com/watch?v=fxXw5K4_x4M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
