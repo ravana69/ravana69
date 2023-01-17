@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The.Glimmer.Man.1996 AAC 2.0 Tamil  720p  Blu-Ray Msub  1GB [G-Drive]](https://www.1tamilmv.autos/index.php?/forums/topic/171321-theglimmerman1996-aac-20-tamil-720p-blu-ray-msub-1gb-g-drive/&do=findComment&comment=341674)
 - [The.Amazing.Spider-Man.2012 DD5.1 Tamil-Telugu-Hindi-English UHD.Blu-Ray 1080p &amp; 2160p.TrueHD.Atmos.7.1.HEVC.REMUX Msub 7GB &amp; 50GB [G-Drive]](https://www.1tamilmv.autos/index.php?/forums/topic/171320-theamazingspider-man2012-dd51-tamil-telugu-hindi-english-uhdblu-ray-1080p-2160ptruehdatmos71hevcremux-msub-7gb-50gb-g-drive/&do=findComment&comment=341673)
 - [Prometheus &lpar;2012&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - &lpar;DD5.1 - 448Kbps&rpar; - 2.9GB &amp; 1.2B | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171296-prometheus-2012-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-dd51-448kbps-29gb-12b-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=341672)
 - [Rise of the Planet Of the Apes &lpar;2011&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - &lpar;DD5.1 - 448Kbps&rpar; - 2.9GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171308-rise-of-the-planet-of-the-apes-2011-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-dd51-448kbps-29gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=341671)
 - [Naadodi Mannan &lpar;From &quot;Vaathi&quot;&rpar; Master Quality 24bit 96kHz - FLAC - G.V. Prakash Kumar - 70 MB](https://www.1tamilmv.autos/index.php?/forums/topic/171319-naadodi-mannan-from-vaathi-master-quality-24bit-96khz-flac-gv-prakash-kumar-70-mb/&do=findComment&comment=341670)
-- [Vaa Vaathi &lpar;From &quot;Vaathi&quot;&rpar; &lpar;2022&rpar; Multi [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - G V Pragash Musical](https://www.1tamilmv.autos/index.php?/forums/topic/170214-vaa-vaathi-from-vaathi-2022-multi-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-g-v-pragash-musical/&do=findComment&comment=341669)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
