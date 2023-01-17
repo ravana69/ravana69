@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Enna Thavam | Thilakkam | Dileep | Kavya | Chinmayi | Kaithapram | Jayaraj](https://www.youtube.com/watch?v=laaHPEA69Zo)
 - [Christian Melody Songs | KG Markose | Christian Devotional Songs Malayalam | Joji Johns | Kester](https://www.youtube.com/watch?v=6ClPjTsEZ74)
 - [Shalamon - Teaser | Vishnu Unnikrishnan | Dileesh Pothan | Sudhy Kopa | Jithin Padmanabhan #shorts](https://www.youtube.com/watch?v=PfKsjjYAF1c)
 - [Ayisha - Arabic Trailer | Manju Warrier | Aamir Pallikkal | M Jayachandran](https://www.youtube.com/watch?v=gGTVlb7LDpc)
 - [17 January 2023](https://www.youtube.com/watch?v=mBf1KH_5yTw)
 - [Chanchala Druthapada Video Song | Navya Nair | Jayasudha | KS Chithra | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=z2j0928o4lw)
-- [Karuppana Kannazhaki | Mamtha Mohandas, Ratheesh Vega | Jayaram, Ramya Krishnan | Aadupuliyattam](https://www.youtube.com/watch?v=VMYliGncpi0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
