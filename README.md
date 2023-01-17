@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Wednesday &lpar;2022&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL  &lpar;Tamil + Hindi + English&rpar; - [1080p] Gdrive](https://www.1tamilmv.autos/index.php?/forums/topic/171318-wednesday-2022-s01-ep-01-08-true-web-dl-tamil-hindi-english-1080p-gdrive/&do=findComment&comment=341666)
+- [The Women King &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - &lpar;DD+5.1 - 640Kbps&rpar; - 3.2GB &amp; 1.3GB | x264 - &lpar;Tamil + Telugu&rpar; - 450MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171316-the-women-king-2022-bluray-original-audios-1080p-720p-x264-tamil-eng-dd51-640kbps-32gb-13gb-x264-tamil-telugu-450mb-esub/&do=findComment&comment=341665)
 - [Dawn of the Planet of the Apes &lpar;2014&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - &lpar;DD5.1 - 448Kbps&rpar; - 3.2GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171314-dawn-of-the-planet-of-the-apes-2014-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-dd51-448kbps-32gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=341664)
 - [Celebration of Varisu &lpar;From &quot;Varisu&quot;&rpar; Hi-Fi Quality 16bit - ALAC - Thaman SS Musical - 20 MB](https://www.1tamilmv.autos/index.php?/forums/topic/171300-celebration-of-varisu-from-varisu-hi-fi-quality-16bit-alac-thaman-ss-musical-20-mb/&do=findComment&comment=341663)
 - [Rise of the Planet Of the Apes &lpar;2011&rpar;  &lpar;BluRay&rpar; - [1080p &amp; 720p] Gdrive](https://www.1tamilmv.autos/index.php?/forums/topic/171317-rise-of-the-planet-of-the-apes-2011-bluray-1080p-720p-gdrive/&do=findComment&comment=341662)
-- [The Chronicles of Narnia 3 &lpar;2010&rpar; 1080p BluRay REMUX AVC [Tamil + Telugu + Hindi &lpar;BD 5.1 448Kbps&rpar;] + [English &lpar;DTS-HD MA 5.1&rpar;] MSubs ~ Remux By ~ JackSparrow038 [GDRIVE]](https://www.1tamilmv.autos/index.php?/forums/topic/139920-the-chronicles-of-narnia-3-2010-1080p-bluray-remux-avc-tamil-telugu-hindi-bd-51-448kbps-english-dts-hd-ma-51-msubs-~-remux-by-~-jacksparrow038-gdrive/&do=findComment&comment=341661)
-- [The Women King &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - &lpar;DD+5.1 - 640Kbps&rpar; - 3.2GB &amp; 1.3GB | x264 - &lpar;Tamil + Telugu&rpar; - 450MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171316-the-women-king-2022-bluray-original-audios-1080p-720p-x264-tamil-eng-dd51-640kbps-32gb-13gb-x264-tamil-telugu-450mb-esub/&do=findComment&comment=341660)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
