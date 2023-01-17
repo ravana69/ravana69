@@ -21,21 +21,10 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Varisu &lpar;2023&rpar; Tamil Audio launch TRUE HQ HDTV - [1080p &amp; 720p - AVC - 5.2GB - 2.4GB - 1.3GB &amp; 400MB]](https://www.1tamilmv.autos/index.php?/forums/topic/171078-varisu-2023-tamil-audio-launch-true-hq-hdtv-1080p-720p-avc-52gb-24gb-13gb-400mb/&do=findComment&comment=341632)
-- [BIGG BOSS Tamil &lpar;2023&rpar; S06 EP99 - DAY 98 TRUE WEB-DL - [1080p, 720p, 480p - AVC - UNTOUCHED - 1.2GB - 550MB &amp; 250MB] [15-01-2023]](https://www.1tamilmv.autos/index.php?/forums/topic/171299-bigg-boss-tamil-2023-s06-ep99-day-98-true-web-dl-1080p-720p-480p-avc-untouched-12gb-550mb-250mb-15-01-2023/&do=findComment&comment=341631)
-- [Prometheus &lpar;2012&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - &lpar;DD5.1 - 448Kbps&rpar; - 2.9GB &amp; 1.2B | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171296-prometheus-2012-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-dd51-448kbps-29gb-12b-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=341630)
-- [Varisu - Celebration Of Varisu &lpar;Tamil&rpar; - 1080p &amp; 4K - DD5.1 + DTSHDMA5.1 &lpar;Lossless ALAC Upmixed&rpar; - Cinema Surround 5.1](https://www.1tamilmv.autos/index.php?/forums/topic/171305-varisu-celebration-of-varisu-tamil-1080p-4k-dd51-dtshdma51-lossless-alac-upmixed-cinema-surround-51/&do=findComment&comment=341629)
-- [Prometheus &lpar;2012&rpar; Hybrid - IMAX - 1080p [Tamil + Telugu + Hindi + English] DD5.1 &lpar;448Kbps&rpar; - H.264 &lpar;Gdrive&rpar;](https://www.1tamilmv.autos/index.php?/forums/topic/171304-prometheus-2012-hybrid-imax-1080p-tamil-telugu-hindi-english-dd51-448kbps-h264-gdrive/&do=findComment&comment=341628)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Raagm Thaanam Swaralaya | Sooryagayathri | Mohanlal | Raveendran | KJ Yesudas | Urvashi](https://www.youtube.com/watch?v=fxXw5K4_x4M)
-- [Christian Melody Song | Chithra Arun | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=uz45UFcjofg)
-- [Annara Kanna Vaa film song on Gayatrhi veena by Vaikom Vijayalakshmi | Mohan Sithara | Brahmaram](https://www.youtube.com/watch?v=cAu2GPu2-zM)
-- [എന്തേ മുല്ലേ പൂക്കാത്തു... | Panchaloham Movie Song | #enthemulle  #yesudashits #chithrahits](https://www.youtube.com/watch?v=DFc29OuFayA)
-- [Ponmurali Oothum Kaatil Song | Mohanlal | Ramya Krishnan | Monisha | MG Sreekumar | Sujatha Mohan](https://www.youtube.com/watch?v=jC2Qaw_y9-I)
-- [ആദ്യ കേൾവിയിൽ തന്നെ ഇഷ്ടപെട്ടുപോയ മലയാളസിനിമയിലെ  സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | NISARI | EVERGREEN SONGS](https://www.youtube.com/watch?v=HYjhg1AIDl4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
