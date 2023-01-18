@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Singer Of The Week | KG Markose | Christian Devotional Songs Malayalam | Joji Johns | Melody Song](https://www.youtube.com/watch?v=3y3CpM4q0kI)
 - [Parayaathe Ariyaathe Video Song | Mohanlal | Meena | KJ Yesudas | KS Chithra| Deepak Dev| Kaithapram](https://www.youtube.com/watch?v=X9Sb9edaWzI)
 - [Pareeksha Vannu | Naam | Shabareesh Varma | Niranj Suresh | Sooraj Santhosh | Suchith Suresan](https://www.youtube.com/watch?v=7EHh806O3Yo)
 - [JeevaVipanchiyil Karaoke | Fr.John Pichappilly | KJ Antony | Marian Song Karaoke | Christian Karaoke](https://www.youtube.com/watch?v=80YaO6vOSLg)
 - [Anthike Varikente Krishna | Vimaanam | Divya S Menon | Kavya Ajith | Radhika Sethumadhavan|Seba Tomy](https://www.youtube.com/watch?v=VTafReREYAI)
 - [Momo in Dubai - Official Trailer | Aneesh Gopinathan, Anusithara | Ameen Aslam | Jassie Gift](https://www.youtube.com/watch?v=mAAJgn_frfI)
-- [Maloor Thottam - Video Song | Padavettu | Nivin Pauly | Govind Vasantha | Anwar Ali | Liju Krishna](https://www.youtube.com/watch?v=mXcc6ZUPPUE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
