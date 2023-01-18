@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Christian Video Songs Malayalam | Kester | Joji Johns | Chithra Arun | Christian Melody Songs](https://www.youtube.com/watch?v=_LIy5HNF2fs)
 - [Enna Thavam | Thilakkam | Dileep | Kavya | Chinmayi | Kaithapram | Jayaraj](https://www.youtube.com/watch?v=laaHPEA69Zo)
 - [Christian Melody Songs | KG Markose | Christian Devotional Songs Malayalam | Joji Johns | Kester](https://www.youtube.com/watch?v=6ClPjTsEZ74)
 - [Shalamon - Teaser | Vishnu Unnikrishnan | Dileesh Pothan | Sudhy Kopa | Jithin Padmanabhan #shorts](https://www.youtube.com/watch?v=PfKsjjYAF1c)
 - [Ayisha - Arabic Trailer | Manju Warrier | Aamir Pallikkal | M Jayachandran](https://www.youtube.com/watch?v=gGTVlb7LDpc)
 - [17 January 2023](https://www.youtube.com/watch?v=mBf1KH_5yTw)
+- [Chanchala Druthapada Video Song | Navya Nair | Jayasudha | KS Chithra | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=z2j0928o4lw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
@@ -163,7 +163,7 @@ https://user-images.githubusercontent.com/47528708/176845771-6ad8f1d2-8008-4f49-
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=4B0082&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
 
-<img align="centre" height="200px" width="200px" alt="GIF" src="https://github.com/ravana69/ravana69/blob/master/rvm.gif">
+<img align="centre" height="200px" width="200px" alt="GIF" src="https://github.com/ravana69/ravana69/blob/main/media/gifs/rvm.gif">
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=0000FF&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
 
@@ -177,14 +177,14 @@ https://user-images.githubusercontent.com/47528708/176845771-6ad8f1d2-8008-4f49-
 [![Newyear.svg](https://dday-widget.minung.dev/widget?text=New%20Year%20&date=2024-01-01&startDate=2022-01-01&theme=theme1)](https://google.com)
 [![Birthday.svg](https://dday-widget.minung.dev/widget?text=Birthday&date=2023-03-13)](https://dday-widget.minung.dev)
 
-<img alt="GitHub Future" src="https://github.com/ravana69/ravana69/blob/master/githubfuture.png"> </img>
-<img alt="GitHub Community" src="https://github.com/ravana69/ravana69/blob/master/githubcommunity.png"> </img>
+<img alt="GitHub Future" src="https://github.com/ravana69/ravana69/blob/main/media/gifs/githubfuture.png"> </img>
+<img alt="GitHub Community" src="https://github.com/ravana69/ravana69/blob/main/media/gifs/githubcommunity.png"> </img>
 
 <img alt="Cosmos" src="https://github.com/ravana69/ravana69/blob/master/cosmos.gif"> </img>
-<img alt="Moonlight" src="https://github.com/ravana69/ravana69/blob/master/media/moonlight.gif"> </img>
-<img alt="Trainride" src="https://github.com/ravana69/ravana69/blob/master/media/trainride.gif"> </img>
-<img alt="Monkeynft" src="https://github.com/ravana69/ravana69/blob/master/media/monkeynft.gif"> </img>
-<img alt="Dognft" src="https://github.com/ravana69/ravana69/blob/master/media/dognft.gif"> </img>
+<img alt="Moonlight" src="https://github.com/ravana69/ravana69/blob/master/media/gifs/moonlight.gif"> </img>
+<img alt="Trainride" src="https://github.com/ravana69/ravana69/blob/master/media/gifs/trainride.gif"> </img>
+<img alt="Monkeynft" src="https://github.com/ravana69/ravana69/blob/master/media/gifs/monkeynft.gif"> </img>
+<img alt="Dognft" src="https://github.com/ravana69/ravana69/blob/master/media/gifs/dognft.gif"> </img>
 
 ![image](https://user-images.githubusercontent.com/47528708/208236715-864b1588-423a-4001-8917-acbae7107d71.png)
 
