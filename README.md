@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Avatar : The Way Of Water &lpar;2022&rpar; English Full Movie Watch Now HQ For Free](https://www.1tamilmv.autos/index.php?/forums/topic/170150-avatar-the-way-of-water-2022-english-full-movie-watch-now-hq-for-free/&do=findComment&comment=341678)
 - [The Women King &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - &lpar;DD+5.1 - 640Kbps&rpar; - 3.2GB &amp; 1.3GB | x264 - &lpar;Tamil + Telugu&rpar; - 450MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171316-the-women-king-2022-bluray-original-audios-1080p-720p-x264-tamil-eng-dd51-640kbps-32gb-13gb-x264-tamil-telugu-450mb-esub/&do=findComment&comment=341677)
 - [The Women King &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - &lpar;DD+5.1 - 640Kbps&rpar; - 3.2GB &amp; 1.3GB | x264 - &lpar;Tamil + Telugu&rpar; - 450MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171316-the-women-king-2022-bluray-original-audios-1080p-720p-x264-tamil-eng-dd51-640kbps-32gb-13gb-x264-tamil-telugu-450mb-esub/&do=findComment&comment=341676)
 - [The Women King &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - &lpar;DD+5.1 - 640Kbps&rpar; - 3.2GB &amp; 1.3GB | x264 - &lpar;Tamil + Telugu&rpar; - 450MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171316-the-women-king-2022-bluray-original-audios-1080p-720p-x264-tamil-eng-dd51-640kbps-32gb-13gb-x264-tamil-telugu-450mb-esub/&do=findComment&comment=341675)
 - [The.Glimmer.Man.1996 AAC 2.0 Tamil  720p  Blu-Ray Msub  1GB [G-Drive]](https://www.1tamilmv.autos/index.php?/forums/topic/171321-theglimmerman1996-aac-20-tamil-720p-blu-ray-msub-1gb-g-drive/&do=findComment&comment=341674)
-- [The.Amazing.Spider-Man.2012 DD5.1 Tamil-Telugu-Hindi-English UHD.Blu-Ray 1080p &amp; 2160p.TrueHD.Atmos.7.1.HEVC.REMUX Msub 7GB &amp; 50GB [G-Drive]](https://www.1tamilmv.autos/index.php?/forums/topic/171320-theamazingspider-man2012-dd51-tamil-telugu-hindi-english-uhdblu-ray-1080p-2160ptruehdatmos71hevcremux-msub-7gb-50gb-g-drive/&do=findComment&comment=341673)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
