@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മനസിന്റെ ഏതോ ഒരു കോണിൽ ചില്ലിട്ടടച്ചുവെച്ച മനോഹരങ്ങളായ ഗാനങ്ങൾ  | SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=5CvkmxNR4aw)
+- [Ente Peru Vilikkayano | Varnakkaazhchakal | Yusufali Kecheri | Mohan Sithara | Dileep | Poornima](https://www.youtube.com/watch?v=i1QU9pvljXw)
+- [Kilukilukkampetti | Ennum nanmakal Movie Song |  K J Yesudas](https://www.youtube.com/watch?v=cFjo66lU_cI)
 - [Christian Video Songs Malayalam | Kester | Joji Johns | Chithra Arun | Christian Melody Songs](https://www.youtube.com/watch?v=_LIy5HNF2fs)
 - [Enna Thavam | Thilakkam | Dileep | Kavya | Chinmayi | Kaithapram | Jayaraj](https://www.youtube.com/watch?v=laaHPEA69Zo)
 - [Christian Melody Songs | KG Markose | Christian Devotional Songs Malayalam | Joji Johns | Kester](https://www.youtube.com/watch?v=6ClPjTsEZ74)
-- [Shalamon - Teaser | Vishnu Unnikrishnan | Dileesh Pothan | Sudhy Kopa | Jithin Padmanabhan #shorts](https://www.youtube.com/watch?v=PfKsjjYAF1c)
-- [Ayisha - Arabic Trailer | Manju Warrier | Aamir Pallikkal | M Jayachandran](https://www.youtube.com/watch?v=gGTVlb7LDpc)
-- [17 January 2023](https://www.youtube.com/watch?v=mBf1KH_5yTw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
