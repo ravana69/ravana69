@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [War for the Planet of the Apes &lpar;2017&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.9GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171323-war-for-the-planet-of-the-apes-2017-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-29gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=341684)
 - [War for the Planet of the Apes &lpar;2017&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.9GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171323-war-for-the-planet-of-the-apes-2017-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-29gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=341683)
 - [War for the Planet of the Apes &lpar;2017&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.9GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171323-war-for-the-planet-of-the-apes-2017-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-29gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=341681)
 - [Pudhupettai &lpar;2006&rpar; Original Motion Picture Soundtrack Master Quality 24bit - ALAC - Yuvan Shankar Raja - 505 MB](https://www.1tamilmv.autos/index.php?/forums/topic/171322-pudhupettai-2006-original-motion-picture-soundtrack-master-quality-24bit-alac-yuvan-shankar-raja-505-mb/&do=findComment&comment=341680)
 - [Avatar : The Way Of Water &lpar;2022&rpar; English Full Movie Watch Now HQ For Free](https://www.1tamilmv.autos/index.php?/forums/topic/170150-avatar-the-way-of-water-2022-english-full-movie-watch-now-hq-for-free/&do=findComment&comment=341678)
-- [The Women King &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - &lpar;DD+5.1 - 640Kbps&rpar; - 3.2GB &amp; 1.3GB | x264 - &lpar;Tamil + Telugu&rpar; - 450MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171316-the-women-king-2022-bluray-original-audios-1080p-720p-x264-tamil-eng-dd51-640kbps-32gb-13gb-x264-tamil-telugu-450mb-esub/&do=findComment&comment=341677)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
