@@ -68,7 +68,11 @@
 <!--START_SECTION:waka-->
 
 ```text
-No activity tracked
+From: 11 January 2023 - To: 18 January 2023
+
+Total Time: 2 hrs 31 mins
+
+Other   2 hrs 31 mins   ▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰   100.00 %
 ```
 
 <!--END_SECTION:waka-->
