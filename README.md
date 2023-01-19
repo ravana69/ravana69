@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ചെമ്പകപ്പൂ മൊട്ടിനുള്ളിൽ | Chepakapoo Mottinullil | Ennu Swantham Janakikutty | Chithra | Jomol](https://www.youtube.com/watch?v=KcVn-sT-5h0)
+- [Oru Chiri Kandal Video Song | Gireesh Puthenchery | Ilayaraja | Manjari | Vijay Yesudas | Meenakshi](https://www.youtube.com/watch?v=NYAyr5GvsiE)
+- [P. Bhaskaran Hits | Old Malayalam Movie Songs | Evergreen Malayalam Songs | KG Markose |  Daleema |](https://www.youtube.com/watch?v=xW1Ogi-YId8)
+- [Nanmayallathonnum | Samson Kottoor | Teenu Treasa | Prof. Koshy Thalakkal | Malayalam Worship Songs](https://www.youtube.com/watch?v=-Nfe5GNBr9w)
 - [Sooryanakale - Video | Vamanan | Indrans | A B Binil | Nithin George | Aby Thomas, Meenu Abhinandh](https://www.youtube.com/watch?v=hQNbux379C0)
 - [Mele Mele Maanam...|No : 1 Snehatheeram Bangalore North | #jerryamaldev #mammootty #priyaraman](https://www.youtube.com/watch?v=L0GKm25lWyE)
-- [THOOVAL - Video Song | Manal Pakshikal | Mithun Jayaraj | Netra, Nima I Santhosh Keezhatoor I Anjali](https://www.youtube.com/watch?v=B4xSv6DEcdM)
-- [19 January 2023](https://www.youtube.com/watch?v=4NH8CXkrA9s)
-- [യാത്രാവേളകളിൽ മനസുഖമേകുന്ന മലയാളസിനിമയിലെ വിനോദഗാനങ്ങൾ  | NISARI | SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=3Hs-23BfhNM)
-- [ഒരു തൂവൽ സ്‌പർശം പോൽ മനസിനെ തഴുകി തലോടുന്ന സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ  | EVERGREEN HITS MALAYALAM](https://www.youtube.com/watch?v=qvuQreJqTCc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
