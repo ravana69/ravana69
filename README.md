@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [#AaarumaarumKoodeyilla from #Djinn | #shorts](https://www.youtube.com/watch?v=TZR81yKx_EI)
 - [ചെമ്പകപ്പൂ മൊട്ടിനുള്ളിൽ | Chepakapoo Mottinullil | Ennu Swantham Janakikutty | Chithra | Jomol](https://www.youtube.com/watch?v=KcVn-sT-5h0)
 - [Oru Chiri Kandal Video Song | Gireesh Puthenchery | Ilayaraja | Manjari | Vijay Yesudas | Meenakshi](https://www.youtube.com/watch?v=NYAyr5GvsiE)
 - [P. Bhaskaran Hits | Old Malayalam Movie Songs | Evergreen Malayalam Songs | KG Markose |  Daleema |](https://www.youtube.com/watch?v=xW1Ogi-YId8)
 - [Nanmayallathonnum | Samson Kottoor | Teenu Treasa | Prof. Koshy Thalakkal | Malayalam Worship Songs](https://www.youtube.com/watch?v=-Nfe5GNBr9w)
 - [Sooryanakale - Video | Vamanan | Indrans | A B Binil | Nithin George | Aby Thomas, Meenu Abhinandh](https://www.youtube.com/watch?v=hQNbux379C0)
-- [Mele Mele Maanam...|No : 1 Snehatheeram Bangalore North | #jerryamaldev #mammootty #priyaraman](https://www.youtube.com/watch?v=L0GKm25lWyE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
