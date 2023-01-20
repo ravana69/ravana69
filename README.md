@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പിണക്കമെന്തേ പിണക്കമെന്തേ | Pinakkamenthe | Oru Kudakkeezhil | Malayalam Film Song | Johnson](https://www.youtube.com/watch?v=d1iOrV1Zvdo)
 - [Moonnaam Thrikkannil | Varnakkaazhchakal | K S Chithra | Mohan Sithara | Yusufali Kechery | Poornima](https://www.youtube.com/watch?v=5zy3RIccKDM)
 - [നർമ്മരസം തുളുമ്പുന്ന മലയാളസിനിമയിലെ ഏവരുടെയും ഇഷ്ടഗാനങ്ങൾ  | NISARI | MALAYALAM SONGS](https://www.youtube.com/watch?v=FCpZ8FHc8UM)
 - [Kilukilukkaam petti | Ennum nanmakal Movie Song | K J Yesudas](https://www.youtube.com/watch?v=4TZtnZvePEA)
-- [Janmantharangalay (Athramel snehichu poyi) | Hariharan | Ghazal Music Video (w/ English Subtitles)](https://www.youtube.com/watch?v=BwJZ5D4I2_M)
-- [Christian Melody Songs | Qurbana Songs Malayalam | Wilson Piravom | Joji Johns | Kester](https://www.youtube.com/watch?v=mYfeTCoaHOk)
-- [Kunjante Penninu | Kunjikoonan | Dileep | Nithyadas | Mohan Sithara | Cochin Haneefa | Vidhu Prathap](https://www.youtube.com/watch?v=__T68jmDoPA)
+- [Vaka Pattu - Video Song | Padavettu | Nivin Pauly | Aditi Balan | Liju Krishna | Govind Vasantha](https://www.youtube.com/watch?v=fe5pj6hWDfk)
+- [മധുമതി പൂവിരിഞ്ഞുവോ | Mohanlal | Vidyasagar | Keerthi Suresh | Priyadarshan | Geethanjali](https://www.youtube.com/watch?v=G6yU0KPqtlY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
