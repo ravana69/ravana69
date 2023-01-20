@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Mission Majnu &lpar;2023&rpar; [Tamil + Telugu + Hindi] Full Movie Watch Now HQ For Free](https://www.1tamilmv.autos/index.php?/forums/topic/171373-mission-majnu-2023-tamil-telugu-hindi-full-movie-watch-now-hq-for-free/&do=findComment&comment=341778)
 - [The Raid 2 &lpar;2014&rpar; DDP5 1&lpar;640Kbps&rpar; Tamil-Telugu-Hindi-DD5 1 English 1080p BluRay x265 Msub](https://www.1tamilmv.autos/index.php?/forums/topic/171372-the-raid-2-2014-ddp5-1640kbps-tamil-telugu-hindi-dd5-1-english-1080p-bluray-x265-msub/&do=findComment&comment=341777)
 - [70 Hollywood Movies - Bluray - H264/H265 - Original Audios DD5.1 / AAC - [Tamil + Telugu + Hindi + English] - Esub - [4K &amp; 1080p - 400GB] [GDRIVE]](https://www.1tamilmv.autos/index.php?/forums/topic/168762-70-hollywood-movies-bluray-h264h265-original-audios-dd51-aac-tamil-telugu-hindi-english-esub-4k-1080p-400gb-gdrive/&do=findComment&comment=341776)
 - [Mission Majnu &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Hindi] - 7GB - 2.6GB - 1.5GB &amp; 1GB] - [x264 - 800MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171371-mission-majnu-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-hindi-7gb-26gb-15gb-1gb-x264-800mb-450mb-250mb-esub/&do=findComment&comment=341775)
 - [Chhatriwali &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps &amp; AAC&rpar; - 1.8GB &amp; 1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171360-chhatriwali-2023-hindi-true-web-dl-1080p-720p-avc-dd51-192kbps-aac-18gb-1gb-x264-700mb-400mb-esub/&do=findComment&comment=341774)
-- [Dil Pasand &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171363-dil-pasand-2022-kannada-true-web-dl-1080p-720p-avc-dd51-192kbps-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=341773)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
