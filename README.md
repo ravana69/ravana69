@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Christian Melody Songs | Qurbana Songs Malayalam | Wilson Piravom | Joji Johns | Kester](https://www.youtube.com/watch?v=mYfeTCoaHOk)
 - [Kunjante Penninu | Kunjikoonan | Dileep | Nithyadas | Mohan Sithara | Cochin Haneefa | Vidhu Prathap](https://www.youtube.com/watch?v=__T68jmDoPA)
 - [#AaarumaarumKoodeyilla from #Djinn | #shorts](https://www.youtube.com/watch?v=aKD4aZA3cZc)
 - [#AaarumaarumKoodeyilla from #Djinn | #shorts](https://www.youtube.com/watch?v=sNNobTfUzY0)
 - [Christian Superhit Songs | KG Markose | Kester | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=EG04Q0zH5-M)
 - [#AaarumaarumKoodeyilla from #Djinn | #shorts](https://www.youtube.com/watch?v=TZR81yKx_EI)
-- [ചെമ്പകപ്പൂ മൊട്ടിനുള്ളിൽ | Chepakapoo Mottinullil | Ennu Swantham Janakikutty | Chithra | Jomol](https://www.youtube.com/watch?v=KcVn-sT-5h0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
