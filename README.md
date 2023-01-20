@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vedha &lpar;2022&rpar; Kannada Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.autos/index.php?/forums/topic/170907-vedha-2022-kannada-proper-hq-predvd-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=341770)
 - [Driver Jamuna &lpar;2022&rpar; Tamil &lpar;Original Version&rpar; TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.6GB - 2.2GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171359-driver-jamuna-2022-tamil-original-version-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-36gb-22gb-13gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=341769)
 - [Chhatriwali &lpar;2022&rpar; Hindi Full Movie Watch Now HQ For Free](https://www.1tamilmv.autos/index.php?/forums/topic/171370-chhatriwali-2022-hindi-full-movie-watch-now-hq-for-free/&do=findComment&comment=341768)
 - [Dil Pasand &lpar;2022&rpar; Kannada Full Movie Watch Now HQ For Free](https://www.1tamilmv.autos/index.php?/forums/topic/171369-dil-pasand-2022-kannada-full-movie-watch-now-hq-for-free/&do=findComment&comment=341767)
 - [Gurthunda Seethakalam &lpar;2022&rpar; Telugu Full Movie Watch Now HQ For Free](https://www.1tamilmv.autos/index.php?/forums/topic/171368-gurthunda-seethakalam-2022-telugu-full-movie-watch-now-hq-for-free/&do=findComment&comment=341766)
-- [Driver Jamuna &lpar;2022&rpar; AHA WEB-DL DDP5.1 Esubs - 2160p | 1080p | 720p - 3 GB | 1.8 GB | 1.1 GB](https://www.1tamilmv.autos/index.php?/forums/topic/171367-driver-jamuna-2022-aha-web-dl-ddp51-esubs-2160p-1080p-720p-3-gb-18-gb-11-gb/&do=findComment&comment=341765)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
