@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Parayamo |Four Friends | P.Jayachandran | Kaithapram|M Jayachandran | Vysakh | Jayaram | Jayasurya](https://www.youtube.com/watch?v=sTnbDrTYQT8)
 - [Santhosham | Motion Poster | Ajith V Thomas | Anu Sithara | Amith Chakkalakkal | Kalabhavan Shajon](https://www.youtube.com/watch?v=anIW33jtbdc)
 - [Christian Melody Songs | Kester | Sthothra Ganangal | Praise and Worship Songs | Kuttiyachan](https://www.youtube.com/watch?v=1Ld9Hg2Iw7A)
 - [21 January 2023](https://www.youtube.com/watch?v=TDpzBZqdBQA)
 - [Krishna Krishna | Karyasthan | Dileep | Akhila Sasidharan | Berny Ignatius | Jyotsna | Kaithapram](https://www.youtube.com/watch?v=PxmfL7suE08)
 - [Christian Superhit Songs | Minmini | Divine Night Songs | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=-ekejYj6rrI)
-- [Innallo Poothirunnal | 1080p | Malayalam Super Hit Song | Nandini Oppol | Nedumudi Venu | Geetha](https://www.youtube.com/watch?v=ElxFW6AZHCI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
