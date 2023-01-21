@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Chittam Maharani &lpar;2022&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.4GB - 2.3GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171361-chittam-maharani-2022-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-34gb-23gb-13gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=341822)
 - [Thala Ajith Kumar Tamil Movies COLLECTION [720p - BluRay&#39;s - HDRip&#39;s With DD5.1] - ESub  &lpar;Gdrive&rpar;](https://www.1tamilmv.autos/index.php?/forums/topic/170783-thala-ajith-kumar-tamil-movies-collection-720p-blurays-hdrips-with-dd51-esub-gdrive/&do=findComment&comment=341821)
 - [[4K60FPS|144FPS] Vikram &lpar;2022&rpar;  DSNP WEBRip Multi DDP5.1 H.265 - 2160p [4K60FPS] | 1080p [144FPS|60FPS] - 11.7 GB | 18.5 GB | 33.1 GB](https://www.1tamilmv.autos/index.php?/forums/topic/171385-4k60fps144fps-vikram-2022-dsnp-webrip-multi-ddp51-h265-2160p-4k60fps-1080p-144fps60fps-117-gb-185-gb-331-gb/&do=findComment&comment=341820)
 - [[60FPS] Mission Majnu &lpar;2023&rpar;  NF WEB-DL Multi DDP5.1 Esubs - 1080p [60FPS|HDR] | 720p - 10.4 GB | 6.8 GB | 3.7 GB | 2.7 GB](https://www.1tamilmv.autos/index.php?/forums/topic/171384-60fps-mission-majnu-2023-nf-web-dl-multi-ddp51-esubs-1080p-60fpshdr-720p-104-gb-68-gb-37-gb-27-gb/&do=findComment&comment=341819)
 - [Vallavanukkum Vallavan &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.autos/index.php?/forums/topic/171375-vallavanukkum-vallavan-2023-tamil-proper-hq-predvd-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=341818)
-- [The Raid 2 &lpar;2014&rpar; DDP5 1&lpar;640Kbps&rpar; Tamil-Telugu-Hindi-DD5 1 English 1080p BluRay x265 Msub](https://www.1tamilmv.autos/index.php?/forums/topic/171372-the-raid-2-2014-ddp5-1640kbps-tamil-telugu-hindi-dd5-1-english-1080p-bluray-x265-msub/&do=findComment&comment=341817)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
