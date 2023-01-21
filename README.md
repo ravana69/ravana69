@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chare Oral | Dance Video | Jamsheena Jamal #shorts](https://www.youtube.com/watch?v=zH2_lSkOJcI)
+- [Chellam Cholli | Bonsai  | Sreya Jayadeep | Jayachandran Kavumthazha | Suresh Ramanthali](https://www.youtube.com/watch?v=ocK5LrMt5n0)
+- [Kanni Vasantham Video Song | Dileep | Umashankari | KJ Yesudas, Sujatha Mohan | Gireesh Puthenchery](https://www.youtube.com/watch?v=l5Uqrx7ttew)
 - [Vennilave Ninnarikil | Queen | KS Harisankar | Sooraj Santhosh | Zia Ul Haq |  Ajaey Shravan](https://www.youtube.com/watch?v=ICkA8JE08Mw)
 - [Chare Oral | Dance Video | Jamsheena Jamal #shorts](https://www.youtube.com/watch?v=Zk7rNiaOEIE)
 - [മലയാളസിനിമയിലെ ഇതിഹാസ താരങ്ങൾ മമ്മൂട്ടി - മോഹൻലാൽ അഭിനയിച്ച ചിത്രങ്ങളിലെ നിത്യഹരിതഗാനങ്ങൾ](https://www.youtube.com/watch?v=uLkFXkMPC9U)
-- [ഒരുകാലത്ത് മലയാളസിനിമയിൽ നിറഞ്ഞു നിന്ന നായികാവസന്തം ഉർവശി അഭിനയിച്ച സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | URVASHI](https://www.youtube.com/watch?v=4dkTchJaCkA)
-- [Nalla Samayam Old Songs Mashup | Omar Lulu | Irshad Ali](https://www.youtube.com/watch?v=8AvLSctkeE0)
-- [Parayamo |Four Friends | P.Jayachandran | Kaithapram|M Jayachandran | Vysakh | Jayaram | Jayasurya](https://www.youtube.com/watch?v=sTnbDrTYQT8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
