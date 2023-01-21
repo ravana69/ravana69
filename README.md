@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Naane Bartini &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640kbps&rpar; - 3GB - 1.4GB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171342-naane-bartini-2022-kannada-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-3gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=341830)
 - [Ayisha &lpar;2023&rpar; Malayalam Proper HQ PreDVD - 720p - x264 - HQ Clean Audio - MP3 - 1.3GB](https://www.1tamilmv.autos/index.php?/forums/topic/167439-ayisha-2023-malayalam-proper-hq-predvd-720p-x264-hq-clean-audio-mp3-13gb/&do=findComment&comment=341829)
 - [OKE OKKADU &lpar;1999&rpar; TELUGU &lpar;MUSIC VIDEO ALBUM&rpar; - DVDREMUX - DOLBY® 5.1 - ESUBS - 1.2GB](https://www.1tamilmv.autos/index.php?/forums/topic/171278-oke-okkadu-1999-telugu-music-video-album-dvdremux-dolby%C2%AE-51-esubs-12gb/&do=findComment&comment=341828)
 - [Kallamellam Un Mediyil &lpar;1986&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 1.6GB](https://www.1tamilmv.autos/index.php?/forums/topic/171386-kallamellam-un-mediyil-1986tamil480phdtvx264aac20-16gb/&do=findComment&comment=341827)
 - [70 Hollywood Movies - Bluray - H264/H265 - Original Audios DD5.1 / AAC - [Tamil + Telugu + Hindi + English] - Esub - [4K &amp; 1080p - 400GB] [GDRIVE]](https://www.1tamilmv.autos/index.php?/forums/topic/168762-70-hollywood-movies-bluray-h264h265-original-audios-dd51-aac-tamil-telugu-hindi-english-esub-4k-1080p-400gb-gdrive/&do=findComment&comment=341826)
-- [Vallavanukkum Vallavan &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.autos/index.php?/forums/topic/171375-vallavanukkum-vallavan-2023-tamil-proper-hq-predvd-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=341825)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
