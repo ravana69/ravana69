@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Thala Ajith Kumar Tamil Movies COLLECTION [720p - BluRay&#39;s - HDRip&#39;s With DD5.1] - ESub  &lpar;Gdrive&rpar;](https://www.1tamilmv.autos/index.php?/forums/topic/170783-thala-ajith-kumar-tamil-movies-collection-720p-blurays-hdrips-with-dd51-esub-gdrive/&do=findComment&comment=341821)
+- [[4K60FPS|144FPS] Vikram &lpar;2022&rpar;  DSNP WEBRip Multi DDP5.1 H.265 - 2160p [4K60FPS] | 1080p [144FPS|60FPS] - 11.7 GB | 18.5 GB | 33.1 GB](https://www.1tamilmv.autos/index.php?/forums/topic/171385-4k60fps144fps-vikram-2022-dsnp-webrip-multi-ddp51-h265-2160p-4k60fps-1080p-144fps60fps-117-gb-185-gb-331-gb/&do=findComment&comment=341820)
+- [[60FPS] Mission Majnu &lpar;2023&rpar;  NF WEB-DL Multi DDP5.1 Esubs - 1080p [60FPS|HDR] | 720p - 10.4 GB | 6.8 GB | 3.7 GB | 2.7 GB](https://www.1tamilmv.autos/index.php?/forums/topic/171384-60fps-mission-majnu-2023-nf-web-dl-multi-ddp51-esubs-1080p-60fpshdr-720p-104-gb-68-gb-37-gb-27-gb/&do=findComment&comment=341819)
+- [Vallavanukkum Vallavan &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.autos/index.php?/forums/topic/171375-vallavanukkum-vallavan-2023-tamil-proper-hq-predvd-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=341818)
 - [The Raid 2 &lpar;2014&rpar; DDP5 1&lpar;640Kbps&rpar; Tamil-Telugu-Hindi-DD5 1 English 1080p BluRay x265 Msub](https://www.1tamilmv.autos/index.php?/forums/topic/171372-the-raid-2-2014-ddp5-1640kbps-tamil-telugu-hindi-dd5-1-english-1080p-bluray-x265-msub/&do=findComment&comment=341817)
-- [The Raid 2 &lpar;2014&rpar; DDP5 1&lpar;640Kbps&rpar; Tamil-Telugu-Hindi-DD5 1 English 1080p BluRay x265 Msub](https://www.1tamilmv.autos/index.php?/forums/topic/171372-the-raid-2-2014-ddp5-1640kbps-tamil-telugu-hindi-dd5-1-english-1080p-bluray-x265-msub/&do=findComment&comment=341816)
-- [Nanpakal Nerathu Mayakkam &lpar;2023&rpar; Malayalam Proper HQ PreDVD - 720p - x264 - HQ Clean Audio - MP3 - 1.2GB](https://www.1tamilmv.autos/index.php?/forums/topic/168892-nanpakal-nerathu-mayakkam-2023-malayalam-proper-hq-predvd-720p-x264-hq-clean-audio-mp3-12gb/&do=findComment&comment=341815)
-- [📌 KHAIDI NO. 150 &lpar;2017&rpar; &lpar;Music Video Album&rpar; - 1080P - DSNP - WEBDL - AVC - #TEL DD® 5.1 @ 384Kbps - #HDTV SYNC - ESUBS - 800MB - FirstOnNET 〰️ [avatar]](https://www.1tamilmv.autos/index.php?/forums/topic/171383-%F0%9F%93%8C-khaidi-no-150-2017-music-video-album-1080p-dsnp-webdl-avc-tel-dd%C2%AE-51-384kbps-hdtv-sync-esubs-800mb-firstonnet-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=341814)
-- [Driver Jamuna &lpar;2022&rpar; AHA WEB-DL DDP5.1 Esubs - 2160p | 1080p | 720p - 3 GB | 1.8 GB | 1.1 GB](https://www.1tamilmv.autos/index.php?/forums/topic/171367-driver-jamuna-2022-aha-web-dl-ddp51-esubs-2160p-1080p-720p-3-gb-18-gb-11-gb/&do=findComment&comment=341813)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
