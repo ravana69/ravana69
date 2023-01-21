@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [DHAMAKA &lpar;2022&rpar; TELUGU &lpar;MUSIC VIDEO ALBUM&rpar; - HQ 1080P - NF - WEBDL - H264 - DDP 5.1 @ 640Kbps - ESUBS - 1GB](https://www.1tamilmv.autos/index.php?/forums/topic/171393-dhamaka-2022-telugu-music-video-album-hq-1080p-nf-webdl-h264-ddp-51-640kbps-esubs-1gb/&do=findComment&comment=341841)
 - [The Dead 2: India &lpar;2013&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.8GB &amp; 900MB | x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171388-the-dead-2-india-2013-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-18gb-900mb-x264-tam-hin-400mb-esub/&do=findComment&comment=341840)
 - [Dhamaka &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171392-dhamaka-2022-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-5gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=341839)
 - [BIGG BOSS Tamil &lpar;2023&rpar; S06 EP105 - DAY 104 TRUE WEB-DL - [1080p, 720p, 480p - AVC - UNTOUCHED - 1GB - 550MB &amp; 250MB] [21-01-2023]](https://www.1tamilmv.autos/index.php?/forums/topic/171391-bigg-boss-tamil-2023-s06-ep105-day-104-true-web-dl-1080p-720p-480p-avc-untouched-1gb-550mb-250mb-21-01-2023/&do=findComment&comment=341838)
 - [BIGG BOSS Tamil &lpar;2023&rpar; S06 EP105 - DAY 104 TRUE WEB-DL - [1080p, 720p, 480p - AVC - UNTOUCHED - 1GB - 550MB &amp; 250MB] [21-01-2023]](https://www.1tamilmv.autos/index.php?/forums/topic/171391-bigg-boss-tamil-2023-s06-ep105-day-104-true-web-dl-1080p-720p-480p-avc-untouched-1gb-550mb-250mb-21-01-2023/&do=findComment&comment=341837)
-- [The Dead 2: India &lpar;2013&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.8GB &amp; 900MB | x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171388-the-dead-2-india-2013-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-18gb-900mb-x264-tam-hin-400mb-esub/&do=findComment&comment=341836)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
