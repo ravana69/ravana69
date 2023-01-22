@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Dhamaka &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171392-dhamaka-2022-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-5gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=341860)
+- [Coimbatore Mappillai &lpar;1996&rpar; WEB-DL [1080p - Tamil - AAC2.0] - H.264 - 3.1GB | Maaman Magal &lpar;1995&rpar; AMZN - WEB-DL [1080p - Tamil - DDP2.0] - H.264 - 9GB - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/168768-coimbatore-mappillai-1996-web-dl-1080p-tamil-aac20-h264-31gb-maaman-magal-1995-amzn-web-dl-1080p-tamil-ddp20-h264-9gb-esub/&do=findComment&comment=341859)
+- [Kaththi &lpar;2014&rpar; SS - WEB-DL [1080p - Tamil - DD5.1 &lpar;320Kbps&rpar;] - H.264 - 4.3GB](https://www.1tamilmv.autos/index.php?/forums/topic/169283-kaththi-2014-ss-web-dl-1080p-tamil-dd51-320kbps-h264-43gb/&do=findComment&comment=341858)
 - [Billa &lpar;2007&rpar; SS - WEB-DL [1080p - Tamil - DD5.1 &lpar;320Kbps&rpar;] - H.264 - 3.8GB](https://www.1tamilmv.autos/index.php?/forums/topic/157189-billa-2007-ss-web-dl-1080p-tamil-dd51-320kbps-h264-38gb/&do=findComment&comment=341857)
 - [Doraemon: Nobita&#39;s Chronicle of the Moon Exploration &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Jap&rpar; - 2.5GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171402-doraemon-nobitas-chronicle-of-the-moon-exploration-2019-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-jap-25gb-11gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=341856)
-- [Doraemon: Nobita&#39;s Chronicle of the Moon Exploration &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Jap&rpar; - 2.5GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171402-doraemon-nobitas-chronicle-of-the-moon-exploration-2019-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-jap-25gb-11gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=341855)
-- [Mission.Majnu.2023.1080p, 720p.NF.WEB-DL.MULTI.DDP5.1.x264 &lpar;Gdrive&rpar;](https://www.1tamilmv.autos/index.php?/forums/topic/171401-missionmajnu20231080p-720pnfweb-dlmultiddp51x264-gdrive/&do=findComment&comment=341854)
-- [The Dead 2 India &lpar;2013&rpar; BluRay - 1080p - [Tamil + Hindi + Eng] &lpar;Gdrive&rpar;](https://www.1tamilmv.autos/index.php?/forums/topic/171400-the-dead-2-india-2013-bluray-1080p-tamil-hindi-eng-gdrive/&do=findComment&comment=341853)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
