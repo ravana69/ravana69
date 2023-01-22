@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Dhamaka &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171392-dhamaka-2022-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-5gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=341868)
 - [Choodu &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.7GB &amp; 900MB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.autos/index.php?/forums/topic/171403-choodu-2022-malayalam-true-web-dl-1080p-720p-avc-17gb-900mb-x264-700mb-400mb/&do=findComment&comment=341867)
 - [Perfume &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 2GB &amp; 1GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.autos/index.php?/forums/topic/171404-perfume-2022-malayalam-true-web-dl-1080p-720p-avc-2gb-1gb-x264-700mb-400mb/&do=findComment&comment=341866)
 - [Dhamaka &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171392-dhamaka-2022-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-5gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=341865)
 - [Coimbatore Mappillai &lpar;1996&rpar; WEB-DL [1080p - Tamil - AAC2.0] - H.264 - 3.1GB | Maaman Magal &lpar;1995&rpar; AMZN - WEB-DL [1080p - Tamil - DDP2.0] - H.264 - 9GB - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/168768-coimbatore-mappillai-1996-web-dl-1080p-tamil-aac20-h264-31gb-maaman-magal-1995-amzn-web-dl-1080p-tamil-ddp20-h264-9gb-esub/&do=findComment&comment=341864)
-- [Perfume &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 2GB &amp; 1GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.autos/index.php?/forums/topic/171404-perfume-2022-malayalam-true-web-dl-1080p-720p-avc-2gb-1gb-x264-700mb-400mb/&do=findComment&comment=341863)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
