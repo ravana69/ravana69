@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Minnalle Minnalle...| Super Hit Movie Song | Vesham Movie Song | K.S.Chithra | Gopika](https://www.youtube.com/watch?v=tCa5FsuXcrY)
+- [Chare Oral | Dance Video | Jamsheena Jamal #shorts](https://www.youtube.com/watch?v=nVpDPYsn8n4)
+- [#MaloorThottam from #Padavetu | #NivinPauly | #shorts](https://www.youtube.com/watch?v=NDpIjTjSBGM)
+- [Novumida Nenjil Video Song | Sharada | MG Sreekumar | Gireesh Puthenchery | MG Radhakrishnan](https://www.youtube.com/watch?v=DW-yXnQMPWU)
 - [#MaloorThottam from #Padavetu | #NivinPauly | #shorts](https://www.youtube.com/watch?v=Ja7o6-J97fA)
 - [#MaloorThottam from #Padavetu | #NivinPauly | #shorts](https://www.youtube.com/watch?v=od48TAMbIkg)
-- [Chare Oral | Dance Video | Jamsheena Jamal #shorts](https://www.youtube.com/watch?v=mM1JgxGQbcA)
-- [മണിനാഗക്കാവിലെ മൺ‌വിള‍ക്കായ്... #youtubeshorts  #bijumenon #mohini  #eepuzhayumkadannu](https://www.youtube.com/watch?v=4aZg4EvK1gM)
-- [Kannoram Vellitharam Chiri | Marubhoomiyile Mazhathullikal | Hesham Abdul Wahab | B K Harinarayanan](https://www.youtube.com/watch?v=-a37I4h8yf4)
-- [Podi Paarana Neraane | Queen | Ajaey Shravan | Kesav Vinod | Sunil Kumar | Jakes Bejoy | Joe Paul](https://www.youtube.com/watch?v=P-xLodOitfY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
