@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Dhamaka &lpar;2022&rpar; Telugu HQ HDRip - 1080p - HEVC - &lpar;DD+5.1 - 192Kbps &amp; AAC&rpar; - 1.6GB - ESub - GDRIVE &lpar;Direct Link&rpar;](https://www.1tamilmv.autos/index.php?/forums/topic/171396-dhamaka-2022-telugu-hq-hdrip-1080p-hevc-dd51-192kbps-aac-16gb-esub-gdrive-direct-link/&do=findComment&comment=341848)
-- [Dhamaka &lpar;2022&rpar; NF  WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 5.4 GB | 3.1 GB](https://www.1tamilmv.autos/index.php?/forums/topic/171395-dhamaka-2022-nf-web-dl-ddp51-esubs-x264-1080p-720p-54-gb-31-gb/&do=findComment&comment=341847)
-- [Project Wolf Hunting &lpar;2022&rpar; AMZN WEB-DL Multi DDP5.1 Esubs x264 - 1080p | 720p - 8.7 GB | 4.7 GB](https://www.1tamilmv.autos/index.php?/forums/topic/171394-project-wolf-hunting-2022-amzn-web-dl-multi-ddp51-esubs-x264-1080p-720p-87-gb-47-gb/&do=findComment&comment=341846)
-- [The Dead 2: India &lpar;2013&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.8GB &amp; 900MB | x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171388-the-dead-2-india-2013-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-18gb-900mb-x264-tam-hin-400mb-esub/&do=findComment&comment=341845)
-- [Dhamaka &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171392-dhamaka-2022-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-5gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=341844)
+- [Mission.Majnu.2023.1080p, 720p.NF.WEB-DL.MULTI.DDP5.1.x264 &lpar;Gdrive&rpar;](https://www.1tamilmv.autos/index.php?/forums/topic/171401-missionmajnu20231080p-720pnfweb-dlmultiddp51x264-gdrive/&do=findComment&comment=341854)
+- [The Dead 2 India &lpar;2013&rpar; BluRay - 1080p - [Tamil + Hindi + Eng] &lpar;Gdrive&rpar;](https://www.1tamilmv.autos/index.php?/forums/topic/171400-the-dead-2-india-2013-bluray-1080p-tamil-hindi-eng-gdrive/&do=findComment&comment=341853)
+- [Project Wolf Hunting &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Kor&rpar; - 3.5GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171390-project-wolf-hunting-2022-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-kor-35gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=341852)
+- [Project.Wolf.Hunting.2022.1080p, 720p.AMZN.WEB-DL.DDP5.1.HEVC &lpar;Gdrive&rpar;](https://www.1tamilmv.autos/index.php?/forums/topic/171399-projectwolfhunting20221080p-720pamznweb-dlddp51hevc-gdrive/&do=findComment&comment=341851)
+- [Dhamaka.2022.[1080p,720p].NF.WEB-DL.DDP5.1.HDR-H.265-&lpar;Gdrive&rpar;](https://www.1tamilmv.autos/index.php?/forums/topic/171398-dhamaka20221080p720pnfweb-dlddp51hdr-h265-gdrive/&do=findComment&comment=341850)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
