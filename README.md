@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Dhamaka &lpar;2022&rpar; Telugu HQ HDRip - 1080p - HEVC - &lpar;DD+5.1 - 192Kbps &amp; AAC&rpar; - 1.6GB - ESub - GDRIVE &lpar;Direct Link&rpar;](https://www.1tamilmv.autos/index.php?/forums/topic/171396-dhamaka-2022-telugu-hq-hdrip-1080p-hevc-dd51-192kbps-aac-16gb-esub-gdrive-direct-link/&do=findComment&comment=341848)
 - [Dhamaka &lpar;2022&rpar; NF  WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 5.4 GB | 3.1 GB](https://www.1tamilmv.autos/index.php?/forums/topic/171395-dhamaka-2022-nf-web-dl-ddp51-esubs-x264-1080p-720p-54-gb-31-gb/&do=findComment&comment=341847)
 - [Project Wolf Hunting &lpar;2022&rpar; AMZN WEB-DL Multi DDP5.1 Esubs x264 - 1080p | 720p - 8.7 GB | 4.7 GB](https://www.1tamilmv.autos/index.php?/forums/topic/171394-project-wolf-hunting-2022-amzn-web-dl-multi-ddp51-esubs-x264-1080p-720p-87-gb-47-gb/&do=findComment&comment=341846)
 - [The Dead 2: India &lpar;2013&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.8GB &amp; 900MB | x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171388-the-dead-2-india-2013-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-18gb-900mb-x264-tam-hin-400mb-esub/&do=findComment&comment=341845)
 - [Dhamaka &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171392-dhamaka-2022-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-5gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=341844)
-- [DHAMAKA &lpar;2022&rpar; TELUGU &lpar;MUSIC VIDEO ALBUM&rpar; - HQ 1080P - NF - WEBDL - H264 - DDP 5.1 @ 640Kbps - ESUBS - 1GB](https://www.1tamilmv.autos/index.php?/forums/topic/171393-dhamaka-2022-telugu-music-video-album-hq-1080p-nf-webdl-h264-ddp-51-640kbps-esubs-1gb/&do=findComment&comment=341843)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
