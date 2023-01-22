@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Picha Vacha Naal Full Video Song | HD | Puthiya Mukham Movie Song | REMASTERED |](https://www.youtube.com/watch?v=kpuYzUAtiQ8)
 - [Minnalle Minnalle...| Super Hit Movie Song | Vesham Movie Song | K.S.Chithra | Gopika](https://www.youtube.com/watch?v=tCa5FsuXcrY)
 - [Chare Oral | Dance Video | Jamsheena Jamal #shorts](https://www.youtube.com/watch?v=nVpDPYsn8n4)
 - [#MaloorThottam from #Padavetu | #NivinPauly | #shorts](https://www.youtube.com/watch?v=NDpIjTjSBGM)
 - [Novumida Nenjil Video Song | Sharada | MG Sreekumar | Gireesh Puthenchery | MG Radhakrishnan](https://www.youtube.com/watch?v=DW-yXnQMPWU)
 - [#MaloorThottam from #Padavetu | #NivinPauly | #shorts](https://www.youtube.com/watch?v=Ja7o6-J97fA)
-- [#MaloorThottam from #Padavetu | #NivinPauly | #shorts](https://www.youtube.com/watch?v=od48TAMbIkg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
