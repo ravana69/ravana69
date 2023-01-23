@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Tadakha &lpar;2013&rpar; Telugu - WEB-DL - 1080p - AVC - AAC  -  4.6GB - 3.3GB - 2.4GB &amp; 1.6GB - 720p - HDRip - x264 - AAC - 1.5GB &amp; 1GB  - 700MB &amp; 400MB REQUESTED](https://www.1tamilmv.autos/index.php?/forums/topic/107880-tadakha-2013-telugu-web-dl-1080p-avc-aac-46gb-33gb-24gb-16gb-720p-hdrip-x264-aac-15gb-1gb-700mb-400mb-requested/&do=findComment&comment=341883)
 - [The Last of Us S01E02 HMAX WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR] | 1080p | 720p - 6.8 GB | 3.3 GB | 1.5 GB](https://www.1tamilmv.autos/index.php?/forums/topic/171413-the-last-of-us-s01e02-hmax-web-dl-ddp51-atmos-esubs-2160p-hdr-1080p-720p-68-gb-33-gb-15-gb/&do=findComment&comment=341882)
 - [Thuppakki &lpar;2012&rpar; SS WEB-DL AAC5.1 x264 - 1080p | 720p - 4.5 GB | 2.5 GB](https://www.1tamilmv.autos/index.php?/forums/topic/171412-thuppakki-2012-ss-web-dl-aac51-x264-1080p-720p-45-gb-25-gb/&do=findComment&comment=341881)
 - [📌 DHAMAKA &lpar;2022&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - HQ 1080P - NF - WEBDL - H264 - #TEL DDP 5.1 @ 640Kbps - ESUBS - 1.2GB - FirstOnNET 〰️ [avatar]](https://www.1tamilmv.autos/index.php?/forums/topic/171411-%F0%9F%93%8C-dhamaka-2022-music-video-album-hq-1080p-nf-webdl-h264-tel-ddp-51-640kbps-esubs-12gb-firstonnet-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=341880)
 - [45 Tamil Movies - SS / AHA / JC / ZEE5 WEB DL - H264/H265 - DDP5.1 / DD5.1 / AAC - Esub - 325[Gdrive]](https://www.1tamilmv.autos/index.php?/forums/topic/167947-45-tamil-movies-ss-aha-jc-zee5-web-dl-h264h265-ddp51-dd51-aac-esub-325gdrive/&do=findComment&comment=341879)
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.autos/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=341878)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
