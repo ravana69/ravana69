@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Doraemon: Nobita&#39;s Chronicle of the Moon Exploration &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Jap&rpar; - 2.5GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.autos/index.php?/forums/topic/171402-doraemon-nobitas-chronicle-of-the-moon-exploration-2019-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-jap-25gb-11gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=341890)
+- [BIGG BOSS Tamil &lpar;2023&rpar; S06 EP106 - DAY 105 [GRAND FINALE] TRUE WEB-DL - [1080p, 720p, 480p - AVC - UNTOUCHED - 4.5GB - 2GB &amp; 400MB] [22-01-2023]](https://www.1tamilmv.autos/index.php?/forums/topic/171405-bigg-boss-tamil-2023-s06-ep106-day-105-grand-finale-true-web-dl-1080p-720p-480p-avc-untouched-45gb-2gb-400mb-22-01-2023/&do=findComment&comment=341889)
 - [Dr.No &lpar;1962&rpar;.1080p.Bluray.x264.Tam 2.0 + Eng AAC5.1.ESub - 2.2GB](https://www.1tamilmv.autos/index.php?/forums/topic/171415-drno-19621080pblurayx264tam-20-eng-aac51esub-22gb/&do=findComment&comment=341888)
 - [Dr.No &lpar;1962&rpar;.1080p.Bluray.x264.Tam 2.0 + Eng AAC5.1.ESub - 2.2GB](https://www.1tamilmv.autos/index.php?/forums/topic/171415-drno-19621080pblurayx264tam-20-eng-aac51esub-22gb/&do=findComment&comment=341887)
 - [Perfume &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 2GB &amp; 1GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.autos/index.php?/forums/topic/171404-perfume-2022-malayalam-true-web-dl-1080p-720p-avc-2gb-1gb-x264-700mb-400mb/&do=findComment&comment=341886)
-- [Choodu &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.7GB &amp; 900MB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.autos/index.php?/forums/topic/171403-choodu-2022-malayalam-true-web-dl-1080p-720p-avc-17gb-900mb-x264-700mb-400mb/&do=findComment&comment=341885)
-- [Dhamaka - Video Songs - 1080p - DD+5.1 &lpar;NF&rpar; + DD5.1 &amp; DTSHDMA5.1 &lpar;Lossless 24Bit FLAC Upmix&rpar;.ESub - Cinema Surround 5.1 &lpar;Only HQ Audio Available on NET&rpar;](https://www.1tamilmv.autos/index.php?/forums/topic/171414-dhamaka-video-songs-1080p-dd51-nf-dd51-dtshdma51-lossless-24bit-flac-upmixesub-cinema-surround-51-only-hq-audio-available-on-net/&do=findComment&comment=341884)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
