@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Dhamaka 2022 Telugu NF WEB DL H264 DDP5.1 - [1080p &amp; 720p - 5.4GB - 3.1GB - 1.3GB] [Gdrive]](https://www.1tamilmv.mobi/index.php?/forums/topic/167937-dhamaka-2022-telugu-nf-web-dl-h264-ddp51-1080p-720p-54gb-31gb-13gb-gdrive/&do=findComment&comment=341925)
 - [Alien Covenant &lpar;2017&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - &lpar;DD5.1 - 448Kbps&rpar; - 3GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.mobi/index.php?/forums/topic/171422-alien-covenant-2017-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-dd51-448kbps-3gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=341924)
 - [M3GAN &lpar;2022&rpar; English HQ HDRip - 720p - x264 - &lpar;DD5.1 - 192Kbps &amp; AAC&rpar; - 900MB - ESub](https://www.1tamilmv.mobi/index.php?/forums/topic/171424-m3gan-2022-english-hq-hdrip-720p-x264-dd51-192kbps-aac-900mb-esub/&do=findComment&comment=341923)
 - [Alien Covenant &lpar;2017&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - &lpar;DD5.1 - 448Kbps&rpar; - 3GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.mobi/index.php?/forums/topic/171422-alien-covenant-2017-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-dd51-448kbps-3gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=341922)
 - [M3GAN &lpar;2022&rpar; English HQ HDRip - 720p - x264 - &lpar;DD5.1 - 192Kbps &amp; AAC&rpar; - 900MB - ESub](https://www.1tamilmv.mobi/index.php?/forums/topic/171424-m3gan-2022-english-hq-hdrip-720p-x264-dd51-192kbps-aac-900mb-esub/&do=findComment&comment=341921)
-- [Alien Covenant &lpar;2017&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - &lpar;DD5.1 - 448Kbps&rpar; - 3GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.mobi/index.php?/forums/topic/171422-alien-covenant-2017-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-dd51-448kbps-3gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=341920)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
