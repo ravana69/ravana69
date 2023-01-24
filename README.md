@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Singer Of The Week | Madhu Balakrishnan | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=cMpxF7prwNk)
 - [23 January 2023](https://www.youtube.com/watch?v=EM_NcwK6ktU)
 - [Lajjavathiye Ninte | Four The People | Bharath | Gopika | Jayaraj | Jassie Gift | Kaithapram](https://www.youtube.com/watch?v=6J_qUCKyyJc)
 - [Christian Superhit Songs | Kester | Pandalam Balan | Christian Melody Songs | Joji Johns](https://www.youtube.com/watch?v=bMVINoS7qKY)
 - [Aliyarude Omanabeevi  song from the Movie Vaank #shorts](https://www.youtube.com/watch?v=GNMHa5-iWQ4)
 - [Lallalam Chollunna | Vietnam Colony | Mohanlal | Kanaka | Innocent | Philomina | Rajkumar](https://www.youtube.com/watch?v=5RdBGa5xTuA)
-- [Ayisha Ayisha - Video | Ayisha | Manju Warrier | Shreya Ghoshal | M Jayachandran | Aamir Pallikkal](https://www.youtube.com/watch?v=wOvzNAVU_L4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
