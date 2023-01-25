@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Pattathu Arasan &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu + Malayalam] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.8GB - 1.5GB] - [x264 - 800MB - 450MB] - Soft ESub](https://www.1tamilmv.mobi/index.php?/forums/topic/171435-pattathu-arasan-2022-true-web-dl-1080p-720p-avc-tamil-telugu-malayalam-dd51-192kbps-28gb-15gb-x264-800mb-450mb-soft-esub/&do=findComment&comment=341944)
+- [Pattathu Arasan &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.8GB - 1.5GB] - [x264 - 800MB - 450MB] - Soft ESub](https://www.1tamilmv.mobi/index.php?/forums/topic/171435-pattathu-arasan-2022-true-web-dl-1080p-720p-avc-tamil-telugu-malayalam-kannada-dd51-192kbps-28gb-15gb-x264-800mb-450mb-soft-esub/&do=findComment&comment=341946)
+- [Korameenu &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Telugu + Malayalam + Kannada] - 2.3GB - 1.4GB] - [x264 - 750MB - 450MB] - ESub](https://www.1tamilmv.mobi/index.php?/forums/topic/171436-korameenu-2022-true-web-dl-1080p-720p-avc-telugu-malayalam-kannada-23gb-14gb-x264-750mb-450mb-esub/&do=findComment&comment=341945)
+- [Pattathu Arasan &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.8GB - 1.5GB] - [x264 - 800MB - 450MB] - Soft ESub](https://www.1tamilmv.mobi/index.php?/forums/topic/171435-pattathu-arasan-2022-true-web-dl-1080p-720p-avc-tamil-telugu-malayalam-kannada-dd51-192kbps-28gb-15gb-x264-800mb-450mb-soft-esub/&do=findComment&comment=341944)
 - [Hush Hush &lpar;2022&rpar; S01 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p, 720p - [Tamil + Telugu + Hindi + Malayalam + Kannada] - &lpar;DD+ 5.1-192Kbps&rpar; - 5GB - 2GB - 1GB] - ESub](https://www.1tamilmv.mobi/index.php?/forums/topic/171416-hush-hush-2022-s01-ep-01-07-true-web-dl-1080p-720p-tamil-telugu-hindi-malayalam-kannada-dd-51-192kbps-5gb-2gb-1gb-esub/&do=findComment&comment=341943)
 - [Request your movies as a comment to this topic.!](https://www.1tamilmv.mobi/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=341942)
-- [Bholaa Official Teaser 2 - 1080P &amp; 4K - DD5.1 + DTS5.1 &lpar;Upmixed&rpar; - Cinema Surround 5.1](https://www.1tamilmv.mobi/index.php?/forums/topic/171434-bholaa-official-teaser-2-1080p-4k-dd51-dts51-upmixed-cinema-surround-51/&do=findComment&comment=341941)
-- [Sattam Oru Iruttarai &lpar;1981&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 1.5GB](https://www.1tamilmv.mobi/index.php?/forums/topic/171433-sattam-oru-iruttarai-1981tamil480phdtvx264aac20-15gb/&do=findComment&comment=341940)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
