@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pathaan &lpar;2023&rpar; Telugu Full Movie Watch Now HQ For Free](https://www.1tamilmv.mobi/index.php?/forums/topic/171444-pathaan-2023-telugu-full-movie-watch-now-hq-for-free/&do=findComment&comment=341961)
 - [Fear the Walking Dead &lpar;2022&rpar; S07 EP &lpar;01-16&rpar; TRUE WEB-DL - [1080p, 720p - [Tamil + Hindi + Eng] - &lpar;DD+ 5.1-192Kbps&rpar; - 16GB - 5GB - 2.4GB] - MSub](https://www.1tamilmv.mobi/index.php?/forums/topic/171443-fear-the-walking-dead-2022-s07-ep-01-16-true-web-dl-1080p-720p-tamil-hindi-eng-dd-51-192kbps-16gb-5gb-24gb-msub/&do=findComment&comment=341960)
 - [Pathaan &lpar;2023&rpar; Tamil Full Movie Watch Now HQ For Free](https://www.1tamilmv.mobi/index.php?/forums/topic/171442-pathaan-2023-tamil-full-movie-watch-now-hq-for-free/&do=findComment&comment=341959)
 - [Pathaan &lpar;2023&rpar; Hindi Full Movie Watch Now HQ For Free](https://www.1tamilmv.mobi/index.php?/forums/topic/171441-pathaan-2023-hindi-full-movie-watch-now-hq-for-free/&do=findComment&comment=341958)
 - [Pathaan 2023 PreDvd 720p Hindi &amp; Tamil AAC 2.0 x264 ESub - 1.1GB UNTOUCHED - GDRIVE](https://www.1tamilmv.mobi/index.php?/forums/topic/165868-pathaan-2023-predvd-720p-hindi-tamil-aac-20-x264-esub-11gb-untouched-gdrive/&do=findComment&comment=341957)
-- [Pathaan &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.mobi/index.php?/forums/topic/171438-pathaan-2023-tamil-proper-hq-predvd-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=341956)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
