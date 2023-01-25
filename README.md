@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kaadum Kattaarum | Bonsai  | P Jayachandran | Jayachandran Kavumthazha | Suresh Ramanthali](https://www.youtube.com/watch?v=JsfFiCODjhE)
+- [Maalle Maalle - Song Promo | Pallotty 90's Kids | Arjun Ashokan, Balu | Manikandan Ayyappa | LJP](https://www.youtube.com/watch?v=3knuM7WEqM0)
 - [Ooruvalam Varum Varum | Vietnam colony |  MG Sreekumar, Minmini | S Balakrishnan | Mohanlal | Kanaka](https://www.youtube.com/watch?v=uYRUHbd49ZA)
 - [അഴകേ.. അന്നൊരാവണിയില്‍ | Azhake Annoravaniyil | Vazhunnor | Suresh Gopi](https://www.youtube.com/watch?v=Kt72htDFBt4)
 - [തമിഴകത്ത് നിന്ന് വന്ന മലയാളികളുടെ ഹൃദയം കവർന്ന സംഗീത സംവിധായകൻ എസ് പി വെങ്കിടേഷ് | SP VENKITESH HITS](https://www.youtube.com/watch?v=hS0CrS8rjC0)
 - [Yeshu Raktham Thannu Jayam Thannu | Anil Adoor | Satheesh Aruvikkara | Latest Malayalam Worship Song](https://www.youtube.com/watch?v=20Lpncz8eIs)
-- [Manasinullile Nombaram | Christian Video Song | Manoj Christy | Joji Johns | Manoj Illavunkal](https://www.youtube.com/watch?v=3v1k1SNmmYU)
-- [Niramazhayil Neelimayil | One Man Show | Jayaram | Lal | Samyuktha Varma | Suresh Peters](https://www.youtube.com/watch?v=sco9JE3GHyU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
