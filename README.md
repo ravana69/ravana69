@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Dr. 56 &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.2GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.mobi/index.php?/forums/topic/171446-dr-56-2022-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-22gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=341975)
+- [Aanandam Paramanandam &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD5.1 - 320Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.mobi/index.php?/forums/topic/171445-aanandam-paramanandam-2022-malayalam-true-web-dl-1080p-720p-avc-dd51-320kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=341974)
 - [Pathaan &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.mobi/index.php?/forums/topic/171438-pathaan-2023-tamil-proper-hq-predvd-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=341973)
 - [Route Map &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.5GB &amp; 800MB] - [x264 - 700MB &amp; 400MB] - HC-ESub](https://www.1tamilmv.mobi/index.php?/forums/topic/171437-route-map-2022-malayalam-true-web-dl-1080p-720p-avc-15gb-800mb-x264-700mb-400mb-hc-esub/&do=findComment&comment=341972)
 - [Pathaan &lpar;2023&rpar; Hindi Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.mobi/index.php?/forums/topic/171439-pathaan-2023-hindi-proper-hq-predvd-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=341971)
-- [Fear the Walking Dead &lpar;2022&rpar; S07 EP &lpar;01-16&rpar; TRUE WEB-DL - [1080p, 720p - [Tamil + Hindi + Eng] - &lpar;DD+ 5.1-192Kbps&rpar; - 16GB - 5GB - 2.4GB] - MSub](https://www.1tamilmv.mobi/index.php?/forums/topic/171443-fear-the-walking-dead-2022-s07-ep-01-16-true-web-dl-1080p-720p-tamil-hindi-eng-dd-51-192kbps-16gb-5gb-24gb-msub/&do=findComment&comment=341970)
-- [Fear the Walking Dead &lpar;2022&rpar; S07 EP &lpar;01-16&rpar; TRUE WEB-DL - [1080p, 720p - [Tamil + Hindi + Eng] - &lpar;DD+ 5.1-192Kbps&rpar; - 16GB - 5GB - 2.4GB] - MSub](https://www.1tamilmv.mobi/index.php?/forums/topic/171443-fear-the-walking-dead-2022-s07-ep-01-16-true-web-dl-1080p-720p-tamil-hindi-eng-dd-51-192kbps-16gb-5gb-24gb-msub/&do=findComment&comment=341969)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
