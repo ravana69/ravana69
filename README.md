@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Pathaan &lpar;2023&rpar; Telugu Full Movie Watch Now HQ For Free](https://www.1tamilmv.mobi/index.php?/forums/topic/171444-pathaan-2023-telugu-full-movie-watch-now-hq-for-free/&do=findComment&comment=341961)
-- [Fear the Walking Dead &lpar;2022&rpar; S07 EP &lpar;01-16&rpar; TRUE WEB-DL - [1080p, 720p - [Tamil + Hindi + Eng] - &lpar;DD+ 5.1-192Kbps&rpar; - 16GB - 5GB - 2.4GB] - MSub](https://www.1tamilmv.mobi/index.php?/forums/topic/171443-fear-the-walking-dead-2022-s07-ep-01-16-true-web-dl-1080p-720p-tamil-hindi-eng-dd-51-192kbps-16gb-5gb-24gb-msub/&do=findComment&comment=341960)
-- [Pathaan &lpar;2023&rpar; Tamil Full Movie Watch Now HQ For Free](https://www.1tamilmv.mobi/index.php?/forums/topic/171442-pathaan-2023-tamil-full-movie-watch-now-hq-for-free/&do=findComment&comment=341959)
-- [Pathaan &lpar;2023&rpar; Hindi Full Movie Watch Now HQ For Free](https://www.1tamilmv.mobi/index.php?/forums/topic/171441-pathaan-2023-hindi-full-movie-watch-now-hq-for-free/&do=findComment&comment=341958)
-- [Pathaan 2023 PreDvd 720p Hindi &amp; Tamil AAC 2.0 x264 ESub - 1.1GB UNTOUCHED - GDRIVE](https://www.1tamilmv.mobi/index.php?/forums/topic/165868-pathaan-2023-predvd-720p-hindi-tamil-aac-20-x264-esub-11gb-untouched-gdrive/&do=findComment&comment=341957)
+- [Korameenu &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Telugu + Malayalam + Kannada] - 2.3GB - 1.4GB] - [x264 - 750MB - 450MB] - ESub](https://www.1tamilmv.mobi/index.php?/forums/topic/171436-korameenu-2022-true-web-dl-1080p-720p-avc-telugu-malayalam-kannada-23gb-14gb-x264-750mb-450mb-esub/&do=findComment&comment=341967)
+- [Pattathu Arasan &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.8GB - 1.5GB] - [x264 - 800MB - 450MB] - Soft ESub](https://www.1tamilmv.mobi/index.php?/forums/topic/171435-pattathu-arasan-2022-true-web-dl-1080p-720p-avc-tamil-telugu-malayalam-kannada-dd51-192kbps-28gb-15gb-x264-800mb-450mb-soft-esub/&do=findComment&comment=341966)
+- [Pattathu Arasan &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.8GB - 1.5GB] - [x264 - 800MB - 450MB] - Soft ESub](https://www.1tamilmv.mobi/index.php?/forums/topic/171435-pattathu-arasan-2022-true-web-dl-1080p-720p-avc-tamil-telugu-malayalam-kannada-dd51-192kbps-28gb-15gb-x264-800mb-450mb-soft-esub/&do=findComment&comment=341965)
+- [Route Map &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.5GB &amp; 800MB] - [x264 - 700MB &amp; 400MB] - HC-ESub](https://www.1tamilmv.mobi/index.php?/forums/topic/171437-route-map-2022-malayalam-true-web-dl-1080p-720p-avc-15gb-800mb-x264-700mb-400mb-hc-esub/&do=findComment&comment=341964)
+- [Fear the Walking Dead &lpar;2022&rpar; S07 EP &lpar;01-16&rpar; TRUE WEB-DL - [1080p, 720p - [Tamil + Hindi + Eng] - &lpar;DD+ 5.1-192Kbps&rpar; - 16GB - 5GB - 2.4GB] - MSub](https://www.1tamilmv.mobi/index.php?/forums/topic/171443-fear-the-walking-dead-2022-s07-ep-01-16-true-web-dl-1080p-720p-tamil-hindi-eng-dd-51-192kbps-16gb-5gb-24gb-msub/&do=findComment&comment=341963)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
