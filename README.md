@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aanakkedupath Ponnunde| Dhanam | Mohanlal | Murali | Raveendran | KJ Yesudas | Charmila](https://www.youtube.com/watch?v=vpaodG7v1vQ)
 - [Christian Melody Songs | Qurbana Songs Malayalam | Wilson Piravom | Joji Johns | Holy Mass Songs](https://www.youtube.com/watch?v=gcpFuyLxfIY)
 - [മഞ്ജരികൾ മഞ്ജുഷകൾ | Manjarikal Manjushakal - Enthino Pookkunna Pookkal (1982) | K. J. Yesudas |Shyam](https://www.youtube.com/watch?v=w1ktfh8WyKw)
 - [Kaikott Penne Video Song | Kalabhavan Mani | Nandhini | Mohan Sithara | Yusufali Kecheri](https://www.youtube.com/watch?v=iyIKPH1HdVg)
 - [ജീവിതത്തിലെ ഓരോ വേളകളും മധുരം തുളുമ്പുന്നതാക്കുന്ന കേൾക്കാൻ സുഖമുള്ള ഗാനങ്ങൾ | SWEET SONGS MALAYALAM](https://www.youtube.com/watch?v=VbTfPO17bnE)
 - [രാത്രിയുടെ യാമങ്ങളിൽ മുല്ലപ്പൂവിൻ ഗന്ധമേറ്റ് കിടന്നാസ്വദിക്കുന്ന  സിനിമാഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=DDqVNtkY678)
-- [മഞ്ഞിൻ ചിറകുള്ള വെള്ളരിപ്രാവേ | Malayalam Melody song | Swagatham | Manjin Chirakulla](https://www.youtube.com/watch?v=nYv1c0yONq4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
