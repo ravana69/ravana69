@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [📂Marvel Movies Ultimate Collection [2160p – 1080p – 720p] – BDRip – IMAX – x264 | x265 – Multi Audio [Tamil + Tel + Hin + Eng] – DD5.1 – ESubs – [GDrive]](https://www.1tamilmv.mobi/index.php?/forums/topic/171387-%F0%9F%93%82marvel-movies-ultimate-collection-2160p-%E2%80%93-1080p-%E2%80%93-720p-%E2%80%93-bdrip-%E2%80%93-imax-%E2%80%93-x264-x265-%E2%80%93-multi-audio-tamil-tel-hin-eng-%E2%80%93-dd51-%E2%80%93-esubs-%E2%80%93-gdrive/&do=findComment&comment=342021)
 - [📌 ISHQ &lpar;2012&rpar; TELUGU &lpar;Music Video Album&rpar; - 1080P - BLU-RAY &lpar;Lossless&rpar; - AVC - DTS-HD® MA 5.1 @ 2500Kbps / DD 5.1 @ 448Kbps - BDREMUX 〰️ [avatar]](https://www.1tamilmv.mobi/index.php?/forums/topic/171471-%F0%9F%93%8C-ishq-2012-telugu-music-video-album-1080p-blu-ray-lossless-avc-dts-hd%C2%AE-ma-51-2500kbps-dd-51-448kbps-bdremux-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=342020)
 - [Hunt &lpar;2023&rpar; Telugu Full Movie Watch Now HQ For Free](https://www.1tamilmv.mobi/index.php?/forums/topic/171470-hunt-2023-telugu-full-movie-watch-now-hq-for-free/&do=findComment&comment=342019)
 - [Prema Paavuraalu 1989 DDP 2.0 Telugu 1080p AMZN.WeB.DL [G-Drive]](https://www.1tamilmv.mobi/index.php?/forums/topic/171469-prema-paavuraalu-1989-ddp-20-telugu-1080p-amznwebdl-g-drive/&do=findComment&comment=342018)
 - [Malikappuram &lpar;2023&rpar; Tamil Full Movie Watch Now HQ For Free](https://www.1tamilmv.mobi/index.php?/forums/topic/171468-malikappuram-2023-tamil-full-movie-watch-now-hq-for-free/&do=findComment&comment=342017)
-- [Fear the Walking Dead &lpar;2022&rpar; S07 EP &lpar;01-16&rpar; TRUE WEB-DL - [1080p, 720p - [Tamil + Hindi + Eng] - &lpar;DD+ 5.1-192Kbps&rpar; - 16GB - 5GB - 2.4GB] - MSub](https://www.1tamilmv.mobi/index.php?/forums/topic/171443-fear-the-walking-dead-2022-s07-ep-01-16-true-web-dl-1080p-720p-tamil-hindi-eng-dd-51-192kbps-16gb-5gb-24gb-msub/&do=findComment&comment=342015)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
