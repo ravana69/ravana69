@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മഞ്ജരികൾ മഞ്ജുഷകൾ | Manjarikal Manjushakal - Enthino Pookkunna Pookkal (1982) | K. J. Yesudas |Shyam](https://www.youtube.com/watch?v=w1ktfh8WyKw)
+- [Kaikott Penne Video Song | Kalabhavan Mani | Nandhini | Mohan Sithara | Yusufali Kecheri](https://www.youtube.com/watch?v=iyIKPH1HdVg)
 - [ജീവിതത്തിലെ ഓരോ വേളകളും മധുരം തുളുമ്പുന്നതാക്കുന്ന കേൾക്കാൻ സുഖമുള്ള ഗാനങ്ങൾ | SWEET SONGS MALAYALAM](https://www.youtube.com/watch?v=VbTfPO17bnE)
 - [രാത്രിയുടെ യാമങ്ങളിൽ മുല്ലപ്പൂവിൻ ഗന്ധമേറ്റ് കിടന്നാസ്വദിക്കുന്ന  സിനിമാഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=DDqVNtkY678)
 - [മഞ്ഞിൻ ചിറകുള്ള വെള്ളരിപ്രാവേ | Malayalam Melody song | Swagatham | Manjin Chirakulla](https://www.youtube.com/watch?v=nYv1c0yONq4)
 - [Maan Mizhi | The Metro |  Rajeev Alunkal | Shaan Rahman | Nivin Pauly | Suraj Venjarammodu](https://www.youtube.com/watch?v=XdEpB2yNrJ8)
-- [നിലയില്ലാ കയത്തിൽ മുങ്ങിത്താഴുമ്പോൾ മനംനിറഞ്ഞു പാടുന്നഗാനങ്ങൾ | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=G7uxqLqiiBc)
-- [Thalatherichavar - Video | Romancham | Sushin Shyam | Johnpaul George Productions | Jithu Madhavan](https://www.youtube.com/watch?v=hvqnG6VjqV0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
