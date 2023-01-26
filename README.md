@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Gentleman &lpar;1993&rpar;.Tamil.720p + 1080p.Web-dl.x264.AAC2.0 - 2,5GB &amp; 4.9GB - GDRIVE](https://www.1tamilmv.mobi/index.php?/forums/topic/171456-gentleman-1993tamil720p-1080pweb-dlx264aac20-25gb-49gb-gdrive/&do=findComment&comment=341995)
+- [The.Master.1992 AAC 2.0 Tamil-Hindi- Chinese 720p Blu-ray Msub 1GB [G-Drive]](https://www.1tamilmv.mobi/index.php?/forums/topic/171455-themaster1992-aac-20-tamil-hindi-chinese-720p-blu-ray-msub-1gb-g-drive/&do=findComment&comment=341994)
 - [Jaanbaaz Hindustan Ke &lpar;2023&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p, 720p - [Tamil + Telugu + Hindi] - &lpar;DD+ 5.1-192Kbps&rpar; - 3.3GB - 1.4GB - 900MB] - ESub](https://www.1tamilmv.mobi/index.php?/forums/topic/171449-jaanbaaz-hindustan-ke-2023-s01-ep-01-08-true-web-dl-1080p-720p-tamil-telugu-hindi-dd-51-192kbps-33gb-14gb-900mb-esub/&do=findComment&comment=341993)
 - [Ayali &lpar;2023&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p, 720p - [Tamil + Telugu] - &lpar;DD+ 5.1-384Kbps&rpar; - 3.4GB - 1.3GB - 850MB] - ESub](https://www.1tamilmv.mobi/index.php?/forums/topic/171447-ayali-2023-s01-ep-01-08-true-web-dl-1080p-720p-tamil-telugu-dd-51-384kbps-34gb-13gb-850mb-esub/&do=findComment&comment=341992)
 - [Jai Hind &lpar;1994&rpar; Tamil [HQ API DVD9 - UNTOUCHED - REMUXED - DD5.1 &lpar;448kbps&rpar; - 7.05GB]](https://www.1tamilmv.mobi/index.php?/forums/topic/162506-jai-hind-1994-tamil-hq-api-dvd9-untouched-remuxed-dd51-448kbps-705gb/&do=findComment&comment=341991)
-- [Dr. 56 &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.2GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.mobi/index.php?/forums/topic/171446-dr-56-2022-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-22gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=341990)
-- [Jaanbaaz Hindustan Ke &lpar;2023&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p, 720p - [Tamil + Telugu + Hindi] - &lpar;DD+ 5.1-192Kbps&rpar; - 3.3GB - 1.4GB - 900MB] - ESub](https://www.1tamilmv.mobi/index.php?/forums/topic/171449-jaanbaaz-hindustan-ke-2023-s01-ep-01-08-true-web-dl-1080p-720p-tamil-telugu-hindi-dd-51-192kbps-33gb-14gb-900mb-esub/&do=findComment&comment=341989)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
