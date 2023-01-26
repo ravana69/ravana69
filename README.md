@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Adobe Illustrator [CRACK + KEYGEN] FREE Download & Install Tutorial! (Updated January 2023!)](https://www.youtube.com/watch?v=0V4T3zWo6U8)
+- [Adobe After Effects FREE 2022 💚 After Effects Full Version 💚 After Effects Crack 2023](https://www.youtube.com/watch?v=sV4ZjrYiADo)
 - [Blox Fruits Script GUI | BLOX FRUITS SCRIPT PASTEBIN | EASY MAX LEVEL/DEVIL FRUITS/PVP & MORE 2023](https://www.youtube.com/watch?v=K1f1apSrZ9A)
 - [26 January 2023](https://www.youtube.com/watch?v=uP2YcNmxLlk)
 - [Aanakkedupath Ponnunde| Dhanam | Mohanlal | Murali | Raveendran | KJ Yesudas | Charmila](https://www.youtube.com/watch?v=vpaodG7v1vQ)
 - [Christian Melody Songs | Qurbana Songs Malayalam | Wilson Piravom | Joji Johns | Holy Mass Songs](https://www.youtube.com/watch?v=gcpFuyLxfIY)
-- [മഞ്ജരികൾ മഞ്ജുഷകൾ | Manjarikal Manjushakal - Enthino Pookkunna Pookkal (1982) | K. J. Yesudas |Shyam](https://www.youtube.com/watch?v=w1ktfh8WyKw)
-- [Kaikott Penne Video Song | Kalabhavan Mani | Nandhini | Mohan Sithara | Yusufali Kecheri](https://www.youtube.com/watch?v=iyIKPH1HdVg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
