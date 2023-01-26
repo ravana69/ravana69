@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [An Action Hero &lpar;2022&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB - 1.3GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.mobi/index.php?/forums/topic/171475-an-action-hero-2022-hindi-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-26gb-13gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=342025)
+- [18 Pages &lpar;2022&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4.55GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mobi/index.php?/forums/topic/171474-18-pages-2022-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-455gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=342024)
 - [Nanpakal Nerathu Mayakkam &lpar;2023&rpar; Tamil Full Movie Watch Now HQ For Free](https://www.1tamilmv.mobi/index.php?/forums/topic/171472-nanpakal-nerathu-mayakkam-2023-tamil-full-movie-watch-now-hq-for-free/&do=findComment&comment=342022)
 - [📂Marvel Movies Ultimate Collection [2160p – 1080p – 720p] – BDRip – IMAX – x264 | x265 – Multi Audio [Tamil + Tel + Hin + Eng] – DD5.1 – ESubs – [GDrive]](https://www.1tamilmv.mobi/index.php?/forums/topic/171387-%F0%9F%93%82marvel-movies-ultimate-collection-2160p-%E2%80%93-1080p-%E2%80%93-720p-%E2%80%93-bdrip-%E2%80%93-imax-%E2%80%93-x264-x265-%E2%80%93-multi-audio-tamil-tel-hin-eng-%E2%80%93-dd51-%E2%80%93-esubs-%E2%80%93-gdrive/&do=findComment&comment=342021)
 - [📌 ISHQ &lpar;2012&rpar; TELUGU &lpar;Music Video Album&rpar; - 1080P - BLU-RAY &lpar;Lossless&rpar; - AVC - DTS-HD® MA 5.1 @ 2500Kbps / DD 5.1 @ 448Kbps - BDREMUX 〰️ [avatar]](https://www.1tamilmv.mobi/index.php?/forums/topic/171471-%F0%9F%93%8C-ishq-2012-telugu-music-video-album-1080p-blu-ray-lossless-avc-dts-hd%C2%AE-ma-51-2500kbps-dd-51-448kbps-bdremux-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=342020)
-- [Hunt &lpar;2023&rpar; Telugu Full Movie Watch Now HQ For Free](https://www.1tamilmv.mobi/index.php?/forums/topic/171470-hunt-2023-telugu-full-movie-watch-now-hq-for-free/&do=findComment&comment=342019)
-- [Prema Paavuraalu 1989 DDP 2.0 Telugu 1080p AMZN.WeB.DL [G-Drive]](https://www.1tamilmv.mobi/index.php?/forums/topic/171469-prema-paavuraalu-1989-ddp-20-telugu-1080p-amznwebdl-g-drive/&do=findComment&comment=342018)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
