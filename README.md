@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [18 Pages &lpar;2022&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4.55GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171474-18-pages-2022-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-455gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=342053)
 - [Riders Tamil 2002 1080p WEB-DL 3GB [G-Drive]](https://www.1tamilmv.bond/index.php?/forums/topic/171487-riders-tamil-2002-1080p-web-dl-3gb-g-drive/&do=findComment&comment=342052)
 - [Vada Chennai &lpar;2018&rpar; Tamil - UNCENSORED VERSION - True 1080P HD AVC - &lpar;DD 5.1 - 320Kbps&rpar; - &lpar;AAC2.0 - 160Kbps] - 3.8GB - x264 - Esubs] - &lpar;Encoded by Jack Sparrow&rpar;](https://www.1tamilmv.bond/index.php?/forums/topic/171486-vada-chennai-2018-tamil-uncensored-version-true-1080p-hd-avc-dd-51-320kbps-aac20-160kbps-38gb-x264-esubs-encoded-by-jack-sparrow/&do=findComment&comment=342051)
 - [18 Pages &lpar;2022&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4.55GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171474-18-pages-2022-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-455gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=342050)
 - [Sneham Kosam.1999 Telugu 1080P.AMZN.WEB-DL.H264.DDP 2.0.ESUB 8GB [G-Drive]](https://www.1tamilmv.bond/index.php?/forums/topic/171485-sneham-kosam1999-telugu-1080pamznweb-dlh264ddp-20esub-8gb-g-drive/&do=findComment&comment=342049)
-- [An Action Hero &lpar;2022&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB - 1.3GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171475-an-action-hero-2022-hindi-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-26gb-13gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=342048)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
