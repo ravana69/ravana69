@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [എല്ലാത്തരം പ്രേക്ഷകരെയും  ആനന്ദിപ്പിക്കുന്ന കൊട്ടും കുരവയുമായിയെത്തും സൂപ്പർഹിറ്റ്ഗാനങ്ങൾ |SUPERHITS](https://www.youtube.com/watch?v=8bPr1-QbgDM)
 - [Aaramam Niranje | Seniors | Video Song | Benny Dayal | Anil Panachooran | Apphons Joseph | Lakshmi](https://www.youtube.com/watch?v=z7ff42BPA_k)
 - [Christian Video Songs Malayalam | KG Markose | P Jayachandran | Christian Melody Song | Joji Johns](https://www.youtube.com/watch?v=C1dgIuN01fI)
 - [27 January 2023](https://www.youtube.com/watch?v=w8Y5wgfKklY)
 - [Iniyenthu Nalkanam HD 1080p | Life is beautiful | Kaithapram | Ouseppachan | KJ Yesudas | Mohanlal](https://www.youtube.com/watch?v=DgT1j9-_gZg)
 - [Christian Melody Songs | G.Venugopal | Divine Night Songs | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=5C7Ui9OUE2s)
-- [Maalle Maalle - Video Song | Pallotty 90's Kids | LJP | Arjun Ashokan, Balu | Manikandan Ayyappa](https://www.youtube.com/watch?v=LjHYb6riPbI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
