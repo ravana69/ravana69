@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mounam Swaramay Video Song | Jayaram | Maathu | KJ Yesudas | KS Chithra | Ouseppachan | Kaithapram](https://www.youtube.com/watch?v=pJjL2XMM520)
+- [Anthikkoru Choppum | Bonsai  | Sunil Mathai | Sreekutty | Jayachandran Kavumthazha|Suresh Ramanthali](https://www.youtube.com/watch?v=YV5OoMTgzYI)
+- [പാരിജാത പൂ | Parijatha Poo | Vishnu Unnikrishnan | Ranjin Raj | Nithyaharitha Nayakan Movie Song](https://www.youtube.com/watch?v=f8TflFxcRtY)
 - [Nenchinakathu | Lal Anthem | Queen | Jakes Bejoy | Dijo Jose Antony | Sharis Mohammed | Joe Paul](https://www.youtube.com/watch?v=CcBVWdICS6w)
 - [ആഘോഷങ്ങൾക്കും ഉത്സവങ്ങൾക്കും പൊലിമ കൂട്ടുന്ന മലയാളസിനിമാഗാനങ്ങൾ  | NISARI CHITHRAGEETHAM](https://www.youtube.com/watch?v=gZtczptyIXs)
 - [എല്ലാത്തരം പ്രേക്ഷകരെയും  ആനന്ദിപ്പിക്കുന്ന കൊട്ടും കുരവയുമായിയെത്തും സൂപ്പർഹിറ്റ്ഗാനങ്ങൾ |SUPERHITS](https://www.youtube.com/watch?v=8bPr1-QbgDM)
-- [Aaramam Niranje | Seniors | Video Song | Benny Dayal | Anil Panachooran | Apphons Joseph | Lakshmi](https://www.youtube.com/watch?v=z7ff42BPA_k)
-- [Christian Video Songs Malayalam | KG Markose | P Jayachandran | Christian Melody Song | Joji Johns](https://www.youtube.com/watch?v=C1dgIuN01fI)
-- [27 January 2023](https://www.youtube.com/watch?v=w8Y5wgfKklY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
