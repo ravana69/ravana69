@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aavanithumbi Film song on Gayathri Veena by Vaikom Vijayalakshmi | Snehaveedu | Sathyan Anthikad](https://www.youtube.com/watch?v=Nd2fuJhp2s0)
+- [Kumari - All Songs Playlist | Jakes Bejoy | Manikandan Ayyappa | Aishwarya Lekshmi | Nirmal Sahadev](https://www.youtube.com/watch?v=TCYPnUKTtIE)
+- [Mazha Nilavinte Video Song | Suresh Gopi | Rajasree Nair | KS Chithra | MG Radhakrishnan](https://www.youtube.com/watch?v=_F7W9seWfQ8)
 - [കളഭം തരാം ഭഗവാനെൻ മനസ്സും തരാം #shorts #youtubeshorts #vineeth #kavyamadhavan](https://www.youtube.com/watch?v=6RLfKRMigjA)
 - [Thodu Thodu Mazhaye | Angane Njanum Premichu | Job Kurian | Hesham Abdul Wahab | Nishad Ahammed](https://www.youtube.com/watch?v=oQiMNPKWiJw)
 - [Melle Thooval Veeshi | Kunju Daivam | Sangeetha Srikanth | Sarah Rose Joseph | Mathews Pulickan](https://www.youtube.com/watch?v=TA8b-yWg2Ac)
-- [Arikin Arikil | Roy | Karaoke Video |Munna|Vinayak Sasikumar| Sithara Krishnakumar | Sooraj Santhosh](https://www.youtube.com/watch?v=tiWiaEGEJJ0)
-- [Best of Shreya Ghoshal  | Video Jukebox | ശ്രേയ ഘോഷാൽ  ആലപിച്ച സൂപ്പർ ഹിറ്റ് സിനിമാഗാനങ്ങൾ](https://www.youtube.com/watch?v=sp8uq4BrfQ4)
-- [28 January 2023](https://www.youtube.com/watch?v=j0cMOh98Xgc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
