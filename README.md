@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Reporter [Raangi] &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171502-reporter-raangi-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-25gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=342098)
+- [Raangi &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 10GB - 5.2GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171501-raangi-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-10gb-52gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=342097)
 - [Request your movies as a comment to this topic.!](https://www.1tamilmv.bond/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=342096)
 - [Dhamaka &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171392-dhamaka-2022-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-5gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=342095)
 - [Raangi &lpar;2022&rpar; SNXT WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10+] | 1080p [HDR10+] | 720p - 13.4 GB | 3.5 GB | 1.9 GB | 1.2 GB](https://www.1tamilmv.bond/index.php?/forums/topic/171506-raangi-2022-snxt-web-dl-ddp51-atmos-esubs-2160p-hdr10-1080p-hdr10-720p-134-gb-35-gb-19-gb-12-gb/&do=findComment&comment=342094)
-- [Mudhal Muththam - Video Song - U1 - 1080P &amp; 4K - DD5.1 + DTSHDMA5.1 &lpar;Lossless 24Bit FLAC Upmix&rpar; - Cinema Surround 5.1 + Untouched 24Bit FLAC](https://www.1tamilmv.bond/index.php?/forums/topic/171505-mudhal-muththam-video-song-u1-1080p-4k-dd51-dtshdma51-lossless-24bit-flac-upmix-cinema-surround-51-untouched-24bit-flac/&do=findComment&comment=342093)
-- [Raangi.&lpar;2022&rpar;.1080p,720p,540p.High.NF.WEB-DL.Multi.DDP5.1.H.264 &lpar;Gdrive&rpar;](https://www.1tamilmv.bond/index.php?/forums/topic/171504-raangi20221080p720p540phighnfweb-dlmultiddp51h264-gdrive/&do=findComment&comment=342092)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
