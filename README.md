@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [യേശുവിനോട് നെഞ്ചുപൊട്ടി പാടി പ്രാർത്ഥിച്ച ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Najeem](https://www.youtube.com/watch?v=vWT18-YC6Ds)
+- [Christian Superhit Songs | Alenia Mol | Christian Devotional Songs Malayalam | Kester | Joji Johns](https://www.youtube.com/watch?v=IFUbDEKD-R4)
 - [Aavanithumbi Film song on Gayathri Veena by Vaikom Vijayalakshmi | Snehaveedu | Sathyan Anthikad](https://www.youtube.com/watch?v=Nd2fuJhp2s0)
 - [Kumari - All Songs Playlist | Jakes Bejoy | Manikandan Ayyappa | Aishwarya Lekshmi | Nirmal Sahadev](https://www.youtube.com/watch?v=TCYPnUKTtIE)
 - [Mazha Nilavinte Video Song | Suresh Gopi | Rajasree Nair | KS Chithra | MG Radhakrishnan](https://www.youtube.com/watch?v=_F7W9seWfQ8)
 - [കളഭം തരാം ഭഗവാനെൻ മനസ്സും തരാം #shorts #youtubeshorts #vineeth #kavyamadhavan](https://www.youtube.com/watch?v=6RLfKRMigjA)
-- [Thodu Thodu Mazhaye | Angane Njanum Premichu | Job Kurian | Hesham Abdul Wahab | Nishad Ahammed](https://www.youtube.com/watch?v=oQiMNPKWiJw)
-- [Melle Thooval Veeshi | Kunju Daivam | Sangeetha Srikanth | Sarah Rose Joseph | Mathews Pulickan](https://www.youtube.com/watch?v=TA8b-yWg2Ac)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
