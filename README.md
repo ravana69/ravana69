@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [NAMO VENKATESA &lpar;2010&rpar; TELUGU &amp;nbsp;&lpar;Music Video Album&rpar; - 1080P - AMZN - WEBDL - H264 - DD® 5.1 @ 448Kbps - #DVD9 SYNC - 1.8 - [avatar]](https://www.1tamilmv.bond/index.php?/forums/topic/171512-namo-venkatesa-2010-telugu-nbspmusic-video-album-1080p-amzn-webdl-h264-dd%C2%AE-51-448kbps-dvd9-sync-18-avatar/&do=findComment&comment=342118)
 - [Vettri Kani [Ghani] &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - x264 - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.8GB - 1.4GB &amp; 850MB | x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171508-vettri-kani-ghani-2023-tamil-true-web-dl-1080p-720p-x264-tamil-original-audio-telugu-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=342117)
 - [Jimikki Ponnu &lpar;From &quot;Varisu&quot;&rpar; Tamil Video Song 4K &amp; 1080p &amp; 720p](https://www.1tamilmv.bond/index.php?/forums/topic/171511-jimikki-ponnu-from-varisu-tamil-video-song-4k-1080p-720p/&do=findComment&comment=342116)
 - [70 Tamil Movies - AMZN / SS / TK / DSNP WEB DL - H264/H265 - DDP5.1/DD5.1/AAC2.0 - ESubs - [2160p, 1080p &amp; 720p - 450GB] [GDRIVE]](https://www.1tamilmv.bond/index.php?/forums/topic/168494-70-tamil-movies-amzn-ss-tk-dsnp-web-dl-h264h265-ddp51dd51aac20-esubs-2160p-1080p-720p-450gb-gdrive/&do=findComment&comment=342115)
 - [100 Hollywood Movies Collection Pack - [1080p - &lpar;Blu-Ray / HDRip + Original Audios&rpar; - Telugu + Tamil + Hindi + English] - H.264 - AAC/AC-3 - ESub/MSubs - 750GB - [Gdrive]](https://www.1tamilmv.bond/index.php?/forums/topic/142963-100-hollywood-movies-collection-pack-1080p-blu-ray-hdrip-original-audios-telugu-tamil-hindi-english-h264-aacac-3-esubmsubs-750gb-gdrive/&do=findComment&comment=342114)
-- [Jimikki Ponnu &lpar;From &quot;Varisu&quot;&rpar; Tamil Video Song 4K &amp; 1080p &amp; 720p](https://www.1tamilmv.bond/index.php?/forums/topic/171511-jimikki-ponnu-from-varisu-tamil-video-song-4k-1080p-720p/&do=findComment&comment=342113)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
