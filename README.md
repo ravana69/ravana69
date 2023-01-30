@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kurukum Nooru Pravin - Lyrical | Momo in Dubai I Ameen Aslam | Zakariya Mohammed | Yakzan and Neha](https://www.youtube.com/watch?v=5UTuUPXNSck)
+- [Nilaavil Neerala | Vaarikkuzhiyile Kolapathakam | Shreya Ghoshal |  Kaushik Menon | Mejjo Josseph](https://www.youtube.com/watch?v=KogyL8l0ATU)
+- [Vaalittezhuthiya Video Song | Mohanlal | Samyuktha Varma | KJ Yesudas | Ouseppachan | Kaithapram](https://www.youtube.com/watch?v=F0xjQZ22qgk)
 - [താരം വാൽക്കണ്ണാ‍ടി നോക്കി HD | Thaaram Vaalkannaadi Nokki HD | Jayaram | Charmila | Keli](https://www.youtube.com/watch?v=yYCHQIZWKgE)
 - [Parayuvathangane - Lyrical Video | Manal Pakshikal | Mithun Jayaraj | Shanavas Shanu,Santhosh,Anjali](https://www.youtube.com/watch?v=AoqJEQdClZs)
 - [മായപൊന്മാനേ മായപ്പൊന്മാനേ നിന്നെ തേടീ ഞാൻ | Thalayanamanthram | Evergreen Hit Malayalam Movie Songs](https://www.youtube.com/watch?v=kSWFRLeMhE0)
-- [Vaalittezhuthiya HD 1080p |  Life is Beautiful | Mohanlal | Samyuktha Varma | Geethu Mohandas](https://www.youtube.com/watch?v=jX8yNPceeYI)
-- [മലയാളികൾ എക്കാലവും മൂളികൊണ്ട് നടക്കുന്ന ഇഷ്ടഗാനങ്ങൾ  | SUPERHIT FILM SONGS](https://www.youtube.com/watch?v=GzilcLbDJnA)
-- [Prabhatha Geethangal | Kester | Christian Devotional Songs Malayalam | Morning Prayer Songs](https://www.youtube.com/watch?v=cHHCbPdbKqQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
