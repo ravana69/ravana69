@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Araarum Kaanathe | Kinavalli | Reshma Menon | Sree Sai Surendran](https://www.youtube.com/watch?v=GUUpszWCjk8)
 - [Romancham - Official Trailer | Johnpaul George | Girish Gangadharan | Joby George | Jithu Madhavan](https://www.youtube.com/watch?v=iB2Ol_hI-04)
 - [Njaarum Cherum | Kunjiramante Kuppayam | Sithara Krishnakumar | Manoor Prakash | Siraj | P K Gopi](https://www.youtube.com/watch?v=kzjt0eGUcE8)
 - [Manasse Paadu Nee | Paranju Theeratha Visheshangal | Super Hit Movie Song | M. Jayachandran Hits](https://www.youtube.com/watch?v=JPlri9j2Mms)
 - [Nenjudukkinte Video Song | Kalabhavn Mani | Nandini | KJ Yesudas | Mohan Sithara | Yusufali Kecheri](https://www.youtube.com/watch?v=cOqP0BKeUyA)
 - [സംഗീതം കൊണ്ട് ഹൃദയത്തിൽ മോഹമുണർത്തിയ ഗാനങ്ങൾ  | NISARI CHITHRAGEETHAM | MALAYALAM SONGS](https://www.youtube.com/watch?v=poNsuL5wZms)
-- [താരമൂല്യം കൊണ്ട് ശ്രദ്ധേയമായ ദിലീപ് - കാവ്യ ചിത്രങ്ങളിലെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | DILEEP - KAVYA HITS](https://www.youtube.com/watch?v=rwBtLida3So)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
