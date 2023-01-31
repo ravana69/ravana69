@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Singer Of The Week | P Jayachandran | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=RAd_1kgtUQo)
 - [Mamazhayile | Mayilattam | Jayaram | Rambha | M Jayachandran | Sujatha Mohan | Gireesh Puthanchery](https://www.youtube.com/watch?v=nVAPm2X5ePA)
 - [30 January 2023](https://www.youtube.com/watch?v=KAF5HLLTDcU)
 - [Christian Melody Songs | Biju Narayanan | Joji Johns | Keter | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=CofzT9njkn4)
 - [Oridathoru Puzhayunde | Aalorukkam | Vidyadharan Master | Ronnie Raphel | Ajesh Chandran](https://www.youtube.com/watch?v=jklVTV_kcF4)
 - [Kurukum Nooru Pravin - Lyrical | Momo in Dubai I Ameen Aslam | Zakariya Mohammed | Yakzan and Neha](https://www.youtube.com/watch?v=5UTuUPXNSck)
-- [Nilaavil Neerala | Vaarikkuzhiyile Kolapathakam | Shreya Ghoshal |  Kaushik Menon | Mejjo Josseph](https://www.youtube.com/watch?v=KogyL8l0ATU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
