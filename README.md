@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vada Chennai &lpar;2018&rpar; Tamil - UNCENSORED VERSION - True 1080P HD AVC - &lpar;DD 5.1 - 320Kbps&rpar; - &lpar;AAC2.0 - 160Kbps] - 3.8GB - x264 - Esubs] - &lpar;Encoded by Jack Sparrow&rpar;](https://www.1tamilmv.bond/index.php?/forums/topic/171486-vada-chennai-2018-tamil-uncensored-version-true-1080p-hd-avc-dd-51-320kbps-aac20-160kbps-38gb-x264-esubs-encoded-by-jack-sparrow/&do=findComment&comment=342171)
+- [ASHOK &lpar;2006&rpar; TELUGU &lpar;Music Video Album&rpar; - 1080P - TRUE WEBDL - H264 - DD 5.1 - ESUBS - 850MB](https://www.1tamilmv.bond/index.php?/forums/topic/171528-ashok-2006-telugu-music-video-album-1080p-true-webdl-h264-dd-51-esubs-850mb/&do=findComment&comment=342170)
 - [50 Tamil Movies - 1080p - AMZN / ZEE5 / SS / JC / TK WEB DL - DD5.1 / AAC5.1 / AAC2.0 - ESub - 70GB [GDrive]](https://www.1tamilmv.bond/index.php?/forums/topic/164653-50-tamil-movies-1080p-amzn-zee5-ss-jc-tk-web-dl-dd51-aac51-aac20-esub-70gb-gdrive/&do=findComment&comment=342169)
 - [Babylon &lpar;2022&rpar; English HQ HDRip - 720p - x264 - &lpar;DD5.1 - 192Kbps &amp; AAC&rpar; - 1.4GB - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171526-babylon-2022-english-hq-hdrip-720p-x264-dd51-192kbps-aac-14gb-esub/&do=findComment&comment=342168)
 - [Pamela: A Love Story &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.5GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171525-pamela-a-love-story-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-35gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=342167)
-- [Black Panther: Wakanda Forever &lpar;2022&rpar; English BluRay - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; - 3GB &amp; 1.5GB - 400MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171519-black-panther-wakanda-forever-2022-english-bluray-1080p-720p-x264-dd51-192kbps-3gb-15gb-400mb-esub/&do=findComment&comment=342166)
-- [Bommai Nayagi &lpar;2023&rpar; Tamil [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - S.K.S Musical](https://www.1tamilmv.bond/index.php?/forums/topic/171527-bommai-nayagi-2023-tamil-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-sks-musical/&do=findComment&comment=342165)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
