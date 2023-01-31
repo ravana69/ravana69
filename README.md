@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [സംഗീതം കൊണ്ട് ഹൃദയത്തിൽ മോഹമുണർത്തിയ ഗാനങ്ങൾ  | NISARI CHITHRAGEETHAM | MALAYALAM SONGS](https://www.youtube.com/watch?v=poNsuL5wZms)
+- [താരമൂല്യം കൊണ്ട് ശ്രദ്ധേയമായ ദിലീപ് - കാവ്യ ചിത്രങ്ങളിലെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | DILEEP - KAVYA HITS](https://www.youtube.com/watch?v=rwBtLida3So)
 - [വാലിന്മേൽ പൂവും, വാലിട്ടെഴുതിയവേൽമുനക്കണ്ണുമായി, Vaalinmel Poovum | Pavithram | Mohanlal](https://www.youtube.com/watch?v=xMlomQrDqa8)
 - [ശ്രീരാഗമോ തേടുന്നു നീ HD | Sreeraagamo Thedunnu | Pavithram | Mohanlal | Shobana | Sreevidhya](https://www.youtube.com/watch?v=uMvRKj3ce_g)
 - [Suhruth Suhruth | Masters | Gopi Sundar | Johny Antony | Prithviraj Sukumaran | Shibu Chakravarthi](https://www.youtube.com/watch?v=-6Lw6Kj313E)
 - [Singer Of The Week | P Jayachandran | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=RAd_1kgtUQo)
-- [Mamazhayile | Mayilattam | Jayaram | Rambha | M Jayachandran | Sujatha Mohan | Gireesh Puthanchery](https://www.youtube.com/watch?v=nVAPm2X5ePA)
-- [30 January 2023](https://www.youtube.com/watch?v=KAF5HLLTDcU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
