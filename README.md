@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Rathasaatchi &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.4GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/170706-rathasaatchi-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-34gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=342176)
+- [Anukoni Prayanam &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171243-anukoni-prayanam-2022-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=342175)
 - [Mental Madhilo &lpar;2017&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DDP 2.0 &lpar;224Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.bond/index.php?/forums/topic/171531-mental-madhilo-2017-telugu-music-video-album-1080p-web-hd-untouched-avc-ddp-20-224kbps-e-sub-by-beast-uk/&do=findComment&comment=342174)
 - [Crazy Fellow &lpar;2022&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.bond/index.php?/forums/topic/171530-crazy-fellow-2022-telugu-music-video-album-1080p-web-hd-untouched-avc-dd51-640kbps-e-sub-by-beast-uk/&do=findComment&comment=342173)
 - [Chaavu Kaburu Challaga &lpar;2021&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DD+5.1 &lpar;640Kbps&rpar;] E-Sub  By-Beast UK](https://www.1tamilmv.bond/index.php?/forums/topic/171529-chaavu-kaburu-challaga-2021-telugu-music-video-album-1080p-web-hd-untouched-avc-dd51-640kbps-e-sub-by-beast-uk/&do=findComment&comment=342172)
-- [Vada Chennai &lpar;2018&rpar; Tamil - UNCENSORED VERSION - True 1080P HD AVC - &lpar;DD 5.1 - 320Kbps&rpar; - &lpar;AAC2.0 - 160Kbps] - 3.8GB - x264 - Esubs] - &lpar;Encoded by Jack Sparrow&rpar;](https://www.1tamilmv.bond/index.php?/forums/topic/171486-vada-chennai-2018-tamil-uncensored-version-true-1080p-hd-avc-dd-51-320kbps-aac20-160kbps-38gb-x264-esubs-encoded-by-jack-sparrow/&do=findComment&comment=342171)
-- [ASHOK &lpar;2006&rpar; TELUGU &lpar;Music Video Album&rpar; - 1080P - TRUE WEBDL - H264 - DD 5.1 - ESUBS - 850MB](https://www.1tamilmv.bond/index.php?/forums/topic/171528-ashok-2006-telugu-music-video-album-1080p-true-webdl-h264-dd-51-esubs-850mb/&do=findComment&comment=342170)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
