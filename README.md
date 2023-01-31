@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Idhaya Kovil &lpar;1985&rpar;.Tamil.720p &amp; 1080p.Web-dl.x264.AAC2.0 - 2GB &amp; 4GB](https://www.1tamilmv.bond/index.php?/forums/topic/171520-idhaya-kovil-1985tamil720p-1080pweb-dlx264aac20-2gb-4gb/&do=findComment&comment=342145)
 - [Black Panther: Wakanda Forever &lpar;2022&rpar; English BluRay - 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; - 1.5GB - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171519-black-panther-wakanda-forever-2022-english-bluray-720p-x264-dd51-192kbps-15gb-esub/&do=findComment&comment=342144)
 - [Black Panther - Wakanda Forever &lpar;2022&rpar;.1080p.10bit.BrRip.6CH.x265.HEVC-PSA - 2GB](https://www.1tamilmv.bond/index.php?/forums/topic/171518-black-panther-wakanda-forever-20221080p10bitbrrip6chx265hevc-psa-2gb/&do=findComment&comment=342143)
 - [Thankam &lpar;2023&rpar; Malayalam Proper HQ PreDVD - 700MB - x264 - HQ Clean Audio - MP3](https://www.1tamilmv.bond/index.php?/forums/topic/168892-thankam-2023-malayalam-proper-hq-predvd-700mb-x264-hq-clean-audio-mp3/&do=findComment&comment=342142)
 - [Dasara &lpar;2023&rpar; - Official Teaser  [Tam + Tel + Hin + Mal + Kan] - Nani | Keerthy Suresh | Santhosh Narayanan](https://www.1tamilmv.bond/index.php?/forums/topic/171517-dasara-2023-official-teaser-tam-tel-hin-mal-kan-nani-keerthy-suresh-santhosh-narayanan/&do=findComment&comment=342141)
-- [Aadhalal Kadhal Seiveer  &lpar;2013&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD 5.1 - 320Kbps&rpar; - 10GB - 4.6GB - 2.6GB - 1.4GB &amp; 900MB] - [x264 - 700MB - 400MB]](https://www.1tamilmv.bond/index.php?/forums/topic/171516-aadhalal-kadhal-seiveer-2013-tamil-true-web-dl-1080p-720p-avc-hevc-dd-51-320kbps-10gb-46gb-26gb-14gb-900mb-x264-700mb-400mb/&do=findComment&comment=342140)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
