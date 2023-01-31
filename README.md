@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Black Panther: Wakanda Forever &lpar;2022&rpar; English BluRay - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; - 3GB &amp; 1.5GB - 400MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171519-black-panther-wakanda-forever-2022-english-bluray-1080p-720p-x264-dd51-192kbps-3gb-15gb-400mb-esub/&do=findComment&comment=342152)
+- [[144FPS | 60FPS] The Last of Us S01E03 WEBRip DDP5.1 Atmos H.265 - 2160p [4K60FPS] | 1080p [144FPS | 60FPS] - 17.6 GB | 8.8 GB | 5.1 GB](https://www.1tamilmv.bond/index.php?/forums/topic/171522-144fps-60fps-the-last-of-us-s01e03-webrip-ddp51-atmos-h265-2160p-4k60fps-1080p-144fps-60fps-176-gb-88-gb-51-gb/&do=findComment&comment=342150)
 - [Men In Black International &lpar;1997&rpar; Blu-ray Remastered [1080p English - HQ BDRip - x264 - DD 5.1 - 2GB - Esub]](https://www.1tamilmv.bond/index.php?/forums/topic/155403-men-in-black-international-1997-blu-ray-remastered-1080p-english-hq-bdrip-x264-dd-51-2gb-esub/&do=findComment&comment=342149)
 - [Dharmathin Thalaivan &lpar;1988&rpar; WEB-DL [1080p - Tamil - AAC &lpar;192Kbps&rpar;] - H.264 - 3GB](https://www.1tamilmv.bond/index.php?/forums/topic/160394-dharmathin-thalaivan-1988-web-dl-1080p-tamil-aac-192kbps-h264-3gb/&do=findComment&comment=342148)
 - [Black Panther: Wakanda Forever &lpar;2022&rpar; 1080p BluRay REMUX DTS-HD MA.7.1 Msubs x264 - 37.2 GB](https://www.1tamilmv.bond/index.php?/forums/topic/171521-black-panther-wakanda-forever-2022-1080p-bluray-remux-dts-hd-ma71-msubs-x264-372-gb/&do=findComment&comment=342147)
-- [Aadhalal Kadhal Seiveer  &lpar;2013&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD 5.1 - 320Kbps&rpar; - 10GB - 4.6GB - 2.6GB - 1.4GB &amp; 900MB] - [x264 - 700MB - 400MB]](https://www.1tamilmv.bond/index.php?/forums/topic/171516-aadhalal-kadhal-seiveer-2013-tamil-true-web-dl-1080p-720p-avc-hevc-dd-51-320kbps-10gb-46gb-26gb-14gb-900mb-x264-700mb-400mb/&do=findComment&comment=342146)
-- [Idhaya Kovil &lpar;1985&rpar;.Tamil.720p &amp; 1080p.Web-dl.x264.AAC2.0 - 2GB &amp; 4GB](https://www.1tamilmv.bond/index.php?/forums/topic/171520-idhaya-kovil-1985tamil720p-1080pweb-dlx264aac20-2gb-4gb/&do=findComment&comment=342145)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
