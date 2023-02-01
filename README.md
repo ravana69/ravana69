@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Black Panther: Wakanda Forever &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Malayalam + Eng&rpar; - 8GB - 3.6GB - 1.8GB &amp; 1GB | x264 - &lpar;Tam + Tel&rpar; - 800MB &amp; 450MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171532-black-panther-wakanda-forever-2022-bluray-original-audios-4k-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-malayalam-eng-8gb-36gb-18gb-1gb-x264-tam-tel-800mb-450mb-esub/&do=findComment&comment=342187)
+- [Kallayi FM &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Malayalam] - 1.8GB - 1.2GB &amp; 700MB] - [x264 - 600MB - 400MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171523-kallayi-fm-2023-tamil-true-web-dl-1080p-720p-avc-tamil-malayalam-18gb-12gb-700mb-x264-600mb-400mb-esub/&do=findComment&comment=342186)
 - [Kallayi FM &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Malayalam] - 1.8GB - 1.2GB &amp; 700MB] - [x264 - 600MB - 400MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171523-kallayi-fm-2023-tamil-true-web-dl-1080p-720p-avc-tamil-malayalam-18gb-12gb-700mb-x264-600mb-400mb-esub/&do=findComment&comment=342185)
 - [Bommai Nayagi &lpar;2023&rpar; Tamil [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - S.K.S Musical](https://www.1tamilmv.bond/index.php?/forums/topic/171527-bommai-nayagi-2023-tamil-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-sks-musical/&do=findComment&comment=342184)
 - [Kallayi FM &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Malayalam] - 1.8GB - 1.2GB &amp; 700MB] - [x264 - 600MB - 400MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171523-kallayi-fm-2023-tamil-true-web-dl-1080p-720p-avc-tamil-malayalam-18gb-12gb-700mb-x264-600mb-400mb-esub/&do=findComment&comment=342183)
-- [Hollow Man &lpar;2000&rpar; Directors Cut AAC 2.0 Tamil + DD2.0 Telugu + Org DD 5.1 Hindi + DTS 5.1 English+DTS Russian+DD5.1 Ukrainian1080p Blu-ray Remux Msubs [G-Drive]](https://www.1tamilmv.bond/index.php?/forums/topic/168791-hollow-man-2000-directors-cut-aac-20-tamil-dd20-telugu-org-dd-51-hindi-dts-51-englishdts-russiandd51-ukrainian1080p-blu-ray-remux-msubs-g-drive/&do=findComment&comment=342182)
-- [Kranti &lpar;2023&rpar; Hindi PreDVD - [1080p &amp; 720p - x264 - 2.5GB &amp; 1.3GB| x264 - 700MB &amp; 400MB] - HQ Dub](https://www.1tamilmv.bond/index.php?/forums/topic/170993-kranti-2023-hindi-predvd-1080p-720p-x264-25gb-13gb-x264-700mb-400mb-hq-dub/&do=findComment&comment=342181)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
