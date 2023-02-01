@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [#Thalatherichavar from #Romancham | #shorts #YTshorts](https://www.youtube.com/watch?v=cKPMlFRN-PM)
+- [Paattukaari | Pettilambattra | Sujith Suresan | Shashwath | Nishad Ahammed](https://www.youtube.com/watch?v=MKRDMEZZEWY)
 - [#Thalatherichavar from #Romancham | #shorts #YTshorts](https://www.youtube.com/watch?v=F_YyYrO0drE)
 - [#Thalatherichavar from #Romancham | #shorts #YTshorts](https://www.youtube.com/watch?v=7vvcb45k-tQ)
 - [ഒത്തിരി നല്ല ഗാനങ്ങൾ സമ്മാനിച്ച്  കടന്നു പോയ സംഗീതസംവിധായകരുടെ അനശ്വര ഗാനങ്ങൾ |NISARI CHITHRAGEETHAM](https://www.youtube.com/watch?v=DVxq5q0_Cjk)
 - [മാനേ മധുരക്കരിമ്പേമലര്‍ത്തേനേ മദനക്കുഴമ്പേ...| Mane Madhura karimbe | Pinnilavu](https://www.youtube.com/watch?v=Bfh4POlRuKI)
-- [ഏതോ വാർ‍മുകിലിൻ.. | Etho Varmukilin | Pookkaalam Varavay | Evergreen Malayalam Film Song | Jayaram](https://www.youtube.com/watch?v=GVqucTJd-y4)
-- [Thiruhrudayathin Munpil | Christian Video Song | Baby John Kalayanthani | Joji Johns | Alenia Mol](https://www.youtube.com/watch?v=HxWIJVL59LU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
