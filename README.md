@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Sembi &lpar;2022&rpar; Tamil Full Movie Watch Now HQ For Free](https://www.1tamilmv.bond/index.php?/forums/topic/171057-sembi-2022-tamil-full-movie-watch-now-hq-for-free/&do=findComment&comment=342178)
+- [Babylon &lpar;2022&rpar; English HQ HDRip - 720p - x264 - &lpar;DD5.1 - 192Kbps &amp; AAC&rpar; - 1.4GB - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171526-babylon-2022-english-hq-hdrip-720p-x264-dd51-192kbps-aac-14gb-esub/&do=findComment&comment=342177)
 - [Rathasaatchi &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.4GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/170706-rathasaatchi-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-34gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=342176)
 - [Anukoni Prayanam &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171243-anukoni-prayanam-2022-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=342175)
 - [Mental Madhilo &lpar;2017&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DDP 2.0 &lpar;224Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.bond/index.php?/forums/topic/171531-mental-madhilo-2017-telugu-music-video-album-1080p-web-hd-untouched-avc-ddp-20-224kbps-e-sub-by-beast-uk/&do=findComment&comment=342174)
-- [Crazy Fellow &lpar;2022&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.bond/index.php?/forums/topic/171530-crazy-fellow-2022-telugu-music-video-album-1080p-web-hd-untouched-avc-dd51-640kbps-e-sub-by-beast-uk/&do=findComment&comment=342173)
-- [Chaavu Kaburu Challaga &lpar;2021&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DD+5.1 &lpar;640Kbps&rpar;] E-Sub  By-Beast UK](https://www.1tamilmv.bond/index.php?/forums/topic/171529-chaavu-kaburu-challaga-2021-telugu-music-video-album-1080p-web-hd-untouched-avc-dd51-640kbps-e-sub-by-beast-uk/&do=findComment&comment=342172)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
