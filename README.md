@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Black Panther: Wakanda Forever &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Malayalam + Eng&rpar; - 8GB - 3.6GB - 1.8GB &amp; 1GB | x264 - &lpar;Tam + Tel&rpar; - 800MB &amp; 450MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171532-black-panther-wakanda-forever-2022-bluray-original-audios-4k-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-malayalam-eng-8gb-36gb-18gb-1gb-x264-tam-tel-800mb-450mb-esub/&do=findComment&comment=342205)
 - [Thunivu &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.bond/index.php?/forums/topic/171216-thunivu-2023-tamil-proper-hq-predvd-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=342204)
 - [60 Tamil Movies - 1080p - SUN NXT / AMZN / SS WEBDL - AVC / HEVC - DD5.1 / AAC5.1 / AAC - Esub - 200GB [GDrive]](https://www.1tamilmv.bond/index.php?/forums/topic/164846-60-tamil-movies-1080p-sun-nxt-amzn-ss-webdl-avc-hevc-dd51-aac51-aac-esub-200gb-gdrive/&do=findComment&comment=342203)
 - [Black Panther: Wakanda Forever &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Malayalam + Eng&rpar; - 8GB - 3.6GB - 1.8GB &amp; 1GB | x264 - &lpar;Tam + Tel&rpar; - 800MB &amp; 450MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171532-black-panther-wakanda-forever-2022-bluray-original-audios-4k-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-malayalam-eng-8gb-36gb-18gb-1gb-x264-tam-tel-800mb-450mb-esub/&do=findComment&comment=342201)
 - [Kallayi FM &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Malayalam] - 1.8GB - 1.2GB &amp; 700MB] - [x264 - 600MB - 400MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171523-kallayi-fm-2023-tamil-true-web-dl-1080p-720p-avc-tamil-malayalam-18gb-12gb-700mb-x264-600mb-400mb-esub/&do=findComment&comment=342200)
-- [Garuda &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.2GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171534-garuda-2022-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-22gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=342199)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
