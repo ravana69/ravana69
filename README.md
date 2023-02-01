@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Rithu Pallaviyil | Life is Beautiful | Kaithapram | Ouseppachan | MG Sreekumar | Mohanlal](https://www.youtube.com/watch?v=Zu-zMRHNs9o)
+- [Christian Melody Songs | MG Sreekumar | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=TWPXdQFX5iM)
 - [1 February 2023](https://www.youtube.com/watch?v=oMklHpGdgXA)
 - [Thankakatti - Video Song | Momo in Dubai | Jassie GiftI Ameen Aslam|Aneesh Gopinathan | Anu Sithara](https://www.youtube.com/watch?v=UcI1-AVdrLU)
 - [Arayaalilathumbil | Vidhu Prathap | M G Radhakrishnan | Shibu Chakravarthy |Malayalam Light Melodies](https://www.youtube.com/watch?v=QuhFJODFS3g)
 - [Maattupetti Koyilile | Jayaram | Rambha | Afsal | Chithra Iyer | Gireesh Puthenchery| M Jayachandran](https://www.youtube.com/watch?v=rJAEI9aUzgo)
-- [Melle Innen Nenchil | Vaarikkuzhiyile Kolapathakam | MM Keeravani | Mejjo Josseph | Gilu Joseph](https://www.youtube.com/watch?v=CtS0Ge_ENmo)
-- [#Thalatherichavar from #Romancham | #shorts #YTshorts](https://www.youtube.com/watch?v=cKPMlFRN-PM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
