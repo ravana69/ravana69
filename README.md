@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കുടുംബചിത്രങ്ങളിലുള്ള പ്രേക്ഷകർ തെരഞ്ഞെടുത്ത ഫാമിലി സൂപ്പർഹിറ്റ് സ്പെഷ്യൽഗാനങ്ങൾ | FAMILY LIFE SONGS](https://www.youtube.com/watch?v=zky8MGjEBZw)
+- [എത്ര വർണിച്ചാലും മതിയാവാത്ത അത്രമേൽ സുന്ദരമായ മലയാളസിനിമാഗാനങ്ങൾ | NISARI CHITHRAGEETHAM](https://www.youtube.com/watch?v=YhNrizP62rM)
 - [Chollu Chollu Chella Thathame | Ulakam Chuttum Valiban |Video Song| Jayaram |Raj Babu| Mohan Sithara](https://www.youtube.com/watch?v=LV2joj6iREI)
 - [Pularoli |Karaoke  Video| Bhaskar The Rascal | Mammootty |Deepak Dev |Vijay Yesudas|Rafeeque Ahammed](https://www.youtube.com/watch?v=KWQxy53Jq6U)
 - [ചങ്കു തകർന്നവന്റെ ചങ്കിൽ തറച്ച ഗാനങ്ങൾ | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=3pmmBSBiFp0)
 - [Kadhayoravarthanam | Daddy Cool | Bijibal | Mammootty | Hariharan | Master Dananjay](https://www.youtube.com/watch?v=Ffz8IQZ6DUU)
-- [Rithu Pallaviyil | Life is Beautiful | Kaithapram | Ouseppachan | MG Sreekumar | Mohanlal](https://www.youtube.com/watch?v=Zu-zMRHNs9o)
-- [Christian Melody Songs | MG Sreekumar | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=TWPXdQFX5iM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
