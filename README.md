@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Nam Naadu &lpar;1969&rpar; TVRip [480p - Tamil - AAC2.0] - H.264 - 1.4GB | Angry Birds &lpar;2016&rpar;  1080p - BDRip - Original Auds [Tamil + Hindi + English] - x264 - 1.5GB - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/154819-nam-naadu-1969-tvrip-480p-tamil-aac20-h264-14gb-angry-birds-2016-1080p-bdrip-original-auds-tamil-hindi-english-x264-15gb-esub/&do=findComment&comment=342212)
+- [Black Panther: Wakanda Forever &lpar;2022&rpar; Bluray - 1080p [Tamil + Telugu + Hindi + Malayalam] DDP5.1 &lpar;192Kbps&rpar; + [English - DTS-HD MA 7.1] - H.264 - ESub - 14GB &amp; 5.3GB |DSNP - 8.7GB](https://www.1tamilmv.bond/index.php?/forums/topic/153419-black-panther-wakanda-forever-2022-bluray-1080p-tamil-telugu-hindi-malayalam-ddp51-192kbps-english-dts-hd-ma-71-h264-esub-14gb-53gb-dsnp-87gb/&do=findComment&comment=342211)
 - [Race Gurram &lpar;2014&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; GPlay 1080p WEB-HD UNTOUCHED - AVC - [DTS-Express &amp; DD+5.1 &lpar;384Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.bond/index.php?/forums/topic/167486-race-gurram-2014-telugu-music-video-album-gplay-1080p-web-hd-untouched-avc-dts-express-dd51-384kbps-e-sub-by-beast-uk/&do=findComment&comment=342210)
 - [Garuda &lpar;2022&rpar; AMZN WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 9.6 GB | 2.8 GB](https://www.1tamilmv.bond/index.php?/forums/topic/171538-garuda-2022-amzn-web-dl-ddp51-esubs-x264-1080p-720p-96-gb-28-gb/&do=findComment&comment=342209)
 - [Garuda &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.2GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171534-garuda-2022-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-22gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=342208)
-- [Keladi Kanmani &lpar;1990&rpar;.Tamil.720p.Web-dl.x264.AAC2.0 - 2.2GB](https://www.1tamilmv.bond/index.php?/forums/topic/171537-keladi-kanmani-1990tamil720pweb-dlx264aac20-22gb/&do=findComment&comment=342207)
-- [[IMAX] Black Panther: Wakanda Forever &lpar;2022&rpar; IMAX DSNP WEB-DL Multi DDP5.1 Atmos Esubs - 2160p [HDR10] | 1080p | 720p - 28.6 GB | 9.3 GB | 6 GB](https://www.1tamilmv.bond/index.php?/forums/topic/171536-imax-black-panther-wakanda-forever-2022-imax-dsnp-web-dl-multi-ddp51-atmos-esubs-2160p-hdr10-1080p-720p-286-gb-93-gb-6-gb/&do=findComment&comment=342206)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
