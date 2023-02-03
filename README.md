@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [LEO - Bloody Sweet Tittle Promo Big Screen Celebration Theater Response | Thalapathy Vijay | Lokesh Kanagaraj](https://www.1tamilmv.bond/index.php?/forums/topic/171585-leo-bloody-sweet-tittle-promo-big-screen-celebration-theater-response-thalapathy-vijay-lokesh-kanagaraj/&do=findComment&comment=342304)
-- [Varisu &lpar;2023&rpar; Tamil HDRip - 1080p - x264 - DD5.1 640Kbps Upmixed - 3.5GB - HC-ESub - Cinema Surround](https://www.1tamilmv.bond/index.php?/forums/topic/171582-varisu-2023-tamil-hdrip-1080p-x264-dd51-640kbps-upmixed-35gb-hc-esub-cinema-surround/&do=findComment&comment=342303)
-- [Varisu &lpar;2023&rpar; Tamil HDRip - 1080p - x264 - DD5.1 640Kbps Upmixed - 3.5GB - HC-ESub - Cinema Surround](https://www.1tamilmv.bond/index.php?/forums/topic/171582-varisu-2023-tamil-hdrip-1080p-x264-dd51-640kbps-upmixed-35gb-hc-esub-cinema-surround/&do=findComment&comment=342302)
-- [Varisu &lpar;2023&rpar; Tamil HDRip - 1080p - x264 - DD5.1 640Kbps Upmixed - 3.5GB - HC-ESub - Cinema Surround](https://www.1tamilmv.bond/index.php?/forums/topic/171582-varisu-2023-tamil-hdrip-1080p-x264-dd51-640kbps-upmixed-35gb-hc-esub-cinema-surround/&do=findComment&comment=342301)
-- [Thalapathy 67 - Title Reveal Promo - Bloody Sweet | Thalapathy Vijay | Lokesh Kanagaraj | Anirudh](https://www.1tamilmv.bond/index.php?/forums/topic/171584-thalapathy-67-title-reveal-promo-bloody-sweet-thalapathy-vijay-lokesh-kanagaraj-anirudh/&do=findComment&comment=342300)
+- [Michael &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.bond/index.php?/forums/topic/171570-michael-2023-tamil-proper-hq-predvd-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=342311)
+- [Thegimpu &lpar;2023&rpar; Telugu WEB-DL - [1080p &amp; 720p - AVC - 2.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.bond/index.php?/forums/topic/171466-thegimpu-2023-telugu-web-dl-1080p-720p-avc-26gb-14gb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=342310)
+- [Writer Padmabhushan &lpar;2023&rpar; Telugu Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.bond/index.php?/forums/topic/171571-writer-padmabhushan-2023-telugu-proper-hq-predvd-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=342309)
+- [Michael &lpar;2023&rpar; Telugu Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.bond/index.php?/forums/topic/171572-michael-2023-telugu-proper-hq-predvd-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=342308)
+- [Michael &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.bond/index.php?/forums/topic/171570-michael-2023-tamil-proper-hq-predvd-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=342307)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
