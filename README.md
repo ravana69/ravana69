@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ആപ്പിൾ ഒത്ത കവിളില്‍ഗോൾഡൻ | Mane Madhura karimbe | Pinnilavu](https://www.youtube.com/watch?v=Wk8bGS6ZeAs)
 - [My Heart Is | Chattakkari | Video Song | Sugeetha Menon | Charu Hariharan | M Jayachandran](https://www.youtube.com/watch?v=cE8Wn2E5tzw)
 - [Njan Aare Bhayappedum Karaoke | Christian Songs Minus Track | Malayalam Christian Karaoke](https://www.youtube.com/watch?v=AGmbBDOZQug)
 - [Christian Melody Songs | Qurbana Songs Malayalam |Amal Antony | Joji Johns |Manoj Christy](https://www.youtube.com/watch?v=X__D7DWCXA0)
 - [Ponnum Poovum | Ishtamanu Nooruvattam | Shiju | Rasmi Soman | Yesudas | Chithra | S.Balakrishnan](https://www.youtube.com/watch?v=dW6Gb2-XJTY)
 - [2 February 2023](https://www.youtube.com/watch?v=fxY9FgJWC7Q)
-- [Christian Superhit Songs | Kester | Praise and Worship Songs | Malayalam Christian Songs](https://www.youtube.com/watch?v=2_91rLKnNfY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
