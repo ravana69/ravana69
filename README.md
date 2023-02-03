@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oridathoru Puzhayunde | Aalorukkam | Sithara Krishnakumar| Ronnie Raphel | Ajesh Chandran](https://www.youtube.com/watch?v=sEkW0QWGr40)
+- [Aniayambu Muttathu Video Song | Dileep | Kavya Madhavan | Vineeth | MG Sreekumar | Santhosh Keshav](https://www.youtube.com/watch?v=yh75dfts7vs)
 - [രാവില്‍ പൂന്തേന്‍ തേടും പൂങ്കാറ്റേ | Raavin Poonthen | Naduvazhikal l Mohanlal | Roopini](https://www.youtube.com/watch?v=Ka-3fVDP8Io)
 - [എത്ര തിരക്കായാലും അതെല്ലാം ശാന്തമാക്കുന്ന മലയാളസിനിമാഗാനങ്ങൾ | SOFT BEAUTIFUL SONGS](https://www.youtube.com/watch?v=kV6tC4H3eG8)
 - [ആപ്പിൾ ഒത്ത കവിളില്‍ഗോൾഡൻ | Mane Madhura karimbe | Pinnilavu](https://www.youtube.com/watch?v=Wk8bGS6ZeAs)
 - [My Heart Is | Chattakkari | Video Song | Sugeetha Menon | Charu Hariharan | M Jayachandran](https://www.youtube.com/watch?v=cE8Wn2E5tzw)
-- [Njan Aare Bhayappedum Karaoke | Christian Songs Minus Track | Malayalam Christian Karaoke](https://www.youtube.com/watch?v=AGmbBDOZQug)
-- [Christian Melody Songs | Qurbana Songs Malayalam |Amal Antony | Joji Johns |Manoj Christy](https://www.youtube.com/watch?v=X__D7DWCXA0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
