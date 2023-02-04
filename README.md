@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Butta Bomma &lpar;2023&rpar; Telugu Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.bond/index.php?/forums/topic/171578-butta-bomma-2023-telugu-proper-hq-predvd-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=342337)
 - [Class &lpar;2023&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p, 720p - [Tamil + Telugu + Hindi + Eng] - 7GB - 3.4GB - 1.4GB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171557-class-2023-s01-ep-01-08-true-web-dl-1080p-720p-tamil-telugu-hindi-eng-7gb-34gb-14gb-esub/&do=findComment&comment=342336)
 - [Cooku With Comali &lpar;2023&rpar; Tamil - S04 EP03 TRUE WEB-DL - [1080p, 720p, 480p - AVC - UNTOUCHED - 2GB - 800MB &amp; 400MB] [04-02-2023]](https://www.1tamilmv.bond/index.php?/forums/topic/171594-cooku-with-comali-2023-tamil-s04-ep03-true-web-dl-1080p-720p-480p-avc-untouched-2gb-800mb-400mb-04-02-2023/&do=findComment&comment=342335)
 - [Class &lpar;2023&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p, 720p - [Tamil + Telugu + Hindi + Eng] - 7GB - 3.4GB - 1.4GB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171557-class-2023-s01-ep-01-08-true-web-dl-1080p-720p-tamil-telugu-hindi-eng-7gb-34gb-14gb-esub/&do=findComment&comment=342334)
 - [Cooku With Comali &lpar;2023&rpar; Tamil - S04 EP03 TRUE WEB-DL - [1080p, 720p, 480p - AVC - UNTOUCHED - 2GB - 800MB &amp; 400MB] [04-02-2023]](https://www.1tamilmv.bond/index.php?/forums/topic/171594-cooku-with-comali-2023-tamil-s04-ep03-true-web-dl-1080p-720p-480p-avc-untouched-2gb-800mb-400mb-04-02-2023/&do=findComment&comment=342333)
-- [Varisu &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC / HEVC - AAC - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171569-varisu-2023-tamil-web-dl-1080p-720p-avc-hevc-aac-28gb-14gb-850mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=342332)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
