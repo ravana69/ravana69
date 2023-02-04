@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഒരു കഥ കേൾക്കുന്ന  രസത്തോടെ കേട്ടിരിക്കാവുന്ന സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ  |  SUPERHIT MALAYALAM SONGS](https://www.youtube.com/watch?v=x7TPPcTWTDQ)
+- [പ്രണയവികാരത്തെ പ്രതിബലിപ്പിച്ചു കാണിച്ച റൊമാന്റിക് ഗാനങ്ങൾ | ROMANTIC SONGS MALAYALAM](https://www.youtube.com/watch?v=HPHS9Qf-2Bw)
 - [Raktham Thannu Jauam Thannu Karaoke | Satheesh Aruvikkara | Malayalam Worship Song Karaoke](https://www.youtube.com/watch?v=apqPBUcqWm8)
 - [Christian Video Songs Malayalam | Sreya Jayadeep | Christian Superhit Songs | Rithuraj | Joji Johns](https://www.youtube.com/watch?v=rfJOCTqzOE8)
 - [Prarthanaykkutharam Nalkunnone](https://www.youtube.com/watch?v=ZKd8B01PYPc)
 - [Poonthenunnaan....| Shorts](https://www.youtube.com/watch?v=BmuoPvw9qBo)
-- [Ntikkakkakkoru Premandaarnnu - Official Trailer | Sharafudheen | Bhavana | Adhil](https://www.youtube.com/watch?v=zlwXF1sWisU)
-- [3 February 2023](https://www.youtube.com/watch?v=cxL6UTnv9ag)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
