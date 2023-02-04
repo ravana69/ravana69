@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Christian Video Songs Malayalam | Sreya Jayadeep | Christian Superhit Songs | Rithuraj | Joji Johns](https://www.youtube.com/watch?v=rfJOCTqzOE8)
 - [Prarthanaykkutharam Nalkunnone](https://www.youtube.com/watch?v=ZKd8B01PYPc)
 - [Poonthenunnaan....| Shorts](https://www.youtube.com/watch?v=BmuoPvw9qBo)
 - [Ntikkakkakkoru Premandaarnnu - Official Trailer | Sharafudheen | Bhavana | Adhil](https://www.youtube.com/watch?v=zlwXF1sWisU)
 - [3 February 2023](https://www.youtube.com/watch?v=cxL6UTnv9ag)
 - [Chirakulla Cheruppam | Ravanan | Kaithapram | M Jayachandran |  Vidhu Prathap | Malayalam Songs](https://www.youtube.com/watch?v=rGtgTskZdtc)
-- [Christian Superhit Songs | Sujatha Mohan | Biju Narayanan | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=b5yhxYM7RGE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
