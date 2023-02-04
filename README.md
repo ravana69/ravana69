@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Hits of Vani Jayaram | Vani Jayaram Evergreen Hit Songs | Video Jukebox](https://www.youtube.com/watch?v=LvQ6xvd4DWs)
+- [4 February 2023](https://www.youtube.com/watch?v=HAl46t1kljI)
 - [Christian Superhit Songs | Joby Kidaram | Joji Johns | Manoj Christy | Christian Devotional Songs](https://www.youtube.com/watch?v=j48mrwc4K4c)
 - [Ezhumalayum | Kunjiramante Kuppayam | Mohammad Maqbool Mansoor | Siraj | P K Gopi](https://www.youtube.com/watch?v=vOJu2riljSQ)
 - [Kalakaanchi | Vaarikkuzhiyile Kolapathakam | Vaishnav Girish | Vipin Xavier|Anju Joseph|Saviolaz.C S](https://www.youtube.com/watch?v=y6m1xcL-Hj0)
 - [PALLIMANI | Official Trailer | Anil Kumbazha | Shwetha Menon | L A Menon (Productions Pvt Ltd)](https://www.youtube.com/watch?v=rYM6lFcPDys)
-- [വാണി ജയറാം ഇനി ഓർമ്മയിൽ | മാനത്തെ മാരിക്കുറുമ്പേ | Vani Jairam | Pulimurugan | Mohanlal | Video Song](https://www.youtube.com/watch?v=Uq5dvj7t2kg)
-- [♪♪ മനസ്സിന്‍ മടിയിലെ മാന്തളിരില്‍ ♪♪ | RIP Vani Jairam | Johnson Master | Maanathe Vellitheru](https://www.youtube.com/watch?v=RZKiHR16hVw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
