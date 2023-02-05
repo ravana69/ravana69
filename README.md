@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Naan Mirugamaai Maara &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 3.5GB - 2.6GB - 1.6GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB ] - Soft ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171613-naan-mirugamaai-maara-2022-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-atmos-448kbps-35gb-26gb-16gb-14gb-950mb-x264-700mb-400mb-soft-esub/&do=findComment&comment=342382)
+- [Naan Mirugamaai Maara &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 10GB - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171606-naan-mirugamaai-maara-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-atmos-448kbps-10gb-27gb-14gb-850mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=342381)
 - [Chinese Zodiac &lpar;2012&rpar; AAC 2.0 Tamil-Telugu-Hindi-DTS 5.1Russian 720p &amp; 1080p Blu-Ray  1GB &amp; 4GB [G-Drive]](https://www.1tamilmv.bond/index.php?/forums/topic/171612-chinese-zodiac-2012-aac-20-tamil-telugu-hindi-dts-51russian-720p-1080p-blu-ray-1gb-4gb-g-drive/&do=findComment&comment=342380)
 - [Paradesi &lpar;2013&rpar; SUN-NXT WEB DL - Tamil - DD5.1 - H.264 - [1080p - 4.4GB| 720p - 2.8GB]](https://www.1tamilmv.bond/index.php?/forums/topic/162456-paradesi-2013-sun-nxt-web-dl-tamil-dd51-h264-1080p-44gb-720p-28gb/&do=findComment&comment=342379)
 - [Thirumalai &lpar;2003&rpar; - AYN - Untouched - DVD9 - DD &amp; DTS - ESub 6.9GB [GDRIVE]](https://www.1tamilmv.bond/index.php?/forums/topic/138589-thirumalai-2003-ayn-untouched-dvd9-dd-dts-esub-69gb-gdrive/&do=findComment&comment=342378)
-- [🔰Thirumalai &lpar;2003&rpar; Tamil - AYN DVD9 UNTOUCHED - REMUXED - DD5.1 - 6.5GB](https://www.1tamilmv.bond/index.php?/forums/topic/155247-%F0%9F%94%B0thirumalai-2003-tamil-ayn-dvd9-untouched-remuxed-dd51-65gb/&do=findComment&comment=342377)
-- [🔱 Red &lpar;2002&rpar; | DVD9 UNTOUCHED - REMUXED - DD 5.1 - 6.9GB | 🔰G-Drive Links🔰](https://www.1tamilmv.bond/index.php?/forums/topic/169140-%F0%9F%94%B1-red-2002-dvd9-untouched-remuxed-dd-51-69gb-%F0%9F%94%B0g-drive-links%F0%9F%94%B0/&do=findComment&comment=342376)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
