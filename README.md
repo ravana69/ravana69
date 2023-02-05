@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vaalkannezhuthiya | Malayalam Super Hit Movie Song | Jayaram | Suresh Gopi - SP Venkitesh Hits](https://www.youtube.com/watch?v=110G4Fhb-VE)
+- [Annoru Raavil Video Song | Suresh Gopi | Arpana Rao | Sujatha Mohan | Biju Narayanan | SP Venkitesh](https://www.youtube.com/watch?v=f7HUSaW-Pyw)
 - [പൂമകൾ വാഴുന്ന കോവിലിൽ ... #shorts  #shortsyoutube #chippyrenjith #krishnakumar](https://www.youtube.com/watch?v=tyqbPl1FvuU)
 - [Melle Innen Nenchil | Vaarikkuzhiyile Kolapathakam | Dr Veena Joseph | Mejjo Josseph | Gilu Joseph](https://www.youtube.com/watch?v=kGMJ2O5DUvY)
 - [Aaro Thaniye | Kinavalli | Roshni Suresh | Shashwath | Nishad Ahmed](https://www.youtube.com/watch?v=gu_P3MUesYc)
 - [MARKOSE HITS, CHRISTIAN DEVOTIONAL SONGS /OWN MEDIA MUSIC/](https://www.youtube.com/watch?v=rO-ZL5LoI9A)
-- [തലമുറകളോളം പാടിയ സൂപ്പർഹിറ്റ് ക്രിസ്തീയ ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | KG Markose](https://www.youtube.com/watch?v=UKZ7FSn5y3o)
-- [Bhoomi Pennin Poomey | Oru Kudakeezhil | Vani Jairam | KJ Yesudas | Johnson | Poovachal Khadar](https://www.youtube.com/watch?v=4EzAQ-0dppc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
