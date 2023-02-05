@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aliyarude Omanabeevi Food Version Shorts](https://www.youtube.com/watch?v=Mv53ZfOyuyw)
+- [Christian Melody Songs | Biju Mookannor | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=1IrQ6jVDD-o)
 - [ENTE PADACHAVANE | Mohabbath | Shankar Mahadevan, Afsal | East Coast Vijayan | Meera Jasmine](https://www.youtube.com/watch?v=LiWRRq4Y3fM)
 - [Vaalkannezhuthiya | Malayalam Super Hit Movie Song | Jayaram | Suresh Gopi - SP Venkitesh Hits](https://www.youtube.com/watch?v=110G4Fhb-VE)
 - [Annoru Raavil Video Song | Suresh Gopi | Arpana Rao | Sujatha Mohan | Biju Narayanan | SP Venkitesh](https://www.youtube.com/watch?v=f7HUSaW-Pyw)
 - [പൂമകൾ വാഴുന്ന കോവിലിൽ ... #shorts  #shortsyoutube #chippyrenjith #krishnakumar](https://www.youtube.com/watch?v=tyqbPl1FvuU)
-- [Melle Innen Nenchil | Vaarikkuzhiyile Kolapathakam | Dr Veena Joseph | Mejjo Josseph | Gilu Joseph](https://www.youtube.com/watch?v=kGMJ2O5DUvY)
-- [Aaro Thaniye | Kinavalli | Roshni Suresh | Shashwath | Nishad Ahmed](https://www.youtube.com/watch?v=gu_P3MUesYc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
