@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [MARKOSE HITS, CHRISTIAN DEVOTIONAL SONGS /OWN MEDIA MUSIC/](https://www.youtube.com/watch?v=rO-ZL5LoI9A)
+- [തലമുറകളോളം പാടിയ സൂപ്പർഹിറ്റ് ക്രിസ്തീയ ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | KG Markose](https://www.youtube.com/watch?v=UKZ7FSn5y3o)
 - [Bhoomi Pennin Poomey | Oru Kudakeezhil | Vani Jairam | KJ Yesudas | Johnson | Poovachal Khadar](https://www.youtube.com/watch?v=4EzAQ-0dppc)
 - [Hits of Vani Jayaram | Vani Jayaram Evergreen Hit Songs | Video Jukebox](https://www.youtube.com/watch?v=LvQ6xvd4DWs)
 - [4 February 2023](https://www.youtube.com/watch?v=HAl46t1kljI)
 - [Christian Superhit Songs | Joby Kidaram | Joji Johns | Manoj Christy | Christian Devotional Songs](https://www.youtube.com/watch?v=j48mrwc4K4c)
-- [Ezhumalayum | Kunjiramante Kuppayam | Mohammad Maqbool Mansoor | Siraj | P K Gopi](https://www.youtube.com/watch?v=vOJu2riljSQ)
-- [Kalakaanchi | Vaarikkuzhiyile Kolapathakam | Vaishnav Girish | Vipin Xavier|Anju Joseph|Saviolaz.C S](https://www.youtube.com/watch?v=y6m1xcL-Hj0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
