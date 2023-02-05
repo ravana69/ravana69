@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [INDRA &lpar;2002&rpar; TELUGU &lpar;MUSIC VIDEO ALBUM&rpar; - 1080P - WEBHD - AVC - DTS 5.1 / DD 5.1 - ESUBS - 900MB](https://www.1tamilmv.bond/index.php?/forums/topic/171616-indra-2002-telugu-music-video-album-1080p-webhd-avc-dts-51-dd-51-esubs-900mb/&do=findComment&comment=342385)
+- [BABA &lpar;2002&rpar; MUSIC VIDEO ALBUM - AYN ~ DVDREMUX - DD® 5.1 - 448Kbps - DTS® 5.1 - 768Kbps - 1.3GB](https://www.1tamilmv.bond/index.php?/forums/topic/171615-baba-2002-music-video-album-ayn-~-dvdremux-dd%C2%AE-51-448kbps-dts%C2%AE-51-768kbps-13gb/&do=findComment&comment=342384)
+- [OKE OKKADU &lpar;1999&rpar; TELUGU &lpar;MUSIC VIDEO ALBUM&rpar; - DVDREMUX - DOLBY® 5.1 @ 448Kbps - 1.2GB](https://www.1tamilmv.bond/index.php?/forums/topic/171614-oke-okkadu-1999-telugu-music-video-album-dvdremux-dolby%C2%AE-51-448kbps-12gb/&do=findComment&comment=342383)
 - [Naan Mirugamaai Maara &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 3.5GB - 2.6GB - 1.6GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB ] - Soft ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171613-naan-mirugamaai-maara-2022-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-atmos-448kbps-35gb-26gb-16gb-14gb-950mb-x264-700mb-400mb-soft-esub/&do=findComment&comment=342382)
 - [Naan Mirugamaai Maara &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 10GB - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171606-naan-mirugamaai-maara-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-atmos-448kbps-10gb-27gb-14gb-850mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=342381)
-- [Chinese Zodiac &lpar;2012&rpar; AAC 2.0 Tamil-Telugu-Hindi-DTS 5.1Russian 720p &amp; 1080p Blu-Ray  1GB &amp; 4GB [G-Drive]](https://www.1tamilmv.bond/index.php?/forums/topic/171612-chinese-zodiac-2012-aac-20-tamil-telugu-hindi-dts-51russian-720p-1080p-blu-ray-1gb-4gb-g-drive/&do=findComment&comment=342380)
-- [Paradesi &lpar;2013&rpar; SUN-NXT WEB DL - Tamil - DD5.1 - H.264 - [1080p - 4.4GB| 720p - 2.8GB]](https://www.1tamilmv.bond/index.php?/forums/topic/162456-paradesi-2013-sun-nxt-web-dl-tamil-dd51-h264-1080p-44gb-720p-28gb/&do=findComment&comment=342379)
-- [Thirumalai &lpar;2003&rpar; - AYN - Untouched - DVD9 - DD &amp; DTS - ESub 6.9GB [GDRIVE]](https://www.1tamilmv.bond/index.php?/forums/topic/138589-thirumalai-2003-ayn-untouched-dvd9-dd-dts-esub-69gb-gdrive/&do=findComment&comment=342378)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
