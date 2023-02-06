@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Naan Mirugamaai Maara &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 10GB - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171606-naan-mirugamaai-maara-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-atmos-448kbps-10gb-27gb-14gb-850mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=342399)
+- [Urvasivo Rakshasivo &lpar;2022&rpar; Hindi HD - [1080p &amp; 720p - x264 - 2.5GB &amp; 1.3GB| x264 - 700MB &amp; 400MB] - HQ Dub](https://www.1tamilmv.bond/index.php?/forums/topic/170992-urvasivo-rakshasivo-2022-hindi-hd-1080p-720p-x264-25gb-13gb-x264-700mb-400mb-hq-dub/&do=findComment&comment=342398)
+- [Class &lpar;2023&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p, 720p - [Tamil + Telugu + Hindi + Eng] - 7GB - 3.4GB - 1.4GB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171557-class-2023-s01-ep-01-08-true-web-dl-1080p-720p-tamil-telugu-hindi-eng-7gb-34gb-14gb-esub/&do=findComment&comment=342397)
+- [Bloody Sweet &lpar;From &quot;Leo&quot;&rpar; &lpar;2023&rpar; Tamil [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - Anirudh Musical](https://www.1tamilmv.bond/index.php?/forums/topic/171592-bloody-sweet-from-leo-2023-tamil-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-anirudh-musical/&do=findComment&comment=342396)
 - [INDRA &lpar;2002&rpar; TELUGU &lpar;MUSIC VIDEO ALBUM&rpar; - 1080P - WEBHD - AVC - DTS 5.1 / DD 5.1 - ESUBS - 900MB](https://www.1tamilmv.bond/index.php?/forums/topic/171616-indra-2002-telugu-music-video-album-1080p-webhd-avc-dts-51-dd-51-esubs-900mb/&do=findComment&comment=342395)
-- [Celebration of Varisu &lpar;From &quot;Varisu&quot;&rpar; 2160p YT-DL OPUS 2.0 x264 - 257 MB](https://www.1tamilmv.bond/index.php?/forums/topic/171620-celebration-of-varisu-from-varisu-2160p-yt-dl-opus-20-x264-257-mb/&do=findComment&comment=342394)
-- [The Last of Us S01E04 HMAX WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR] | 1080p | 720p - 5.9 GB | 2.8 GB | 1.3 GB](https://www.1tamilmv.bond/index.php?/forums/topic/171619-the-last-of-us-s01e04-hmax-web-dl-ddp51-atmos-esubs-2160p-hdr-1080p-720p-59-gb-28-gb-13-gb/&do=findComment&comment=342393)
-- [Naan Mirugamai Mara &lpar;2023&rpar;  SNXT WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10+] | 1080p [HDR10+] | 720p - 13.3 GB | 3.56 GB | 2.7 GB | 1.1 GB](https://www.1tamilmv.bond/index.php?/forums/topic/171618-naan-mirugamai-mara-2023-snxt-web-dl-ddp51-atmos-esubs-2160p-hdr10-1080p-hdr10-720p-133-gb-356-gb-27-gb-11-gb/&do=findComment&comment=342392)
-- [Kasturi Mahal &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171617-kasturi-mahal-2022-kannada-true-web-dl-1080p-720p-avc-25gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=342391)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
