@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Song Ithiri Chakkara Nulli From the Movie Seniors](https://www.youtube.com/watch?v=B6o9Xfa0DYg)
 - [Morning Prayer Songs | Sr.Tesly | Prabhatha Geethangal | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=qKtgbilTX9c)
 - [Thekkan Katte | MG Sreekumar | Sujatha | Unnimenon | Mammootty | Vidyasagar | Biju Narayanan](https://www.youtube.com/watch?v=keUpFUFN7tY)
 - [5 February 2023](https://www.youtube.com/watch?v=o7dy-JZoD9I)
 - [Aliyarude Omanabeevi Food Version Shorts](https://www.youtube.com/watch?v=Mv53ZfOyuyw)
 - [Christian Melody Songs | Biju Mookannor | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=1IrQ6jVDD-o)
-- [ENTE PADACHAVANE | Mohabbath | Shankar Mahadevan, Afsal | East Coast Vijayan | Meera Jasmine](https://www.youtube.com/watch?v=LiWRRq4Y3fM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
