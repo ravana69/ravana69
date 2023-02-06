@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [സൂര്യനാളം പൊൻവിളക്കായ് HD | Malayalam Romantic Song | SOORYA NALAM | Thacholi Varghese Chekavar](https://www.youtube.com/watch?v=4CqGlZy-Mpg)
+- [Shishiram | New Album Song by Nithya Mammen | COMING SOON](https://www.youtube.com/watch?v=ueDx10hmblg)
 - [ലാലേട്ടന്റെ പഴയകാല അടിപൊളി ഗാനം | Mohanlal](https://www.youtube.com/watch?v=ax_avkJaZ78)
 - [ഏത് കഠിനമനസിനെയും ഉരുക്കി കളയുന്ന മലയാളസിനിമയിലെ മൃദുല ഗാനങ്ങൾ  | SOFT MELODY SONGS MALAYALAM](https://www.youtube.com/watch?v=QM7UzdFMFWw)
 - [Song Ithiri Chakkara Nulli From the Movie Seniors](https://www.youtube.com/watch?v=B6o9Xfa0DYg)
 - [Morning Prayer Songs | Sr.Tesly | Prabhatha Geethangal | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=qKtgbilTX9c)
-- [Thekkan Katte | MG Sreekumar | Sujatha | Unnimenon | Mammootty | Vidyasagar | Biju Narayanan](https://www.youtube.com/watch?v=keUpFUFN7tY)
-- [5 February 2023](https://www.youtube.com/watch?v=o7dy-JZoD9I)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
