@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kasturi Mahal &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171617-kasturi-mahal-2022-kannada-true-web-dl-1080p-720p-avc-25gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=342408)
 - [Naan Mirugamaai Maara &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 10GB - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171606-naan-mirugamaai-maara-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-atmos-448kbps-10gb-27gb-14gb-850mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=342407)
 - [Kasturi Mahal &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171617-kasturi-mahal-2022-kannada-true-web-dl-1080p-720p-avc-25gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=342406)
 - [Naan Mirugamaai Maara &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Malayalam + Kannada] - 3GB - 1.6GB &amp; 1GB] - [x264 - 850MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171605-naan-mirugamaai-maara-2022-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-telugu-malayalam-kannada-3gb-16gb-1gb-x264-850mb-450mb-250mb-esub/&do=findComment&comment=342405)
 - [Naan Mirugamaai Maara &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 10GB - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171606-naan-mirugamaai-maara-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-atmos-448kbps-10gb-27gb-14gb-850mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=342404)
-- [Arjun Reddy &lpar;2017&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.bond/index.php?/forums/topic/171623-arjun-reddy-2017-telugu-music-video-album-1080p-web-hd-untouched-avc-dd51-640kbps-e-sub-by-beast-uk/&do=findComment&comment=342403)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
