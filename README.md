@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Arjun Reddy &lpar;2017&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.bond/index.php?/forums/topic/171623-arjun-reddy-2017-telugu-music-video-album-1080p-web-hd-untouched-avc-dd51-640kbps-e-sub-by-beast-uk/&do=findComment&comment=342403)
+- [Adithya Varma &lpar;2017&rpar; Tamil &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.bond/index.php?/forums/topic/171622-adithya-varma-2017-tamil-music-video-album-1080p-web-hd-untouched-avc-dd51-640kbps-e-sub-by-beast-uk/&do=findComment&comment=342402)
+- [Varmaa &lpar;2020&rpar; Tamil &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.bond/index.php?/forums/topic/171621-varmaa-2020-tamil-music-video-album-1080p-web-hd-untouched-avc-dd51-640kbps-e-sub-by-beast-uk/&do=findComment&comment=342401)
+- [Manmadhan &lpar;2004&rpar;.Tamil.1080p.x264.DD2.0.ESub - 10GB + 3GB - GDRIVE](https://www.1tamilmv.bond/index.php?/forums/topic/94456-manmadhan-2004tamil1080px264dd20esub-10gb-3gb-gdrive/&do=findComment&comment=342400)
 - [Naan Mirugamaai Maara &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 10GB - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171606-naan-mirugamaai-maara-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-atmos-448kbps-10gb-27gb-14gb-850mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=342399)
-- [Urvasivo Rakshasivo &lpar;2022&rpar; Hindi HD - [1080p &amp; 720p - x264 - 2.5GB &amp; 1.3GB| x264 - 700MB &amp; 400MB] - HQ Dub](https://www.1tamilmv.bond/index.php?/forums/topic/170992-urvasivo-rakshasivo-2022-hindi-hd-1080p-720p-x264-25gb-13gb-x264-700mb-400mb-hq-dub/&do=findComment&comment=342398)
-- [Class &lpar;2023&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p, 720p - [Tamil + Telugu + Hindi + Eng] - 7GB - 3.4GB - 1.4GB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171557-class-2023-s01-ep-01-08-true-web-dl-1080p-720p-tamil-telugu-hindi-eng-7gb-34gb-14gb-esub/&do=findComment&comment=342397)
-- [Bloody Sweet &lpar;From &quot;Leo&quot;&rpar; &lpar;2023&rpar; Tamil [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - Anirudh Musical](https://www.1tamilmv.bond/index.php?/forums/topic/171592-bloody-sweet-from-leo-2023-tamil-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-anirudh-musical/&do=findComment&comment=342396)
-- [INDRA &lpar;2002&rpar; TELUGU &lpar;MUSIC VIDEO ALBUM&rpar; - 1080P - WEBHD - AVC - DTS 5.1 / DD 5.1 - ESUBS - 900MB](https://www.1tamilmv.bond/index.php?/forums/topic/171616-indra-2002-telugu-music-video-album-1080p-webhd-avc-dts-51-dd-51-esubs-900mb/&do=findComment&comment=342395)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
