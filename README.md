@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [INDRA &lpar;2002&rpar; TELUGU &lpar;MUSIC VIDEO ALBUM&rpar; - 1080P - WEBHD - AVC - DTS 5.1 / DD 5.1 - ESUBS - 900MB](https://www.1tamilmv.bond/index.php?/forums/topic/171616-indra-2002-telugu-music-video-album-1080p-webhd-avc-dts-51-dd-51-esubs-900mb/&do=findComment&comment=342395)
 - [Celebration of Varisu &lpar;From &quot;Varisu&quot;&rpar; 2160p YT-DL OPUS 2.0 x264 - 257 MB](https://www.1tamilmv.bond/index.php?/forums/topic/171620-celebration-of-varisu-from-varisu-2160p-yt-dl-opus-20-x264-257-mb/&do=findComment&comment=342394)
 - [The Last of Us S01E04 HMAX WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR] | 1080p | 720p - 5.9 GB | 2.8 GB | 1.3 GB](https://www.1tamilmv.bond/index.php?/forums/topic/171619-the-last-of-us-s01e04-hmax-web-dl-ddp51-atmos-esubs-2160p-hdr-1080p-720p-59-gb-28-gb-13-gb/&do=findComment&comment=342393)
 - [Naan Mirugamai Mara &lpar;2023&rpar;  SNXT WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10+] | 1080p [HDR10+] | 720p - 13.3 GB | 3.56 GB | 2.7 GB | 1.1 GB](https://www.1tamilmv.bond/index.php?/forums/topic/171618-naan-mirugamai-mara-2023-snxt-web-dl-ddp51-atmos-esubs-2160p-hdr10-1080p-hdr10-720p-133-gb-356-gb-27-gb-11-gb/&do=findComment&comment=342392)
 - [Kasturi Mahal &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171617-kasturi-mahal-2022-kannada-true-web-dl-1080p-720p-avc-25gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=342391)
-- [Naan Mirugamaai Maara &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Malayalam + Kannada] - 3GB - 1.6GB &amp; 1GB] - [x264 - 850MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171605-naan-mirugamaai-maara-2022-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-telugu-malayalam-kannada-3gb-16gb-1gb-x264-850mb-450mb-250mb-esub/&do=findComment&comment=342390)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
