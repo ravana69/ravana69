@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Christian Melody Songs | Shine Sreenivas | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=T7CQh0k7GL8)
+- [Kajanevide | Pettilambattra | Aman Bhymi | Shashwath | Radhakrishnan](https://www.youtube.com/watch?v=uIzI60cDn_I)
 - [Laika Laika  | Laika | Graphic Video Song | Murali Nair | Gemini Unnikrishnan | Dr Ashad Sivaraman](https://www.youtube.com/watch?v=wkFhL5GrQjY)
 - [Sneham Ethormmayil | Kunjiramante Kuppayam | Sithara Krishnakumar | Siraj | P K Gopi](https://www.youtube.com/watch?v=PzC76sNJVHQ)
 - [Kelinilavoru Palazhi Video Song | Arun | Mohanlal | Vijay Yesudas | Ouseppachan | Kaithapram](https://www.youtube.com/watch?v=Yx49uH9xNOY)
 - [Kasargold - Motion Poster | Asif Ali, Sunny Wayne, Vinayakan | Mridul Nair](https://www.youtube.com/watch?v=DnwfHZcV3qs)
-- [സൂര്യനാളം പൊൻവിളക്കായ് HD | Malayalam Romantic Song | SOORYA NALAM | Thacholi Varghese Chekavar](https://www.youtube.com/watch?v=4CqGlZy-Mpg)
-- [Shishiram | New Album Song by Nithya Mammen | COMING SOON](https://www.youtube.com/watch?v=ueDx10hmblg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
