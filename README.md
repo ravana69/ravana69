@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [📌 [V2] RANJITHAME &lpar;From &quot;Varisu&quot;&rpar; &lpar;Tel + Tam + Hin&rpar; - HQ 1080P &lpar;Clean&rpar; - TSeries - UHDRIP - H264 - Opus @ 135Kbps - 435MB 〰️ [avatar]](https://www.1tamilmv.bond/index.php?/forums/topic/171630-%F0%9F%93%8C-v2-ranjithame-from-varisu-tel-tam-hin-hq-1080p-clean-tseries-uhdrip-h264-opus-135kbps-435mb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=342430)
+- [📌 [V2] RANJITHAME &lpar;From &quot;Varisu&quot;&rpar; &lpar;Tel + Tam + Hin&rpar; - HQ 2160P WEBDL - TS - WEBM - Opus @ 135Kbps - 510MB 〰️ [avatar]](https://www.1tamilmv.bond/index.php?/forums/topic/171629-%F0%9F%93%8C-v2-ranjithame-from-varisu-tel-tam-hin-hq-2160p-webdl-ts-webm-opus-135kbps-510mb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=342429)
 - [📌 ANNIYAN &lpar;2005&rpar; APARICHITHUDU &lpar;Music Video Album&rpar; - 1080P - AMZN - WEBDL - H264 - #TEL Hi-Res FLAC @ 1024Kbps / #TAM DTS® 5.1 @ 768Kbps - #DVD SYNC - ESUBS - 2.4GB - FirstOnNET 〰️ [avatar]](https://www.1tamilmv.bond/index.php?/forums/topic/171628-%F0%9F%93%8C-anniyan-2005-aparichithudu-music-video-album-1080p-amzn-webdl-h264-tel-hi-res-flac-1024kbps-tam-dts%C2%AE-51-768kbps-dvd-sync-esubs-24gb-firstonnet-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=342428)
 - [Black.Panther.Wakanda.Forever.2022.BluRay.REMUX 1080p &amp;2160p.4K.HDR DDP5.1 Tamil-Telugu-Hindi-English.TrueHD.Atmos.7.1.MSubs.x265 4GB &amp; 23GB &amp; 38GB 56GB [G-Drive]](https://www.1tamilmv.bond/index.php?/forums/topic/171545-blackpantherwakandaforever2022blurayremux-1080p-2160p4khdr-ddp51-tamil-telugu-hindi-englishtruehdatmos71msubsx265-4gb-23gb-38gb-56gb-g-drive/&do=findComment&comment=342427)
 - [Paradesi &lpar;2013&rpar; SUN-NXT WEB DL - Tamil - DD5.1 - H.264 - [1080p - 4.4GB| 720p - 2.8GB]](https://www.1tamilmv.bond/index.php?/forums/topic/162456-paradesi-2013-sun-nxt-web-dl-tamil-dd51-h264-1080p-44gb-720p-28gb/&do=findComment&comment=342426)
-- [Chinese Zodiac &lpar;2012&rpar; AAC 2.0 Tamil-Telugu-Hindi-DTS 5.1Russian 720p &amp; 1080p Blu-Ray  1GB &amp; 4GB [G-Drive]](https://www.1tamilmv.bond/index.php?/forums/topic/171612-chinese-zodiac-2012-aac-20-tamil-telugu-hindi-dts-51russian-720p-1080p-blu-ray-1gb-4gb-g-drive/&do=findComment&comment=342425)
-- [OKE OKKADU &lpar;1999&rpar; TELUGU &lpar;MUSIC VIDEO ALBUM&rpar; - DVDREMUX - DOLBY® 5.1 @ 448Kbps - 1.2GB](https://www.1tamilmv.bond/index.php?/forums/topic/171614-oke-okkadu-1999-telugu-music-video-album-dvdremux-dolby%C2%AE-51-448kbps-12gb/&do=findComment&comment=342424)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
