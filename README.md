@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Naan Mirugamaai Maara &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Malayalam + Kannada] - 3GB - 1.6GB &amp; 1GB] - [x264 - 850MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171605-naan-mirugamaai-maara-2022-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-telugu-malayalam-kannada-3gb-16gb-1gb-x264-850mb-450mb-250mb-esub/&do=findComment&comment=342390)
+- [Dawn of the Planet of the Apes &lpar;2014&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - &lpar;DD5.1 - 448Kbps&rpar; - 3.2GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171314-dawn-of-the-planet-of-the-apes-2014-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-dd51-448kbps-32gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=342389)
 - [Request your movies as a comment to this topic.!](https://www.1tamilmv.bond/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=342388)
 - [Request your movies as a comment to this topic.!](https://www.1tamilmv.bond/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=342387)
-- [Romancham Malayalam Proper HQ PreDVD - 700MB - x264 - HQ Clean Audio - MP3 - GDRIVE](https://www.1tamilmv.bond/index.php?/forums/topic/168892-romancham-malayalam-proper-hq-predvd-700mb-x264-hq-clean-audio-mp3-gdrive/&do=findComment&comment=342386)
 - [INDRA &lpar;2002&rpar; TELUGU &lpar;MUSIC VIDEO ALBUM&rpar; - 1080P - WEBHD - AVC - DTS 5.1 / DD 5.1 - ESUBS - 900MB](https://www.1tamilmv.bond/index.php?/forums/topic/171616-indra-2002-telugu-music-video-album-1080p-webhd-avc-dts-51-dd-51-esubs-900mb/&do=findComment&comment=342385)
-- [BABA &lpar;2002&rpar; MUSIC VIDEO ALBUM - AYN ~ DVDREMUX - DD® 5.1 - 448Kbps - DTS® 5.1 - 768Kbps - 1.3GB](https://www.1tamilmv.bond/index.php?/forums/topic/171615-baba-2002-music-video-album-ayn-~-dvdremux-dd%C2%AE-51-448kbps-dts%C2%AE-51-768kbps-13gb/&do=findComment&comment=342384)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
