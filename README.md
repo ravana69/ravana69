@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Tik Tik Tik | Sarkkar Dada | Jayaram | Navya Nair | M Jayachandran | Gireesh Puthanchery](https://www.youtube.com/watch?v=okJP-Y_Clt8)
 - [#Thankakatti from #MomoinDubai | #Shorts #YTshorts](https://www.youtube.com/watch?v=K1KB45SBqBo)
 - [Asadyamayenikk | Kuttiyachan | Praise and Worship Songs| Christian Songs | Malayalam Christian Song](https://www.youtube.com/watch?v=e-T8uGAcRj0)
 - [#Thankakatti from #MomoinDubai | #Shorts #YTshorts](https://www.youtube.com/watch?v=WRcWKZ0RW0c)
 - [#Thankakatti from #MomoinDubai | #Shorts #YTshorts](https://www.youtube.com/watch?v=bQ8qZD03FK8)
 - [Mayamanchalil Video Song | Mukesh | Madhoo | G Venugopal | Radhika Thilak | Sharreth | PK Gopi](https://www.youtube.com/watch?v=llQsJVo3gu4)
-- [മലയാളികളുടെ പഴയ സ്ത്രീ സങ്കൽപ്പത്തിന് മകുടോദാഹരണമായി തിളങ്ങി നിന്ന നായിക | HITS OF PARVATHY](https://www.youtube.com/watch?v=uMCPzTw-kNk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
