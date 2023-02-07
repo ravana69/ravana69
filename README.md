@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vikram - Wasted Video Song - 1080P &amp; 4K - DD5.1 + DTS5.1 &lpar;YT Audio Upmixed&rpar; - Cinema Surround 5.1](https://www.1tamilmv.bond/index.php?/forums/topic/171633-vikram-wasted-video-song-1080p-4k-dd51-dts51-yt-audio-upmixed-cinema-surround-51/&do=findComment&comment=342446)
+- [Varisu - Vaa Thalaivaa - 1080P &amp; 4K - DD5.1 + DTSHDMA5.1 &lpar;Lossless FLAC Upmix&rpar; - Cinema Surround 5.1](https://www.1tamilmv.bond/index.php?/forums/topic/171632-varisu-vaa-thalaivaa-1080p-4k-dd51-dtshdma51-lossless-flac-upmix-cinema-surround-51/&do=findComment&comment=342445)
 - [Swathi Mutyam &lpar;1986&rpar; Telugu -  DVD9 - UNTOUCHED - DD - 7.74GB](https://www.1tamilmv.bond/index.php?/forums/topic/103948-swathi-mutyam-1986-telugu-%C2%A0dvd9-untouched-dd-774gb%C2%A0/&do=findComment&comment=342444)
 - [Race Kuthirai [Race Gurram] &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171625-race-kuthirai-race-gurram-2022-tamil-true-web-dl-1080p-720p-avc-tamil-telugu-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=342443)
 - [Vaathi &lpar;2023&rpar; Tamil [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - G.V. Prakash Musical](https://www.1tamilmv.bond/index.php?/forums/topic/171600-vaathi-2023-tamil-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-gv-prakash-musical/&do=findComment&comment=342442)
-- [How to Train Your Dragon &lpar;2010&rpar; 720p - BDRip - [Tamil + Telugu + Hindi + Eng] - H.264 - AAC - 901MB](https://www.1tamilmv.bond/index.php?/forums/topic/156509-how-to-train-your-dragon-2010-720p-bdrip-tamil-telugu-hindi-eng-h264-aac-901mb/&do=findComment&comment=342441)
-- [Pudhu Pudhu Arthangal &lpar;1989&rpar; Tamil - 1080p HD - UNTOUCHED - AVC - AAC - 9.07GB - Esub](https://www.1tamilmv.bond/index.php?/forums/topic/156529-pudhu-pudhu-arthangal-1989-tamil-1080p-hd-untouched-avc-aac-907gb-esub/&do=findComment&comment=342440)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
