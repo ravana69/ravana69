@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [📌 ANNIYAN &lpar;2005&rpar; APARICHITHUDU &lpar;Music Video Album&rpar; - 1080P - AMZN - WEBDL - H264 - #TEL Hi-Res FLAC @ 1024Kbps / #TAM DTS® 5.1 @ 768Kbps - #DVD SYNC - ESUBS - 2.4GB - FirstOnNET 〰️ [avatar]](https://www.1tamilmv.bond/index.php?/forums/topic/171628-%F0%9F%93%8C-anniyan-2005-aparichithudu-music-video-album-1080p-amzn-webdl-h264-tel-hi-res-flac-1024kbps-tam-dts%C2%AE-51-768kbps-dvd-sync-esubs-24gb-firstonnet-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=342455)
+- [Anniyan - Kannum Kannum - 1080P - DD5.1 + DTSHDMA5.1 &lpar;Lossless FLAC Upmix&rpar; - Cinema Surround 5.1 &lpar;Ultimate Sound Quality&rpar;](https://www.1tamilmv.bond/index.php?/forums/topic/171636-anniyan-kannum-kannum-1080p-dd51-dtshdma51-lossless-flac-upmix-cinema-surround-51-ultimate-sound-quality/&do=findComment&comment=342454)
 - [ATHADU &lpar;2005&rpar; TELUGU &lpar;Music Video Chapters&rpar; DVDREMUX - DTS - DD 5.1 - ESUBS - 1.6GB](https://www.1tamilmv.bond/index.php?/forums/topic/171635-athadu-2005-telugu-music-video-chapters-dvdremux-dts-dd-51-esubs-16gb/&do=findComment&comment=342453)
 - [📌 [V2] RANJITHAME &lpar;From &quot;Varisu&quot;&rpar; &lpar;Tel + Tam + Hin&rpar; - HQ 2160P WEBDL - TS - WEBM - Opus @ 135Kbps - 510MB 〰️ [avatar]](https://www.1tamilmv.bond/index.php?/forums/topic/171629-%F0%9F%93%8C-v2-ranjithame-from-varisu-tel-tam-hin-hq-2160p-webdl-ts-webm-opus-135kbps-510mb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=342452)
 - [📌 [V2] RANJITHAME &lpar;From &quot;Varisu&quot;&rpar; &lpar;Tel + Tam + Hin&rpar; - HQ 1080P &lpar;Clean&rpar; - TSeries - UHDRIP - H264 - Opus @ 135Kbps - 435MB 〰️ [avatar]](https://www.1tamilmv.bond/index.php?/forums/topic/171630-%F0%9F%93%8C-v2-ranjithame-from-varisu-tel-tam-hin-hq-1080p-clean-tseries-uhdrip-h264-opus-135kbps-435mb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=342451)
-- [Vaa Thalaivaa &lpar;Varisu&rpar;  | TAMIL + HINDI + TELUGU | Thalapathy Vijay | Thaman S | Raja,Sayali,Jasraj,Jaydeep](https://www.1tamilmv.bond/index.php?/forums/topic/171634-vaa-thalaivaa-varisu-tamil-hindi-telugu-thalapathy-vijay-thaman-s-rajasayalijasrajjaydeep/&do=findComment&comment=342450)
-- [Race Kuthirai [Race Gurram] &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171625-race-kuthirai-race-gurram-2022-tamil-true-web-dl-1080p-720p-avc-tamil-telugu-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=342449)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
