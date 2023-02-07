@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [#Thankakatti from #MomoinDubai | #Shorts #YTshorts](https://www.youtube.com/watch?v=K1KB45SBqBo)
+- [Asadyamayenikk | Kuttiyachan | Praise and Worship Songs| Christian Songs | Malayalam Christian Song](https://www.youtube.com/watch?v=e-T8uGAcRj0)
 - [#Thankakatti from #MomoinDubai | #Shorts #YTshorts](https://www.youtube.com/watch?v=WRcWKZ0RW0c)
 - [#Thankakatti from #MomoinDubai | #Shorts #YTshorts](https://www.youtube.com/watch?v=bQ8qZD03FK8)
 - [Mayamanchalil Video Song | Mukesh | Madhoo | G Venugopal | Radhika Thilak | Sharreth | PK Gopi](https://www.youtube.com/watch?v=llQsJVo3gu4)
 - [മലയാളികളുടെ പഴയ സ്ത്രീ സങ്കൽപ്പത്തിന് മകുടോദാഹരണമായി തിളങ്ങി നിന്ന നായിക | HITS OF PARVATHY](https://www.youtube.com/watch?v=uMCPzTw-kNk)
-- [പ്രിയമുള്ളവരേ കേൾപ്പിക്കുവാൻ മനസ്സ് ഏറ്റവും കൂടുതൽ ആഗ്രഹിക്കുന്ന സിനിമാഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=-ivQCicbtQM)
-- [Singer Of The Week | Abhijith Kollam  | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=51UsGEEC8KY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
