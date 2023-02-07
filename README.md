@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Singer Of The Week | Abhijith Kollam  | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=51UsGEEC8KY)
 - [Poomariyil thenmariyil | Johnny Walker | Mammootty | KJ Yesudas | Gireesh Puthanchery | SP Venkatesh](https://www.youtube.com/watch?v=HBnNeojScpc)
 - [6 February 2023](https://www.youtube.com/watch?v=V2aPwMHcHMg)
 - [Christian Melody Songs | Shine Sreenivas | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=T7CQh0k7GL8)
 - [Kajanevide | Pettilambattra | Aman Bhymi | Shashwath | Radhakrishnan](https://www.youtube.com/watch?v=uIzI60cDn_I)
 - [Laika Laika  | Laika | Graphic Video Song | Murali Nair | Gemini Unnikrishnan | Dr Ashad Sivaraman](https://www.youtube.com/watch?v=wkFhL5GrQjY)
-- [Sneham Ethormmayil | Kunjiramante Kuppayam | Sithara Krishnakumar | Siraj | P K Gopi](https://www.youtube.com/watch?v=PzC76sNJVHQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
