@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [WOLF &lpar;2021&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 2.4GB - 1.4GB &amp; 650MB] - [x264 / XviD - 700MB - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/125361-wolf-2021-malayalam-true-web-dl-1080p-720p-avc-hevc-24gb-14gb-650mb-x264-xvid-700mb-400mb-200mb-esub/&do=findComment&comment=342499)
 - [Sullaan &lpar;2004&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - x264 - 7GB - 2.6GB - 1.4GB | x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/163666-sullaan-2004-tamil-true-web-dl-1080p-720p-x264-7gb-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=342498)
 - [Naan Mirugamaai Maara &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Malayalam + Kannada] - 3GB - 1.6GB &amp; 1GB] - [x264 - 850MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171605-naan-mirugamaai-maara-2022-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-telugu-malayalam-kannada-3gb-16gb-1gb-x264-850mb-450mb-250mb-esub/&do=findComment&comment=342497)
 - [Chinese Zodiac &lpar;2012&rpar; AAC 2.0 Tamil-Telugu-Hindi-DTS 5.1Russian 720p &amp; 1080p Blu-Ray  1GB &amp; 4GB [G-Drive]](https://www.1tamilmv.bond/index.php?/forums/topic/171612-chinese-zodiac-2012-aac-20-tamil-telugu-hindi-dts-51russian-720p-1080p-blu-ray-1gb-4gb-g-drive/&do=findComment&comment=342496)
 - [5 Tamil Movies - AMZN / SS WEB DL - 1080p HD - H.264 - [DD5.1 / DD2.0 / AAC] - 30GB [GDRIVE]](https://www.1tamilmv.bond/index.php?/forums/topic/141593-5-tamil-movies-amzn-ss-web-dl-1080p-hd-h264-dd51-dd20-aac-30gb-gdrive/&do=findComment&comment=342495)
-- [Deadpool Duology &lpar;2016 - 2018&rpar; 720p UNRATED BDRip - The Super Duper Cut - Original Auds [Tamil + Telugu + Hindi + English] - H.264 - DD5.1 - 1.4GB Each](https://www.1tamilmv.bond/index.php?/forums/topic/155871-deadpool-duology-2016-2018-720p-unrated-bdrip-the-super-duper-cut-original-auds-tamil-telugu-hindi-english-h264-dd51-14gb-each/&do=findComment&comment=342494)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
