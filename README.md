@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [ലോട്ടസ് ഒത്ത മിഴിയാല്‍ ചാട്ടുളി നീയെറിഞ്ഞാല്‍‍ | Mammootty Hits](https://www.youtube.com/watch?v=ULUQWPmu3vk)
-- [Kirukkinaale - Video Song | Momo in Dubai |  Zia Ul Haq | Aneesh, Anu Sithara | Yakzan,Neha](https://www.youtube.com/watch?v=bh7a3O6AG2I)
-- [ജയറാമിന്റെ ഇഷ്ടഗാനങ്ങൾ  | Jayaram Hits | Romantic Hits Of Jayaram | Jayaram Hit Songs Malayalam](https://www.youtube.com/watch?v=LNSajilxwvQ)
-- [ജാതിമതഭേദമന്യേ ഏവരും കേൾക്കാൻ കൊതിക്കുന്ന മലയാളസിനിമയിൽ പിറവിയെടുത്ത മനോഹരഗാനങ്ങൾ | NISARI SONGS](https://www.youtube.com/watch?v=2-gesWZ5Gqc)
-- [Anugrahakkadale Karaoke | Sadhu Kochukunjupadeshi | Malayalam Christian Songs Karaoke](https://www.youtube.com/watch?v=MhtviZzocwo)
-- [ബേബി ജോൺ കലയന്താനിയുടെ അനശ്വര ക്രിസ്തീയ ഗാനങ്ങൾ | Christian Devotional Songs Malayalam |Melody Songs](https://www.youtube.com/watch?v=GI3W93XJzjY)
+- [Enthedi Enthedi | Karaoke With Lyrics | Shikkar | M Jayachandran | Gireesh Puthenchery](https://www.youtube.com/watch?v=rwgk7NChdOo)
+- [Chilanga | Teaser | Romantic Album | Valentines Day | MidhuVincent | Syam Dharman | Arun John](https://www.youtube.com/watch?v=k-08jqqTfps)
+- [En Kinaavil | Kinavalli | Sree Sai Surendran | Tanaya Saju](https://www.youtube.com/watch?v=wjGx_DD82uQ)
+- [Tribute to Vani Jairam - Malayalam | Etho Janma Kalpanayil | Manjadikunnil | Vaalkkanezhuthi](https://www.youtube.com/watch?v=tSeCwtGq3rY)
+- [Mizhineer - Lyrical Video | Manal Pakshikal | Mithun Jayaraj | Shanavas Shanu,Santhosh,Anjali](https://www.youtube.com/watch?v=kZLv-eEILYw)
+- [Poomaname Video Song | Mammootty | Sumalatha | KS Chithra | Shyam | Poovachal Khader | Nirakkoottu](https://www.youtube.com/watch?v=m8D6qP_rLtY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
