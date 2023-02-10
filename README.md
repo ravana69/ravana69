@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [65 Tamil Movies - 1080p / 4K - SUN NXT / AMZN / SS / TK / AHA / JC / ZEE5 WEB DL - H.264 - DD5.1 / DDP2.0 / AAC - Esub - 450[Gdrive]](https://www.1tamilmv.bond/index.php?/forums/topic/164146-65-tamil-movies-1080p-4k-sun-nxt-amzn-ss-tk-aha-jc-zee5-web-dl-h264-dd51-ddp20-aac-esub-450gdrive/&do=findComment&comment=342560)
-- [Farzi &lpar;2023&rpar; S01 EP &lpar;01-09&rpar; TRUE WEB-DL - [1080p, 720p - [Tamil + Telugu + Hindi + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 8GB - 2GB &amp; 950MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171670-farzi-2023-s01-ep-01-09-true-web-dl-1080p-720p-tamil-telugu-hindi-malayalam-kannada-dd51-192kbps-8gb-2gb-950mb-esub/&do=findComment&comment=342559)
-- [Sin &lpar;2023&rpar; S01 EP &lpar;01-07&rpar; Tamil TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - &lpar;DD+5.1 - 384Kbps &amp; AAC2.0&rpar; - 2.3GB - 1GB - 500MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171679-sin-2023-s01-ep-01-07-tamil-true-web-dl-1080p-720p-480p-avc-untouched-dd51-384kbps-aac20-23gb-1gb-500mb-esub/&do=findComment&comment=342558)
-- [Mahaveeryar &lpar;2022&rpar; Malayalam TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 9.5GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171674-mahaveeryar-2022-malayalam-true-web-dl-4k-1080p-720p-avc-hevc-dd51-atmos-448kbps-95gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=342557)
-- [Hunt &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.2GB - 2.3GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171677-hunt-2023-telugu-true-web-dl-4k-1080p-720p-avc-dd51-384kbps-32gb-23gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=342556)
+- [Pudhu Pudhu Arthangal &lpar;1989&rpar; Tamil - 1080p HD - UNTOUCHED - AVC - AAC - 9.07GB - Esub](https://www.1tamilmv.bond/index.php?/forums/topic/156529-pudhu-pudhu-arthangal-1989-tamil-1080p-hd-untouched-avc-aac-907gb-esub/&do=findComment&comment=342567)
+- [Oruvan &lpar;1999&rpar;.Tamil.720p &amp; 1080p.HDTV.x264.AAC2.0 - 3.8GB &amp; 2GB](https://www.1tamilmv.bond/index.php?/forums/topic/171658-oruvan-1999tamil720p-1080phdtvx264aac20-38gb-2gb/&do=findComment&comment=342566)
+- [5 Tamil Movies - AMZN / SS WEB DL - 1080p HD - H.264 - [DD5.1 / DD2.0 / AAC] - 30GB [GDRIVE]](https://www.1tamilmv.bond/index.php?/forums/topic/141593-5-tamil-movies-amzn-ss-web-dl-1080p-hd-h264-dd51-dd20-aac-30gb-gdrive/&do=findComment&comment=342565)
+- [65 Tamil Movies - 1080p / 4K - SUN NXT / AMZN / SS / TK / AHA / JC / ZEE5 WEB DL - H.264 - DD5.1 / DDP2.0 / AAC - Esub - 450[Gdrive]](https://www.1tamilmv.bond/index.php?/forums/topic/164146-65-tamil-movies-1080p-4k-sun-nxt-amzn-ss-tk-aha-jc-zee5-web-dl-h264-dd51-ddp20-aac-esub-450gdrive/&do=findComment&comment=342564)
+- [Request your movies as a comment to this topic.!](https://www.1tamilmv.bond/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=342563)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
