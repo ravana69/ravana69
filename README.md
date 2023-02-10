@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Christian Superhit Songs | Sujatha Mohan | Qurbana Songs Malayalam | Joji Johns | Wilson Piravom](https://www.youtube.com/watch?v=7YDfY0sCgUI)
 - [മനസ്സിന്‍ മടിയിലെ | Manassin Madiyile Song | Manathe Vellitheru | Lakshmi | Sreeraman | Johnson](https://www.youtube.com/watch?v=frHZ5rQaGaI)
 - [Christian Melody Songs | Kester | Praise and Worship Songs | Malayalam Christian Songs](https://www.youtube.com/watch?v=cas5p4qH1Uw)
 - [9 February 2023](https://www.youtube.com/watch?v=Tx7pjuMVFUg)
 - [Ajayya Sakthiyaay | Vaarikkuzhiyile Kolapathakam | Grady Long | Mejjo Josseph | Shobin Kannangattu](https://www.youtube.com/watch?v=N4xhK-mNfmw)
 - [Enthedi Enthedi | Karaoke With Lyrics | Shikkar | M Jayachandran | Gireesh Puthenchery](https://www.youtube.com/watch?v=rwgk7NChdOo)
-- [Chilanga | Teaser | Romantic Album | Valentines Day | MidhuVincent | Syam Dharman | Arun John](https://www.youtube.com/watch?v=k-08jqqTfps)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
