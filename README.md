@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nilaavinte Neela | Agnidevan | Evergreen Malayalam Movie Song | Mohanlal | Revathi - MG's Hits](https://www.youtube.com/watch?v=vbs-ry9jsmI)
+- [Ennamme Onnu Kaanan Video Song | KJ Yesudas | Jishnu | Siddharth | Suhasini | Renuka | Mohan Sithara](https://www.youtube.com/watch?v=tqUYhi6v44c)
+- [മധുരവാണി | Vani Jayaram | Malayalam Film Songs](https://www.youtube.com/watch?v=R_hgv7laz5k)
 - [മനസിനുള്ളിലെവിടെയോ  ഒരു നേർത്ത തേങ്ങൽ അവശേഷിപ്പിച്ച അത്രമേൽ നൊമ്പരമേകും സിനിമാഗാനങ്ങൾ | SAD SONGS](https://www.youtube.com/watch?v=aUyDXwqoTh4)
 - [Pranayavasantham | AUDIO JUKEBOX | Evergreen Malayalam Romantic Songs | East Coast VIjayan](https://www.youtube.com/watch?v=DgrVQd4T4Fc)
 - [Kurumozhiyude | Chattakkari |  Video Song | Shreya Ghoshal | Rajeev Alunkal | M Jayachandran](https://www.youtube.com/watch?v=LhmVCC4DZ5s)
-- [Christian Superhit Songs | Sujatha Mohan | Qurbana Songs Malayalam | Joji Johns | Wilson Piravom](https://www.youtube.com/watch?v=7YDfY0sCgUI)
-- [മനസ്സിന്‍ മടിയിലെ | Manassin Madiyile Song | Manathe Vellitheru | Lakshmi | Sreeraman | Johnson](https://www.youtube.com/watch?v=frHZ5rQaGaI)
-- [Christian Melody Songs | Kester | Praise and Worship Songs | Malayalam Christian Songs](https://www.youtube.com/watch?v=cas5p4qH1Uw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
