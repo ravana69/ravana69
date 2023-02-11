@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The.Invisible.Maniac.1990 Unrated AAC 2.0 Tamil-Telugu-Hindi-English 1080p.BluRay.x264 Esub 2GB [G-Drive]](https://www.1tamilmv.bond/index.php?/forums/topic/171691-theinvisiblemaniac1990-unrated-aac-20-tamil-telugu-hindi-english-1080pblurayx264-esub-2gb-g-drive/&do=findComment&comment=342626)
+- [Troll &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 2.8GB &amp; 1.3GB | x264 - &lpar;Tam + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171702-troll-2022-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-hindi-eng-28gb-13gb-x264-tam-hin-450mb-esub/&do=findComment&comment=342625)
 - [Badland &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar;- 2GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171698-badland-2019-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-2gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=342624)
 - [Cooku With Comali &lpar;2023&rpar; Tamil - S04 EP04 TRUE WEB-DL - [1080p, 720p, 480p - AVC - UNTOUCHED - 2GB - 800MB &amp; 400MB] [11-02-2023]](https://www.1tamilmv.bond/index.php?/forums/topic/171695-cooku-with-comali-2023-tamil-s04-ep04-true-web-dl-1080p-720p-480p-avc-untouched-2gb-800mb-400mb-11-02-2023/&do=findComment&comment=342623)
 - [Cooku With Comali &lpar;2023&rpar; Tamil - S04 EP04 TRUE WEB-DL - [1080p, 720p, 480p - AVC - UNTOUCHED - 2GB - 800MB &amp; 400MB] [11-02-2023]](https://www.1tamilmv.bond/index.php?/forums/topic/171695-cooku-with-comali-2023-tamil-s04-ep04-true-web-dl-1080p-720p-480p-avc-untouched-2gb-800mb-400mb-11-02-2023/&do=findComment&comment=342622)
-- [Thunivu - Kasethan Kadavulada - 1080P - DD5.1 - FIRST ON YOUTUBE - CROPPED N ENCODED BY ME - Enjoy!!!](https://www.1tamilmv.bond/index.php?/forums/topic/171701-thunivu-kasethan-kadavulada-1080p-dd51-first-on-youtube-cropped-n-encoded-by-me-enjoy/&do=findComment&comment=342621)
-- [Thor Trilogy &lpar;2011-2017&rpar; UDH BluRay HDR 2160p 4K - HEVC 10bits MULTI ORIGINAL AUDIOS [ ENGLISH + TELUGU &lpar;448Kbps&rpar; + TAMIL &lpar;448Kbps&rpar; + Hindi &lpar;448Kbps&rpar;] - AC3 - x265 - 20GB - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171694-thor-trilogy-2011-2017-udh-bluray-hdr-2160p-4k-hevc-10bits-multi-original-audios-english-telugu-448kbps-tamil-448kbps-hindi-448kbps-ac3-x265-20gb-esub/&do=findComment&comment=342620)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
