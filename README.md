@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Thirumurugan [Goutham Nanda] &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.bond/index.php?/forums/topic/171712-thirumurugan-goutham-nanda-2023-tamil-true-web-dl-1080p-720p-avc-tamil-telugu-28gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=342668)
+- [Premam &lpar;2015&rpar; Malayalam - BluRay - 1080p &amp; 720p - x264 - &lpar;DTS &lpar;1509Kbps&rpar; + AAC 2.0&rpar; - 8GB - 2.5GB - 1.4GB - 700MB &amp; 400MB - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171713-premam-2015-malayalam-bluray-1080p-720p-x264-dts-1509kbps-aac-20-8gb-25gb-14gb-700mb-400mb-esub/&do=findComment&comment=342667)
 - [Badland &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar;- 2GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171698-badland-2019-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-2gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=342666)
 - [Cooku With Comali &lpar;2023&rpar; Tamil - S04 EP06 TRUE WEB-DL - [1080p, 720p, 480p - AVC - UNTOUCHED - 1.9GB - 800MB &amp; 350MB] [12-02-2023]](https://www.1tamilmv.bond/index.php?/forums/topic/171706-cooku-with-comali-2023-tamil-s04-ep06-true-web-dl-1080p-720p-480p-avc-untouched-19gb-800mb-350mb-12-02-2023/&do=findComment&comment=342665)
 - [Vaathi &lpar;2023&rpar; Tamil Audio launch TRUE HQ HDTV - [1080p &amp; 720p - AVC - 2.4GB - 1.3GB &amp; 400MB]](https://www.1tamilmv.bond/index.php?/forums/topic/171709-vaathi-2023-tamil-audio-launch-true-hq-hdtv-1080p-720p-avc-24gb-13gb-400mb/&do=findComment&comment=342664)
-- [Vinnaithaandi Varuvaayaa &lpar;2011&rpar; BluRay - 1080p &amp; 720p - x264 - &lpar;DTS + DD 5.1 &lpar;448Kbps&rpar;&rpar; - 11GB - 3GB - 1.4GB - 700MB &amp; 400MB - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171711-vinnaithaandi-varuvaayaa-2011-bluray-1080p-720p-x264-dts-dd-51-448kbps-11gb-3gb-14gb-700mb-400mb-esub/&do=findComment&comment=342663)
-- [Thirumurugan [Goutham Nanda] &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.bond/index.php?/forums/topic/171712-thirumurugan-goutham-nanda-2023-tamil-true-web-dl-1080p-720p-avc-tamil-telugu-28gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=342662)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
