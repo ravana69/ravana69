@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [ലോകമലയാളികൾ എവിടെ ഇരുന്നും ഒരുപോലെ ആസ്വദിക്കുന്ന നിത്യഹരിതങ്ങളായ സിനിമാഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=ObAszI74b8o)
-- [Alice | Album Video | Seema Sarath | Finney Joseph | Nectar Alex](https://www.youtube.com/watch?v=n_gcKTgf-GY)
-- [Nilavil Sadha Paadan | Video Song | Shahabaz Aman | Gayathri Ashokan | Malayalam Ghazal Song](https://www.youtube.com/watch?v=3-gylSjxfgY)
-- [ലാലേട്ടന്റെ അടിപൊളി പഴയഗാനം  | Mohanlal old song](https://www.youtube.com/watch?v=TclsZYtG-sc)
-- [Partha Mudhal Nodiyil – Journey of the song | Doodle Bee |Astrix Media Productions | Story of Jay](https://www.youtube.com/watch?v=k2lMz93nREM)
-- [Kude Nee | K.S. Harisankar | Anees Burhan | Vivek Thomas| Riyas Abdul Raheem | Romantic Music Album](https://www.youtube.com/watch?v=clgdutCU5G8)
+- [Maya Sarvam Lyric Video | Mahaveeryar | Abrid Shine | Nivin Pauly | Asif Ali | Ishaan Chhabra](https://www.youtube.com/watch?v=fWgi5sHg98U)
+- [Themma Themma | Super Hit Malayalam Song | Rain Rain Come Again | Ft.Divya Lakshmi- Jassie Gift Hits](https://www.youtube.com/watch?v=yIdn2BxVqw4)
+- [അന്തിമാന ചോപ്പുമാഞ്ഞു | Anthimana Choppu Maanju Song| Manathe Vellitheru | Shobana | Vineeth](https://www.youtube.com/watch?v=i8M7umjcykc)
+- [Vaarthinkale Nin Chaare | Kali | Divya S Menon | Gopi Sundar| BK Harinarayanan](https://www.youtube.com/watch?v=8S7CZkkO92w)
+- [Minnal Kaivala Charthi Video Song | Baby Shamili | Juhi Chawla | Sujatha Mohan | Ouseppachan](https://www.youtube.com/watch?v=tAvi9yCcPCs)
+- [Valantines Day Special Songs | Malayalam Romantic Songs | Video Jukebox |](https://www.youtube.com/watch?v=J4pmYeqaYw8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
