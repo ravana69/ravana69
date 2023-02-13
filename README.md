@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Christian Morning Prayer Songs | Wilson Piravom | Prabhatha Geethangal | Radhika Thilak | Joji Johns](https://www.youtube.com/watch?v=ky1wexRajJQ)
+- [പഴയകാല ജനപ്രിയ ക്രിസ്തീയ ഗാനങ്ങൾ 9 old tracks | old superhit malayalam christian devotional songs](https://www.youtube.com/watch?v=u5cvWtL27EU)
 - [Teaser 2 | Kude Nee | Romantic Video Album](https://www.youtube.com/watch?v=9tMORKj7k0I)
 - [Teaser | Koode Nee | Romantic Video Album](https://www.youtube.com/watch?v=9yTZ48ROWKk)
 - [12 February 2023](https://www.youtube.com/watch?v=a8f4lfcTPII)
 - [Ponniitta Pettakam | Pranayanilaavu | Dileep | Mohini | Rahana | Bearny Ignatius](https://www.youtube.com/watch?v=XFv-iK19M6E)
-- [Christian Melody Songs | Kester | Wilson Piravom | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=_YxQ7zrdXdI)
-- [Sughamanee Nilavu Video Song | Siddharth Bharathan | Renuka | Jyotsna | Vidhu Prathap| Mohan Sithara](https://www.youtube.com/watch?v=ysUCtkTSOZs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
