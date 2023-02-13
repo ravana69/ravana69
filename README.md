@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [13 February 2023](https://www.youtube.com/watch?v=1TSYJlucqBk)
-- [Christian Melody Songs | Manjeri | Wilswaraj | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=Am2ZobKjTPc)
 - [Kalla Kadhakkaraane | Kinavalli | Ramshi | Rafeeq Rahman | Shashwath | Nishad Ahmed](https://www.youtube.com/watch?v=xcNXuEBZG4k)
 - [Ottamuri Vakkumayi - Lyrical | Romancham | Sushin Shyam| Johnpaul George Productions| Jithu Madhavan](https://www.youtube.com/watch?v=UhdnMh4Hww4)
 - [Thanne Thanne Video Song | Gold Movie | Prithviraj | Nayanthara | Alphonse Puthren |Rajesh Murugesan](https://www.youtube.com/watch?v=u6-c3nwvymk)
 - [Maya Sarvam Lyric Video | Mahaveeryar | Abrid Shine | Nivin Pauly | Asif Ali | Ishaan Chhabra](https://www.youtube.com/watch?v=fWgi5sHg98U)
+- [Themma Themma | Super Hit Malayalam Song | Rain Rain Come Again | Ft.Divya Lakshmi- Jassie Gift Hits](https://www.youtube.com/watch?v=yIdn2BxVqw4)
+- [അന്തിമാന ചോപ്പുമാഞ്ഞു | Anthimana Choppu Maanju Song| Manathe Vellitheru | Shobana | Vineeth](https://www.youtube.com/watch?v=i8M7umjcykc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
@@ -193,5 +193,7 @@ https://user-images.githubusercontent.com/47528708/176845771-6ad8f1d2-8008-4f49-
 ![image](https://user-images.githubusercontent.com/47528708/208236715-864b1588-423a-4001-8917-acbae7107d71.png)
 
 ![Currency Exchange](https://raw.githubusercontent.com/ravana69/currencyexchange/main/github-metrics.svg)
+
+![Adani Stocks](https://raw.githubusercontent.com/ravana69/adani/main/github-metrics.svg)
 
 # [🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈🌈](https://ibb.co/album/qYnLQX)
