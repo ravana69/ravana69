@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Adithya Varma &lpar;2019&rpar; SS WEB-DL DD5.1 Esubs x264 - 1080p | 720p - 4.8 GB | 2.5 GB](https://www.1tamilmv.bond/index.php?/forums/topic/171725-adithya-varma-2019-ss-web-dl-dd51-esubs-x264-1080p-720p-48-gb-25-gb/&do=findComment&comment=342702)
+- [MARVEL MOVIES  &lpar;2008 - 2021&rpar; - &lpar;25 Movies&rpar; - [ 4K &amp; 1080P - 720P - 480P ][ MULTI = TAMIL + TELUGU + HINDI + ENGLISH &lpar;DDP+5.1 &rpar;] | 𝐈𝐌𝐒𝐑𝐈 | 🌈™ [ 𝐆 - 𝐃𝐑𝐈𝐕𝐄 ]](https://www.1tamilmv.bond/index.php?/forums/topic/152345-marvel-movies-2008-2021-25-movies-4k-1080p-720p-480p-multi-tamil-telugu-hindi-english-ddp51-%F0%9D%90%88%F0%9D%90%8C%F0%9D%90%92%F0%9D%90%91%F0%9D%90%88-%F0%9F%8C%88%E2%84%A2-%F0%9D%90%86-%F0%9D%90%83%F0%9D%90%91%F0%9D%90%88%F0%9D%90%95%F0%9D%90%84/&do=findComment&comment=342701)
+- [Kadhalar Dhinam &lpar;1999&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 4.2GB - 2.7GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.bond/index.php?/forums/topic/171724-kadhalar-dhinam-1999-tamil-true-web-dl-1080p-720p-avc-42gb-27gb-14gb-x264-700mb-400mb-250mb/&do=findComment&comment=342700)
 - [Minnale &lpar;2001&rpar; Tamil HQ DVDRip - [1080p &amp; 720p - x264 - 3GB - 1.4GB | x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171723-minnale-2001-tamil-hq-dvdrip-1080p-720p-x264-3gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=342699)
 - [Minnale &lpar;2001&rpar; Tamil HQ DVDRip - [1080p &amp; 720p - x264 - 3GB - 1.4GB | x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171723-minnale-2001-tamil-hq-dvdrip-1080p-720p-x264-3gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=342698)
-- [Tarak &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Kannada&rpar; - 2.7 GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.bond/index.php?/forums/topic/171721-tarak-2022-tamil-true-web-dl-1080p-720p-avc-tamil-kannada-27-gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=342697)
-- [Minnale &lpar;2001&rpar; Tamil HQ DVDRip - [1080p &amp; 720p - x264 - 3GB - 1.4GB | x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171723-minnale-2001-tamil-hq-dvdrip-1080p-720p-x264-3gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=342696)
-- [Minnale &lpar;2001&rpar; Tamil HQ DVDRip - [1080p &amp; 720p - x264 - 3GB - 1.4GB | x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171723-minnale-2001-tamil-hq-dvdrip-1080p-720p-x264-3gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=342695)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
