@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Titanic &lpar;1997&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - &lpar;DD5.1 - 448Kbps&rpar; - 3.2GB &amp; 2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 500MB] - ESub](https://www.1tamilmv.bond/index.php?/forums/topic/171327-titanic-1997-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-dd51-448kbps-32gb-2gb-x264-tam-tel-hin-500mb-esub/&do=findComment&comment=342709)
+- [Kadhalar Dhinam &lpar;1999&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 4.2GB - 2.7GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.bond/index.php?/forums/topic/171724-kadhalar-dhinam-1999-tamil-true-web-dl-1080p-720p-avc-42gb-27gb-14gb-x264-700mb-400mb-250mb/&do=findComment&comment=342708)
+- [📌 DIL SE.. &lpar;Uyire&rpar; &lpar;Prematho&rpar; &lpar;1998&rpar; [Hin+Tam+Tel] &lpar;Music Video Album&rpar; - HQ 1080P - AMZN - WEBDL - H264 - MULT DD® 5.1 - #DVD SYNC - ESUBS - 2GB - FirstOnNET 〰️ [avatar]](https://www.1tamilmv.bond/index.php?/forums/topic/171729-%F0%9F%93%8C-dil-se-uyire-prematho-1998-hintamtel-music-video-album-hq-1080p-amzn-webdl-h264-mult-dd%C2%AE-51-dvd-sync-esubs-2gb-firstonnet-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=342707)
 - [Kadhalum Kadanthu Pogum &lpar;2016&rpar;.Tamil.1080p.Web-dl.x264.DD5.1 512Kbps - 4GB](https://www.1tamilmv.bond/index.php?/forums/topic/171728-kadhalum-kadanthu-pogum-2016tamil1080pweb-dlx264dd51-512kbps-4gb/&do=findComment&comment=342706)
 - [Kadhalum Kadanthu Pogum &lpar;2016&rpar;.Tamil.1080p.Web-dl.x264.DD5.1 512Kbps - 4GB](https://www.1tamilmv.bond/index.php?/forums/topic/171728-kadhalum-kadanthu-pogum-2016tamil1080pweb-dlx264dd51-512kbps-4gb/&do=findComment&comment=342705)
-- [[ALAC] Thunivu &lpar;2023&rpar; Original Score Hi-Fi Qualilty 16bit - ALAC - Ghibran Musical - 420 MB](https://www.1tamilmv.bond/index.php?/forums/topic/171727-alac-thunivu-2023-original-score-hi-fi-qualilty-16bit-alac-ghibran-musical-420-mb/&do=findComment&comment=342704)
-- [Vaathi &lpar;2023&rpar; Original Motion Picture Soundtrack Master Quality 24bit 96kHz - FLAC - G.V. Prakash Kumar Musical - 328 MB]](https://www.1tamilmv.bond/index.php?/forums/topic/171726-vaathi-2023-original-motion-picture-soundtrack-master-quality-24bit-96khz-flac-gv-prakash-kumar-musical-328-mb/&do=findComment&comment=342703)
-- [Adithya Varma &lpar;2019&rpar; SS WEB-DL DD5.1 Esubs x264 - 1080p | 720p - 4.8 GB | 2.5 GB](https://www.1tamilmv.bond/index.php?/forums/topic/171725-adithya-varma-2019-ss-web-dl-dd51-esubs-x264-1080p-720p-48-gb-25-gb/&do=findComment&comment=342702)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
