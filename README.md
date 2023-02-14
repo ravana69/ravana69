@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മറ്റൊരു പ്രണയദിനത്തിന്റെ ആഘോഷങ്ങൾക്കൊപ്പം പ്രണയിക്കുന്നവർക്കായി ഒരു പ്രേമസന്ദേശം | LOVE SONGS](https://www.youtube.com/watch?v=HEFdusGYqqY)
 - [Janmantharangalay | Athramel snehichupoy | Hariharan | Sobha MuhamedKunhi | Dr.Arif Muhamed | Ghazal](https://www.youtube.com/watch?v=ToKQfSVJduw)
 - [Singer Of The Week | Kester | Christian Devotional Songs Malayalam | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=Dx00_bXBULE)
 - [Prathikhadimsu | Shikkar | Mohanlal | Samudrakani | M Jayachandran | Gireesh Puthanchery](https://www.youtube.com/watch?v=Z2LrDXD_dxU)
 - [Valantines Day Special Songs | Malayalam Romantic Songs | Video Jukebox |](https://www.youtube.com/watch?v=2D7b5Sc5p98)
 - [13 February 2023](https://www.youtube.com/watch?v=1TSYJlucqBk)
-- [Christian Melody Songs | Manjeri | Wilswaraj | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=Am2ZobKjTPc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
