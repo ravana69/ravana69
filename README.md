@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [📌 | HDR10 | DHAMAKA &lpar;2022&rpar; TELUGU &lpar;Music Video Album&rpar; - 2160P &amp; 1080P - &lpar;HDR10+SDR&rpar; DUAL TRACK - WEBDL -  DDP 5.1 @ 640Kbps + AAC 5.1 @ 320Kbps - ESUBS - 3.6GB - FirstOnNET 〰️ [avatar]](https://www.1tamilmv.wtf/index.php?/forums/topic/171732-%F0%9F%93%8C-hdr10-dhamaka-2022-telugu-music-video-album-2160p-1080p-hdr10sdr-dual-track-webdl-ddp-51-640kbps-aac-51-320kbps-esubs-36gb-firstonnet-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=342721)
 - [Request your movies as a comment to this topic.!](https://www.1tamilmv.wtf/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=342720)
 - [Request your movies as a comment to this topic.!](https://www.1tamilmv.wtf/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=342719)
 - [Kolamavu Kokila &lpar;2018&rpar; Tamil True - HD UNTOUCHED + [DD5.1 - &lpar;512Kbps&rpar;] - [4K - 12GB | 1080p - 10GB - 9GB - 6GB - 4GB - 2.5GB - 1.6GB | 720p - 1.4GB - 900MB | x264 - 700MB - 400MB - 250MB]](https://www.1tamilmv.wtf/index.php?/forums/topic/106429-kolamavu-kokila-2018-tamil-true-hd-untouched-dd51-512kbps-4k-12gb-1080p-10gb-9gb-6gb-4gb-25gb-16gb-720p-14gb-900mb-x264-700mb-400mb-250mb/&do=findComment&comment=342718)
 - [Titanic &lpar;1997&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - &lpar;DD5.1 - 448Kbps&rpar; - 3.2GB &amp; 2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 500MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171327-titanic-1997-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-dd51-448kbps-32gb-2gb-x264-tam-tel-hin-500mb-esub/&do=findComment&comment=342717)
-- [Badland &lpar;2019&rpar;AAC 2.0 Tamil-Telugu-Hindi-DTS 5.1 English 1080p Blu-Ray ESub 9GB [G-Drive]](https://www.1tamilmv.wtf/index.php?/forums/topic/171731-badland-2019aac-20-tamil-telugu-hindi-dts-51-english-1080p-blu-ray-esub-9gb-g-drive/&do=findComment&comment=342716)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
