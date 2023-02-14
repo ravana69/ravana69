@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nenjinullilaake | Thattumpurathu Achuthan | Vineeth Sreenivasan |  Radhika Narayanan | Deepankuran](https://www.youtube.com/watch?v=Vc9oBW4FLIM)
+- [പൂ തത്തമ്മേ | Poo Thathamme | Manathe Vellitheru | Malayalam Film Song HD](https://www.youtube.com/watch?v=qm9x9Y-alRU)
+- [Pokathe Kariyila Katte Video Song | Mammootty | Afsal | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=HYUwu22Vox4)
 - [ഹൃദയം ഹൃദയത്തോട് മന്ത്രിക്കും പ്രണയാതുരമാം ഓർമ്മകളുണർത്തും പ്രണയഗാനങ്ങൾ | VALENTINES DAY  SONGS](https://www.youtube.com/watch?v=SwnlZ3HdD_8)
 - [The Mystery | Gold Soundtrack |  Prithviraj | Alphonse Puthren | Rajesh Murugesan](https://www.youtube.com/watch?v=3T3rdbo8zbA)
 - [Koodey Nin Koodey - Video Song | Ntikkakkakkoru Premandaarnnu | Sharafudheen| Bhavana| Shebin| Adhil](https://www.youtube.com/watch?v=YhK0ytwVUT0)
-- [മറ്റൊരു പ്രണയദിനത്തിന്റെ ആഘോഷങ്ങൾക്കൊപ്പം പ്രണയിക്കുന്നവർക്കായി ഒരു പ്രേമസന്ദേശം | LOVE SONGS](https://www.youtube.com/watch?v=HEFdusGYqqY)
-- [Janmantharangalay | Athramel snehichupoy | Hariharan | Sobha MuhamedKunhi | Dr.Arif Muhamed | Ghazal](https://www.youtube.com/watch?v=ToKQfSVJduw)
-- [Singer Of The Week | Kester | Christian Devotional Songs Malayalam | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=Dx00_bXBULE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
