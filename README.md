@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Partha Mudhal Nodiyil - Short Musical | Jojo | Ashish | Vineeth | Hesham | Ashik | Shweta](https://www.youtube.com/watch?v=jiI-SfDwTOA)
-- [Mazha Varanunde | Thattumpurathu Achuthan | Anil Panachooran | Deepankuran](https://www.youtube.com/watch?v=6HOM7LAbXeo)
-- [താരം വാൽക്കണ്ണാ‍ടി നോക്കി | Evergreen Hit song | Jayaram](https://www.youtube.com/watch?v=Hepz9iP3-HU)
-- [ചങ്ക് തകരുന്ന മെലഡി കൊണ്ട് മലയാളികളുടെ മനസിൽ ഇടം പിടിച്ച ജോൺസൺ മാസ്റ്ററിന്റെ അനശ്വര ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=_VHuvQu91z4)
-- [ജനപ്രിയ മാരമൺ കൺവൻഷൻ ഗാനങ്ങൾ old maramon convention songs | kester | christian songs with lyrics](https://www.youtube.com/watch?v=BJWuUVANulM)
-- [Sahanathin Aathmeeya Rahasyam | New Christian Video Song | Fr.Thomas Edayal | Songs Of Crusade](https://www.youtube.com/watch?v=nTuq4rX5mZI)
+- [AT - Welcome to The Dark Side - Official Teaser | Akash Sen, Rachel David, Shaju Sreedhar | DonMax](https://www.youtube.com/watch?v=ZClcHOOA-zc)
+- [Sumangali Swag | Gold Soundtrack |  Prithviraj | Alphonse Puthren | Rajesh Murugesan](https://www.youtube.com/watch?v=O4jSjnV7QSg)
+- [കരയാതെ കണ്ണുറങ്ങ് HD | Karayaathe Kannurangu Video Song | Sagaram Sakshi | Mammootty, Sukanya](https://www.youtube.com/watch?v=mPzPUk0rJEs)
+- [MADHU MOZHI RADHE | Masterpiece Movie Song | Mammootty | Deepak Dev | Madhu Balakrishnan](https://www.youtube.com/watch?v=IWWtCHHrsBI)
+- [Maanam Thudukkanu | Odiyan | Shreya Ghoshal | M Jayachandran | Rafeeq Ahammed](https://www.youtube.com/watch?v=8OYjLHcIEkI)
+- [Khalbiloroppana Paattundo Video Song | Jagadish | MG Sreekumar | Johnson | PK Gopi | Naaraayam](https://www.youtube.com/watch?v=aRtyWjRTZ1Y)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
