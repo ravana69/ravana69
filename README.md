@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.wtf/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=342771)
-- [Breathe : Into the Shadows &lpar;2022&rpar; S02 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p, 720p - [Tamil + Telugu + Hindi + Malayalam + Kannada + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 6GB - 2.5GB| x264 - 700MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171737-breathe-into-the-shadows-2022-s02-ep-01-08-true-web-dl-1080p-720p-tamil-telugu-hindi-malayalam-kannada-eng-dd51-192kbps-6gb-25gb-x264-700mb-esub/&do=findComment&comment=342770)
-- [Vaanchinathan &lpar;2001&rpar;.Tamil.720p &amp; 1080p.HDTV.x264.AAC2.0 - 2GB  &amp; 3.6GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171738-vaanchinathan-2001tamil720p-1080phdtvx264aac20-2gb-36gb/&do=findComment&comment=342769)
-- [5 Tamil Movies - AMZN / SS WEB DL - 1080p HD - H.264 - [DD5.1 / DD2.0 / AAC] - 30GB [GDRIVE]](https://www.1tamilmv.wtf/index.php?/forums/topic/141593-5-tamil-movies-amzn-ss-web-dl-1080p-hd-h264-dd51-dd20-aac-30gb-gdrive/&do=findComment&comment=342768)
-- [🔰Tamil DVD9 27 Movies Collection Ayngaran, API Rip&#39;s DD 5.1 &amp; DTS Audio](https://www.1tamilmv.wtf/index.php?/forums/topic/155247-%F0%9F%94%B0tamil-dvd9-27-movies-collection-ayngaran-api-rips-dd-51-dts-audio/&do=findComment&comment=342767)
+- [Lost &lpar;2023&rpar; Hindi TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.6GB - 1.3GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171749-lost-2023-hindi-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-26gb-13gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=342777)
+- [Minnale &lpar;2001&rpar; Tamil HQ DVDRip - [1080p &amp; 720p - x264 - 3GB - 1.4GB | x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171723-minnale-2001-tamil-hq-dvdrip-1080p-720p-x264-3gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=342776)
+- [Lost &lpar;2023&rpar; Hindi TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.6GB - 1.3GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171749-lost-2023-hindi-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-26gb-13gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=342774)
+- [Raana &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171748-raana-2022-kannada-true-web-dl-1080p-720p-avc-dd51-atmos-448kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=342773)
+- [Shyam Singha Roy &lpar;2021&rpar; Telugu NF WEB-DL – [1080p, 720p, 576p] – AVC/HEVC – &lpar;DD+ 5.1 – 640Kbps &amp; AAC 2.0&rpar; – ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171744-shyam-singha-roy-2021-telugu-nf-web-dl-%E2%80%93-1080p-720p-576p-%E2%80%93-avchevc-%E2%80%93-dd-51-%E2%80%93-640kbps-aac-20-%E2%80%93-esub/&do=findComment&comment=342772)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
