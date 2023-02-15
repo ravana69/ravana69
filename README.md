@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Shyam Singha Roy &lpar;2021&rpar; Telugu NF WEB-DL – [1080p, 720p, 576p] – AVC/HEVC – &lpar;DD+ 5.1 – 640Kbps &amp; AAC 2.0&rpar; – ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171744-shyam-singha-roy-2021-telugu-nf-web-dl-%E2%80%93-1080p-720p-576p-%E2%80%93-avchevc-%E2%80%93-dd-51-%E2%80%93-640kbps-aac-20-%E2%80%93-esub/&do=findComment&comment=342758)
+- [Kidaari &lpar;2016&rpar; Tamil SUNNXT WEB-DL – [1080p, 720p, 576p, 480p] – AVC/HEVC – [DD+5.1 – 192kbps &amp; AAC2.0] – Esubs](https://www.1tamilmv.wtf/index.php?/forums/topic/171743-kidaari-2016-tamil-sunnxt-web-dl-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avchevc-%E2%80%93-dd51-%E2%80%93-192kbps-aac20-%E2%80%93-esubs/&do=findComment&comment=342757)
 - [Bus Stop &lpar;2012&rpar; Telugu SUNNXT WEB-DL – [1080p, 720p, 576p, 480p] – AVC/HEVC – [DD+5.1 – 192kbps &amp; AAC2.0]](https://www.1tamilmv.wtf/index.php?/forums/topic/171742-bus-stop-2012-telugu-sunnxt-web-dl-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avchevc-%E2%80%93-dd51-%E2%80%93-192kbps-aac20/&do=findComment&comment=342756)
 - [Athadu &lpar;2005&rpar; Telugu Enhansed Bluray – [1080p, 720p, 576p, 480p] – AVC/HEVC – [DD5.1 – 448kbps] – Esubs](https://www.1tamilmv.wtf/index.php?/forums/topic/171741-athadu-2005-telugu-enhansed-bluray-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avchevc-%E2%80%93-dd51-%E2%80%93-448kbps-%E2%80%93-esubs/&do=findComment&comment=342755)
 - [Waltair Veerayya - Neekemo Andamekkuva Video - 1080P &amp; 4K - DD5.1 + DTS5.1 Upmixed](https://www.1tamilmv.wtf/index.php?/forums/topic/171740-waltair-veerayya-neekemo-andamekkuva-video-1080p-4k-dd51-dts51-upmixed/&do=findComment&comment=342754)
-- [Malikappuram &lpar;2022&rpar; TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1- 192Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam] - 10GB - 4GB - 1.6GB &amp; 1GB] - [x264 - 850MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171733-malikappuram-2022-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-tamil-telugu-hindi-malayalam-10gb-4gb-16gb-1gb-x264-850mb-450mb-250mb-esub/&do=findComment&comment=342753)
-- [Mukhachitram &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1- 192Kbps&rpar; [Tamil + Telugu + Malayalam + Kannada] - 2.9GB - 1.7GB &amp; 950MB] - [x264 - 800MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171739-mukhachitram-2022-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-telugu-malayalam-kannada-29gb-17gb-950mb-x264-800mb-450mb-250mb-esub/&do=findComment&comment=342752)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
