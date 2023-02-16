@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [LOST &lpar;2023&rpar; ZEE5 WEB-DL DDP5.1 Esubs - 2160p | 1080p | 720p - 2.9 GB| 1.6 GB | 737 MB](https://www.1tamilmv.wtf/index.php?/forums/topic/171756-lost-2023-zee5-web-dl-ddp51-esubs-2160p-1080p-720p-29-gb-16-gb-737-mb/&do=findComment&comment=342784)
+- [Sadha Nannu Nadipe &lpar;2022&rpar; DSNP WEB-DL DDP5.1 Atmos Esubs - 2160p | 1080p | 720p - 17.4 GB | 4 GB | 2 GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171755-sadha-nannu-nadipe-2022-dsnp-web-dl-ddp51-atmos-esubs-2160p-1080p-720p-174-gb-4-gb-2-gb/&do=findComment&comment=342783)
+- [Mukhachitram &lpar;2022&rpar; AMZN WEB-DL Multi DDP5.1 Esubs x264 - 1080p | 720p - 6.9 GB | 3.2 GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171754-mukhachitram-2022-amzn-web-dl-multi-ddp51-esubs-x264-1080p-720p-69-gb-32-gb/&do=findComment&comment=342782)
 - [Sadha Nannu Nadipe &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 4.3GB - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171750-sadha-nannu-nadipe-2022-telugu-true-web-dl-1080p-720p-avc-dd51-atmos-768kbps-43gb-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=342781)
 - [Kadhal Mannan &lpar;1998&rpar; WEB-DL - Tamil - 1080p - HD AVC - UNTOUCHED - x264 - AAC - 2.7GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171753-kadhal-mannan-1998-web-dl-tamil-1080p-hd-avc-untouched-x264-aac-27gb/&do=findComment&comment=342780)
-- [Minsara Kanavu&lpar;1997&rpar; SS WEB-DL Tamil - 4K UHD AVC - UNTOUCHED - x264 - DD5.1 &lpar;320 Kbps&rpar; - 8.6GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171752-minsara-kanavu1997-ss-web-dl-tamil-4k-uhd-avc-untouched-x264-dd51-320-kbps-86gb/&do=findComment&comment=342779)
-- [Kushi &lpar;2000&rpar; WEB-DL - Tamil - 720p HD AVC - UNTOUCHED - x264 - AAC] - 2GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171751-kushi-2000-web-dl-tamil-720p-hd-avc-untouched-x264-aac-2gb/&do=findComment&comment=342778)
-- [Lost &lpar;2023&rpar; Hindi TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.6GB - 1.3GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171749-lost-2023-hindi-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-26gb-13gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=342777)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
