@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ant-Man and the Wasp: Quantumania &lpar;2023&rpar; English HDCAM-Rip - [1080p &amp; 720p - x264 - 2.1GB &amp; 900MB | x264 - 400MB] - HQ Clean Audio](https://www.1tamilmv.wtf/index.php?/forums/topic/171731-ant-man-and-the-wasp-quantumania-2023-english-hdcam-rip-1080p-720p-x264-21gb-900mb-x264-400mb-hq-clean-audio/&do=findComment&comment=342793)
 - [Lost &lpar;2023&rpar; Hindi TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.6GB - 1.3GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171749-lost-2023-hindi-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-26gb-13gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=342792)
 - [Sadha Nannu Nadipe &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 4.3GB - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171750-sadha-nannu-nadipe-2022-telugu-true-web-dl-1080p-720p-avc-dd51-atmos-768kbps-43gb-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=342791)
 - [Raana &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171748-raana-2022-kannada-true-web-dl-1080p-720p-avc-dd51-atmos-448kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=342790)
 - [Lost &lpar;2023&rpar; Hindi TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.6GB - 1.3GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171749-lost-2023-hindi-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-26gb-13gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=342789)
-- [Mukhachitram &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1- 192Kbps&rpar; [Tamil + Telugu + Malayalam + Kannada] - 2.9GB - 1.7GB &amp; 950MB] - [x264 - 800MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171739-mukhachitram-2022-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-telugu-malayalam-kannada-29gb-17gb-950mb-x264-800mb-450mb-250mb-esub/&do=findComment&comment=342788)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
