@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Mortal Kombat &lpar;1995&rpar; 1080p Blu-Ray Remux [AAC 2.0 Tamil -DDP2.0 Hindi -DTS 5.1 English] MSubs 3GB &amp; 20GB [G-Drive]](https://www.1tamilmv.wtf/index.php?/forums/topic/171766-mortal-kombat-1995-1080p-blu-ray-remux-aac-20-tamil-ddp20-hindi-dts-51-english-msubs-3gb-20gb-g-drive/&do=findComment&comment=342808)
 - [Ellai Samy &lpar;1992&rpar;.Tamil.720p.HDTV.x264.AAC2.0 - 1.8GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171765-ellai-samy-1992tamil720phdtvx264aac20-18gb/&do=findComment&comment=342807)
 - [Oh My Ghost &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171764-oh-my-ghost-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-atmos-448kbps-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=342806)
 - [Oh My Ghost &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171764-oh-my-ghost-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-atmos-448kbps-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=342805)
 - [Oh My Ghost &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171764-oh-my-ghost-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-atmos-448kbps-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=342804)
-- [Iron Man Trilogy &lpar;2008 - 2013&rpar;  UDH BluRay HDR 2160p 4K - HEVC 10bits MULTI ORIGINAL AUDIOS [ ENGLISH + TELUGU &lpar;448Kbps&rpar; + TAMIL &lpar;448Kbps&rpar; + Hindi &lpar;448Kbps/640Kbps&rpar;] - AC3 - x265 - 25GB - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171763-iron-man-trilogy-2008-2013-udh-bluray-hdr-2160p-4k-hevc-10bits-multi-original-audios-english-telugu-448kbps-tamil-448kbps-hindi-448kbps640kbps-ac3-x265-25gb-esub/&do=findComment&comment=342803)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
