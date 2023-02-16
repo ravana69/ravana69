@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kalyanam Kamaneeyam &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.2GB - 2.3GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171769-kalyanam-kamaneeyam-2023-telugu-true-web-dl-4k-1080p-720p-avc-dd51-384kbps-32gb-23gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=342814)
+- [Naalam Mura &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD5.1 - 320Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171768-naalam-mura-2022-malayalam-true-web-dl-1080p-720p-avc-dd51-320kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=342813)
+- [Cirkus &lpar;2022&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171767-cirkus-2022-hindi-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=342812)
 - [Oh My Ghost &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171764-oh-my-ghost-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-atmos-448kbps-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=342811)
 - [Oh My Ghost &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171764-oh-my-ghost-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-atmos-448kbps-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=342810)
-- [Ant-Man and the Wasp: Quantumania &lpar;2023&rpar; English HDCAM-Rip - [1080p &amp; 720p - x264 - 2.1GB &amp; 900MB | x264 - 400MB] - HQ Clean Audio](https://www.1tamilmv.wtf/index.php?/forums/topic/171731-ant-man-and-the-wasp-quantumania-2023-english-hdcam-rip-1080p-720p-x264-21gb-900mb-x264-400mb-hq-clean-audio/&do=findComment&comment=342809)
-- [Mortal Kombat &lpar;1995&rpar; 1080p Blu-Ray Remux [AAC 2.0 Tamil -DDP2.0 Hindi -DTS 5.1 English] MSubs 3GB &amp; 20GB [G-Drive]](https://www.1tamilmv.wtf/index.php?/forums/topic/171766-mortal-kombat-1995-1080p-blu-ray-remux-aac-20-tamil-ddp20-hindi-dts-51-english-msubs-3gb-20gb-g-drive/&do=findComment&comment=342808)
-- [Ellai Samy &lpar;1992&rpar;.Tamil.720p.HDTV.x264.AAC2.0 - 1.8GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171765-ellai-samy-1992tamil720phdtvx264aac20-18gb/&do=findComment&comment=342807)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
