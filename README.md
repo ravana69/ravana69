@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാക്കുയിൽ പാടീ HD | Raakkuyil Paadi | Video Song | Kunchacko Boban, Meera Jasmine - Kasthuriman](https://www.youtube.com/watch?v=P-c7RHA3mZU)
+- [O Bhayee - Lyrical | Dasara (Malayalam)| Nani,Keerthy Suresh| Santhosh Narayanan| Srikanth Odela](https://www.youtube.com/watch?v=xzmJQt9_unA)
+- [Manal Pakshikal - Official Trailer | Shanavas Shanu, Santhosh Keezhattoor, Anjali Nair | Shafi](https://www.youtube.com/watch?v=pT8aKd7LOEg)
+- [THE CPO SWAG | Gold Soundtrack |  Prithviraj | Alphonse Puthren | Rajesh Murugesan](https://www.youtube.com/watch?v=MlzwOQPiDho)
 - [നല്ലവണ്ണം വിശദീകരിച്ച് കേട്ടാസ്വദിക്കുന്ന മലയാളി പ്രേക്ഷകരുടെ ഇഷ്ടഗാനങ്ങൾ  | SUPERHIT SONGS](https://www.youtube.com/watch?v=gbN1yr8uU1o)
 - [ഹൃദയത്തിന് പ്രത്യാശയും ശാന്തിയുമേകുന്ന ക്രിസ്തീയ ഗാനങ്ങൾ | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=rTwB6ecwF-A)
-- [15 February 2023](https://www.youtube.com/watch?v=bvTumSr20S0)
-- [Mridulamayi Muthamittal | Seetha | Meera Jasmine | Shivaji | Malayalam Songs | Romantic Songs](https://www.youtube.com/watch?v=kE93UtCvN4Q)
-- [Valiya Nombu Songs | Manoj Christy | Christian Melody Songs | Joji Johns | Lent Songs](https://www.youtube.com/watch?v=0QHHHUf4PZI)
-- [AT - Welcome to The Dark Side - Official Teaser | Akash Sen, Rachel David, Shaju Sreedhar | DonMax](https://www.youtube.com/watch?v=ZClcHOOA-zc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
