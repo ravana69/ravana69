@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kunkuma Nira Sooryan | Neeyum Njanum | Shreya Ghoshal | Vinu Thomas | BK Harinarayanan](https://www.youtube.com/watch?v=yIKmWWKSUP4)
+- [NAMUKKUM JEEVIKKANDE - Lyrical Song | Boomerang | Vineeth Sreenivasan | Shine Tom Chacko | Samyuktha](https://www.youtube.com/watch?v=WM5-mCq_Yqk)
 - [Enthe oru Srinkaram | Seetha | Meera Jasmine | Shivaji | Romantic Songs | Malayalam Songs](https://www.youtube.com/watch?v=5nUfhG8wOcw)
 - [തലമുറകൾ തോറും പാടി കേട്ട് ആസ്വദിച്ച് വന്ന സൂപ്പർഹിറ്റ് സിനിമാഗാനങ്ങൾ   | FAVOURITE HIT SONGS](https://www.youtube.com/watch?v=kE_mEnTcdSw)
 - [രാക്കുയിൽ പാടീ രാവിന്റെ ശോകം | Raakkuyil Paadi | Video Song | Kunchacko Boban, Meera Jasmine](https://www.youtube.com/watch?v=AHSzKLQLYBI)
 - [Christian Melody Songs | Narayana Krishna | Joby Kidaram | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=47rBmpij8TU)
-- [Mohaswaroopini | Pakalpooram | Geethu Mohandas | Raveendran | Mukesh | Saleem Kumar](https://www.youtube.com/watch?v=HzsEb7DMTBk)
-- [16 February 2023](https://www.youtube.com/watch?v=_SuseGfQLo8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
