@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ellai Samy &lpar;1992&rpar;.Tamil.720p.HDTV.x264.AAC2.0 - 1.8GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171765-ellai-samy-1992tamil720phdtvx264aac20-18gb/&do=findComment&comment=342832)
+- [Nattamai &lpar;1994&rpar;.Tamil.1080p.Web-dl.x264.DD5.1 - 3.5GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171758-nattamai-1994tamil1080pweb-dlx264dd51-35gb/&do=findComment&comment=342831)
 - [Farzi &lpar;2023&rpar; S01 EP &lpar;01-09&rpar; TRUE WEB-DL - [1080p, 720p - [Tamil + Telugu + Hindi + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 8GB - 2GB &amp; 950MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171670-farzi-2023-s01-ep-01-09-true-web-dl-1080p-720p-tamil-telugu-hindi-malayalam-kannada-dd51-192kbps-8gb-2gb-950mb-esub/&do=findComment&comment=342830)
 - [Premam &lpar;2015&rpar; Malayalam - BluRay - 1080p &amp; 720p - x264 - &lpar;DTS &lpar;1509Kbps&rpar; + AAC 2.0&rpar; - 8GB - 2.5GB - 1.4GB - 700MB &amp; 400MB - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171713-premam-2015-malayalam-bluray-1080p-720p-x264-dts-1509kbps-aac-20-8gb-25gb-14gb-700mb-400mb-esub/&do=findComment&comment=342829)
 - [Breathe : Into the Shadows &lpar;2022&rpar; S02 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p, 720p - [Tamil + Telugu + Hindi + Malayalam + Kannada + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 6GB - 2.5GB| x264 - 700MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171737-breathe-into-the-shadows-2022-s02-ep-01-08-true-web-dl-1080p-720p-tamil-telugu-hindi-malayalam-kannada-eng-dd51-192kbps-6gb-25gb-x264-700mb-esub/&do=findComment&comment=342828)
-- [Oh My Ghost &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171764-oh-my-ghost-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-atmos-448kbps-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=342827)
-- [Hansikas Love Shaadi Drama &lpar;2023&rpar; S01 EP01 TRUE WEB-DL - [1080p, 720p - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 700MB - 350MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171675-hansikas-love-shaadi-drama-2023-s01-ep01-true-web-dl-1080p-720p-tamil-telugu-hindi-eng-dd51-192kbps-700mb-350mb-esub/&do=findComment&comment=342825)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
