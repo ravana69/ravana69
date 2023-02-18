@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Gaalodu &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.2GB - 2.3GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub &lpar;Direct Download&rpar;](https://www.1tamilmv.wtf/index.php?/forums/topic/171796-gaalodu-2023-telugu-true-web-dl-4k-1080p-720p-avc-dd51-384kbps-32gb-23gb-14gb-x264-700mb-400mb-250mb-esub-direct-download/&do=findComment&comment=342890)
+- [Heroic Losers &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Spa&rpar; - 2.6GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171792-heroic-losers-2019-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-spa-26gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=342886)
 - [Hansikas Love Shaadi Drama &lpar;2023&rpar; S01 EP01 TRUE WEB-DL - [1080p, 720p - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 700MB - 350MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171675-hansikas-love-shaadi-drama-2023-s01-ep01-true-web-dl-1080p-720p-tamil-telugu-hindi-eng-dd51-192kbps-700mb-350mb-esub/&do=findComment&comment=342885)
 - [Minnale &lpar;2001&rpar; Tamil 1080p WEB DL H.264 DD5.1 - 12.8GB [GDRIVE]](https://www.1tamilmv.wtf/index.php?/forums/topic/168008-minnale-2001-tamil-1080p-web-dl-h264-dd51-128gb-gdrive/&do=findComment&comment=342884)
 - [Mishan Impossible &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu&rpar; - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.wtf/index.php?/forums/topic/171791-mishan-impossible-2023-tamil-true-web-dl-1080p-720p-avc-tamil-telugu-27gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=342883)
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.wtf/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=342882)
-- [Bakasuran &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.wtf/index.php?/forums/topic/171782-bakasuran-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=342881)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
