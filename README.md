@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Heroic Losers &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Spa&rpar; - 2.6GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub &lpar;Direct Download&rpar;](https://www.1tamilmv.wtf/index.php?/forums/topic/171814-heroic-losers-2019-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-spa-26gb-12gb-x264-tam-tel-hin-450mb-esub-direct-download/&do=findComment&comment=342922)
 - [Race Gurram &lpar;2014&rpar; Telugu SUNNXT WEB-DL – [1080p, 720p, 576p, 480p] – AVC – [DD+5.1 – 192kbps &amp; AAC2.0] – Esubs](https://www.1tamilmv.wtf/index.php?/forums/topic/171813-race-gurram-2014-telugu-sunnxt-web-dl-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avc-%E2%80%93-dd51-%E2%80%93-192kbps-aac20-%E2%80%93-esubs/&do=findComment&comment=342921)
 - [Kanchana &lpar;2011&rpar; Telugu SUNNXT WEB-DL – [1080p, 720p, 576p, 480p] – AVC – [DD+5.1 – 192kbps &amp; AAC2.0]](https://www.1tamilmv.wtf/index.php?/forums/topic/171812-kanchana-2011-telugu-sunnxt-web-dl-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avc-%E2%80%93-dd51-%E2%80%93-192kbps-aac20/&do=findComment&comment=342920)
 - [Govindudu Andarivadele &lpar;2014&rpar; Telugu SUNNXT WEB-DL – [1080p, 720p, 576p, 480p] – AVC – [DD+5.1 – 192kbps &amp; AAC2.0]](https://www.1tamilmv.wtf/index.php?/forums/topic/171811-govindudu-andarivadele-2014-telugu-sunnxt-web-dl-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avc-%E2%80%93-dd51-%E2%80%93-192kbps-aac20/&do=findComment&comment=342919)
 - [Christy &lpar;2023&rpar; Malayalam Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.wtf/index.php?/forums/topic/171786-christy-2023-malayalam-proper-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=342918)
-- [Heroic Losers &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Spa&rpar; - 2.6GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171792-heroic-losers-2019-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-spa-26gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=342917)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
