@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aliyarude Omana Beewi song from Vaank | Amal Antony | Ousepachan | P S Rafeeque](https://www.youtube.com/watch?v=ryGv_TvWp9g)
+- [Christian Superhit Songs | Elizabeth Raju | Christian Devotional Songs Malayalam | Kester](https://www.youtube.com/watch?v=5MzM_Kd-Nx0)
 - [Thaalamayanju Video Song | Mohanlal | Shobana | Sharreth | KJ Yesudas | Sujatha Mohanar | ONV Kurup](https://www.youtube.com/watch?v=6-ceuOPjQSc)
 - [vibhoothi thirunal status](https://www.youtube.com/watch?v=PT-WHIiq3G8)
 - [എന്റെ ഏകാന്ത ജന്മം നീ പൊന്നാക്കുമോ! #shortsyoutube #shorts #kavyamadhavan](https://www.youtube.com/watch?v=7VHS8MpSA7w)
 - [Aalam Niranjulla | Neeyum Njanum | Mridula Varier | Vinu Thomas | Salaudhin Kecherry](https://www.youtube.com/watch?v=S4JC64lvfsY)
-- [Enoruvan Mudiyazhichingadanu | Odiyan | Mohanlal | M Jayachandran | Prabha Varma](https://www.youtube.com/watch?v=O9em26QfmnU)
-- [ഏറ്റവും പുതിയ വലിയ നോമ്പ് ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Lent Songs Malayalam](https://www.youtube.com/watch?v=FPL3qzI3_EI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
