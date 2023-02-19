@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Exorcist 1973 Blu-Ray EXTENDED DC 1080p Remux AAC 2.0 Tamil-Hindi DDP 2.0- English DD 5.1 x264 ESub 9GB &amp; 31GB [G-Drive]](https://www.1tamilmv.wtf/index.php?/forums/topic/171836-the-exorcist-1973-blu-ray-extended-dc-1080p-remux-aac-20-tamil-hindi-ddp-20-english-dd-51-x264-esub-9gb-31gb-g-drive/&do=findComment&comment=342962)
+- [APNA SAPNA MONEY MONEY &lpar;2006&rpar; &lpar;Music Video Album&rpar; - 1080P - WEBDL - AVC - #HIN DD® 5.1 @ 448Kbps - #DVD SYNC - ESUBS - 1.3GB 〰️ [avatar]](https://www.1tamilmv.wtf/index.php?/forums/topic/171835-apna-sapna-money-money-2006-music-video-album-1080p-webdl-avc-hin-dd%C2%AE-51-448kbps-dvd-sync-esubs-13gb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=342961)
+- [Super &lpar;2005&rpar; Telugu DSNP WEB-DL – [1080p, 720p, 576p, 480p] – AVC – AAC2.0 – Esubs](https://www.1tamilmv.wtf/index.php?/forums/topic/171834-super-2005-telugu-dsnp-web-dl-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avc-%E2%80%93-aac20-%E2%80%93-esubs/&do=findComment&comment=342960)
+- [SR Kalyanamandapam &lpar;2021&rpar; Telugu AHA WEB-DL – [1080p, 720p, 480p, 360p] – AVC – AAC2.0 – Esubs](https://www.1tamilmv.wtf/index.php?/forums/topic/171833-sr-kalyanamandapam-2021-telugu-aha-web-dl-%E2%80%93-1080p-720p-480p-360p-%E2%80%93-avc-%E2%80%93-aac20-%E2%80%93-esubs/&do=findComment&comment=342959)
 - [Raghavan &lpar;2006&rpar; Telugu Full Movie Download AMZN WEB-DL – [1080p, 720p, 480p] – AVC/HEVC – [DD+2.0-224kbps &amp; AAC 2.0] – Esubs](https://www.1tamilmv.wtf/index.php?/forums/topic/171832-raghavan-2006-telugu-full-movie-download-amzn-web-dl-%E2%80%93-1080p-720p-480p-%E2%80%93-avchevc-%E2%80%93-dd20-224kbps-aac-20-%E2%80%93-esubs/&do=findComment&comment=342958)
-- [Poola Rangadu &lpar;2012&rpar; Telugu SUNNXT WEB-DL – [1080p, 720p, 576p, 480p] – AVC/HEVC – AAC2.0](https://www.1tamilmv.wtf/index.php?/forums/topic/171831-poola-rangadu-2012-telugu-sunnxt-web-dl-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avchevc-%E2%80%93-aac20/&do=findComment&comment=342957)
-- [Heroic.Losers.2019 AAC 2.0 Tamil-Telugu-Hindi-DTS 5.1 Spanish 1080p.BluRay.REMUX.AVC.DTS-HD.MA.5.1 Msubs 18GB [G-Drive]](https://www.1tamilmv.wtf/index.php?/forums/topic/171830-heroiclosers2019-aac-20-tamil-telugu-hindi-dts-51-spanish-1080pblurayremuxavcdts-hdma51-msubs-18gb-g-drive/&do=findComment&comment=342956)
-- [Airport.1970 AAC 2.0 Tamil-Telugu-Hindi-DTS 5.1 English 1080p.BluRay.x264 Msubs 16GB [G-Drive]](https://www.1tamilmv.wtf/index.php?/forums/topic/171829-airport1970-aac-20-tamil-telugu-hindi-dts-51-english-1080pblurayx264-msubs-16gb-g-drive/&do=findComment&comment=342955)
-- [Mishan Impossible &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu&rpar; - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.wtf/index.php?/forums/topic/171791-mishan-impossible-2023-tamil-true-web-dl-1080p-720p-avc-tamil-telugu-27gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=342954)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
