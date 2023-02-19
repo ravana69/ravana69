@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [FAREBI YAAR PART 1+2+3 2023 HINDI ULLU ORIGINALS WEB SERIES 1080P | 720P | 480P HDRIP](https://www.1tamilmv.wtf/index.php?/forums/topic/158453-farebi-yaar-part-123-2023-hindi-ullu-originals-web-series-1080p-720p-480p-hdrip/&do=findComment&comment=342946)
+- [FAREBI YAAR PART 1+2+3 2023 HINDI ULLU ORIGINALS WEB SERIES 1080P | 720P | 480P HDRIP](https://www.1tamilmv.wtf/index.php?/forums/topic/158453-farebi-yaar-part-123-2023-hindi-ullu-originals-web-series-1080p-720p-480p-hdrip/&do=findComment&comment=342945)
+- [Sridevi Shoban Babu &lpar;2023&rpar; Telugu Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.wtf/index.php?/forums/topic/171794-sridevi-shoban-babu-2023-telugu-proper-hq-predvd-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=342944)
 - [Black.Panther.Wakanda.Forever.2022.BluRay.REMUX 1080p &amp;2160p.4K.HDR DDP5.1 Tamil-Telugu-Hindi-English.TrueHD.Atmos.7.1.MSubs.x265 4GB &amp; 23GB &amp; 38GB 56GB [G-Drive]](https://www.1tamilmv.wtf/index.php?/forums/topic/171545-blackpantherwakandaforever2022blurayremux-1080p-2160p4khdr-ddp51-tamil-telugu-hindi-englishtruehdatmos71msubsx265-4gb-23gb-38gb-56gb-g-drive/&do=findComment&comment=342943)
 - [Bakasuran - Siva Sivayam Full Video - 1080P &amp; 4K - DD5.1 + DTSHDMA5.1 &lpar;Lossless FLAC Upmix&rpar; - Cinem Surround 5.1](https://www.1tamilmv.wtf/index.php?/forums/topic/171828-bakasuran-siva-sivayam-full-video-1080p-4k-dd51-dtshdma51-lossless-flac-upmix-cinem-surround-51/&do=findComment&comment=342942)
-- [Enkilum Chandrike &lpar;2023&rpar; Malayalam Full Movie Watch Now in HD For Free](https://www.1tamilmv.wtf/index.php?/forums/topic/171827-enkilum-chandrike-2023-malayalam-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=342941)
-- [Gaalodu &lpar;2022&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.wtf/index.php?/forums/topic/171826-gaalodu-2022-telugu-music-video-album-1080p-web-hd-untouched-avc-dd51-640kbps-e-sub-by-beast-uk/&do=findComment&comment=342940)
-- [Lucky Lakshman &lpar;2022&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.wtf/index.php?/forums/topic/171825-lucky-lakshman-2022-telugu-music-video-album-1080p-web-hd-untouched-avc-dd51-640kbps-e-sub-by-beast-uk/&do=findComment&comment=342939)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
