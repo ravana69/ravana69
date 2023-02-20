@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Pachappoo Pattu Virichu | Soothrakkaran | P Jayachandran | Wichu Balamurali](https://www.youtube.com/watch?v=ZYzKXqbtFsk)
 - [Jumper Santhosh | Gold Soundtrack |  Prithviraj | Alphonse Puthren | Rajesh Murugesan](https://www.youtube.com/watch?v=bP7bhblDGk8)
 - [Kaanuvan Kothicha Tharame | URIYADI | FFF & Fifty Six Cinemas | A J Varghese | Ishaan Dev](https://www.youtube.com/watch?v=Quedw78qAPA)
 - [Mangala Karaka | Thattumpurathu Achuthan | Manjari | Sudeep Kumar | Aavani | Deepankuran](https://www.youtube.com/watch?v=slWGDKHvXHY)
 - [Kakkothikkavile Video Song | Jayasoorya | Navya Nair| Vineeth| MG Sreekumar|Vidhu Prathap |Alex Paul](https://www.youtube.com/watch?v=FwSRPsIHL-8)
 - [ഹൃദയത്തിലും പെരുമാറ്റത്തിലും പ്രസന്നതയേകും മലയാളസിനിമയിലെ സുന്ദരഗാനങ്ങൾ  | SUPERHIT SONGS](https://www.youtube.com/watch?v=aP95sqa0Bxk)
-- [നിന്നിളം ചുണ്ടിൽ അണയും പൊൻമുളംകുഴലിൽ | Etho Varmukilin | Pookkaalam Varavay](https://www.youtube.com/watch?v=lOCL5qRg7H0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
