@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [JEANS &lpar;1998&rpar; TELUGU &lpar;Music Video ALBUM&rpar; - 1080P - TRUE WEBDL - DD 5.1 - ESUBS - 3GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171853-jeans-1998-telugu-music-video-album-1080p-true-webdl-dd-51-esubs-3gb/&do=findComment&comment=343005)
+- [Petta &lpar;2019&rpar; Telugu NF WEB-DL – [1080p, 720p, 576p, 480p] – AVC/HEVC – [DD+5.1 – 640kbps] – Esubs](https://www.1tamilmv.wtf/index.php?/forums/topic/171852-petta-2019-telugu-nf-web-dl-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avchevc-%E2%80%93-dd51-%E2%80%93-640kbps-%E2%80%93-esubs/&do=findComment&comment=343004)
 - [Brochevaruevarura &lpar;2019&rpar; Telugu AMZN WEB-DL – [1080p, 720p, 576p, 480p] – AVC/HEVC – [DD+5.1 – 640kbps] – Esubs](https://www.1tamilmv.wtf/index.php?/forums/topic/171851-brochevaruevarura-2019-telugu-amzn-web-dl-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avchevc-%E2%80%93-dd51-%E2%80%93-640kbps-%E2%80%93-esubs/&do=findComment&comment=343003)
 - [Bodyguard &lpar;2012&rpar; Telugu Full Movie Download ZEE5 WEB-DL – [1080p, 720p, 576p, 480p] – AVC – AAC 2.0 – Esubs](https://www.1tamilmv.wtf/index.php?/forums/topic/171850-bodyguard-2012-telugu-full-movie-download-zee5-web-dl-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avc-%E2%80%93-aac-20-%E2%80%93-esubs/&do=findComment&comment=343002)
 - [Veera Simha Reddy - Mass Mogudu Video | Nandamuri Balakrishna | Shruti Haasan, ThamanS](https://www.1tamilmv.wtf/index.php?/forums/topic/171849-veera-simha-reddy-mass-mogudu-video-nandamuri-balakrishna-shruti-haasan-thamans/&do=findComment&comment=343001)
-- [Bharat Ane Nenu &lpar;2018&rpar; Telugu AMZN WEB-DL – [1080p, 720p, 576p, 480p] – AVC/HEVC – [DD+5.1 – 640kbps] – Msubs](https://www.1tamilmv.wtf/index.php?/forums/topic/171848-bharat-ane-nenu-2018-telugu-amzn-web-dl-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avchevc-%E2%80%93-dd51-%E2%80%93-640kbps-%E2%80%93-msubs/&do=findComment&comment=343000)
-- [Lucky Lakshman &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1- 192Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 3GB - 1.6GB &amp; 1GB] - [x264 - 850MB &amp; 450MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171846-lucky-lakshman-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-telugu-hindi-malayalam-kannada-3gb-16gb-1gb-x264-850mb-450mb-esub/&do=findComment&comment=342999)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
