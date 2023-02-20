@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഹൃദയത്തിലും പെരുമാറ്റത്തിലും പ്രസന്നതയേകും മലയാളസിനിമയിലെ സുന്ദരഗാനങ്ങൾ  | SUPERHIT SONGS](https://www.youtube.com/watch?v=aP95sqa0Bxk)
 - [നിന്നിളം ചുണ്ടിൽ അണയും പൊൻമുളംകുഴലിൽ | Etho Varmukilin | Pookkaalam Varavay](https://www.youtube.com/watch?v=lOCL5qRg7H0)
 - [Pavithram Movie Song Thaalamayanju... | Evergreen Super Hit Movie Video Song](https://www.youtube.com/watch?v=QOpM3D2GFek)
 - [OWN MEDIA MUSIC : ONNU POTTYKARANJOTE NATHA... WILSON PIRAVAM/JOY CHERUVATHOOR/BASTIN AUGUSTIN/](https://www.youtube.com/watch?v=7IIBzDoMpGI)
 - [Prabhatha Geethangal | Kester | Praise and Worship Songs | Christian Morning Prayer Songs](https://www.youtube.com/watch?v=x94_GGlvhzQ)
 - [Makaranilavil l Snehithan l Kunchacko Boban l Nandhana l Yesudas l Mohan Sithara](https://www.youtube.com/watch?v=o62VKEgdBUQ)
-- [Aliyarude Omana Beewi song from Vaank | Amal Antony | Ousepachan | P S Rafeeque](https://www.youtube.com/watch?v=ryGv_TvWp9g)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
