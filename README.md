@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vaathi &lpar;2023&rpar; Hindi Pre DVD - [1080p &amp; 720p - x264 - 2.5GB &amp; 1.3GB| x264 - 700MB &amp; 400MB] - HQ Dub](https://www.1tamilmv.wtf/index.php?/forums/topic/171841-vaathi-2023-hindi-pre-dvd-1080p-720p-x264-25gb-13gb-x264-700mb-400mb-hq-dub/&do=findComment&comment=343035)
+- [Korameenu &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 2.9GB - 1.7GB &amp; 950MB] - [x264 - 800MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171839-korameenu-2022-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-hindi-malayalam-kannada-29gb-17gb-950mb-x264-800mb-450mb-250mb-esub/&do=findComment&comment=343034)
+- [Memories &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171860-memories-2022-malayalam-true-web-dl-1080p-720p-avc-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=343033)
 - [Memories &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171860-memories-2022-malayalam-true-web-dl-1080p-720p-avc-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=343032)
 - [Lucky Lakshman &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1- 192Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 3GB - 1.6GB &amp; 1GB] - [x264 - 850MB &amp; 450MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171846-lucky-lakshman-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-telugu-hindi-malayalam-kannada-3gb-16gb-1gb-x264-850mb-450mb-esub/&do=findComment&comment=343031)
-- [35 Telugu Movies - SS / JC / AMZN WEB DL - H264 - DDP5.1/DD5.1/AAC2.0 - ESubs - [1080p &amp; 720p - 200GB] [GDrive]](https://www.1tamilmv.wtf/index.php?/forums/topic/167938-35-telugu-movies-ss-jc-amzn-web-dl-h264-ddp51dd51aac20-esubs-1080p-720p-200gb-gdrive/&do=findComment&comment=343030)
-- [Dhool &lpar;2003&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps &amp; AAC 2.0&rpar; - 4.6GB - 2.7GB &amp; 1.4GB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171858-dhool-2003-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-aac-20-46gb-27gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=343029)
-- [Petta &lpar;2019&rpar; Telugu NF WEB-DL – [1080p, 720p, 576p, 480p] – AVC/HEVC – [DD+5.1 – 640kbps] – Esubs](https://www.1tamilmv.wtf/index.php?/forums/topic/171852-petta-2019-telugu-nf-web-dl-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avchevc-%E2%80%93-dd51-%E2%80%93-640kbps-%E2%80%93-esubs/&do=findComment&comment=343028)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
