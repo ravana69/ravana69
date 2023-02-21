@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Memories &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171860-memories-2022-malayalam-true-web-dl-1080p-720p-avc-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=343036)
 - [Vaathi &lpar;2023&rpar; Hindi Pre DVD - [1080p &amp; 720p - x264 - 2.5GB &amp; 1.3GB| x264 - 700MB &amp; 400MB] - HQ Dub](https://www.1tamilmv.wtf/index.php?/forums/topic/171841-vaathi-2023-hindi-pre-dvd-1080p-720p-x264-25gb-13gb-x264-700mb-400mb-hq-dub/&do=findComment&comment=343035)
 - [Korameenu &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 2.9GB - 1.7GB &amp; 950MB] - [x264 - 800MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171839-korameenu-2022-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-hindi-malayalam-kannada-29gb-17gb-950mb-x264-800mb-450mb-250mb-esub/&do=findComment&comment=343034)
 - [Memories &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171860-memories-2022-malayalam-true-web-dl-1080p-720p-avc-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=343033)
 - [Memories &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171860-memories-2022-malayalam-true-web-dl-1080p-720p-avc-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=343032)
-- [Lucky Lakshman &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1- 192Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 3GB - 1.6GB &amp; 1GB] - [x264 - 850MB &amp; 450MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171846-lucky-lakshman-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-telugu-hindi-malayalam-kannada-3gb-16gb-1gb-x264-850mb-450mb-esub/&do=findComment&comment=343031)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
