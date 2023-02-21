@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Dhool &lpar;2003&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps &amp; AAC 2.0&rpar; - 4.6GB - 2.7GB &amp; 1.4GB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171858-dhool-2003-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-aac-20-46gb-27gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=343013)
 - [Thankam &lpar;2023&rpar; AMZN WEB-DL DDP5.1 Esubs - 2160p | 1080p | 720p - 8.4 GB | 8.1 GB | 1.7 GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171857-thankam-2023-amzn-web-dl-ddp51-esubs-2160p-1080p-720p-84-gb-81-gb-17-gb/&do=findComment&comment=343012)
 - [Lucky Lakshman &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1- 192Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 3GB - 1.6GB &amp; 1GB] - [x264 - 850MB &amp; 450MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171846-lucky-lakshman-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-telugu-hindi-malayalam-kannada-3gb-16gb-1gb-x264-850mb-450mb-esub/&do=findComment&comment=343011)
 - [Petta &lpar;2019&rpar; Telugu NF WEB-DL – [1080p, 720p, 576p, 480p] – AVC/HEVC – [DD+5.1 – 640kbps] – Esubs](https://www.1tamilmv.wtf/index.php?/forums/topic/171852-petta-2019-telugu-nf-web-dl-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avchevc-%E2%80%93-dd51-%E2%80%93-640kbps-%E2%80%93-esubs/&do=findComment&comment=343010)
 - [📌 |4K| Mass Mogudu &lpar;From &quot;Veera Simha Reddy&quot; &rpar; - HQ 2160P - WEBM - Opus - Original - 365MB 〰️ [Avatar]](https://www.1tamilmv.wtf/index.php?/forums/topic/171856-%F0%9F%93%8C-4k-mass-mogudu-from-veera-simha-reddy-hq-2160p-webm-opus-original-365mb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=343009)
-- [Lucky Lakshman &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1- 192Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 3GB - 1.6GB &amp; 1GB] - [x264 - 850MB &amp; 450MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171846-lucky-lakshman-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-telugu-hindi-malayalam-kannada-3gb-16gb-1gb-x264-850mb-450mb-esub/&do=findComment&comment=343008)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
