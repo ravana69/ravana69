@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Lucky Lakshman &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1- 192Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 3GB - 1.6GB &amp; 1GB] - [x264 - 850MB &amp; 450MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171846-lucky-lakshman-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-telugu-hindi-malayalam-kannada-3gb-16gb-1gb-x264-850mb-450mb-esub/&do=findComment&comment=343025)
+- [Dhool &lpar;2003&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps &amp; AAC 2.0&rpar; - 4.6GB - 2.7GB &amp; 1.4GB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171858-dhool-2003-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-aac-20-46gb-27gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=343024)
 - [JEANS &lpar;1998&rpar; TELUGU &lpar;Music Video ALBUM&rpar; - 1080P - TRUE WEBDL - DD 5.1 - ESUBS - 3GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171853-jeans-1998-telugu-music-video-album-1080p-true-webdl-dd-51-esubs-3gb/&do=findComment&comment=343023)
 - [JEANS &lpar;1998&rpar; TELUGU &lpar;Music Video ALBUM&rpar; - 1080P - TRUE WEBDL - DD 5.1 - ESUBS - 3GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171853-jeans-1998-telugu-music-video-album-1080p-true-webdl-dd-51-esubs-3gb/&do=findComment&comment=343022)
 - [50 Tamil Movies - SS / AMZN / TK / JC WEB DL - H264/H265 - [DDP5.1 / DD5.1 / AAC] - ESub - [2160p, 1080p &amp; 720p - 350GB] [GDRIVE]](https://www.1tamilmv.wtf/index.php?/forums/topic/141593-50-tamil-movies-ss-amzn-tk-jc-web-dl-h264h265-ddp51-dd51-aac-esub-2160p-1080p-720p-350gb-gdrive/&do=findComment&comment=343021)
-- [Dhool &lpar;2003&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps &amp; AAC 2.0&rpar; - 4.6GB - 2.7GB &amp; 1.4GB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171858-dhool-2003-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-aac-20-46gb-27gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=343020)
-- [Vedha &lpar;2022&rpar; TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; [Tamil + Telugu + Malayalam + Kannada] - 9.5GB - 4GB - 1.7GB &amp; 1GB] - [x264 - 850MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171678-vedha-2022-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-tamil-telugu-malayalam-kannada-95gb-4gb-17gb-1gb-x264-850mb-450mb-250mb-esub/&do=findComment&comment=343019)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
