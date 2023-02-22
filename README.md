@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Dhool &lpar;2003&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps &amp; AAC 2.0&rpar; - 4.6GB - 2.7GB &amp; 1.4GB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171858-dhool-2003-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-aac-20-46gb-27gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=343066)
 - [Vaarasdara [Vaarisu] &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171861-vaarasdara-vaarisu-2023-kannada-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-26gb-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=343065)
 - [Vamshajan [Vaarisu] &lpar;2023&rpar; Malayalam TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 13GB - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171864-vamshajan-vaarisu-2023-malayalam-true-web-dl-4k-1080p-720p-avc-dd51-640kbps-13gb-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=343064)
 - [Vaarasudu &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171862-vaarasudu-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-5gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343063)
 - [Varisu &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 13GB - 9GB - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171863-varisu-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-13gb-9gb-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=343062)
-- [Varisu 2023 Tamil AMZN WEB DL - H264/H265 - DDP5.1&lpar;640kbps&rpar; - [1080p &amp; 720p - 10GB - 4.5GB - 2GB - 1.5GB] [GDRIVE]](https://www.1tamilmv.wtf/index.php?/forums/topic/168193-varisu-2023-tamil-amzn-web-dl-h264h265-ddp51640kbps-1080p-720p-10gb-45gb-2gb-15gb-gdrive/&do=findComment&comment=343061)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
