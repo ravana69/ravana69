@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Varisu 2023 Tamil AMZN WEB DL - H264/H265 - DDP5.1&lpar;640kbps&rpar; - [1080p &amp; 720p - 10GB - 4.5GB - 2GB - 1.5GB] [GDRIVE]](https://www.1tamilmv.wtf/index.php?/forums/topic/168193-varisu-2023-tamil-amzn-web-dl-h264h265-ddp51640kbps-1080p-720p-10gb-45gb-2gb-15gb-gdrive/&do=findComment&comment=343061)
 - [Varisu &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub &lpar;Direct Download&rpar;](https://www.1tamilmv.wtf/index.php?/forums/topic/171873-varisu-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-soft-esub-direct-download/&do=findComment&comment=343060)
 - [Knock at the Cabin &lpar;2023&rpar; [1080p / 720p / HQ HDRip - Eng - 800MB &lpar;Direct Download&rpar;](https://www.1tamilmv.wtf/index.php?/forums/topic/171872-knock-at-the-cabin-2023-1080p-720p-hq-hdrip-eng-800mb-direct-download/&do=findComment&comment=343059)
 - [Memories &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub &lpar;Direct Download&rpar;](https://www.1tamilmv.wtf/index.php?/forums/topic/171871-memories-2022-malayalam-true-web-dl-1080p-720p-avc-25gb-14gb-x264-700mb-400mb-esub-direct-download/&do=findComment&comment=343058)
 - [Spy Time &lpar;2015&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar;- 2GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub &lpar;Direct Download&rpar;](https://www.1tamilmv.wtf/index.php?/forums/topic/171870-spy-time-2015-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-2gb-13gb-x264-tam-tel-hin-450mb-esub-direct-download/&do=findComment&comment=343057)
-- [Ustaad Ram &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu&rpar; - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub &lpar;Direct Download&rpar;](https://www.1tamilmv.wtf/index.php?/forums/topic/171869-ustaad-ram-2023-tamil-true-web-dl-1080p-720p-avc-tamil-telugu-27gb-14gb-850mb-x264-700mb-400mb-250mb-esub-direct-download/&do=findComment&comment=343056)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
