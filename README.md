@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Konchi Konchi | Colours | Gayathri | Sangeetha Sreekanth | Suresh Peter | Gireesh Puthanchery](https://www.youtube.com/watch?v=Z4ZjQRX6BJE)
+- [ദിലീപിൻ്റെ ഏറ്റവും നല്ല പത്ത് സൂപ്പർ ഹിറ്റ് ഗാനങ്ങൾ  | Super Hit Malayalam Songs | Malayalam Songs](https://www.youtube.com/watch?v=Ww-Jlb5uTjE)
+- [Christian Superhit Songs | Shine Sreenivas | Kester | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=8oDwqjHjBRw)
 - [Mazhameettum Video Song | Jayasoorya | Navya Nair | Jyotsna | Balu | Alex Paul | Gireesh Puthenchery](https://www.youtube.com/watch?v=NVoPfPgtnSQ)
 - [Kelkkunille Nee Nadha | Soothrakkaran | G Sreerenjini | Wichu Balamurali](https://www.youtube.com/watch?v=7hVy6A0uWPE)
 - [Nenchile Kaalakkolambu | Odiyan | Sankar Mahadevan | M Jayachandran | Lakshmi Sreekumar](https://www.youtube.com/watch?v=e2Nhw3WnDaE)
-- [കോളേജ്  ക്യാമ്പസുകളുടെ ഇഷ്ടഗാനങ്ങൾ കോർത്തിണക്കിയ സംഗീതോപഹാരം | Super Hit Movie Songs](https://www.youtube.com/watch?v=DiTCSMSm-So)
-- [ദിലീപിൻ്റെ ഏറ്റവും നല്ല പത്ത് സൂപ്പർ ഹിറ്റ് ഗാനങ്ങൾ  | Super Hit Malayalam Songs | Malayalam Songs](https://www.youtube.com/watch?v=dd4FTUoMGLY)
-- [ക്യാമ്പസിൻ്റെ  ഓർമ്മകൾ ഉണർത്തും സൂപ്പർ ഹിറ്റ് മലയാള ഗാനങ്ങൾ  | Malayalam Super Hit songs](https://www.youtube.com/watch?v=K13WSv1Zu08)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
