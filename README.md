@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Knock at the Cabin &lpar;2023&rpar; AMZN WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10+] | 1080p | 720p - 10.9 GB | 5.1 GB | 2.2 GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171889-knock-at-the-cabin-2023-amzn-web-dl-ddp51-atmos-esubs-2160p-hdr10-1080p-720p-109-gb-51-gb-22-gb/&do=findComment&comment=343106)
+- [Kranti &lpar;2023&rpar; AMZN WEB-DL DDP5.1 Multi Esubs x264 - 1080p | 720p - 12.3 GB | 4.9 GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171888-kranti-2023-amzn-web-dl-ddp51-multi-esubs-x264-1080p-720p-123-gb-49-gb/&do=findComment&comment=343105)
 - [📌 LAXMI &lpar;2006&rpar; [Complete Music Video Album] - 1080p - SUNXT - WEBHD - AVC - TEL DDP 5.1 @ 192Kbps - 820MB - Exclusive 〰️ [avatar]](https://www.1tamilmv.wtf/index.php?/forums/topic/170686-%F0%9F%93%8C-laxmi-2006-complete-music-video-album-1080p-sunxt-webhd-avc-tel-ddp-51-192kbps-820mb-exclusive-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=343104)
 - [JEANS &lpar;1998&rpar; TELUGU &lpar;Music Video ALBUM&rpar; - 1080P - TRUE WEBDL - DD 5.1 - ESUBS - 3GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171853-jeans-1998-telugu-music-video-album-1080p-true-webdl-dd-51-esubs-3gb/&do=findComment&comment=343103)
 - [Vaarasudu &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171862-vaarasudu-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-5gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343102)
-- [Mute &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171887-mute-2022-kannada-true-web-dl-1080p-720p-avc-25gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=343101)
-- [The Hating Game &lpar;2021&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.5GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171885-the-hating-game-2021-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-25gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=343100)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
