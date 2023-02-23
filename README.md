@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളത്തിന്റെ യശസ് വന്നോളാം ഉയർത്തിയ രണ്ടു മഹാനടമാരുടെ ജനപ്രിയ ഗാനങ്ങൾ  | Malayalam Superhit Songs](https://www.youtube.com/watch?v=ZZgqOcwyTKs)
 - [നോമ്പുകാല പ്രഭാതത്തിൽ കേൾക്കേണ്ടിയ ഗാനങ്ങൾ |Christian Devotional Songs Malayalam | Lent Songs](https://www.youtube.com/watch?v=oODt--5Ehcg)
 - [22 February 2023](https://www.youtube.com/watch?v=t53nTZM4G6o)
 - [Sona Sona Nee | Ben Johnson | Kalabhavan Mani | Indraja | Anil.C.Menon | Harisree Ashokan](https://www.youtube.com/watch?v=M7Oh_5ojBEw)
 - [Konchi Konchi | Colours | Gayathri | Sangeetha Sreekanth | Suresh Peter | Gireesh Puthanchery](https://www.youtube.com/watch?v=Z4ZjQRX6BJE)
 - [ദിലീപിൻ്റെ ഏറ്റവും നല്ല പത്ത് സൂപ്പർ ഹിറ്റ് ഗാനങ്ങൾ  | Super Hit Malayalam Songs | Malayalam Songs](https://www.youtube.com/watch?v=Ww-Jlb5uTjE)
-- [Christian Superhit Songs | Shine Sreenivas | Kester | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=8oDwqjHjBRw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
