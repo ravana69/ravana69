@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Dhool &lpar;2003&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps &amp; AAC 2.0&rpar; - 4.6GB - 2.7GB &amp; 1.4GB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171858-dhool-2003-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-aac-20-46gb-27gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=343111)
 - [Dr.56 &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps &amp; AAC 2.0&rpar; - 4.2GB - 2.7GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171892-dr56-2023-tamil-true-web-dl-1080p-720p-avc-dd51-640kbps-aac-20-42gb-27gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343110)
 - [Kranti &lpar;2023&rpar; TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1- 640Kbps&rpar; [Tamil + Telugu + Malayalam + Kannada] - ,13GB, 6.8GB - 2.9GB - 1.6GB &amp; 1GB] - [x264 - 850MB &amp; 450MB] - ESub &lpar;Direct Download&rpar;](https://www.1tamilmv.wtf/index.php?/forums/topic/171891-kranti-2023-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-malayalam-kannada-13gb-68gb-29gb-16gb-1gb-x264-850mb-450mb-esub-direct-download/&do=findComment&comment=343109)
 - [45 Tamil Movies - 1080p - SUN NXT / TK / AMZN / SS / ASTRO WEB DL - H.264 - DD5.1 / DDP5.1 / AAC2.0 - ESub - 220GB [Gdrive]](https://www.1tamilmv.wtf/index.php?/forums/topic/167724-45-tamil-movies-1080p-sun-nxt-tk-amzn-ss-astro-web-dl-h264-dd51-ddp51-aac20-esub-220gb-gdrive/&do=findComment&comment=343108)
 - [The Strays &lpar;2023&rpar; NF WEB-DL Multi DDP5.1 Atmos Esubs - 1080p [HDR] | 720p - 6.5 GB | 2.5 GB | 1.5 GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171890-the-strays-2023-nf-web-dl-multi-ddp51-atmos-esubs-1080p-hdr-720p-65-gb-25-gb-15-gb/&do=findComment&comment=343107)
-- [Knock at the Cabin &lpar;2023&rpar; AMZN WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10+] | 1080p | 720p - 10.9 GB | 5.1 GB | 2.2 GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171889-knock-at-the-cabin-2023-amzn-web-dl-ddp51-atmos-esubs-2160p-hdr10-1080p-720p-109-gb-51-gb-22-gb/&do=findComment&comment=343106)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
