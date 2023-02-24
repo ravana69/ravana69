@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Varisu &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 13GB - 9GB - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171863-varisu-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-13gb-9gb-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=343187)
+- [Avengers Quadrilogy &lpar;2012 - 2019&rpar; Bluray 4k UHD - HDR - HEVC - 10bits - Multi Original Audios - {BD Org DD5.1} [English+ Telugu+ Tamil + Hindi] - 30GB - ESubs](https://www.1tamilmv.wtf/index.php?/forums/topic/171921-avengers-quadrilogy-2012-2019-bluray-4k-uhd-hdr-hevc-10bits-multi-original-audios-bd-org-dd51-english-telugu-tamil-hindi-30gb-esubs/&do=findComment&comment=343186)
 - [We Have A Ghost &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.9GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171910-we-have-a-ghost-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-39gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=343185)
 - [Mute &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub &lpar;Direct Download&rpar;](https://www.1tamilmv.wtf/index.php?/forums/topic/171894-mute-2022-kannada-true-web-dl-1080p-720p-avc-25gb-13gb-x264-700mb-400mb-esub-direct-download/&do=findComment&comment=343184)
 - [Veera Simha Reddy &lpar;2023&rpar; DSNP WEB-DL Multi DDP5.1 Atmos Esubs - 2160p | 1080p | 720p - 25.4 GB | 8.4 GB | 6.1 GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171898-veera-simha-reddy-2023-dsnp-web-dl-multi-ddp51-atmos-esubs-2160p-1080p-720p-254-gb-84-gb-61-gb/&do=findComment&comment=343183)
-- [Michael &lpar;2023&rpar; AHA WEB-DL DDP5.1 Esubs - 2160p | 1080p - 3.3 GB | 2.4 GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171907-michael-2023-aha-web-dl-ddp51-esubs-2160p-1080p-33-gb-24-gb/&do=findComment&comment=343182)
-- [[60FPS] Varisu &lpar;2023&rpar; 1080p 10bit DS4K 60FPS AMZN WEBRip DDP5.1 Atmos NVENC - 13.2 GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171908-60fps-varisu-2023-1080p-10bit-ds4k-60fps-amzn-webrip-ddp51-atmos-nvenc-132-gb/&do=findComment&comment=343181)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
