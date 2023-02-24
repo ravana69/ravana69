@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [#VaaVaathi - Dhanush Reprise Version - 1080P &amp; 4K - DD5.1 640Kbps &lpar;YT Audio Upmixed&rpar;](https://www.1tamilmv.wtf/index.php?/forums/topic/171909-vaavaathi-dhanush-reprise-version-1080p-4k-dd51-640kbps-yt-audio-upmixed/&do=findComment&comment=343161)
 - [Michael &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.2GB - 2.3GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171902-michael-2023-telugu-true-web-dl-4k-1080p-720p-avc-dd51-384kbps-32gb-23gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343160)
 - [Vaarasudu &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171862-vaarasudu-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-5gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343159)
 - [Veera Simha Reddy &lpar;2023&rpar; TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 15GB - 8GB - 3GB - 1.7GB &amp; 1GB] - [x264 - 850MB - 500MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171895-veera-simha-reddy-2023-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-tamil-telugu-hindi-malayalam-kannada-15gb-8gb-3gb-17gb-1gb-x264-850mb-500mb-250mb-esub/&do=findComment&comment=343158)
 - [Abbara &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 3GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171905-abbara-2023-kannada-true-web-dl-1080p-720p-avc-dd51-192kbps-3gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=343157)
-- [Veekam &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC -  AAC - 1.4GB &amp; 700MB] - [x264 - 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171901-veekam-2022-malayalam-true-web-dl-1080p-720p-avc-aac-14gb-700mb-x264-400mb-esub/&do=findComment&comment=343156)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
