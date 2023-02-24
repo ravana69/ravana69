@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Gaalodu &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil + Telugu + Kannada] - 4GB - 2.9GB - 1.7GB &amp; 950MB] - [x264 - 800MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171923-gaalodu-2023-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-kannada-4gb-29gb-17gb-950mb-x264-800mb-450mb-250mb-esub/&do=findComment&comment=343204)
+- [Thugs &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.wtf/index.php?/forums/topic/171912-thugs-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=343203)
+- [Single Shankarum Smartphone Simranum &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.wtf/index.php?/forums/topic/171911-single-shankarum-smartphone-simranum-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=343202)
 - [LOVE GURU SEASON 2 &lpar;PART 1&rpar; 2023 HINDI ULLU ORIGINALS WEB SERIES HDRIP](https://www.1tamilmv.wtf/index.php?/forums/topic/150918-love-guru-season-2-part-1-2023-hindi-ullu-originals-web-series-hdrip/&do=findComment&comment=343201)
 - [LOVE GURU SEASON 2 &lpar;PART 1&rpar; 2023 HINDI ULLU ORIGINALS WEB SERIES HDRIP](https://www.1tamilmv.wtf/index.php?/forums/topic/150918-love-guru-season-2-part-1-2023-hindi-ullu-originals-web-series-hdrip/&do=findComment&comment=343200)
-- [Avengers Quadrilogy &lpar;2012 - 2019&rpar; Bluray 4k UHD - HDR - HEVC - 10bits - Multi Original Audios - {BD Org DD5.1} [English+ Telugu+ Tamil + Hindi] - 30GB - ESubs](https://www.1tamilmv.wtf/index.php?/forums/topic/171921-avengers-quadrilogy-2012-2019-bluray-4k-uhd-hdr-hevc-10bits-multi-original-audios-bd-org-dd51-english-telugu-tamil-hindi-30gb-esubs/&do=findComment&comment=343199)
-- [Michael &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.5GB - 2.5GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171900-michael-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-35gb-25gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343198)
-- [Veera.Simha.Reddy.&lpar;2023&rpar;.2160p DDP 5.1 Tamil-Telugu-Kannada-Malayalam WEB-DL.HEVC.DDP.5.1.Atmos.ESub 26GB [G-Drive]](https://www.1tamilmv.wtf/index.php?/forums/topic/171924-veerasimhareddy20232160p-ddp-51-tamil-telugu-kannada-malayalam-web-dlhevcddp51atmosesub-26gb-g-drive/&do=findComment&comment=343197)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
