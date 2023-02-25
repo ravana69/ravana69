@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Thugs &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.wtf/index.php?/forums/topic/171912-thugs-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=343229)
 - [Happy Birthday &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu&rpar; - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.wtf/index.php?/forums/topic/171932-happy-birthday-2023-tamil-true-web-dl-1080p-720p-avc-tamil-telugu-27gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=343228)
 - [Gaalodu &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil + Telugu + Kannada] - 4GB - 2.9GB - 1.7GB &amp; 950MB] - [x264 - 800MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171923-gaalodu-2023-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-kannada-4gb-29gb-17gb-950mb-x264-800mb-450mb-250mb-esub/&do=findComment&comment=343227)
 - [RockStar On Hotstar &lpar;2023&rpar; Tamil - S01 EP01 TRUE WEB-DL - [1080p, 720p, 480p - AVC - UNTOUCHED - 2.6GB - 1.8GB &amp; 850MB]](https://www.1tamilmv.wtf/index.php?/forums/topic/171927-rockstar-on-hotstar-2023-tamil-s01-ep01-true-web-dl-1080p-720p-480p-avc-untouched-26gb-18gb-850mb/&do=findComment&comment=343226)
 - [Inception &lpar;2010&rpar; 1080p &amp; 2160p 4K UHD HDR10 Blu-Ray REMUX x265 10bit HEVC [DDP2.0 Tamil-Telugu- Hindi DVD True DD 5.1 - English DTS-HDMA 5.1] ESub 5GB &amp; 85GB [G-Drive]](https://www.1tamilmv.wtf/index.php?/forums/topic/171935-inception-2010-1080p-2160p-4k-uhd-hdr10-blu-ray-remux-x265-10bit-hevc-ddp20-tamil-telugu-hindi-dvd-true-dd-51-english-dts-hdma-51-esub-5gb-85gb-g-drive/&do=findComment&comment=343225)
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.wtf/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=343224)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
