@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Happy Birthday &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu&rpar; - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.wtf/index.php?/forums/topic/171932-happy-birthday-2023-tamil-true-web-dl-1080p-720p-avc-tamil-telugu-27gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=343217)
+- [Die Hart: The Movie &lpar;2023&rpar; AMZN WEB-DL DDP5.1 Esubs - 2160p [HDR] | 1080p | 720p - 9 GB | 5.9 GB | 2.6 GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171934-die-hart-the-movie-2023-amzn-web-dl-ddp51-esubs-2160p-hdr-1080p-720p-9-gb-59-gb-26-gb/&do=findComment&comment=343216)
 - [[60FPS] Varisu &lpar;2023&rpar; 1080p 10bit DS4K 60FPS AMZN WEBRip DDP5.1 Atmos NVENC - 13.2 GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171908-60fps-varisu-2023-1080p-10bit-ds4k-60fps-amzn-webrip-ddp51-atmos-nvenc-132-gb/&do=findComment&comment=343215)
 - [Rockstar on Hotstar S01E01 DSNP WEB-DL AAC2.0 Esubs x264 - 1080p | 720p - 4.5 GB | 1.9 GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171933-rockstar-on-hotstar-s01e01-dsnp-web-dl-aac20-esubs-x264-1080p-720p-45-gb-19-gb/&do=findComment&comment=343214)
 - [Happy Birthday &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu&rpar; - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.wtf/index.php?/forums/topic/171932-happy-birthday-2023-tamil-true-web-dl-1080p-720p-avc-tamil-telugu-27gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=343213)
-- [Thugs &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.wtf/index.php?/forums/topic/171931-thugs-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343212)
-- [Michael &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.5GB - 2.5GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub &lpar;Direct Download&rpar;](https://www.1tamilmv.wtf/index.php?/forums/topic/171930-michael-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-35gb-25gb-14gb-850mb-x264-700mb-400mb-250mb-esub-direct-download/&do=findComment&comment=343211)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
