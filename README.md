@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Michael &lpar;2023&rpar; Hindi HD - [1080p &amp; 720p - x264 - 2.5GB &amp; 1.3GB| x264 - 700MB &amp; 400MB] - HQ Line Audio](https://www.1tamilmv.wtf/index.php?/forums/topic/171929-michael-2023-hindi-hd-1080p-720p-x264-25gb-13gb-x264-700mb-400mb-hq-line-audio/&do=findComment&comment=343210)
+- [Kranti &lpar;2023&rpar; Hindi HD - [1080p &amp; 720p - x264 - 2.5GB &amp; 1.3GB| x264 - 700MB &amp; 400MB] - HQ Dub](https://www.1tamilmv.wtf/index.php?/forums/topic/171928-kranti-2023-hindi-hd-1080p-720p-x264-25gb-13gb-x264-700mb-400mb-hq-dub/&do=findComment&comment=343209)
+- [Mr. King &lpar;2023&rpar; Telugu Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.wtf/index.php?/forums/topic/171914-mr-king-2023-telugu-proper-hq-predvd-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=343205)
 - [Gaalodu &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil + Telugu + Kannada] - 4GB - 2.9GB - 1.7GB &amp; 950MB] - [x264 - 800MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171923-gaalodu-2023-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-kannada-4gb-29gb-17gb-950mb-x264-800mb-450mb-250mb-esub/&do=findComment&comment=343204)
 - [Thugs &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.wtf/index.php?/forums/topic/171912-thugs-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=343203)
-- [Single Shankarum Smartphone Simranum &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.wtf/index.php?/forums/topic/171911-single-shankarum-smartphone-simranum-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=343202)
-- [LOVE GURU SEASON 2 &lpar;PART 1&rpar; 2023 HINDI ULLU ORIGINALS WEB SERIES HDRIP](https://www.1tamilmv.wtf/index.php?/forums/topic/150918-love-guru-season-2-part-1-2023-hindi-ullu-originals-web-series-hdrip/&do=findComment&comment=343201)
-- [LOVE GURU SEASON 2 &lpar;PART 1&rpar; 2023 HINDI ULLU ORIGINALS WEB SERIES HDRIP](https://www.1tamilmv.wtf/index.php?/forums/topic/150918-love-guru-season-2-part-1-2023-hindi-ullu-originals-web-series-hdrip/&do=findComment&comment=343200)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
