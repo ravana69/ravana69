@@ -32,10 +32,10 @@
 <!-- BLOGPOSTS:START -->
 - [മലയാള സിനിമയിലെ ശ്രവണസുഖമുള്ള വെണ്മതൂകും മനോഹരഗാനങ്ങൾ | NISARI | SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=hNX1R-YDxsQ)
 - [പാട്ടിന്റെ തേരിലേറി പാറി പറക്കാൻ കൊതി തോന്നുന്ന സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=ckzyP0MTEEo)
+- [Mahaveeryar Audio Jukebox | Abrid Shine | Nivin Pauly | Asif Ali | Ishaan Chhabra](https://www.youtube.com/watch?v=NRXliSRMWHY)
 - [MG University Western Solo First Price | Amazing Grace | Keziah James](https://www.youtube.com/watch?v=UPxWm6SoXgA)
 - [Saradha Sandhyakku  | Moorkhan  | B Manikyam  | AT Ummer  |  S Janaki |   KJ Yesudas  |  Sathar](https://www.youtube.com/watch?v=zxIWXlzrZpw)
 - [Oru Kili Paattu Moolave Full Video Song | HD | Vadakkumnadhan Movie Song | REMASTERED |](https://www.youtube.com/watch?v=rWtXBHzVAKc)
-- [Christian Video Songs Malayalam | Manoj Christy | Lent Songs | Valiya Nombu Songs | Midhila](https://www.youtube.com/watch?v=V1QxbaUhk10)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
