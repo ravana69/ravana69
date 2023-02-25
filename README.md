@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [25 February 2023](https://www.youtube.com/watch?v=2a1euY4nUFo)
+- [Kadha Paranjurangiya | Madhuranombarakattu | Vidyasagar | Biju Menon | Samyuktha Varma | Manjima](https://www.youtube.com/watch?v=LqNl_A4_19A)
 - [Christian Superhit Songs | Valiya Nombu Songs | Kester | Peedasahana Ganangal |Joji Johns|Lent Songs](https://www.youtube.com/watch?v=oRDyURAylwg)
 - [Coming Soon - Japame Jayam Devi Japame Jayam | Chottanikkara Devotional Song by Durga Viswanath](https://www.youtube.com/watch?v=YrJtK0_ZFc4)
 - [En Roohin Vaathilil | Neeyum Njanum | Amal Antony | Vinu Thomas | BK Harinarayanan](https://www.youtube.com/watch?v=Fg1RcQGWgDY)
 - [ARIKILUMILLA NEE | Shreya Ghoshal  | East Coast Vijayan | Vijay Karun | Ennennum | Romantic Songs](https://www.youtube.com/watch?v=RwDS1ZXZugs)
-- [നീലവാന ചോലയിൽ HD | Neelavana Cholayil Song | Premabhishekam Movie | Kamal Haasan](https://www.youtube.com/watch?v=PZspdCNWFj0)
-- [Vellara Poomala Mele Video Song | Mohanlal | Revathi | Kaithapram | Johnson | KJ Yesudas](https://www.youtube.com/watch?v=w3KDtIp6oMQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
