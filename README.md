@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [R.I.P.D.2013.BluRay AAC 2.0 Tamil-DDP5.1 Hindi-English 2160p.UHD.MULTi.REMUX.HEVC.&lpar;10bit&rpar;.HDR.DTS-HD.MA.7.1 Msubs 62GB [G-Drive]](https://www.1tamilmv.wtf/index.php?/forums/topic/171936-ripd2013bluray-aac-20-tamil-ddp51-hindi-english-2160puhdmultiremuxhevc10bithdrdts-hdma71-msubs-62gb-g-drive/&do=findComment&comment=343231)
-- [Kalyanam Kamaneeyam &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.2GB - 2.3GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171769-kalyanam-kamaneeyam-2023-telugu-true-web-dl-4k-1080p-720p-avc-dd51-384kbps-32gb-23gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343230)
-- [Thugs &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.wtf/index.php?/forums/topic/171912-thugs-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=343229)
-- [Happy Birthday &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu&rpar; - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.wtf/index.php?/forums/topic/171932-happy-birthday-2023-tamil-true-web-dl-1080p-720p-avc-tamil-telugu-27gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=343228)
-- [Gaalodu &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil + Telugu + Kannada] - 4GB - 2.9GB - 1.7GB &amp; 950MB] - [x264 - 800MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171923-gaalodu-2023-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-kannada-4gb-29gb-17gb-950mb-x264-800mb-450mb-250mb-esub/&do=findComment&comment=343227)
+- [Happy Birthday &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu&rpar; - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.wtf/index.php?/forums/topic/171932-happy-birthday-2023-tamil-true-web-dl-1080p-720p-avc-tamil-telugu-27gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=343237)
+- [Boomerang &lpar;2023&rpar; Malayalam Full Movie Watch Now in HD For Free](https://www.1tamilmv.wtf/index.php?/forums/topic/171940-boomerang-2023-malayalam-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343236)
+- [Pranaya Vilasam &lpar;2023&rpar; Malayalam Full Movie Watch Now in HD For Free](https://www.1tamilmv.wtf/index.php?/forums/topic/171939-pranaya-vilasam-2023-malayalam-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343235)
+- [Ntikkakkakkoru Premondarnn &lpar;2023&rpar; Malayalam Full Movie Watch Now in HD For Free](https://www.1tamilmv.wtf/index.php?/forums/topic/171938-ntikkakkakkoru-premondarnn-2023-malayalam-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343234)
+- [Happy Birthday &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.wtf/index.php?/forums/topic/171937-happy-birthday-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343233)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
