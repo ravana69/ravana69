@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [📌 |4K| - WALTAIR VEERAYYA &lpar;2023&rpar; Telugu &lpar;Music Video Album&rpar; - HQ &lpar;2160P - H265 / 1080P - H264&rpar; - NF - WEBDL - DDP 5.1 @ 640Kbps - ESubs 〰️ [Avatar]](https://www.1tamilmv.wtf/index.php?/forums/topic/171957-%F0%9F%93%8C-4k-waltair-veerayya-2023-telugu-music-video-album-hq-2160p-h265-1080p-h264-nf-webdl-ddp-51-640kbps-esubs-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=343267)
 - [1975 &lpar;2023&rpar; Kannada PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.wtf/index.php?/forums/topic/171919-1975-2023-kannada-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=343266)
 - [Waltair Veerayya &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 14GB - 6.2GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171947-waltair-veerayya-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-14gb-62gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343265)
 - [Maayagadu &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB - 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171954-maayagadu-2023-telugu-true-web-dl-1080p-720p-avc-25gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343264)
 - [📌 |4K| - WALTAIR VEERAYYA &lpar;2023&rpar; Telugu &lpar;Music Video Album&rpar; - HQ &lpar;2160P - H265 / 1080P - H264&rpar; - NF - WEBDL - DDP 5.1 @ 640Kbps - ESubs 〰️ [Avatar]](https://www.1tamilmv.wtf/index.php?/forums/topic/171957-%F0%9F%93%8C-4k-waltair-veerayya-2023-telugu-music-video-album-hq-2160p-h265-1080p-h264-nf-webdl-ddp-51-640kbps-esubs-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=343263)
-- [The Last of Us &lpar;2023&rpar; S01E07 | Left Behind | 1080p x265 HEVC 10bit WEBRip AC3 DDP5.1 Esub | Direct Download](https://www.1tamilmv.wtf/index.php?/forums/topic/171956-the-last-of-us-2023-s01e07-left-behind-1080p-x265-hevc-10bit-webrip-ac3-ddp51-esub-direct-download/&do=findComment&comment=343262)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
