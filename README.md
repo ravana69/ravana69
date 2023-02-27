@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Last of Us S01E07 HMAX WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10] | 1080p | 720p - 7.3 GB | 3.5 GB | 1.6 GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171952-the-last-of-us-s01e07-hmax-web-dl-ddp51-atmos-esubs-2160p-hdr10-1080p-720p-73-gb-35-gb-16-gb/&do=findComment&comment=343258)
+- [Kochadaiiyaan: The Legend &lpar;2014&rpar; Original Score Master Quality 24bit 96kHz - FLAC - A.R. Rahman Musical - 742 MB](https://www.1tamilmv.wtf/index.php?/forums/topic/171951-kochadaiiyaan-the-legend%C2%A02014-original-score-master-quality-24bit-96khz-flac-ar-rahman-musical-742-mb/&do=findComment&comment=343257)
 - [Waltair Veerayya &lpar;2023&rpar; NF WEB-DL DDP5.1 Esubs - 2160p | 1080p | 720p - 14 GB | 6.2 GB | 3.6 GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171950-waltair-veerayya-2023-nf-web-dl-ddp51-esubs-2160p-1080p-720p-14-gb-62-gb-36-gb/&do=findComment&comment=343256)
 - [Waltair Veerayya &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.2GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171947-waltair-veerayya-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-62gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343255)
 - [Waltair Veerayya &lpar;2023&rpar; Telugu HQ HDRip - 1080p - HEVC - &lpar;DD+5.1 - 192Kbps &amp; AAC&rpar; - 1.7GB - ESub - TMV - HIGH SPEED MEDIAFIRE LINK](https://www.1tamilmv.wtf/index.php?/forums/topic/171949-waltair-veerayya-2023-telugu-hq-hdrip-1080p-hevc-dd51-192kbps-aac-17gb-esub-tmv-high-speed-mediafire-link/&do=findComment&comment=343254)
-- [📌 WALTAIR VEERAYYA &lpar;2023&rpar; Telugu &lpar;Music Video Album&rpar; - HQ 1080P - WEBDL - AVC - DDP 5.1 @ 640Kbps - ESUBS - 1GB - FirstOnNET 〰️ [Avatar]](https://www.1tamilmv.wtf/index.php?/forums/topic/171948-%F0%9F%93%8C-waltair-veerayya-2023-telugu-music-video-album-hq-1080p-webdl-avc-ddp-51-640kbps-esubs-1gb-firstonnet-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=343253)
-- [Waltair Veerayya &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.2GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171947-waltair-veerayya-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-62gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343252)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
