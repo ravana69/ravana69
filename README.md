@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [📌 |4K| - WALTAIR VEERAYYA &lpar;2023&rpar; Telugu &lpar;Music Video Album&rpar; - HQ &lpar;2160P - H265 / 1080P - H264&rpar; - NF - WEBDL - DDP 5.1 @ 640Kbps - ESubs 〰️ [Avatar]](https://www.1tamilmv.wtf/index.php?/forums/topic/171957-%F0%9F%93%8C-4k-waltair-veerayya-2023-telugu-music-video-album-hq-2160p-h265-1080p-h264-nf-webdl-ddp-51-640kbps-esubs-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=343263)
 - [The Last of Us &lpar;2023&rpar; S01E07 | Left Behind | 1080p x265 HEVC 10bit WEBRip AC3 DDP5.1 Esub | Direct Download](https://www.1tamilmv.wtf/index.php?/forums/topic/171956-the-last-of-us-2023-s01e07-left-behind-1080p-x265-hevc-10bit-webrip-ac3-ddp51-esub-direct-download/&do=findComment&comment=343262)
 - [Waltair Veerayya &lpar;2023&rpar; Telugu TRUE WEB-DL | 1080p - AVC - UNTOUCHED - 2.9GB | HQ HDRip - 720p - 1.4GB | Esub | Direct Download](https://www.1tamilmv.wtf/index.php?/forums/topic/171955-waltair-veerayya-2023-telugu-true-web-dl-1080p-avc-untouched-29gb-hq-hdrip-720p-14gb-esub-direct-download/&do=findComment&comment=343261)
 - [Maayagadu &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB - 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171954-maayagadu-2023-telugu-true-web-dl-1080p-720p-avc-25gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343260)
 - [Black &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.wtf/index.php?/forums/topic/171953-black-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343259)
-- [The Last of Us S01E07 HMAX WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10] | 1080p | 720p - 7.3 GB | 3.5 GB | 1.6 GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171952-the-last-of-us-s01e07-hmax-web-dl-ddp51-atmos-esubs-2160p-hdr10-1080p-720p-73-gb-35-gb-16-gb/&do=findComment&comment=343258)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
