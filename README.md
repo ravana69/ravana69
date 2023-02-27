@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nadiyil Theerathe | Soothrakkaran | Vijay Yesudas | Wichu Balamurali](https://www.youtube.com/watch?v=51iLo29FK3M)
 - [Thotte Idanenchilonnu | Maarconi Mathaai | Unni Menon | Ala Bala | M Jayachandran | BK Harinarayanan](https://www.youtube.com/watch?v=76UuPQqdShc)
 - [O Bhayee - Making | Dasara (Malayalam)| Nani,Keerthy Suresh| Santhosh Narayanan| Srikanth Odela](https://www.youtube.com/watch?v=58HtmBhGUqg)
 - [MIZHINEER - Video Song | Manal Pakshikal | Mithun Jayaraj | Shanavas Shanu,Santhosh,Anjali](https://www.youtube.com/watch?v=bfM8qnH5eRQ)
 - [Swargam Nammude Kayyil Video Song | Dileep | Vidhu Prathap | Suresh Peters | S Ramesan Nair](https://www.youtube.com/watch?v=CWb4uGzfMdo)
 - [നൊസ്റ്റാൾജിയ പാട്ടാക്കിയ സംഗീത മാന്ത്രികൻ എസ് പി വെങ്കിടേഷിന്റെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ  | SP VENKATESH](https://www.youtube.com/watch?v=judpGs4PU5M)
-- [കാതുകൾ കുളിർക്കെ കേൾക്കാൻ മലയാളത്തിൻറെ പ്രിയവാനമ്പാടിയുടെ പാട്ടുകൾ | KS CHITHRA HITS](https://www.youtube.com/watch?v=Yxv-5KwEFHo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
