@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Instant Death &lpar;2017&rpar; &lpar;UNRATED BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 1.5GB &amp; 850MB | x264 - &lpar;Tamil&rpar; - 400MB]](https://www.1tamilmv.wtf/index.php?/forums/topic/171959-instant-death-2017-unrated-bluray-original-audios-1080p-720p-x264-tamil-eng-15gb-850mb-x264-tamil-400mb/&do=findComment&comment=343274)
+- [Instant Death &lpar;2017&rpar; &lpar;UNRATED BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 1.5GB &amp; 850MB | x264 - &lpar;Tamil&rpar; - 400MB]](https://www.1tamilmv.wtf/index.php?/forums/topic/171959-instant-death-2017-unrated-bluray-original-audios-1080p-720p-x264-tamil-eng-15gb-850mb-x264-tamil-400mb/&do=findComment&comment=343273)
 - [Maayagadu &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB - 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171954-maayagadu-2023-telugu-true-web-dl-1080p-720p-avc-25gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343272)
 - [Black &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171942-black-2023-tamil-true-web-dl-1080p-720p-avc-tamil-telugu-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343271)
 - [Happy Birthday &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu&rpar; - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.wtf/index.php?/forums/topic/171932-happy-birthday-2023-tamil-true-web-dl-1080p-720p-avc-tamil-telugu-27gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=343270)
-- [Gaalodu &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil + Telugu + Kannada] - 4GB - 2.9GB - 1.7GB &amp; 950MB] - [x264 - 800MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171923-gaalodu-2023-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-kannada-4gb-29gb-17gb-950mb-x264-800mb-450mb-250mb-esub/&do=findComment&comment=343269)
-- [Maayagadu &lpar;2023&rpar; Telugu Full Movie Watch Now in HD For Free](https://www.1tamilmv.wtf/index.php?/forums/topic/171958-maayagadu-2023-telugu-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343268)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
