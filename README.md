@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കാതുകൾ കുളിർക്കെ കേൾക്കാൻ മലയാളത്തിൻറെ പ്രിയവാനമ്പാടിയുടെ പാട്ടുകൾ | KS CHITHRA HITS](https://www.youtube.com/watch?v=Yxv-5KwEFHo)
+- [നിത്യ സഹായ മാതാവേ | Kadamattathachan Malayalam Movie Songs | Sherin Peters | Prem Nazir | Sumithra](https://www.youtube.com/watch?v=kGObbkxLcaQ)
+- [Othiri Othiri Snehichupoi | Kattuchembakam | KJ Yesudas | Mohan Sithara | Vinayan | Jayasurya](https://www.youtube.com/watch?v=dDs3aaV2cu8)
 - [Christian Morning Prayer Songs | Sujatha Mohan | Prabhatha Geethangal | Malayalam Christian Songs](https://www.youtube.com/watch?v=lC-gMleggSg)
 - [Dasavatharam | New Lord Vishnu Devotional by P Jayachandran | Harinarayanan B K](https://www.youtube.com/watch?v=o9X-Q20liSw)
 - [Njan Aare Bhayappedum Lyrical Video | Franco | K. A. Abraham | Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=84IyvFogAK8)
-- [26 February 2023](https://www.youtube.com/watch?v=VLK_LRshRps)
-- [Kadaluthandi Nettam Koyyan | Christian Video Song | Ben E Mohan | Sheeja Fernandez | Christian Song](https://www.youtube.com/watch?v=oJRw1LYE6c0)
-- [Dasavatharam | New Lord Vishnu Devotional by P Jayachandran | Harinarayanan B K](https://www.youtube.com/watch?v=EFCm_nH7Bf8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
