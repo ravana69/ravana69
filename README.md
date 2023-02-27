@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Waltair Veerayya &lpar;2023&rpar; Telugu HQ HDRip - 1080p - HEVC - &lpar;DD+5.1 - 192Kbps &amp; AAC&rpar; - 1.7GB - ESub - TMV - HIGH SPEED MEDIAFIRE LINK](https://www.1tamilmv.wtf/index.php?/forums/topic/171949-waltair-veerayya-2023-telugu-hq-hdrip-1080p-hevc-dd51-192kbps-aac-17gb-esub-tmv-high-speed-mediafire-link/&do=findComment&comment=343254)
 - [📌 WALTAIR VEERAYYA &lpar;2023&rpar; Telugu &lpar;Music Video Album&rpar; - HQ 1080P - WEBDL - AVC - DDP 5.1 @ 640Kbps - ESUBS - 1GB - FirstOnNET 〰️ [Avatar]](https://www.1tamilmv.wtf/index.php?/forums/topic/171948-%F0%9F%93%8C-waltair-veerayya-2023-telugu-music-video-album-hq-1080p-webdl-avc-ddp-51-640kbps-esubs-1gb-firstonnet-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=343253)
 - [Waltair Veerayya &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.2GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171947-waltair-veerayya-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-62gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343252)
 - [Waltair Veerayya &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.2GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171947-waltair-veerayya-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-62gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343250)
 - [Happy Birthday &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu&rpar; - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.wtf/index.php?/forums/topic/171932-happy-birthday-2023-tamil-true-web-dl-1080p-720p-avc-tamil-telugu-27gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=343249)
-- [Waltair Veerayya &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.2GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171947-waltair-veerayya-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-62gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343248)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
