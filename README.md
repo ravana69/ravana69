@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Singer Of The Week | Wilson Piravom | Christian Superhit Songs | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=kYHN_UeeIQ4)
 - [27 February 2023](https://www.youtube.com/watch?v=vzFAsMGaWpU)
 - [Christian Superhit Songs | Kester | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=ZMsRLs4KBu4)
 - [Nadiyil Theerathe | Soothrakkaran | Vijay Yesudas | Wichu Balamurali](https://www.youtube.com/watch?v=51iLo29FK3M)
 - [Thotte Idanenchilonnu | Maarconi Mathaai | Unni Menon | Ala Bala | M Jayachandran | BK Harinarayanan](https://www.youtube.com/watch?v=76UuPQqdShc)
 - [O Bhayee - Making | Dasara (Malayalam)| Nani,Keerthy Suresh| Santhosh Narayanan| Srikanth Odela](https://www.youtube.com/watch?v=58HtmBhGUqg)
-- [MIZHINEER - Video Song | Manal Pakshikal | Mithun Jayaraj | Shanavas Shanu,Santhosh,Anjali](https://www.youtube.com/watch?v=bfM8qnH5eRQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
