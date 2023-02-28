@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Anivaaga Poothoren | Neermathalam Poothakalam | KS Harisankar | Sangeeth Vijayan | Anakha Anupama](https://www.youtube.com/watch?v=yj8wJUCJdW4)
+- [എന്നും നിന്നെ പൂജിയ്ക്കാം | Ennum Ninne Poojikkam | Aniyathipravu | Kunchacko Boban | Shalini](https://www.youtube.com/watch?v=NJHX-65tmV0)
+- [Maleyam Video Song | Mohanlal | Nirosha | KS Chithra | Sharreth | Gireesh Puthenchery |Romantic Song](https://www.youtube.com/watch?v=a8dKgsWEABo)
 - [കേട്ടനാൾ മുതൽ മനസിൽ കടന്നു കൂടിയ മലയാളസിനിമയിലെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ  | SUPERHIT MELODY SONGS](https://www.youtube.com/watch?v=bBfdE-QgMJ8)
 - [കോളേജ് ക്യാമ്പസുകളിൽ തരംഗമായി കത്തി [പടർന്ന സൂപ്പർഹിറ്റ് സിനിമാഗാനങ്ങൾ | SUPERHIT COLLEGE HIT SONGS](https://www.youtube.com/watch?v=Pp_ZLxu9Pk4)
 - [Inku Nukarnnurangi - Kaattaruvi (1983) | KJ Yesudas | G Devarajan | Mammootty Songs](https://www.youtube.com/watch?v=x5AnyxN2Quc)
-- [ചാക്കോച്ചന്റെ അടിപൊളി പെർഫോമൻസ് | Raakkuyil Paadi | Video Song | Kunchacko Boban, Meera Jasmine](https://www.youtube.com/watch?v=-BwnR8vfBrg)
-- [Singer Of The Week | Wilson Piravom | Christian Superhit Songs | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=kYHN_UeeIQ4)
-- [27 February 2023](https://www.youtube.com/watch?v=vzFAsMGaWpU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
