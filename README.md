@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Adrishyam &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171963-adrishyam-2022-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=343307)
+- [Instant Death &lpar;2017&rpar; &lpar;UNRATED BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 1.5GB &amp; 850MB | x264 - &lpar;Tamil&rpar; - 400MB]](https://www.1tamilmv.wtf/index.php?/forums/topic/171959-instant-death-2017-unrated-bluray-original-audios-1080p-720p-x264-tamil-eng-15gb-850mb-x264-tamil-400mb/&do=findComment&comment=343306)
+- [Andhagan &lpar;2023&rpar; Tamil [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - Santosh Narayan Musical](https://www.1tamilmv.wtf/index.php?/forums/topic/171966-andhagan-2023-tamil-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-santosh-narayan-musical/&do=findComment&comment=343305)
 - [Guru &lpar;2007&rpar; Tamil Proper TRUE HD - 1080p AVC Untouched - AAC 2.0 - 7.8GB - Direct Download](https://www.1tamilmv.wtf/index.php?/forums/topic/171965-guru-2007-tamil-proper-true-hd-1080p-avc-untouched-aac-20-78gb-direct-download/&do=findComment&comment=343304)
 - [Instant Death &lpar;2017&rpar; &lpar;UNRATED BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 1.5GB &amp; 850MB | x264 - &lpar;Tamil&rpar; - 400MB]](https://www.1tamilmv.wtf/index.php?/forums/topic/171959-instant-death-2017-unrated-bluray-original-audios-1080p-720p-x264-tamil-eng-15gb-850mb-x264-tamil-400mb/&do=findComment&comment=343303)
-- [Geethanjali &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171962-geethanjali-2023-tamil-true-web-dl-1080p-720p-avc-tamil-telugu-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343302)
-- [Adrishyam &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171963-adrishyam-2022-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=343301)
-- [Geethanjali &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171962-geethanjali-2023-tamil-true-web-dl-1080p-720p-avc-tamil-telugu-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343300)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
