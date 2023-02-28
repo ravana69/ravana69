@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [32 Malasana Street &lpar;2020&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Spa&rpar; - 2.5GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171968-32-malasana-street-2020-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-spa-25gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=343312)
 - [32 Malasana Street &lpar;2020&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Spa&rpar; - 2.5GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171968-32-malasana-street-2020-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-spa-25gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=343311)
 - [32 Malasana Street &lpar;2020&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Spa&rpar; - 2.5GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171968-32-malasana-street-2020-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-spa-25gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=343310)
 - [Guru &lpar;2007&rpar; Tamil Proper TRUE HD - 1080p AVC Untouched - AAC 2.0 - 7.8GB - Direct Download](https://www.1tamilmv.wtf/index.php?/forums/topic/171965-guru-2007-tamil-proper-true-hd-1080p-avc-untouched-aac-20-78gb-direct-download/&do=findComment&comment=343309)
 - [📌 SIMHADRI &lpar;2003&rpar; &lpar;Music Video Album&rpar; - 1080P - WEBDL - H264 - DD® 5.1 @ 448Kbps / DTS® 5.1 @ 768Kbps - #DVD SYNC - ESUBS - 2.8GB - FirstOnNET 〰️ [Avatar]](https://www.1tamilmv.wtf/index.php?/forums/topic/171967-%F0%9F%93%8C-simhadri-2003-music-video-album-1080p-webdl-h264-dd%C2%AE-51-448kbps-dts%C2%AE-51-768kbps-dvd-sync-esubs-28gb-firstonnet-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=343308)
-- [Adrishyam &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171963-adrishyam-2022-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=343307)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
