@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ulagam Pirandhadhu Enakkaga &lpar;1990&rpar;.Tamil.1080p.Web-dl.x264.AAC2.0.ESub - 4.3GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171964-ulagam-pirandhadhu-enakkaga-1990tamil1080pweb-dlx264aac20esub-43gb/&do=findComment&comment=343299)
 - [Fast &amp; Furious Collection &lpar;2001-2021&rpar;  2160p 4k 10Bit Bluray Hindi + English x265 First on net[G-Drive]](https://www.1tamilmv.wtf/index.php?/forums/topic/139248-fast-furious-collection-2001-2021-2160p-4k-10bit-bluray-hindi-english-x265-first-on-netg-drive/&do=findComment&comment=343298)
 - [Unstoppable &lpar;2023&rpar; Telugu - S02 EP11 &lpar;Power Finale - Part 2&rpar; - TRUE WEB-DL - [1080p, 720p, 480p - AVC - UNTOUCHED - 1.5GB - 950MB &amp; 450MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171671-unstoppable-2023-telugu-s02-ep11-power-finale-part-2-true-web-dl-1080p-720p-480p-avc-untouched-15gb-950mb-450mb-esub/&do=findComment&comment=343297)
 - [Waltair Veerayya &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 14GB - 6.2GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171947-waltair-veerayya-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-14gb-62gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343296)
 - [Adrishyam &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171963-adrishyam-2022-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=343295)
-- [Geethanjali &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171962-geethanjali-2023-tamil-true-web-dl-1080p-720p-avc-tamil-telugu-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343294)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
