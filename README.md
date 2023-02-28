@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manamariyunnolu | Porinju Mariyam Jose | Vijay Yesudas | Sachin Raj |  Jakes Bejoy | Jyothish T Kasi](https://www.youtube.com/watch?v=y8_ZdlMAGLc)
 - [Anivaaga Poothoren | Neermathalam Poothakalam | KS Harisankar | Sangeeth Vijayan | Anakha Anupama](https://www.youtube.com/watch?v=yj8wJUCJdW4)
 - [എന്നും നിന്നെ പൂജിയ്ക്കാം | Ennum Ninne Poojikkam | Aniyathipravu | Kunchacko Boban | Shalini](https://www.youtube.com/watch?v=NJHX-65tmV0)
 - [Maleyam Video Song | Mohanlal | Nirosha | KS Chithra | Sharreth | Gireesh Puthenchery |Romantic Song](https://www.youtube.com/watch?v=a8dKgsWEABo)
 - [കേട്ടനാൾ മുതൽ മനസിൽ കടന്നു കൂടിയ മലയാളസിനിമയിലെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ  | SUPERHIT MELODY SONGS](https://www.youtube.com/watch?v=bBfdE-QgMJ8)
 - [കോളേജ് ക്യാമ്പസുകളിൽ തരംഗമായി കത്തി [പടർന്ന സൂപ്പർഹിറ്റ് സിനിമാഗാനങ്ങൾ | SUPERHIT COLLEGE HIT SONGS](https://www.youtube.com/watch?v=Pp_ZLxu9Pk4)
-- [Inku Nukarnnurangi - Kaattaruvi (1983) | KJ Yesudas | G Devarajan | Mammootty Songs](https://www.youtube.com/watch?v=x5AnyxN2Quc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
