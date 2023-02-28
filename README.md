@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കനൽ എരിയും എൻ മനസ്സിൽ...](https://www.youtube.com/watch?v=npeDUeQc9fw)
 - [Ente Jeevante Vilayayen | Christian Devotional Songs Malayalam | Alenia | Rajesh Athikayam](https://www.youtube.com/watch?v=gagcCGo5eGw)
 - [Manamariyunnolu | Porinju Mariyam Jose | Vijay Yesudas | Sachin Raj |  Jakes Bejoy | Jyothish T Kasi](https://www.youtube.com/watch?v=y8_ZdlMAGLc)
 - [Anivaaga Poothoren | Neermathalam Poothakalam | KS Harisankar | Sangeeth Vijayan | Anakha Anupama](https://www.youtube.com/watch?v=yj8wJUCJdW4)
 - [എന്നും നിന്നെ പൂജിയ്ക്കാം | Ennum Ninne Poojikkam | Aniyathipravu | Kunchacko Boban | Shalini](https://www.youtube.com/watch?v=NJHX-65tmV0)
 - [Maleyam Video Song | Mohanlal | Nirosha | KS Chithra | Sharreth | Gireesh Puthenchery |Romantic Song](https://www.youtube.com/watch?v=a8dKgsWEABo)
-- [കേട്ടനാൾ മുതൽ മനസിൽ കടന്നു കൂടിയ മലയാളസിനിമയിലെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ  | SUPERHIT MELODY SONGS](https://www.youtube.com/watch?v=bBfdE-QgMJ8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
