@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Natural ⭐ #Nani and Master have created their version of #DhoomDhaamDosthay | #Dasara | #Shorts](https://www.youtube.com/watch?v=5ud1hWEeOrM)
+- [Kurishiloridam Tharumo.....#christiandevotionalsongsmalayalam #kester #wayofthecross #jojijohns](https://www.youtube.com/watch?v=tAdjBLV4nEk)
+- [Krooshin Maravil | Pazhayakala Kristheeya Geethangal | Evergreen Malayalam Nonstop Lent Songs](https://www.youtube.com/watch?v=VvHbvbSZz-U)
+- [Koottilai Kanakkili | Neeyum Njanum | Abhirami Ajay | Vinu Thomas | Dr Rajesh](https://www.youtube.com/watch?v=-DXw6aB0zvQ)
+- [Manassil Valarnnu Video Song | Nedumudi Venu | Shalini | Dileep | Ouseppachan | Bichu Thirumala](https://www.youtube.com/watch?v=0xz-IZC7MOo)
 - [BTS | Partha Mudhal Nodiyil - Teaser | Jojo | Ashish | Vineeth | Hesham | Ashik | Shweta](https://www.youtube.com/watch?v=zlya02VhdXY)
-- [Ee Jaathikkathottam | Thanneer Mathan Dinangal | Soumya Ramakrishnan | Devadutt Bijibal](https://www.youtube.com/watch?v=nMuwv6RUgV0)
-- [തിളങ്ങുന്ന താരങ്ങൾ തകർത്തഭിനയിച്ച ചിത്രങ്ങളിലെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ  | SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=3_KyCG2-CKQ)
-- [അന്തിക്കടപ്പുറത്തൊരോലക്കുടയെടുത്ത് | Evergreen Malayalam Film Song | Chamayam | HD Video Song](https://www.youtube.com/watch?v=eueCDMXxWlc)
-- [Panjarakko Video Song | Solomante Theneechakal | Lal Jose | Vidya Sagar | Vayalar SarathchandraVarma](https://www.youtube.com/watch?v=p_-X2ma7BEY)
-- [ആദ്യം കേട്ടപ്പോൾ മനസിൽ അമ്പുപോൽ തുളച്ചു കയറിയ സിനിമാഗാനങ്ങൾ | NISARI | MALAYALAM SONGS](https://www.youtube.com/watch?v=zOo1IQBQHmQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
