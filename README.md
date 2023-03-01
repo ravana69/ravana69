@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pattanathil Bhootham &lpar;1967&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 2.2GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171970-pattanathil-bhootham-1967tamil480phdtvx264aac20-22gb/&do=findComment&comment=343327)
 - [Ezhumalai &lpar;2002&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB | x264 - 700MB - 400MB]](https://www.1tamilmv.wtf/index.php?/forums/topic/171974-ezhumalai-2002-tamil-true-web-dl-1080p-720p-x264-26gb-14gb-x264-700mb-400mb/&do=findComment&comment=343326)
+- [Made in Bengaluru &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171975-made-in-bengaluru-2022-kannada-true-web-dl-1080p-720p-avc-dd51-192kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=343325)
 - [Ezhumalai &lpar;2002&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB | x264 - 700MB - 400MB]](https://www.1tamilmv.wtf/index.php?/forums/topic/171974-ezhumalai-2002-tamil-true-web-dl-1080p-720p-x264-26gb-14gb-x264-700mb-400mb/&do=findComment&comment=343324)
 - [The Mandalorian S03E01 Chapter 17 DSNP WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR] | 1080p | 720p - 3.4 GB | 1.7 GB | 993 MB](https://www.1tamilmv.wtf/index.php?/forums/topic/171973-the-mandalorian-s03e01-chapter-17-dsnp-web-dl-ddp51-atmos-esubs-2160p-hdr-1080p-720p-34-gb-17-gb-993-mb/&do=findComment&comment=343323)
-- [Unnai Kodu Ennai Tharuven &lpar;2000&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - x264 - 7GB - 2.6GB - 1.4GB | x264 - 700MB - 400MB]](https://www.1tamilmv.wtf/index.php?/forums/topic/171972-unnai-kodu-ennai-tharuven-2000-tamil-true-web-dl-1080p-720p-x264-7gb-26gb-14gb-x264-700mb-400mb/&do=findComment&comment=343322)
-- [Pattanathil Bhootham &lpar;1967&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 2.2GB &lpar;Medifire&rpar;](https://www.1tamilmv.wtf/index.php?/forums/topic/171970-pattanathil-bhootham-1967tamil480phdtvx264aac20-22gb-medifire/&do=findComment&comment=343321)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
