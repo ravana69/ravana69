@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [തിളങ്ങുന്ന താരങ്ങൾ തകർത്തഭിനയിച്ച ചിത്രങ്ങളിലെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ  | SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=3_KyCG2-CKQ)
+- [അന്തിക്കടപ്പുറത്തൊരോലക്കുടയെടുത്ത് | Evergreen Malayalam Film Song | Chamayam | HD Video Song](https://www.youtube.com/watch?v=eueCDMXxWlc)
+- [Panjarakko Video Song | Solomante Theneechakal | Lal Jose | Vidya Sagar | Vayalar SarathchandraVarma](https://www.youtube.com/watch?v=p_-X2ma7BEY)
+- [ആദ്യം കേട്ടപ്പോൾ മനസിൽ അമ്പുപോൽ തുളച്ചു കയറിയ സിനിമാഗാനങ്ങൾ | NISARI | MALAYALAM SONGS](https://www.youtube.com/watch?v=zOo1IQBQHmQ)
 - [Thaaram Vaalkannaadi Nokki  Jayaram , Charmila - Keli](https://www.youtube.com/watch?v=ebhbYACayJQ)
 - [En Nenjoram | Santhosham | Lyrical Video | K S Harisankar | Vinayak Sasikumar| PS Jayhari](https://www.youtube.com/watch?v=LA5PGaAst7s)
-- [Christian Superhit Songs | Benny Pandalam | Christian Songs Malayalam | Biju Narayanan | Joji Johns](https://www.youtube.com/watch?v=studELmVN4c)
-- [Chanchakkam Thenniyum | Johnywalker | Mammootty | Yesudas | S.P.Venkitesh | Jeet Upendra](https://www.youtube.com/watch?v=-oxM1wCROGg)
-- [കനൽ എരിയും എൻ മനസ്സിൽ...](https://www.youtube.com/watch?v=npeDUeQc9fw)
-- [Ente Jeevante Vilayayen | Christian Devotional Songs Malayalam | Alenia | Rajesh Athikayam](https://www.youtube.com/watch?v=gagcCGo5eGw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
