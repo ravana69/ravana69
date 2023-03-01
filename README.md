@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Ezhumalai &lpar;2002&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB | x264 - 700MB - 400MB]](https://www.1tamilmv.wtf/index.php?/forums/topic/171974-ezhumalai-2002-tamil-true-web-dl-1080p-720p-x264-26gb-14gb-x264-700mb-400mb/&do=findComment&comment=343329)
-- [Pattanathil Bhootham &lpar;1967&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 2.2GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171970-pattanathil-bhootham-1967tamil480phdtvx264aac20-22gb/&do=findComment&comment=343328)
-- [Pattanathil Bhootham &lpar;1967&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 2.2GB](https://www.1tamilmv.wtf/index.php?/forums/topic/171970-pattanathil-bhootham-1967tamil480phdtvx264aac20-22gb/&do=findComment&comment=343327)
-- [Ezhumalai &lpar;2002&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB | x264 - 700MB - 400MB]](https://www.1tamilmv.wtf/index.php?/forums/topic/171974-ezhumalai-2002-tamil-true-web-dl-1080p-720p-x264-26gb-14gb-x264-700mb-400mb/&do=findComment&comment=343326)
-- [Made in Bengaluru &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171975-made-in-bengaluru-2022-kannada-true-web-dl-1080p-720p-avc-dd51-192kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=343325)
+- [Made in Bengaluru &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171975-made-in-bengaluru-2022-kannada-true-web-dl-1080p-720p-avc-dd51-192kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=343334)
+- [32 Malasana Street &lpar;2020&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Spa&rpar; - 2.5GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171968-32-malasana-street-2020-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-spa-25gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=343333)
+- [Ezhumalai &lpar;2002&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB | x264 - 700MB - 400MB]](https://www.1tamilmv.wtf/index.php?/forums/topic/171974-ezhumalai-2002-tamil-true-web-dl-1080p-720p-x264-26gb-14gb-x264-700mb-400mb/&do=findComment&comment=343332)
+- [Unnai Kodu Ennai Tharuven &lpar;2000&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - x264 - 7GB - 2.6GB - 1.4GB | x264 - 700MB - 400MB]](https://www.1tamilmv.wtf/index.php?/forums/topic/171972-unnai-kodu-ennai-tharuven-2000-tamil-true-web-dl-1080p-720p-x264-7gb-26gb-14gb-x264-700mb-400mb/&do=findComment&comment=343331)
+- [📌 SIMHADRI &lpar;2003&rpar; &lpar;Music Video Album&rpar; - 1080P - WEBDL - H264 - DD® 5.1 @ 448Kbps / DTS® 5.1 @ 768Kbps - #DVD SYNC - ESUBS - 2.8GB - FirstOnNET 〰️ [Avatar]](https://www.1tamilmv.wtf/index.php?/forums/topic/171967-%F0%9F%93%8C-simhadri-2003-music-video-album-1080p-webdl-h264-dd%C2%AE-51-448kbps-dts%C2%AE-51-768kbps-dvd-sync-esubs-28gb-firstonnet-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=343330)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
