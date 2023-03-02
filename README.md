@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മനം നൊന്ത് പ്രാർത്ഥനയായി പാടുന്ന ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=pe8KgaOEMng)
 - [Ninte Mizhimuna | 4 The People | Jayaraj | Jassie Gift | Jyolsna | Bharath | Gopika](https://www.youtube.com/watch?v=xh9bzds8Exs)
 - [Kurishiloridam Tharumo | Christian Video Song | Kester | Way Of The Cross | Noble Kappalumakkal](https://www.youtube.com/watch?v=cdqOrVwOjdY)
 - [1 March 2023](https://www.youtube.com/watch?v=pUK1uX5x6h4)
 - [Aambale Neelambale - Video Song | Thrayam | Dhyan S, Sunny W | KS Harisankar | Arun Muraleedharan](https://www.youtube.com/watch?v=nBypGcsQZrU)
 - [Natural ⭐ #Nani and Master have created their version of #DhoomDhaamDosthay | #Dasara | #Shorts](https://www.youtube.com/watch?v=5ud1hWEeOrM)
-- [Kurishiloridam Tharumo.....#christiandevotionalsongsmalayalam #kester #wayofthecross #jojijohns](https://www.youtube.com/watch?v=tAdjBLV4nEk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
