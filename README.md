@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [La Koodaram - Video Song | Ntikkakkakkoru Premandaarnnu | Sharaf U Dheen | Bhavana](https://www.youtube.com/watch?v=7bTsr_uoDVg)
+- [Enna Parayanna | Maarconi Mathaai | Ajay Gopal | Bhanu Prakash | Sangeetha Sajith | Nikhil Raj](https://www.youtube.com/watch?v=wyafCWPBkWA)
+- [എന്റെ ഇഷ്ടഗാനങ്ങള്‍ | Hits Of Vidyasagar | Vidyasagar Super Hit Movie Songs |  Video Jukebox | HD |](https://www.youtube.com/watch?v=hnn_n2UxdP0)
+- [Ormakal - Video Song | Momo in Dubai | Aneesh, Anu Sithara | Gafoor M Khayyam | Shahabaz Aman](https://www.youtube.com/watch?v=0jJGMxm69a0)
+- [Muthumanithooval Tharam | Mammootty | KJ Yesudas | Kaithapram | SP Venkitesh](https://www.youtube.com/watch?v=_LdLlh_l1Ds)
 - [ഗുണമേന്മയിൽ മുന്നിട്ട് നിൽക്കുന്ന മലയാളസിനിമയിലെ ഇന്നും മറക്കാത്ത മനോഹര ഗാനങ്ങൾ  | MALAYALAM SONGS](https://www.youtube.com/watch?v=PTWLd7MCusc)
-- [Mama Mama Karayalle | Thuranna Jail | Johnson | Poovachal Khader | Sukumaran | Malayalam Songs](https://www.youtube.com/watch?v=1PbtXeyznJE)
-- [മനം നൊന്ത് പ്രാർത്ഥനയായി പാടുന്ന ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=pe8KgaOEMng)
-- [Ninte Mizhimuna | 4 The People | Jayaraj | Jassie Gift | Jyolsna | Bharath | Gopika](https://www.youtube.com/watch?v=xh9bzds8Exs)
-- [Kurishiloridam Tharumo | Christian Video Song | Kester | Way Of The Cross | Noble Kappalumakkal](https://www.youtube.com/watch?v=cdqOrVwOjdY)
-- [1 March 2023](https://www.youtube.com/watch?v=pUK1uX5x6h4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
