@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ellam Ariyunna | New Christian Video Song | Sheeja Fernandez | Chithra Arun | Christian Melody Song](https://www.youtube.com/watch?v=jMx44nKqoTo)
+- [കൽക്കണ്ടം ചുണ്ടിൽ HIT SONG  | Onnanu Nammal Movie Song | Mammootty | Seema](https://www.youtube.com/watch?v=_-JqnfBewtU)
+- [കൊച്ചുകുട്ടികൾക്കും കാരണവന്മാർക്കും  ഒരുപോലെ ആസ്വദിക്കാൻ കഴിയുന്ന എല്ലാവരുടെയും ഇഷ്ടഗാനങ്ങൾ !](https://www.youtube.com/watch?v=-Ec-23cXM4s)
+- [Thoomazha Pole Nee | Neermathalam Poothakalam | Amritha Jayakumar | Nahoom Abraham | S Chandra](https://www.youtube.com/watch?v=KsAcF8VS34E)
 - [La Koodaram - Video Song | Ntikkakkakkoru Premandaarnnu | Sharaf U Dheen | Bhavana](https://www.youtube.com/watch?v=7bTsr_uoDVg)
 - [Enna Parayanna | Maarconi Mathaai | Ajay Gopal | Bhanu Prakash | Sangeetha Sajith | Nikhil Raj](https://www.youtube.com/watch?v=wyafCWPBkWA)
-- [എന്റെ ഇഷ്ടഗാനങ്ങള്‍ | Hits Of Vidyasagar | Vidyasagar Super Hit Movie Songs |  Video Jukebox | HD |](https://www.youtube.com/watch?v=hnn_n2UxdP0)
-- [Ormakal - Video Song | Momo in Dubai | Aneesh, Anu Sithara | Gafoor M Khayyam | Shahabaz Aman](https://www.youtube.com/watch?v=0jJGMxm69a0)
-- [Muthumanithooval Tharam | Mammootty | KJ Yesudas | Kaithapram | SP Venkitesh](https://www.youtube.com/watch?v=_LdLlh_l1Ds)
-- [ഗുണമേന്മയിൽ മുന്നിട്ട് നിൽക്കുന്ന മലയാളസിനിമയിലെ ഇന്നും മറക്കാത്ത മനോഹര ഗാനങ്ങൾ  | MALAYALAM SONGS](https://www.youtube.com/watch?v=PTWLd7MCusc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
