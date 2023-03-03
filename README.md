@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Bagheera &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.wtf/index.php?/forums/topic/172029-bagheera-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343434)
-- [Varisu &lpar;2023&rpar; Tamil Deleted Scene - The Real Boss](https://www.1tamilmv.wtf/index.php?/forums/topic/172028-varisu-2023-tamil-deleted-scene-the-real-boss/&do=findComment&comment=343433)
-- [Varisu &lpar;2023&rpar; Tamil Deleted Scene - The Real Boss](https://www.1tamilmv.wtf/index.php?/forums/topic/172028-varisu-2023-tamil-deleted-scene-the-real-boss/&do=findComment&comment=343432)
-- [Fall &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.4GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/172013-fall-2022-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-34gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=343431)
-- [The Great Indian Kitchen &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - - [Telugu + Kannada] - 1.2GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/172027-the-great-indian-kitchen-2023-true-web-dl-1080p-720p-avc-telugu-kannada-12gb-900mb-x264-700mb-400mb-200mb-esub/&do=findComment&comment=343430)
+- [Varisu - Deleted Scene - The Real Boss - 1080P &amp; 4K - DD5.1 Upmixed - Cinema Surround 5.1](https://www.1tamilmv.wtf/index.php?/forums/topic/172031-varisu-deleted-scene-the-real-boss-1080p-4k-dd51-upmixed-cinema-surround-51/&do=findComment&comment=343440)
+- [The Great Indian Kitchen &lpar;2023&rpar;.Tamil.1080p.Web-dl.x264.DD5.1 &lpar;Upmixed&rpar; - 1.6GB](https://www.1tamilmv.wtf/index.php?/forums/topic/172030-the-great-indian-kitchen-2023tamil1080pweb-dlx264dd51-upmixed-16gb/&do=findComment&comment=343439)
+- [Pallu Padama Paathuka &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.wtf/index.php?/forums/topic/172017-pallu-padama-paathuka-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=343438)
+- [Fall &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.4GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/172013-fall-2022-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-34gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=343436)
+- [Varisu &lpar;2023&rpar; Tamil Deleted Scene - The Real Boss](https://www.1tamilmv.wtf/index.php?/forums/topic/172028-varisu-2023-tamil-deleted-scene-the-real-boss/&do=findComment&comment=343435)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
