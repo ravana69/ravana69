@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nizhaladum Deepame | Mr.Butler | Dileep | Ruchitha Prasad | Nedumudi Venu | Vidyasagar](https://www.youtube.com/watch?v=bBsmi_cwHP4)
+- [En Naavilaliyaan | Christian Video Song |Cherian Jose |Holy Communion Song |Saju puthenveettil](https://www.youtube.com/watch?v=UO2RKrVZcGM)
 - [Thirike Njaan Varumenna | Arabikkatha | K J Yesudas | Bijibal | Anil Panachooran](https://www.youtube.com/watch?v=icqbU_9S8hc)
 - [Christian Superhit Songs | Kester | Madhu Balakrishnan | Lent Songs Malayalam | Valiya Nombu Songs](https://www.youtube.com/watch?v=UUiAPuvsAQA)
 - [Athirasam | Promo Classical Dance Video | Swathi Thirunal | Dr Padmesh Parasuraman | Balu R Nair](https://www.youtube.com/watch?v=UY8oxnPBF5o)
 - [Athirasam | Promo Classical Dance Video | Swathi Thirunal | Dr Padmesh Parasuraman | Balu R Nair](https://www.youtube.com/watch?v=9L9i01iFmbU)
-- [Innale Njaanoru | Porinju Mariyam Jose | Sunil Kumar | Sethu Thankachen |Balu Thankachen|Jakes Bejoy](https://www.youtube.com/watch?v=Wt1ynozP13s)
-- [Kathirum Kothi | Super Hit Malayalam Song | Man of the Match | Ft.Biju Menon, Vani Viswanath](https://www.youtube.com/watch?v=5NPuEVroNoY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
