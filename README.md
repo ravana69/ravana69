@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Legend &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam] - 5.5GB - 2.8GB - 1.6GB &amp; 1GB] - [x264 - 850MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/172012-the-legend-2023-true-web-dl-1080p-720p-avc-hevc-dd51-atmos-768kbps-tamil-telugu-hindi-malayalam-55gb-28gb-16gb-1gb-x264-850mb-450mb-250mb-esub/&do=findComment&comment=343408)
 - [Iratta &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171991-iratta-2023-malayalam-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343407)
 - [Vasantha Mullai &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171995-vasantha-mullai-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-63gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=343406)
 - [Alone &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171986-alone-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-atmos-768kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=343405)
 - [Fear Of Rain &lpar;2021&rpar; AMZN WEB-DL Multi DDP5.1 Esubs x264 - 1080p | 720p - 5.1 GB | 2.8 GGB](https://www.1tamilmv.wtf/index.php?/forums/topic/171960-fear-of-rain-2021-amzn-web-dl-multi-ddp51-esubs-x264-1080p-720p-51-gb-28-ggb/&do=findComment&comment=343404)
-- [Sex/Life &lpar;2023&rpar; S02 EP&lpar;01-06&rpar; TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 5.3GB - 2.2GB - 600MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171983-sexlife-2023-s02%C2%A0ep01-06-true-web-dl-1080p-720p-480p-avc-dd51-192kbps-tamil-telugu-hindi-eng-53gb-22gb-600mb-esub/&do=findComment&comment=343403)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
