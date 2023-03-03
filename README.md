@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Alone &lpar;2023&rpar; Tamil TRUE WEB-DL - 720p - HQ HEVC - x265 - AAC 2.0 - 600MB - ESub - Direct Download](https://www.1tamilmv.wtf/index.php?/forums/topic/172005-alone-2023-tamil-true-web-dl-720p-hq-hevc-x265-aac-20-600mb-esub-direct-download/&do=findComment&comment=343390)
-- [Alone &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam] - 5.5GB - 2.8GB - 1.6GB &amp; 1GB] - [x264 - 850MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171985-alone-2023-true-web-dl-1080p-720p-avc-hevc-dd51-atmos-768kbps-tamil-telugu-hindi-malayalam-55gb-28gb-16gb-1gb-x264-850mb-450mb-250mb-esub/&do=findComment&comment=343389)
-- [Alone &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam] - 5.5GB - 2.8GB - 1.6GB &amp; 1GB] - [x264 - 850MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171985-alone-2023-true-web-dl-1080p-720p-avc-hevc-dd51-atmos-768kbps-tamil-telugu-hindi-malayalam-55gb-28gb-16gb-1gb-x264-850mb-450mb-250mb-esub/&do=findComment&comment=343388)
-- [Thalaikoothal &lpar;2023&rpar; Tamil TRUE WEB-DL - 720p - HQ HEVC - x265 - AAC 2.0 - 600MB - ESub - Direct Download](https://www.1tamilmv.wtf/index.php?/forums/topic/172004-thalaikoothal-2023-tamil-true-web-dl-720p-hq-hevc-x265-aac-20-600mb-esub-direct-download/&do=findComment&comment=343387)
-- [Aithe 2.0 &lpar;2018&rpar; Telugu AHA WEB-DL – [4K-2160p, 1080p, 720p, 480p, 360p] – HEVC/AVC – [DD+5.1 – 384kbps &amp; AAC2.0] – Esubs](https://www.1tamilmv.wtf/index.php?/forums/topic/172003-aithe-20-2018-telugu-aha-web-dl-%E2%80%93-4k-2160p-1080p-720p-480p-360p-%E2%80%93-hevcavc-%E2%80%93-dd51-%E2%80%93-384kbps-aac20-%E2%80%93-esubs/&do=findComment&comment=343386)
+- [Vasantha Mullai &lpar;2023&rpar; Tamil TRUE WEB-DL - 720p - HQ HEVC - x265 - AAC 2.0 - 800MB - ESub - Direct Download](https://www.1tamilmv.wtf/index.php?/forums/topic/172010-vasantha-mullai-2023-tamil-true-web-dl-720p-hq-hevc-x265-aac-20-800mb-esub-direct-download/&do=findComment&comment=343395)
+- [Vasantha Mullai &lpar;2023&rpar; AMZN WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 6.2 GB | 1.5 GB](https://www.1tamilmv.wtf/index.php?/forums/topic/172009-vasantha-mullai-2023-amzn-web-dl-ddp51-esubs-x264-1080p-720p-62-gb-15-gb/&do=findComment&comment=343394)
+- [Laththi &lpar;2022&rpar; Original Soundtrack Master Quality 24bit - FLAC - Yuvan Shankar Raja Musical - 242 MB](https://www.1tamilmv.wtf/index.php?/forums/topic/172008-laththi-2022-original-soundtrack-master-quality-24bit-flac-yuvan-shankar-raja-musical-242-mb/&do=findComment&comment=343393)
+- [Thalaikoothal &lpar;2023&rpar; NF WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 5.5 GB | 1.2 GB](https://www.1tamilmv.wtf/index.php?/forums/topic/172007-thalaikoothal-2023-nf-web-dl-ddp51-esubs-x264-1080p-720p-55-gb-12-gb/&do=findComment&comment=343392)
+- [Alone &lpar;2023&rpar; DSNP WEB-DL Multi DDP5.1 Atmos Esubs x264 - 1080p | 720p - 5 .2 GB | 3.7 GB](https://www.1tamilmv.wtf/index.php?/forums/topic/172006-alone-2023-dsnp-web-dl-multi-ddp51-atmos-esubs-x264-1080p-720p-5-2-gb-37-gb/&do=findComment&comment=343391)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
