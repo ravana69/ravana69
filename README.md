@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Innale Njaanoru | Porinju Mariyam Jose | Sunil Kumar | Sethu Thankachen |Balu Thankachen|Jakes Bejoy](https://www.youtube.com/watch?v=Wt1ynozP13s)
+- [Kathirum Kothi | Super Hit Malayalam Song | Man of the Match | Ft.Biju Menon, Vani Viswanath](https://www.youtube.com/watch?v=5NPuEVroNoY)
+- [Enthu Vidhiyithu | Thanneer Mathan Dinangal | Vidyadharan | Justin Varghese | Suhail Koya](https://www.youtube.com/watch?v=V5edPsBBmhI)
+- [Paikurumbiye Meykkum Video Song | Dileep | Meera Jasmine  | Vidyasagar | Sujatha Mohan | Balram Iyer](https://www.youtube.com/watch?v=US2qO1RJGlQ)
+- [പ്രണയവസന്തം തളിരണിയുമ്പോൾ | Njan Ekananu | Malayalam Film Shots](https://www.youtube.com/watch?v=o1gZtKqAguk)
 - [പത്തിൽ പത്തും നല്ലതെന്ന് നിസംശയം പറയാൻ കഴിവുള്ള മനോഹര ഗാനങ്ങൾ  | MALAYALAM SUPERHIT SONGS](https://www.youtube.com/watch?v=Yag1o7S_GCE)
-- [മെലഡിയുടെ അപാരത | Melody Songs Malayalam | Old Melody Hits | Nisari Music | Malayalam Songs](https://www.youtube.com/watch?v=b4K65yn0Ezw)
-- [Humans of Pookkaalam | Vijayaraghavan, KPAC Leela, Basil Joseph, Vineeth Sreenivasan | Ganesh Raj](https://www.youtube.com/watch?v=47uWE-CvLT4)
-- [Panineer Poovin - Lyrical Video | Bhagavan | Mohanlal](https://www.youtube.com/watch?v=KJ8B72kGhHY)
-- [Songs Of The Week | Shine Kumar | KG Markose | Christian Melody Songs | Peedanubhava Ganangal](https://www.youtube.com/watch?v=1TJ2-iqi7G4)
-- [2 March 2023](https://www.youtube.com/watch?v=7t38bHvVeeo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
