@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Plan B &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB - 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/172043-plan-b-2023-telugu-true-web-dl-1080p-720p-avc-25gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343481)
 - [Guru &lpar;2007&rpar; Tamil Proper TRUE HD - 1080p AVC Untouched - AAC 2.0 - 7.8GB - Direct Download](https://www.1tamilmv.wtf/index.php?/forums/topic/171965-guru-2007-tamil-proper-true-hd-1080p-avc-untouched-aac-20-78gb-direct-download/&do=findComment&comment=343480)
 - [Plan B &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB - 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/172043-plan-b-2023-telugu-true-web-dl-1080p-720p-avc-25gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343479)
 - [📌 SIMHADRI &lpar;2003&rpar; &lpar;Music Video Album&rpar; - 1080P - WEBDL - H264 - DD® 5.1 @ 448Kbps / DTS® 5.1 @ 768Kbps - #DVD SYNC - ESUBS - 2.8GB - FirstOnNET 〰️ [Avatar]](https://www.1tamilmv.wtf/index.php?/forums/topic/171967-%F0%9F%93%8C-simhadri-2003-music-video-album-1080p-webdl-h264-dd%C2%AE-51-448kbps-dts%C2%AE-51-768kbps-dvd-sync-esubs-28gb-firstonnet-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=343478)
 - [Shree &lpar;2002&rpar;.Tamil.1080p.Web-dl.x264.AAC2.0 - 4.3GB - USERDRIVE](https://www.1tamilmv.wtf/index.php?/forums/topic/109812-shree-2002tamil1080pweb-dlx264aac20-43gb-userdrive/&do=findComment&comment=343477)
-- [120 Tamil Movies - 1080p - HDRip / HDTVRip / WEB DL - H265/H264 - DD5.1 / AAC5.1 / AAC2.0 - ESub - 175GB [Gdrive]](https://www.1tamilmv.wtf/index.php?/forums/topic/166773-120-tamil-movies-1080p-hdrip-hdtvrip-web-dl-h265h264-dd51-aac51-aac20-esub-175gb-gdrive/&do=findComment&comment=343476)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
