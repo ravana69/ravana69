@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Kidugu &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.2GB - 900MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.wtf/index.php?/forums/topic/172041-kidugu-2022-tamil-true-web-dl-1080p-720p-avc-12gb-900mb-x264-700mb-400mb-250mb/&do=findComment&comment=343473)
+- [Fall &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.4GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/172013-fall-2022-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-34gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=343475)
+- [Kidugu &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.8GB - 900MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.wtf/index.php?/forums/topic/172041-kidugu-2022-tamil-true-web-dl-1080p-720p-avc-18gb-900mb-x264-700mb-400mb-250mb/&do=findComment&comment=343473)
 - [Butta Bomma &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/172035-butta-bomma-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-5gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343472)
 - [InCar &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.wtf/index.php?/forums/topic/172021-incar-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=343471)
 - [Butta Bomma &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/172035-butta-bomma-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-5gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343470)
-- [The Legend &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 10GB - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171987-the-legend-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-10gb-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343469)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
