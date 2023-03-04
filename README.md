@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Bagheera &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.wtf/index.php?/forums/topic/172015-bagheera-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=343465)
+- [Butta Bomma &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/172035-butta-bomma-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-5gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343464)
 - [120 Tamil Movies - 1080p - HDRip / HDTVRip / WEB DL - H265/H264 - DD5.1 / AAC5.1 / AAC2.0 - ESub - 175GB [Gdrive]](https://www.1tamilmv.wtf/index.php?/forums/topic/166773-120-tamil-movies-1080p-hdrip-hdtvrip-web-dl-h265h264-dd51-aac51-aac20-esub-175gb-gdrive/&do=findComment&comment=343463)
 - [45 Tamil Movies - Tamil - AMZN/SS/SUN NXT/TK/ HDTV - H264/H265 - DDP5.1/DD5.1/AAC2.0 - [2160p, 1080p &amp; 720p - 300GB] [GDRIVE]](https://www.1tamilmv.wtf/index.php?/forums/topic/168867-45-tamil-movies-tamil-amznsssun-nxttk-hdtv-h264h265-ddp51dd51aac20-2160p-1080p-720p-300gb-gdrive/&do=findComment&comment=343462)
 - [Vasantha Mullai &lpar;2023&rpar; AMZN WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 6.2 GB | 1.5 GB](https://www.1tamilmv.wtf/index.php?/forums/topic/172009-vasantha-mullai-2023-amzn-web-dl-ddp51-esubs-x264-1080p-720p-62-gb-15-gb/&do=findComment&comment=343461)
-- [The Legend &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 10GB - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171987-the-legend-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-10gb-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343460)
-- [Butta Bomma &lpar;2023&rpar; 1080p NF WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 4.4 GB | 1.2 GB](https://www.1tamilmv.wtf/index.php?/forums/topic/172039-butta-bomma-2023-1080p-nf-web-dl-ddp51-esubs-x264-1080p-720p-44-gb-12-gb/&do=findComment&comment=343459)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
