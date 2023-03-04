@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Santhosham | Success Teaser | Ajith V Thomas | Anu Sithara | Amith Chakkalakkal | Kalabhavan Shajon](https://www.youtube.com/watch?v=1rlBD5U7i_k)
-- [കിഴക്കുപൂക്കും - Kizhakkupookkum | Karaoke With Lyrics | Anwar | Gopi Sunder | Rafeeq Ahammad](https://www.youtube.com/watch?v=ZPyfK13-sF4)
-- [Shwasame | Santhosham |Karaoke Video| K S Harisankar | Nithya Mammen | Vinayak Sasikumar| PS Jayhari](https://www.youtube.com/watch?v=6rBfEH_mzck)
-- [en chayayil njan |എൻ ഛായയിൽ ഞാൻ |OWN MEDIA MUSIC|](https://www.youtube.com/watch?v=hzTXWlFlHQ4)
-- [Christian Video Songs Malayalam | KG Markose | Rithuraj | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=QynPDuhlIIs)
-- [എൻ ഛായയിൽ ഞാൻ  വാർത്തെടുത്തെൻ പ്രിയ മകനെ...](https://www.youtube.com/watch?v=8_CmoVt4ddo)
+- [Athirasam | Promo Classical Dance Video | Swathi Thirunal | Dr Padmesh Parasuraman | Balu R Nair](https://www.youtube.com/watch?v=TfjYWLBBPP8)
+- [Paathiraavinum Mounamo | Maarconi Mathaai | Shreya Ghoshal | Yazin Nizar | M Jayachandran](https://www.youtube.com/watch?v=14ABMs1QGTg)
+- [Kallanum Bhagavathiyum | MAKING VIDEO | East Coast Vijayan | Vishnu Unnikrishnan | Anusree | Mokksha](https://www.youtube.com/watch?v=SpeLk1xssGY)
+- [Alarunna Thiramalakalkappuram....#kester #sajansurya #christianvideosong #eastersongs #jojijohns](https://www.youtube.com/watch?v=xLhK92xftiE)
+- [Minnaminunge Ninne Thiranju Video Song | Navya Nair | Bhavana | Rimi Tomy | Gireesh Puthenchery](https://www.youtube.com/watch?v=TqiI9OStbzQ)
+- [Manja Veyil Lyrical Video | Etham | Praveen Chandran Moodadi | Premkumar Vatakara | Sivadas Purameri](https://www.youtube.com/watch?v=YWu7Zz8LU_Y)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
