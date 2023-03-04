@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Shwasame | Santhosham |Karaoke Video| K S Harisankar | Nithya Mammen | Vinayak Sasikumar| PS Jayhari](https://www.youtube.com/watch?v=6rBfEH_mzck)
 - [en chayayil njan |എൻ ഛായയിൽ ഞാൻ |OWN MEDIA MUSIC|](https://www.youtube.com/watch?v=hzTXWlFlHQ4)
 - [Christian Video Songs Malayalam | KG Markose | Rithuraj | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=QynPDuhlIIs)
 - [എൻ ഛായയിൽ ഞാൻ  വാർത്തെടുത്തെൻ പ്രിയ മകനെ...](https://www.youtube.com/watch?v=8_CmoVt4ddo)
 - [Nizhaladum Deepame | Mr.Butler | Dileep | Ruchitha Prasad | Nedumudi Venu | Vidyasagar](https://www.youtube.com/watch?v=bBsmi_cwHP4)
 - [En Naavilaliyaan | Christian Video Song |Cherian Jose |Holy Communion Song |Saju puthenveettil](https://www.youtube.com/watch?v=UO2RKrVZcGM)
-- [Thirike Njaan Varumenna | Arabikkatha | K J Yesudas | Bijibal | Anil Panachooran](https://www.youtube.com/watch?v=icqbU_9S8hc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
