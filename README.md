@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഏവരുടെയും ഇഷ്ടഗാനങ്ങളുടെ ലിസ്റ്റിൽ പതിഞ്ഞു പോയ മലയാളസിനിമയിലെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | NISARI HITS](https://www.youtube.com/watch?v=tncokptonz0)
+- [Alarunna Thiramalakalkappuram |Christian Video Song |Kester |Joby Kavalam | Sajan Surya |Easter Song](https://www.youtube.com/watch?v=OEq3YMbiHCM)
+- [മലയാളസിനിമ ചരിത്രത്തിലെ നാഴികക്കല്ലായ സൂപ്പർഹിറ്റ് സിനിമാഗാനങ്ങൾ  | SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=LhSBkb2gd4g)
+- [Thathamma Penninu Kalayanam | Thuranna Jail | Poovachal Khader | Johnson | JM Raju | Sathar](https://www.youtube.com/watch?v=4NBfHbfdmRQ)
 - [Athirasam | Promo Classical Dance Video | Swathi Thirunal | Dr Padmesh Parasuraman | Balu R Nair](https://www.youtube.com/watch?v=TfjYWLBBPP8)
 - [Paathiraavinum Mounamo | Maarconi Mathaai | Shreya Ghoshal | Yazin Nizar | M Jayachandran](https://www.youtube.com/watch?v=14ABMs1QGTg)
-- [Kallanum Bhagavathiyum | MAKING VIDEO | East Coast Vijayan | Vishnu Unnikrishnan | Anusree | Mokksha](https://www.youtube.com/watch?v=SpeLk1xssGY)
-- [Alarunna Thiramalakalkappuram....#kester #sajansurya #christianvideosong #eastersongs #jojijohns](https://www.youtube.com/watch?v=xLhK92xftiE)
-- [Minnaminunge Ninne Thiranju Video Song | Navya Nair | Bhavana | Rimi Tomy | Gireesh Puthenchery](https://www.youtube.com/watch?v=TqiI9OStbzQ)
-- [Manja Veyil Lyrical Video | Etham | Praveen Chandran Moodadi | Premkumar Vatakara | Sivadas Purameri](https://www.youtube.com/watch?v=YWu7Zz8LU_Y)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
