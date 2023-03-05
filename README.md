@@ -24,8 +24,8 @@
 - [📌 |4K| - THE LEGEND &lpar;2023&rpar; &lpar;Music Video Album&rpar; - 2160P - DSNP - WEBDL - #TAM DDP 5.1 @ 192K - ESubs - 3GB](https://www.1tamilmv.wtf/index.php?/forums/topic/172044-%F0%9F%93%8C-4k-the-legend-2023-music-video-album-2160p-dsnp-webdl-tam-ddp-51-192k-esubs-3gb/&do=findComment&comment=343484)
 - [Pretham 2 &lpar;2022&rpar; Tamil &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC &amp; HEVC - 2.5GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/160203-pretham-2-2022-tamil-original-version-true-web-dl-1080p-720p-avc-hevc-25gb-13gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343483)
 - [📌 |4K| - THE LEGEND &lpar;2023&rpar; &lpar;Music Video Album&rpar; - 2160P - DSNP - WEBDL - #TAM DDP 5.1 @ 192K - ESubs - 3GB](https://www.1tamilmv.wtf/index.php?/forums/topic/172044-%F0%9F%93%8C-4k-the-legend-2023-music-video-album-2160p-dsnp-webdl-tam-ddp-51-192k-esubs-3gb/&do=findComment&comment=343482)
-- [Plan B &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB - 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/172043-plan-b-2023-telugu-true-web-dl-1080p-720p-avc-25gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343481)
 - [Guru &lpar;2007&rpar; Tamil Proper TRUE HD - 1080p AVC Untouched - AAC 2.0 - 7.8GB - Direct Download](https://www.1tamilmv.wtf/index.php?/forums/topic/171965-guru-2007-tamil-proper-true-hd-1080p-avc-untouched-aac-20-78gb-direct-download/&do=findComment&comment=343480)
+- [Plan B &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB - 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/172043-plan-b-2023-telugu-true-web-dl-1080p-720p-avc-25gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343479)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
