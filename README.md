@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Syama Varna Roopini | Thanneer Mathan Dinangal | Pradeep Palluruthy | Akshay Raj | Sruthikanth M T](https://www.youtube.com/watch?v=Ace9R0aSLLo)
 - [Athirasam | Promo Classical Dance Video | Swathi Thirunal | Dr Padmesh Parasuraman | Balu R Nair](https://www.youtube.com/watch?v=oOX3kBmvPr0)
 - [ഹൃദയങ്ങളിൽ ദൈവകരസ്പർശം നൽകിയ മനോഹര ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Kester](https://www.youtube.com/watch?v=LoEBD7_jiic)
 - [നീ.. മാന്യനായിടുവാൻ...](https://www.youtube.com/watch?v=l502ZtpaRZ4)
 - [Thula Minnal | Sarkar Dada | Jayaram | Navya Nair | Sujatha Mohan | M Jayachandran](https://www.youtube.com/watch?v=8ZgBY3U_RQM)
 - [ഏവരുടെയും ഇഷ്ടഗാനങ്ങളുടെ ലിസ്റ്റിൽ പതിഞ്ഞു പോയ മലയാളസിനിമയിലെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | NISARI HITS](https://www.youtube.com/watch?v=tncokptonz0)
-- [Alarunna Thiramalakalkappuram |Christian Video Song |Kester |Joby Kavalam | Sajan Surya |Easter Song](https://www.youtube.com/watch?v=OEq3YMbiHCM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
