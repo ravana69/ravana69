@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളസിനിമ കണ്ട സംഗീത പ്രതിഭകൾ മാറ്റുരക്കുന്ന സൂപ്പർഹിറ്റ് മലയാള സിനിമാഗാനങ്ങൾ](https://www.youtube.com/watch?v=jZVdGH8Tuw8)
 - [Tharakamalarukal | Video Song | Arabikkatha | Sreenivasan | Zhang Chu Min | Indrajith | Jayasurya](https://www.youtube.com/watch?v=WEItAo8ul2I)
 - [പ്രണയിക്കുന്നവർക്കും പ്രണയം മനസ്സിൽ സൂക്ഷിക്കുന്നവർക്കും കേൾക്കാനായി സൂപ്പർഹിറ്റ്  പ്രണയഗാനങ്ങൾ !](https://www.youtube.com/watch?v=JdQIQJ20ih8)
 - [Athirasam | Promo Classical Dance Video | Swathi Thirunal | Dr Padmesh Parasuraman | Balu R Nair](https://www.youtube.com/watch?v=i-_4XXKOC0k)
 - [Paadeedum Njan Ekkalathum | Celin Shoji | Dr. Jomol Mariam Thomas](https://www.youtube.com/watch?v=wlunccd0ga8)
 - [5 March 2023](https://www.youtube.com/watch?v=gP95U8TRJ6Y)
-- [Azhakiya Ponmaalayil | Run Baby Run | Mohanlal | Amala Paul | Joshy | Biju Menon](https://www.youtube.com/watch?v=--XWVQS8GyQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
