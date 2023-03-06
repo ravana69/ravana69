@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [📌 ANEGAN &lpar;2014&rpar; &lpar;Music Video Album&rpar; - 1080P - iTUNES - WEBDL - DD 5.1 @ 384K - 1.2GB  〰️ [avatar]](https://www.1tamilmv.tips/index.php?/forums/topic/172068-%F0%9F%93%8C-anegan-2014-music-video-album-1080p-itunes-webdl-dd-51-384k-12gb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=343537)
+- [Taj &lpar;2023&rpar; Complete S01 Merged HQ HDRip - 1080p -720p - 480p - x264 - [Telugu + Tamil + Hindi] - &lpar;DD+5.1 - 192Kbps&rpar; - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172067-taj-2023-complete-s01-merged-hq-hdrip-1080p-720p-480p-x264-telugu-tamil-hindi-dd51-192kbps-esub/&do=findComment&comment=343536)
 - [Sex Education Complete S01 - S01 Merged 720p WEB-DL &lpar;Hindi - 5.1 - English&rpar; x264 - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172066-sex-education-complete-s01-s01-merged-720p-web-dl-hindi-51-english-x264-esub/&do=findComment&comment=343535)
 - [Velugu &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172065-velugu-2022-telugu-true-web-dl-1080p-720p-avc-aac-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343534)
 - [Richie Gadi Pelli &lpar;2023&rpar; Telugu Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.tips/index.php?/forums/topic/172046-richie-gadi-pelli-2023-telugu-proper-hq-predvd-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=343533)
-- [Atharintiki Daaredi &lpar;2013&rpar; Telugu Bluray – [1080p, 720p, 576p, 480p] – AVC/HEVC – [DTS_HDMA + DTS + DD_5.1 – 448kbps] – Esubs](https://www.1tamilmv.tips/index.php?/forums/topic/172064-atharintiki-daaredi-2013-telugu-bluray-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avchevc-%E2%80%93-dts_hdma-dts-dd_51-%E2%80%93-448kbps-%E2%80%93-esubs/&do=findComment&comment=343532)
-- [Daisy Jones &amp; The Six &lpar;2023&rpar; S01 EP&lpar;01-03&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tam + Tel + Hin + Mal + Kan] - 4GB - 2GB - 1GB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172059-daisy-jones-the-six-2023-s01-ep01-03-true-web-dl-1080p-720p-avc-dd51-640kbps-tam-tel-hin-mal-kan-4gb-2gb-1gb-esub/&do=findComment&comment=343531)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
