@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Chennai Express &lpar;2013&rpar; [HQ Blu-Ray - [1080p - 720p &amp; 360p - x264 - &lpar;Multi Audios: Tam+ Tel + Mal + Hin] - 9.1GB - 2.7GB - 1.4GB &amp; 500MB - ESub] GDRIVE - BY TMV HDCODERS](https://www.1tamilmv.wtf/index.php?/forums/topic/135477-chennai-express-2013-hq-blu-ray-1080p-720p-360p-x264-multi-audios-tam-tel-mal-hin-91gb-27gb-14gb-500mb-esub-gdrive-by-tmv-hdcoders/&do=findComment&comment=343497)
-- [Thalaikoothal &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.2GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/171989-thalaikoothal-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-52gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=343496)
-- [Kidugu &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.8GB - 900MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.wtf/index.php?/forums/topic/172041-kidugu-2022-tamil-true-web-dl-1080p-720p-avc-18gb-900mb-x264-700mb-400mb-250mb/&do=findComment&comment=343495)
-- [Grandhalayam &lpar;2023&rpar; Telugu Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.wtf/index.php?/forums/topic/172047-grandhalayam-2023-telugu-proper-hq-predvd-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=343493)
-- [Richie Gadi Pelli &lpar;2023&rpar; Telugu Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.wtf/index.php?/forums/topic/172046-richie-gadi-pelli-2023-telugu-proper-hq-predvd-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=343492)
+- [Pakalum Pathiravum &lpar;2023&rpar; Malayalam Full Movie Watch Now in HD For Free](https://www.1tamilmv.wtf/index.php?/forums/topic/172055-pakalum-pathiravum-2023-malayalam-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343504)
+- [The Great Indian Kitchen &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.wtf/index.php?/forums/topic/172054-the-great-indian-kitchen-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343503)
+- [Butta Bomma &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.wtf/index.php?/forums/topic/172053-butta-bomma-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343502)
+- [Kidugu &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.wtf/index.php?/forums/topic/172052-kidugu-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343501)
+- [InCar &lpar;2023&rpar; [Tamil + Malayalam] Full Movie Watch Now in HD For Free](https://www.1tamilmv.wtf/index.php?/forums/topic/172051-incar-2023-tamil-malayalam-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343500)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
