@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Panthu Thiriyanu | Thanneer Mathan Dinangal | Vineeth Sreenivasan | Justin Varghese | Suhail Koya](https://www.youtube.com/watch?v=molUh4EoPEc)
 - [Ithentho Ithentho | Maarconi Mathaai | KS Harisankar | M Jayachandran | BK Harinarayanan](https://www.youtube.com/watch?v=b8BNwt2juec)
 - [Ente Manassiloru Naanam Video Song | Shobana | Nedumudi Venu| Mohanlal |MG Sreekumar | Sujatha Mohan](https://www.youtube.com/watch?v=kKYeTfhZ9hY)
 - [Pala Palaa Minnerunne - Song Promo| Dasara (Malayalam)| Nani,Keerthy Suresh| Santhosh Narayanan](https://www.youtube.com/watch?v=-_G3WrFUZ8k)
 - [മലയാളസിനിമ കണ്ട സംഗീത പ്രതിഭകൾ മാറ്റുരക്കുന്ന സൂപ്പർഹിറ്റ് മലയാള സിനിമാഗാനങ്ങൾ](https://www.youtube.com/watch?v=jZVdGH8Tuw8)
 - [Tholkkan Manassilla Lyric Video | Khali Purse Of Billionaires | Dhyan Sreenivasan | Joslee Lonely](https://www.youtube.com/watch?v=h1mT_i99f9M)
-- [Tharakamalarukal | Video Song | Arabikkatha | Sreenivasan | Zhang Chu Min | Indrajith | Jayasurya](https://www.youtube.com/watch?v=WEItAo8ul2I)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
