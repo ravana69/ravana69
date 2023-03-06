@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Léon The Professional &lpar;1996&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 2.2GB &amp; 1GB | x264 - &lpar;Tam + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/172056-l%C3%A9on-the-professional-1996-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-22gb-1gb-x264-tam-hin-450mb-esub/&do=findComment&comment=343510)
 - [[60FPS] Fall &lpar;2022&rpar; 1080p 10bit BluRay Multi DDP5.1-ENG.DDP5.1 Atmos Esubs x265 HEVC - 8.68 GB](https://www.1tamilmv.wtf/index.php?/forums/topic/172058-60fps-fall-2022-1080p-10bit-bluray-multi-ddp51-engddp51-atmos-esubs-x265-hevc-868-gb/&do=findComment&comment=343509)
-- [Léon The Professional &lpar;1996&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 2.2GB &amp; 1GB | x264 - &lpar;Tam + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/172056-l%C3%A9on-the-professional-1996-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-22gb-1gb-x264-tam-hin-450mb-esub/&do=findComment&comment=343508)
-- [Léon The Professional &lpar;1996&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 2.2GB &amp; 1GB | x264 - &lpar;Tam + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/172056-l%C3%A9on-the-professional-1996-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-22gb-1gb-x264-tam-hin-450mb-esub/&do=findComment&comment=343507)
 - [The Last of Us S01E08 HMAX WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR] | 1080p | 720p - 6.6 GB | 3.2 GB | 1.5 GB](https://www.1tamilmv.wtf/index.php?/forums/topic/172057-the-last-of-us-s01e08-hmax-web-dl-ddp51-atmos-esubs-2160p-hdr-1080p-720p-66-gb-32-gb-15-gb/&do=findComment&comment=343506)
 - [Léon The Professional &lpar;1996&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 2.2GB &amp; 1GB | x264 - &lpar;Tam + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.wtf/index.php?/forums/topic/172056-l%C3%A9on-the-professional-1996-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-22gb-1gb-x264-tam-hin-450mb-esub/&do=findComment&comment=343505)
+- [Pakalum Pathiravum &lpar;2023&rpar; Malayalam Full Movie Watch Now in HD For Free](https://www.1tamilmv.wtf/index.php?/forums/topic/172055-pakalum-pathiravum-2023-malayalam-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343504)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
