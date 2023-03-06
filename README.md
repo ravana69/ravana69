@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Richie Gadi Pelli &lpar;2023&rpar; Telugu Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.tips/index.php?/forums/topic/172046-richie-gadi-pelli-2023-telugu-proper-hq-predvd-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=343533)
 - [Atharintiki Daaredi &lpar;2013&rpar; Telugu Bluray – [1080p, 720p, 576p, 480p] – AVC/HEVC – [DTS_HDMA + DTS + DD_5.1 – 448kbps] – Esubs](https://www.1tamilmv.tips/index.php?/forums/topic/172064-atharintiki-daaredi-2013-telugu-bluray-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avchevc-%E2%80%93-dts_hdma-dts-dd_51-%E2%80%93-448kbps-%E2%80%93-esubs/&do=findComment&comment=343532)
 - [Daisy Jones &amp; The Six &lpar;2023&rpar; S01 EP&lpar;01-03&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tam + Tel + Hin + Mal + Kan] - 4GB - 2GB - 1GB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172059-daisy-jones-the-six-2023-s01-ep01-03-true-web-dl-1080p-720p-avc-dd51-640kbps-tam-tel-hin-mal-kan-4gb-2gb-1gb-esub/&do=findComment&comment=343531)
 - [Vikrant Rona &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.8GB - 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172061-vikrant-rona-2022-malayalam-true-web-dl-1080p-720p-avc-dd51-384kbps-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343530)
 - [Daisy Jones &amp; The Six &lpar;2023&rpar; S01 EP&lpar;01-03&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tam + Tel + Hin + Mal + Kan] - 4GB - 2GB - 1GB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172059-daisy-jones-the-six-2023-s01-ep01-03-true-web-dl-1080p-720p-avc-dd51-640kbps-tam-tel-hin-mal-kan-4gb-2gb-1gb-esub/&do=findComment&comment=343529)
-- [Kuru Kuru &lpar;From &quot;Kannai Nambathey&quot;&rpar; &lpar;2023&rpar; Tamil [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - Siddhu Kumar Musical](https://www.1tamilmv.tips/index.php?/forums/topic/172063-kuru-kuru-from-kannai-nambathey-2023-tamil-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-siddhu-kumar-musical/&do=findComment&comment=343528)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
