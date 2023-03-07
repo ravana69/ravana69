@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പലവട്ടം കേട്ടിട്ടും ഇപ്പോഴും കൊതിതീരാത്ത മലയാളസിനിമയിലെ മനം കവരും സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | SUPERHITS](https://www.youtube.com/watch?v=AjIwto2Ixzc)
+- [തനതായ സംഗീതത്തെ മലയാളികൾക്ക് സമ്മാനിച്ച കൈതപ്രം ജോൺസൺ ടീമിന്റെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=C_s-ce9R0-k)
+- [Sharanamayyappa | Thuranna Jail | P Bhaskaran | Johnson | KJ Yesudas | Soman | Ayyappa Songs](https://www.youtube.com/watch?v=jxYpC6urxp0)
 - [Songs Of The Week | MG Sreekumar | Christian Devotional Songs Malayalam | Christian Songs](https://www.youtube.com/watch?v=QoX24WCEwGg)
 - [Aakashamariyathe | Thnathonni | Prithviraj | Sheela Koul | Yesudas | Thej Mervin](https://www.youtube.com/watch?v=hhHxAui3NSg)
 - [6 March 2023](https://www.youtube.com/watch?v=pwNzoMyo9qI)
-- [Christian Superhit Songs | Cicily | Peedanubhava Ganagal | Christian Melody Songs | Joji Johns](https://www.youtube.com/watch?v=F3eLjE1UvH0)
-- [Panthu Thiriyanu | Thanneer Mathan Dinangal | Vineeth Sreenivasan | Justin Varghese | Suhail Koya](https://www.youtube.com/watch?v=molUh4EoPEc)
-- [Ithentho Ithentho | Maarconi Mathaai | KS Harisankar | M Jayachandran | BK Harinarayanan](https://www.youtube.com/watch?v=b8BNwt2juec)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
