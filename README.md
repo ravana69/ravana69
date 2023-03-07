@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Sex Life &lpar;2021&rpar; Complete S01 Merged - [1080p - 720p - 480p] HQ HDRip - [Tamil + Telugu + Hindi + English] - &lpar;DD+5.1 - 192Kbps&rpar; - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172069-sex-life-2021-complete-s01-merged-1080p-720p-480p-hq-hdrip-tamil-telugu-hindi-english-dd51-192kbps-esub/&do=findComment&comment=343539)
 - [Spectre &lpar;2015&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 4GB &amp; 1.5GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 500MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/171982-spectre-2015-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-4gb-15gb-x264-tam-tel-hin-500mb-esub/&do=findComment&comment=343538)
 - [📌 ANEGAN &lpar;2014&rpar; &lpar;Music Video Album&rpar; - 1080P - iTUNES - WEBDL - DD 5.1 @ 384K - 1.2GB  〰️ [avatar]](https://www.1tamilmv.tips/index.php?/forums/topic/172068-%F0%9F%93%8C-anegan-2014-music-video-album-1080p-itunes-webdl-dd-51-384k-12gb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=343537)
 - [Taj &lpar;2023&rpar; Complete S01 Merged HQ HDRip - 1080p -720p - 480p - x264 - [Telugu + Tamil + Hindi] - &lpar;DD+5.1 - 192Kbps&rpar; - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172067-taj-2023-complete-s01-merged-hq-hdrip-1080p-720p-480p-x264-telugu-tamil-hindi-dd51-192kbps-esub/&do=findComment&comment=343536)
 - [Sex Education Complete S01 - S01 Merged 720p WEB-DL &lpar;Hindi - 5.1 - English&rpar; x264 - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172066-sex-education-complete-s01-s01-merged-720p-web-dl-hindi-51-english-x264-esub/&do=findComment&comment=343535)
-- [Velugu &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172065-velugu-2022-telugu-true-web-dl-1080p-720p-avc-aac-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343534)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
