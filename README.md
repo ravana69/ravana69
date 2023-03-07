@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Lake Placid vs. Anaconda &lpar;2015&rpar; &lpar;UNRATED HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.8GB &amp; 900MB| x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172073-lake-placid-vs-anaconda-2015-unrated-hd-original-audios-1080p-720p-x264-tamil-hindi-eng-18gb-900mb-x264-tam-hin-400mb-esub/&do=findComment&comment=343543)
+- [Puli Meka &lpar;2023&rpar; Complete S01 Merged - HQ HDRip - [1080p 720p 480p] - x265 - [Tamil + Telugu] - &lpar;DD+5.1 - 384Kbps&rpar; - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172072-puli-meka-2023-complete-s01-merged-hq-hdrip-1080p-720p-480p-x265-tamil-telugu-dd51-384kbps-esub/&do=findComment&comment=343542)
 - [[144FPS|60FPS] The Last of Us S01E08 WEBRip DDP5.1 Atmos H.265 - 2160p [4K60FPS] | 1080p [144FPS | 60FPS] - 12.7 GB | 5.9GB | 3.4 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172071-144fps60fps-the-last-of-us-s01e08-webrip-ddp51-atmos-h265-2160p-4k60fps-1080p-144fps-60fps-127-gb-59gb-34-gb/&do=findComment&comment=343541)
 - [Mayakkam Enna &lpar;2011&rpar; 1080p ASTRO WEB-DL DD5.1 Esubs x264 - 6.3 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172070-mayakkam-enna-2011-1080p-astro-web-dl-dd51-esubs-x264-63-gb/&do=findComment&comment=343540)
 - [Sex Life &lpar;2021&rpar; Complete S01 Merged - [1080p - 720p - 480p] HQ HDRip - [Tamil + Telugu + Hindi + English] - &lpar;DD+5.1 - 192Kbps&rpar; - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172069-sex-life-2021-complete-s01-merged-1080p-720p-480p-hq-hdrip-tamil-telugu-hindi-english-dd51-192kbps-esub/&do=findComment&comment=343539)
-- [Spectre &lpar;2015&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 4GB &amp; 1.5GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 500MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/171982-spectre-2015-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-4gb-15gb-x264-tam-tel-hin-500mb-esub/&do=findComment&comment=343538)
-- [📌 ANEGAN &lpar;2014&rpar; &lpar;Music Video Album&rpar; - 1080P - iTUNES - WEBDL - DD 5.1 @ 384K - 1.2GB  〰️ [avatar]](https://www.1tamilmv.tips/index.php?/forums/topic/172068-%F0%9F%93%8C-anegan-2014-music-video-album-1080p-itunes-webdl-dd-51-384k-12gb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=343537)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
