@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Lake Placid vs. Anaconda &lpar;2015&rpar; &lpar;UNRATED HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.8GB &amp; 900MB| x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172073-lake-placid-vs-anaconda-2015-unrated-hd-original-audios-1080p-720p-x264-tamil-hindi-eng-18gb-900mb-x264-tam-hin-400mb-esub/&do=findComment&comment=343594)
+- [Farzi &lpar;2023&rpar; Complete S01 Merged [1080p 720p 360p] Telugu Tamil Hindi Kannada HQ HDRip - x264 - MSub](https://www.1tamilmv.tips/index.php?/forums/topic/172096-farzi-2023-complete-s01-merged-1080p-720p-360p-telugu-tamil-hindi-kannada-hq-hdrip-x264-msub/&do=findComment&comment=343591)
 - [Kannitheevu &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172097-kannitheevu-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343590)
 - [Farzi &lpar;2023&rpar; Complete S01 Merged [1080p 720p 360p] Telugu Tamil Hindi Kannada HQ HDRip - x264 - MSub](https://www.1tamilmv.tips/index.php?/forums/topic/172096-farzi-2023-complete-s01-merged-1080p-720p-360p-telugu-tamil-hindi-kannada-hq-hdrip-x264-msub/&do=findComment&comment=343589)
 - [1899 &lpar;2022&rpar; Complete S01 Merged [720p 480p] HQ HDRip - x264 - [Hindi + Eng] - AAC - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172095-1899-2022-complete-s01-merged-720p-480p-hq-hdrip-x264-hindi-eng-aac-esub/&do=findComment&comment=343588)
-- [Kannitheevu &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 320Kbps&rpar; - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172084-kannitheevu-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-320kbps-29gb-14gb-850mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=343587)
-- [Mark Antony Motion Poster | Vishal | Sj Suryah | Adhik Ravichandran | Vinod Kumar | GV Prakash](https://www.1tamilmv.tips/index.php?/forums/topic/172094-mark-antony-motion-poster-vishal-sj-suryah-adhik-ravichandran-vinod-kumar-gv-prakash/&do=findComment&comment=343586)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
