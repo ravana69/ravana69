@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Velugu &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172065-velugu-2022-telugu-true-web-dl-1080p-720p-avc-aac-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343577)
+- [Vettah [Hunt] &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;Tamil + Malayalam&rpar; - 2.7GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172088-vettah-hunt-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-malayalam-27gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343576)
+- [Varisu &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172087-varisu-2023-hindi-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-28gb-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=343575)
+- [Lake Placid vs. Anaconda &lpar;2015&rpar; &lpar;UNRATED HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.8GB &amp; 900MB| x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172073-lake-placid-vs-anaconda-2015-unrated-hd-original-audios-1080p-720p-x264-tamil-hindi-eng-18gb-900mb-x264-tam-hin-400mb-esub/&do=findComment&comment=343574)
 - [180 Tamil Movies - 1080p - HDRip / HDTVRip / WEB DL - H265/H264 - DD5.1 / AAC5.1 / AAC2.0 - ESub - 250GB [Gdrive]](https://www.1tamilmv.tips/index.php?/forums/topic/166773-180-tamil-movies-1080p-hdrip-hdtvrip-web-dl-h265h264-dd51-aac51-aac20-esub-250gb-gdrive/&do=findComment&comment=343573)
-- [Vettah [Hunt] &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;Tamil + Malayalam&rpar; - 2.7GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172088-vettah-hunt-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-malayalam-27gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343572)
-- [Varisu &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172087-varisu-2023-hindi-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-28gb-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=343571)
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.tips/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=343570)
-- [181 &lpar;2022&rpar; GPLAY WEB-DL DTS5.1 Esubs x264 - 1080p | 720p - 4 GB | 2.9 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172086-181-2022-gplay-web-dl-dts51-esubs-x264-1080p-720p-4-gb-29-gb/&do=findComment&comment=343569)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
