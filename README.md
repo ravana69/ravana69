@@ -68,11 +68,11 @@
 <!--START_SECTION:waka-->
 
 ```text
-From: 01 March 2023 - To: 08 March 2023
+From: 02 March 2023 - To: 09 March 2023
 
-Total Time: 6 hrs 9 mins
+Total Time: 3 hrs 59 mins
 
-Other   6 hrs 9 mins    ▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰   100.00 %
+Other   3 hrs 59 mins   ▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰   100.00 %
 ```
 
 <!--END_SECTION:waka-->
