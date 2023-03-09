@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Farzi &lpar;2023&rpar; Complete S01 Merged [1080p 720p 360p] Telugu Tamil Hindi Kannada HQ HDRip - x264 - MSub](https://www.1tamilmv.tips/index.php?/forums/topic/172096-farzi-2023-complete-s01-merged-1080p-720p-360p-telugu-tamil-hindi-kannada-hq-hdrip-x264-msub/&do=findComment&comment=343638)
-- [500 Hollywood Dubbed Movie Collection - 1080p Multi Original Auidos &lpar;DD5.1 /DD2.0&rpar; - {TAMIL + TELUGU+ HINDI + ENGLISH} - 2270GB](https://www.1tamilmv.tips/index.php?/forums/topic/172114-500-hollywood-dubbed-movie-collection-1080p-multi-original-auidos-dd51-dd20-tamil-telugu-hindi-english-2270gb/&do=findComment&comment=343637)
-- [Batwoman Complete S01 -S03 Merged 720p 10Bit WEBRip x265 HEVC - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172123-batwoman-complete-s01-s03-merged-720p-10bit-webrip-x265-hevc-esub/&do=findComment&comment=343636)
-- [Room &lpar;2015&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.5GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172122-room-2015-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-25gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=343635)
-- [Accidental Farmer &amp; Co &lpar;2023&rpar; S01 EP&lpar;01-08&rpar; Tamil TRUE WEB-DL - [1080p - 720p &amp; 480p - AVC - &lpar;AAC 2.0&rpar; - 3.8GB - 1.8GB &amp; 850MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172121-accidental-farmer-co-2023-s01-ep01-08-tamil-true-web-dl-1080p-720p-480p-avc-aac-20-38gb-18gb-850mb-esub/&do=findComment&comment=343634)
+- [Vaathi &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC / HEVC - AAC - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172131-vaathi-2023-tamil-web-dl-1080p-720p-avc-hevc-aac-28gb-14gb-850mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=343647)
+- [Vaathi &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC / HEVC - AAC - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172131-vaathi-2023-tamil-web-dl-1080p-720p-avc-hevc-aac-28gb-14gb-850mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=343646)
+- [Christy &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.6GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172130-christy-2023-malayalam-true-web-dl-1080p-720p-avc-aac-26gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=343645)
+- [True Lies 1994 AAC 2.0 Tamil-Telugu-Hindi-DTS 5.1 English 1080p Open Matte Msubs 24GB [G-Drive]](https://www.1tamilmv.tips/index.php?/forums/topic/172127-true-lies-1994-aac-20-tamil-telugu-hindi-dts-51-english-1080p-open-matte-msubs-24gb-g-drive/&do=findComment&comment=343642)
+- [Paatal Lok &lpar;2020&rpar; 1080p S-01 Ep-[01-09] HDRip [Telugu + Tamil + Hindi] 3GB MSub [G-Drive]](https://www.1tamilmv.tips/index.php?/forums/topic/172126-paatal-lok-2020-1080p-s-01-ep-01-09-hdrip-telugu-tamil-hindi-3gb-msub-g-drive/&do=findComment&comment=343641)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
