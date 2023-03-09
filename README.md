@@ -21,7 +21,7 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Sulthan &lpar;2022&rpar; Original Background Score Hi-Fi Quality 16bit - FLAC - Yuvan Shankar Raja Musical - 140 MB](https://www.1tamilmv.tips/index.php?/forums/topic/172106-sulthan-2022-original-background-score-hi-fi-quality-16bit-flac-yuvan-shankar-raja-musical-140-mb/&do=findComment&comment=343606)
+- [Sulthan &lpar;2021&rpar; Original Background Score Hi-Fi Quality 16bit - FLAC - Yuvan Shankar Raja Musical - 140 MB](https://www.1tamilmv.tips/index.php?/forums/topic/172106-sulthan-2021-original-background-score-hi-fi-quality-16bit-flac-yuvan-shankar-raja-musical-140-mb/&do=findComment&comment=343606)
 - [The Mandalorian S03E02 Chapter 18 DSNP WEB-DL DDP5.1 - 2160p [HDR] | 1080p | 720p - 3.9 GB | 1.9 GB | 1.1 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172105-the-mandalorian-s03e02-chapter-18-dsnp-web-dl-ddp51-2160p-hdr-1080p-720p-39-gb-19-gb-11-gb/&do=findComment&comment=343605)
 - [Farzi &lpar;2023&rpar; Complete S01 Merged [1080p 720p 360p] Telugu Tamil Hindi Kannada HQ HDRip - x264 - MSub](https://www.1tamilmv.tips/index.php?/forums/topic/172096-farzi-2023-complete-s01-merged-1080p-720p-360p-telugu-tamil-hindi-kannada-hq-hdrip-x264-msub/&do=findComment&comment=343604)
 - [The Night Manager &lpar;2023&rpar; Complete S01 Merged WEB-DL - [1080p 720p 480p] - &lpar;DD+5.1 - 192Kbps&rpar; [Tam + Tel + Hin + Mal + Kan]](https://www.1tamilmv.tips/index.php?/forums/topic/172104-the-night-manager-2023-complete-s01-merged-web-dl-1080p-720p-480p-dd51-192kbps-tam-tel-hin-mal-kan/&do=findComment&comment=343603)
