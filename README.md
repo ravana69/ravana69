@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Sulthan &lpar;2021&rpar; Original Background Score Hi-Fi Quality 16bit - FLAC - Yuvan Shankar Raja Musical - 140 MB](https://www.1tamilmv.tips/index.php?/forums/topic/172106-sulthan-2021-original-background-score-hi-fi-quality-16bit-flac-yuvan-shankar-raja-musical-140-mb/&do=findComment&comment=343608)
+- [Anger Tales &lpar;2023&rpar; S01 Merged TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tam + Tel + Hin + Mal + Kan] - 4.5GB - 1GB ] - ESub - Direct Download](https://www.1tamilmv.tips/index.php?/forums/topic/172107-anger-tales-2023-s01-merged-true-web-dl-1080p-720p-avc-dd51-192kbps-tam-tel-hin-mal-kan-45gb-1gb-esub-direct-download/&do=findComment&comment=343607)
 - [Sulthan &lpar;2021&rpar; Original Background Score Hi-Fi Quality 16bit - FLAC - Yuvan Shankar Raja Musical - 140 MB](https://www.1tamilmv.tips/index.php?/forums/topic/172106-sulthan-2021-original-background-score-hi-fi-quality-16bit-flac-yuvan-shankar-raja-musical-140-mb/&do=findComment&comment=343606)
 - [The Mandalorian S03E02 Chapter 18 DSNP WEB-DL DDP5.1 - 2160p [HDR] | 1080p | 720p - 3.9 GB | 1.9 GB | 1.1 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172105-the-mandalorian-s03e02-chapter-18-dsnp-web-dl-ddp51-2160p-hdr-1080p-720p-39-gb-19-gb-11-gb/&do=findComment&comment=343605)
 - [Farzi &lpar;2023&rpar; Complete S01 Merged [1080p 720p 360p] Telugu Tamil Hindi Kannada HQ HDRip - x264 - MSub](https://www.1tamilmv.tips/index.php?/forums/topic/172096-farzi-2023-complete-s01-merged-1080p-720p-360p-telugu-tamil-hindi-kannada-hq-hdrip-x264-msub/&do=findComment&comment=343604)
-- [The Night Manager &lpar;2023&rpar; Complete S01 Merged WEB-DL - [1080p 720p 480p] - &lpar;DD+5.1 - 192Kbps&rpar; [Tam + Tel + Hin + Mal + Kan]](https://www.1tamilmv.tips/index.php?/forums/topic/172104-the-night-manager-2023-complete-s01-merged-web-dl-1080p-720p-480p-dd51-192kbps-tam-tel-hin-mal-kan/&do=findComment&comment=343603)
-- [Christopher &lpar;2023&rpar; AMZN WEB-DL Multi DDP5.1 Esubs - 2160p | 1080p | 720p - 12.1 GB | 10 GB | 5.8 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172103-christopher-2023-amzn-web-dl-multi-ddp51-esubs-2160p-1080p-720p-121-gb-10-gb-58-gb/&do=findComment&comment=343602)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
