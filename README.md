@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ആരുമില്ലാത്തവർക്കായി  സ്നേഹത്തിൽ  പൊതിഞ്ഞ ക്രിസ്തീയ ഗാനങ്ങൾ | Christian Songs | Robil Rapheal](https://www.youtube.com/watch?v=GYTp3TuWefQ)
+- [Pattu Chutti Pottum Thottu | Varnakkaazhchakal | KS Chithra | Mohan Sithara | Yusufali Kechery](https://www.youtube.com/watch?v=_ISwYKCf1ww)
 - [Dhwani Tharanga Tharalam | Joker | KJ Yesudas | Mohan Sithara |  Yusufali Kechery](https://www.youtube.com/watch?v=TbBQ1A5-ZF4)
 - [പുഞ്ച വയലു കൊയ്യാന്‍ പോണവളേ HD | Punchavayalu Koyyan | Nair Saab | Malayalam Film Song | Mammootty](https://www.youtube.com/watch?v=K7haSmVFewA)
 - [Vellinila Thullikalo Video Song | Vidyasagar | Mohanlal | Meena | KS Chithra | MG Sreekumar](https://www.youtube.com/watch?v=GrMaEUMu-kA)
 - [മലയാളസംഗീതത്തിന്റെ യുഗപുരുഷൻ ഗാനഗന്ധർവ്വൻ യേശുദാസ് ആലപിച്ച നിത്യഹരിതഗാനങ്ങൾ | YESUDAS HITS](https://www.youtube.com/watch?v=9iMEl10z4TE)
-- [Choraveena Mannil Ninnum | Video Song | Arabikkatha | Sreenivasan | Indrajith | Anil Panachooran](https://www.youtube.com/watch?v=bxpHlDiX3Lc)
-- [മധുര സ്‌മരണകൾ അലതല്ലുന്ന മലയാളസിനിമയിലെ മൃദുല ഗാനങ്ങൾ  | SWEET MELODY SONGS](https://www.youtube.com/watch?v=xdTIF1E2I88)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
