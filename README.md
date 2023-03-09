@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Bad Trip &lpar;2023&rpar; S01 EP&lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p &amp; 480p - AVC - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 3.8GB - 1.8GB &amp; 850MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172117-bad-trip-2023-s01-ep01-08-true-web-dl-1080p-720p-480p-avc-aac-20-tamil-telugu-hindi-malayalam-kannada-38gb-18gb-850mb-esub/&do=findComment&comment=343631)
 - [Augest 15 &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Malayalam&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172112-augest-15-2023-tamil-true-web-dl-1080p-720p-avc-tamil-malayalam-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343630)
 - [Christopher &lpar;2023&rpar; TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Malayalam + Hindi] - 12GB - 6.4GB - 2.6GB - 1.7GB &amp; 1GB] - [x264 - 800MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172098-christopher-2023-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-malayalam-hindi-12gb-64gb-26gb-17gb-1gb-x264-800mb-450mb-250mb-esub/&do=findComment&comment=343629)
 - [Kannitheevu &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 320Kbps&rpar; - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172084-kannitheevu-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-320kbps-29gb-14gb-850mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=343628)
 - [Christopher &lpar;2023&rpar; Malayalam TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 12GB - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172099-christopher-2023-malayalam-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-12gb-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=343627)
-- [Varayan &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.8GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172102-varayan-2022-malayalam-true-web-dl-1080p-720p-avc-aac-28gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=343626)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
