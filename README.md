@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pokkiri Rathinangal [Jathi Ratnalu] &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172109-pokkiri-rathinangal-jathi-ratnalu-2023-tamil-true-web-dl-1080p-720p-avc-tamil-telugu-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343610)
 - [Anger Tales &lpar;2023&rpar; Complete S01 Merged EP&lpar;01-04&rpar; HQ HDRip - [1080p 720p 480p] - x264 - [Telugu + Tamil + Malayalam + Hindi] - ESubs](https://www.1tamilmv.tips/index.php?/forums/topic/172108-anger-tales-2023-complete-s01-merged-ep01-04-hq-hdrip-1080p-720p-480p-x264-telugu-tamil-malayalam-hindi-esubs/&do=findComment&comment=343609)
 - [Sulthan &lpar;2021&rpar; Original Background Score Hi-Fi Quality 16bit - FLAC - Yuvan Shankar Raja Musical - 140 MB](https://www.1tamilmv.tips/index.php?/forums/topic/172106-sulthan-2021-original-background-score-hi-fi-quality-16bit-flac-yuvan-shankar-raja-musical-140-mb/&do=findComment&comment=343608)
 - [Anger Tales &lpar;2023&rpar; S01 Merged TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tam + Tel + Hin + Mal + Kan] - 4.5GB - 1GB ] - ESub - Direct Download](https://www.1tamilmv.tips/index.php?/forums/topic/172107-anger-tales-2023-s01-merged-true-web-dl-1080p-720p-avc-dd51-192kbps-tam-tel-hin-mal-kan-45gb-1gb-esub-direct-download/&do=findComment&comment=343607)
 - [Sulthan &lpar;2021&rpar; Original Background Score Hi-Fi Quality 16bit - FLAC - Yuvan Shankar Raja Musical - 140 MB](https://www.1tamilmv.tips/index.php?/forums/topic/172106-sulthan-2021-original-background-score-hi-fi-quality-16bit-flac-yuvan-shankar-raja-musical-140-mb/&do=findComment&comment=343606)
-- [The Mandalorian S03E02 Chapter 18 DSNP WEB-DL DDP5.1 - 2160p [HDR] | 1080p | 720p - 3.9 GB | 1.9 GB | 1.1 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172105-the-mandalorian-s03e02-chapter-18-dsnp-web-dl-ddp51-2160p-hdr-1080p-720p-39-gb-19-gb-11-gb/&do=findComment&comment=343605)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
