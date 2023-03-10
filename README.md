@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Request your movies as a comment to this topic.!](https://www.1tamilmv.tips/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=343681)
+- [Bad Trip &lpar;2023&rpar; S01 EP&lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p &amp; 480p - AVC - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 3.8GB - 1.8GB &amp; 850MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172117-bad-trip-2023-s01-ep01-08-true-web-dl-1080p-720p-480p-avc-aac-20-tamil-telugu-hindi-malayalam-kannada-38gb-18gb-850mb-esub/&do=findComment&comment=343680)
+- [Augest 15 &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Malayalam&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172112-augest-15-2023-tamil-true-web-dl-1080p-720p-avc-tamil-malayalam-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343679)
+- [Sulthan &lpar;2021&rpar; Original Background Score Hi-Fi Quality 16bit - FLAC - Yuvan Shankar Raja Musical - 140 MB](https://www.1tamilmv.tips/index.php?/forums/topic/172106-sulthan-2021-original-background-score-hi-fi-quality-16bit-flac-yuvan-shankar-raja-musical-140-mb/&do=findComment&comment=343678)
 - [Dada &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 9GB - 5GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172132-dada-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-9gb-5gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343677)
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.tips/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=343676)
-- [Dada &lpar;2023&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - &lpar;DD+5.1 - 640Kbps &amp; AAC 2.0&rpar; - 9.65GB - ESub - GDRIVE](https://www.1tamilmv.tips/index.php?/forums/topic/172150-dada-2023-tamil-true-web-dl-1080p-hq-avc-dd51-640kbps-aac-20-965gb-esub-gdrive/&do=findComment&comment=343675)
-- [Dada &lpar;2023&rpar; Tamil TRUE WEB-DL - 1080p HQ - x265 - HEVC - UNTOUCHED - &lpar;DD+5.1 - 640Kbps&rpar; - 5.5GB - ESub - GDrive](https://www.1tamilmv.tips/index.php?/forums/topic/172149-dada-2023-tamil-true-web-dl-1080p-hq-x265-hevc-untouched-dd51-640kbps-55gb-esub-gdrive/&do=findComment&comment=343674)
-- [Run Baby Run &lpar;2023&rpar; TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DD+5.1 - 192Kbps &amp; AAC 2.0&rpar; [ Tamil + Telugu + Hindi + Malayalam + Kannada ] - 4.3GB - ESub - GDrive](https://www.1tamilmv.tips/index.php?/forums/topic/172148-run-baby-run-2023-true-web-dl-1080p-avc-untouched-dd51-192kbps-aac-20-tamil-telugu-hindi-malayalam-kannada-43gb-esub-gdrive/&do=findComment&comment=343673)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
