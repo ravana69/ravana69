@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Rana Naidu &lpar;2023&rpar; S01 EP&lpar;01-10&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tam + Tel + Hin + Mal] - 13GB - 7GB - 1.3GB - 750MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172166-rana-naidu-2023-s01-ep01-10-true-web-dl-1080p-720p-avc-dd51-640kbps-tam-tel-hin-mal-13gb-7gb-13gb-750mb-esub/&do=findComment&comment=343712)
+- [The Monkey King 2 &lpar;2016&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - HQ HEVC - x265 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 4.4GB &amp; 1.6GB - ESub - GDrive](https://www.1tamilmv.tips/index.php?/forums/topic/172168-the-monkey-king-2-2016-hd-original-audios-1080p-720p-hq-hevc-x265-tamil-telugu-hindi-eng-44gb-16gb-esub-gdrive/&do=findComment&comment=343711)
 - [Pokkiri Rathinangal [Jathi Ratnalu] &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172109-pokkiri-rathinangal-jathi-ratnalu-2023-tamil-true-web-dl-1080p-720p-avc-tamil-telugu-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343710)
 - [Agilan &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172167-agilan-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343709)
 - [Rana Naidu &lpar;2023&rpar; S01 EP&lpar;01-10&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tam + Tel + Hin + Mal] - 13GB - 7GB - 1.3GB - 750MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172166-rana-naidu-2023-s01-ep01-10-true-web-dl-1080p-720p-avc-dd51-640kbps-tam-tel-hin-mal-13gb-7gb-13gb-750mb-esub/&do=findComment&comment=343708)
-- [Rana Naidu &lpar;2023&rpar; S01 EP&lpar;01-10&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tam + Tel + Hin + Mal] - 13GB - 7GB - 1.3GB - 750MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172166-rana-naidu-2023-s01-ep01-10-true-web-dl-1080p-720p-avc-dd51-640kbps-tam-tel-hin-mal-13gb-7gb-13gb-750mb-esub/&do=findComment&comment=343706)
-- [📌 AWARAPAN &lpar;2007&rpar; Hindi &lpar;Music VIdeo Chapters&rpar; - HQ 480P - DVDREMUX - #HIN DD® 5.1 @ 448K - 1.2GB 〰️ [Avatar]](https://www.1tamilmv.tips/index.php?/forums/topic/172165-%F0%9F%93%8C-awarapan-2007-hindi-music-video-chapters-hq-480p-dvdremux-hin-dd%C2%AE-51-448k-12gb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=343705)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
