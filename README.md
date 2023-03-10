@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Superman and Lois Complete S01 -S02 Merged 720p &lpar;English&rpar; 10Bit WEBRip 2CH x265 HEVC - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172142-superman-and-lois-complete-s01-s02-merged-720p-english-10bit-webrip-2ch-x265-hevc-esub/&do=findComment&comment=343665)
+- [True Lies 1994 AAC 2.0 Tamil-Telugu-Hindi-DTS 5.1 English 1080p Open Matte Msubs 24GB [G-Drive]](https://www.1tamilmv.tips/index.php?/forums/topic/172127-true-lies-1994-aac-20-tamil-telugu-hindi-dts-51-english-1080p-open-matte-msubs-24gb-g-drive/&do=findComment&comment=343664)
+- [Vaathi &lpar;2023&rpar;.Tamil.480p &amp; 1080p.Web-dl.x264.DD5.1 640Kbps Upmixed.HC-ESub - 1.7GB &amp; 3GB - GDRIVE](https://www.1tamilmv.tips/index.php?/forums/topic/172141-vaathi-2023tamil480p-1080pweb-dlx264dd51-640kbps-upmixedhc-esub-17gb-3gb-gdrive/&do=findComment&comment=343663)
+- [Chernobyl Complete S01 Merged &lpar;EP 01 - 05&rpar; [1080p 720p] 10bit &lpar;English&rpar; BluRay 6CH x265 HEVC -ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172140-chernobyl-complete-s01-merged-ep-01-05-1080p-720p-10bit-english-bluray-6ch-x265-hevc-esub/&do=findComment&comment=343662)
 - [Raymo &lpar;2022&rpar; Kannada WEB-DL - [1080p &amp; 720p - AVC - AAC - 3GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172139-raymo-2022-kannada-web-dl-1080p-720p-avc-aac-3gb-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=343661)
-- [Dada &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 9GB - 5GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172132-dada-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-9gb-5gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343660)
-- [Vaathi &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC / HEVC - AAC - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172131-vaathi-2023-tamil-web-dl-1080p-720p-avc-hevc-aac-28gb-14gb-850mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=343659)
-- [Run Baby Run &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 14GB - 5.2GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172128-run-baby-run-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-atmos-448kbps-14gb-52gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343658)
-- [Love Birds &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172138-love-birds-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=343657)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
