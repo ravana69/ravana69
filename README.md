@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Karale Kanave | Madhu Balakrishnan  | East Coast Vijayan | Vijay Karun | Ennennum | Romantic Songs](https://www.youtube.com/watch?v=Mmz3Fj9gZ3s)
 - [Aanandamo | Solomante Theneechakal | Video Song  | Lal Jose | Vidya Sagar | Vinayak Sasikumar](https://www.youtube.com/watch?v=CzYTbUZQWoQ)
 - [Vaa Paravakale - Video Song | Momo in Dubai | Aneesh, Anu Sithara | Jassie Gift | Shahabaz Aman](https://www.youtube.com/watch?v=y33kXOb5ql4)
 - [Ninte Kannil Virunnu Vannu | Deepasthambam Mahascharyam | Radhika Thilak | Mohan Sithara](https://www.youtube.com/watch?v=GkWDufpH8Us)
 - [Mindathathenthe Kili Penne Video Song | Mohanlal | Shanthi Krishna | MG Sreekumar | Raveendran](https://www.youtube.com/watch?v=buYZRdpRVhA)
 - [Chemmanam Poothe | Joker | K J Yesudas | Mohan Sithara | Lohithadas](https://www.youtube.com/watch?v=yUiyMpZ2sDY)
-- [Kanmunnil - Lyrical Video | Bhagavan | Mohanlal](https://www.youtube.com/watch?v=mR0Mj4PUbIg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
