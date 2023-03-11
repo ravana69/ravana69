@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Maheshum Marutiyum &lpar;2023&rpar; Malayalam Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172188-maheshum-marutiyum-2023-malayalam-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343757)
+- [Thuramukham &lpar;2023&rpar; Malayalam Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172187-thuramukham-2023-malayalam-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343756)
 - [Aithe 2.0 &lpar;2018&rpar; Telugu AHA WEB-DL – [4K-2160p, 1080p, 720p, 480p, 360p] – HEVC/AVC – [DD+5.1 – 384kbps &amp; AAC2.0] – Esubs](https://www.1tamilmv.tips/index.php?/forums/topic/172003-aithe-20-2018-telugu-aha-web-dl-%E2%80%93-4k-2160p-1080p-720p-480p-360p-%E2%80%93-hevcavc-%E2%80%93-dd51-%E2%80%93-384kbps-aac20-%E2%80%93-esubs/&do=findComment&comment=343755)
 - [Agilan &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.tips/index.php?/forums/topic/172151-agilan-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=343753)
 - [Rana Naidu &lpar;2023&rpar; S01 EP&lpar;01-10&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tam + Tel + Hin + Mal] - 13GB - 7GB - 1.3GB - 750MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172166-rana-naidu-2023-s01-ep01-10-true-web-dl-1080p-720p-avc-dd51-640kbps-tam-tel-hin-mal-13gb-7gb-13gb-750mb-esub/&do=findComment&comment=343752)
-- [DC&#39;s Legends of Tomorrow Complete S01 - S07 Merged 720p &lpar;English&rpar; WEB-DL 2CH x265 HEVC - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172186-dcs-legends-of-tomorrow-complete-s01-s07-merged-720p-english-web-dl-2ch-x265-hevc-esub/&do=findComment&comment=343751)
-- [Ayali &lpar;2023&rpar; Complete S01 Merged EP &lpar;01-08&rpar; - [1080p 720p 480p] HQ HDRip - [Telugu + Tamil] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172180-ayali-2023-complete-s01-merged-ep-01-08-1080p-720p-480p-hq-hdrip-telugu-tamil-esub/&do=findComment&comment=343750)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
