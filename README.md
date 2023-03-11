@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Laatti Charge &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172183-laatti-charge-2022-kannada-true-web-dl-1080p-720p-avc-dd51-atmos-448kbps-28gb-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=343745)
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.tips/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=343744)
-- [Home &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC / HEVC - AAC - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172182-home-2023-tamil-web-dl-1080p-720p-avc-hevc-aac-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343743)
-- [Luther: The Fallen Sun &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.5GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172164-luther-the-fallen-sun-2023-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-25gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=343742)
-- [Taxi &lpar;2023&rpar; Telugu Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.tips/index.php?/forums/topic/172154-taxi-2023-telugu-proper-hq-predvd-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=343741)
+- [Ayali &lpar;2023&rpar; Complete S01 Merged EP &lpar;01-08&rpar; - [1080p 720p 480p] HQ HDRip - [Telugu + Tamil] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172180-ayali-2023-complete-s01-merged-ep-01-08-1080p-720p-480p-hq-hdrip-telugu-tamil-esub/&do=findComment&comment=343750)
+- [RANGASTHALAM &lpar;2018&rpar; Telugu &lpar;Music Video Album&rpar; - HQ 1080P - AMZN - WEBDL - H264 - DDP 5.1 @ 640Kbps - SoftEsubs - 2GB 〰️ [Avatar]](https://www.1tamilmv.tips/index.php?/forums/topic/172185-rangasthalam-2018-telugu-music-video-album-hq-1080p-amzn-webdl-h264-ddp-51-640kbps-softesubs-2gb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=343749)
+- [Vaathi &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC / HEVC - AAC - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172131-vaathi-2023-tamil-web-dl-1080p-720p-avc-hevc-aac-28gb-14gb-850mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=343748)
+- [Veetai Paaru Nattai Paaru &lpar;1994&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 2GB - GDRIVE](https://www.1tamilmv.tips/index.php?/forums/topic/172184-veetai-paaru-nattai-paaru-1994tamil480phdtvx264aac20-2gb-gdrive/&do=findComment&comment=343747)
+- [Ayali &lpar;2023&rpar; Complete S01 Merged EP &lpar;01-08&rpar; - [1080p 720p 480p] HQ HDRip - [Telugu + Tamil] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172180-ayali-2023-complete-s01-merged-ep-01-08-1080p-720p-480p-hq-hdrip-telugu-tamil-esub/&do=findComment&comment=343746)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
