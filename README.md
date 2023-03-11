@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Agilan &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.tips/index.php?/forums/topic/172151-agilan-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=343753)
+- [Rana Naidu &lpar;2023&rpar; S01 EP&lpar;01-10&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tam + Tel + Hin + Mal] - 13GB - 7GB - 1.3GB - 750MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172166-rana-naidu-2023-s01-ep01-10-true-web-dl-1080p-720p-avc-dd51-640kbps-tam-tel-hin-mal-13gb-7gb-13gb-750mb-esub/&do=findComment&comment=343752)
+- [DC&#39;s Legends of Tomorrow Complete S01 - S07 Merged 720p &lpar;English&rpar; WEB-DL 2CH x265 HEVC - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172186-dcs-legends-of-tomorrow-complete-s01-s07-merged-720p-english-web-dl-2ch-x265-hevc-esub/&do=findComment&comment=343751)
 - [Ayali &lpar;2023&rpar; Complete S01 Merged EP &lpar;01-08&rpar; - [1080p 720p 480p] HQ HDRip - [Telugu + Tamil] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172180-ayali-2023-complete-s01-merged-ep-01-08-1080p-720p-480p-hq-hdrip-telugu-tamil-esub/&do=findComment&comment=343750)
 - [RANGASTHALAM &lpar;2018&rpar; Telugu &lpar;Music Video Album&rpar; - HQ 1080P - AMZN - WEBDL - H264 - DDP 5.1 @ 640Kbps - SoftEsubs - 2GB 〰️ [Avatar]](https://www.1tamilmv.tips/index.php?/forums/topic/172185-rangasthalam-2018-telugu-music-video-album-hq-1080p-amzn-webdl-h264-ddp-51-640kbps-softesubs-2gb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=343749)
-- [Vaathi &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC / HEVC - AAC - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172131-vaathi-2023-tamil-web-dl-1080p-720p-avc-hevc-aac-28gb-14gb-850mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=343748)
-- [Veetai Paaru Nattai Paaru &lpar;1994&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 2GB - GDRIVE](https://www.1tamilmv.tips/index.php?/forums/topic/172184-veetai-paaru-nattai-paaru-1994tamil480phdtvx264aac20-2gb-gdrive/&do=findComment&comment=343747)
-- [Ayali &lpar;2023&rpar; Complete S01 Merged EP &lpar;01-08&rpar; - [1080p 720p 480p] HQ HDRip - [Telugu + Tamil] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172180-ayali-2023-complete-s01-merged-ep-01-08-1080p-720p-480p-hq-hdrip-telugu-tamil-esub/&do=findComment&comment=343746)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
