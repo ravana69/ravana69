@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Rana Naidu &lpar;2023&rpar; Complete S01 Merged EP&lpar;01-10&rpar; HQ HDRip - [1080p 720p 480p]- x264 - [Telugu + Tamil + Hindi + Malayalam] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172175-rana-naidu-2023-complete-s01-merged-ep01-10-hq-hdrip-1080p-720p-480p-x264-telugu-tamil-hindi-malayalam-esub/&do=findComment&comment=343732)
 - [65 &lpar;2023&rpar; [Tamil + Telugu] Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172174-65-2023-tamil-telugu-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343731)
 - [Taxi &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172173-taxi-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343730)
 - [Kondraal Paavam &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172172-kondraal-paavam-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343729)
 - [📌 |4K| RANGASTHALAM &lpar;2018&rpar; &lpar;Music Video Album&rpar; - 4K / 1080P - AMZN - WEBDL - #TEL DDP 5.1 @ 640Kbps - SoftEsubs 〰️ [Avatar]](https://www.1tamilmv.tips/index.php?/forums/topic/172171-%F0%9F%93%8C-4k-rangasthalam-2018-music-video-album-4k-1080p-amzn-webdl-tel-ddp-51-640kbps-softesubs-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=343728)
-- [85 Telugu Movies - 1080p - WEB DL - H264 - DD5.1 / AAC2.0 - Esub - 250GB [Gdrive]](https://www.1tamilmv.tips/index.php?/forums/topic/169142-85-telugu-movies-1080p-web-dl-h264-dd51-aac20-esub-250gb-gdrive/&do=findComment&comment=343727)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
