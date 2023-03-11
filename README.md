@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Wednesday &lpar;2022&rpar; Original Series Soundtrack Master Quality 24bit - FLAC - Danny Elfman &amp; Chris Bacon Musical - 1.16 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172178-wednesday-2022-original-series-soundtrack-master-quality-24bit-flac-danny-elfman-chris-bacon-musical-116-gb/&do=findComment&comment=343735)
+- [Luther: The Fallen Sun &lpar;2023&rpar; NF WEB-DL Multi DDP5.1 Esubs - 1080p [HDR10] | 720p - 8.1 GB | 5 GB | 1.5 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172177-luther-the-fallen-sun-2023-nf-web-dl-multi-ddp51-esubs-1080p-hdr10-720p-81-gb-5-gb-15-gb/&do=findComment&comment=343734)
+- [Laatti Charge &lpar;2023&rpar; SNXT WEB-DL DDP5.1 Atmos Esubs - 2160p | 1080p | 720p - 12.5 GB | 4.6 GB | 2 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172176-laatti-charge-2023-snxt-web-dl-ddp51-atmos-esubs-2160p-1080p-720p-125-gb-46-gb-2-gb/&do=findComment&comment=343733)
 - [Rana Naidu &lpar;2023&rpar; Complete S01 Merged EP&lpar;01-10&rpar; HQ HDRip - [1080p 720p 480p]- x264 - [Telugu + Tamil + Hindi + Malayalam] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172175-rana-naidu-2023-complete-s01-merged-ep01-10-hq-hdrip-1080p-720p-480p-x264-telugu-tamil-hindi-malayalam-esub/&do=findComment&comment=343732)
 - [65 &lpar;2023&rpar; [Tamil + Telugu] Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172174-65-2023-tamil-telugu-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343731)
-- [Taxi &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172173-taxi-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343730)
-- [Kondraal Paavam &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172172-kondraal-paavam-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343729)
-- [📌 |4K| RANGASTHALAM &lpar;2018&rpar; &lpar;Music Video Album&rpar; - 4K / 1080P - AMZN - WEBDL - #TEL DDP 5.1 @ 640Kbps - SoftEsubs 〰️ [Avatar]](https://www.1tamilmv.tips/index.php?/forums/topic/172171-%F0%9F%93%8C-4k-rangasthalam-2018-music-video-album-4k-1080p-amzn-webdl-tel-ddp-51-640kbps-softesubs-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=343728)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
