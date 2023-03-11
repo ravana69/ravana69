@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ayothi &lpar;2023&rpar; Tamil [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - N R Raghunandan Musical](https://www.1tamilmv.tips/index.php?/forums/topic/172181-ayothi-2023-tamil-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-n-r-raghunandan-musical/&do=findComment&comment=343738)
 - [Ayali &lpar;2023&rpar; Complete S01 Merged EP &lpar;01-08&rpar; - [1080p 720p 480p] HQ HDRip - [Telugu + Tamil] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172180-ayali-2023-complete-s01-merged-ep-01-08-1080p-720p-480p-hq-hdrip-telugu-tamil-esub/&do=findComment&comment=343737)
 - [Jaanbaaz Hindustan Ke &lpar;2023&rpar; Complete S01 Merged EP &lpar;01-08&rpar; - [1080p 720p 480p] - HQ HDRip - [Tamil + Telugu + Hindi] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172179-jaanbaaz-hindustan-ke-2023-complete-s01-merged-ep-01-08-1080p-720p-480p-hq-hdrip-tamil-telugu-hindi-esub/&do=findComment&comment=343736)
 - [Wednesday &lpar;2022&rpar; Original Series Soundtrack Master Quality 24bit - FLAC - Danny Elfman &amp; Chris Bacon Musical - 1.16 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172178-wednesday-2022-original-series-soundtrack-master-quality-24bit-flac-danny-elfman-chris-bacon-musical-116-gb/&do=findComment&comment=343735)
 - [Luther: The Fallen Sun &lpar;2023&rpar; NF WEB-DL Multi DDP5.1 Esubs - 1080p [HDR10] | 720p - 8.1 GB | 5 GB | 1.5 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172177-luther-the-fallen-sun-2023-nf-web-dl-multi-ddp51-esubs-1080p-hdr10-720p-81-gb-5-gb-15-gb/&do=findComment&comment=343734)
-- [Laatti Charge &lpar;2023&rpar; SNXT WEB-DL DDP5.1 Atmos Esubs - 2160p | 1080p | 720p - 12.5 GB | 4.6 GB | 2 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172176-laatti-charge-2023-snxt-web-dl-ddp51-atmos-esubs-2160p-1080p-720p-125-gb-46-gb-2-gb/&do=findComment&comment=343733)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
