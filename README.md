@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Dada &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 9GB - 5GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172132-dada-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-9gb-5gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343761)
+- [📌 ADHURS &lpar;2010&rpar; &lpar;Music Video Album&rpar; - 1080P - BDREUMX - AVC - #TEL DD® / DTS® / LPCM® 5.1 @ 4608K - SoftEsubs - 6.3GB 〰️ [Avatar]](https://www.1tamilmv.tips/index.php?/forums/topic/172191-%F0%9F%93%8C-adhurs-2010-music-video-album-1080p-bdreumx-avc-tel-dd%C2%AE-dts%C2%AE-lpcm%C2%AE-51-4608k-softesubs-63gb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=343760)
 - [Memories &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172190-memories-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343759)
 - [Iratta &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Malayalam + Kannada] - 5.8GB - 2.8GB - 1.6GB &amp; 1GB] - [x264 - 800MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172189-iratta-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-malayalam-kannada-58gb-28gb-16gb-1gb-x264-800mb-450mb-250mb-esub/&do=findComment&comment=343758)
 - [Maheshum Marutiyum &lpar;2023&rpar; Malayalam Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172188-maheshum-marutiyum-2023-malayalam-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343757)
-- [Thuramukham &lpar;2023&rpar; Malayalam Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172187-thuramukham-2023-malayalam-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343756)
-- [Aithe 2.0 &lpar;2018&rpar; Telugu AHA WEB-DL – [4K-2160p, 1080p, 720p, 480p, 360p] – HEVC/AVC – [DD+5.1 – 384kbps &amp; AAC2.0] – Esubs](https://www.1tamilmv.tips/index.php?/forums/topic/172003-aithe-20-2018-telugu-aha-web-dl-%E2%80%93-4k-2160p-1080p-720p-480p-360p-%E2%80%93-hevcavc-%E2%80%93-dd51-%E2%80%93-384kbps-aac20-%E2%80%93-esubs/&do=findComment&comment=343755)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
