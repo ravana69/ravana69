@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Smurfs: The Lost Village &lpar;2017&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Malayalam + Kannada + Eng&rpar; - 2.2GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin + Mal + Kan&rpar; - 500MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172201-smurfs-the-lost-village-2017-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-eng-22gb-11gb-x264-tam-tel-hin-mal-kan-500mb-esub/&do=findComment&comment=343800)
 - [Run Baby Run 2023 Tamil SS WEB DL H264 DDP5.1&lpar;Atmos&rpar; - [2160p&amp; 1080p - 6.2GB - 3.5GB] [Drive]](https://www.1tamilmv.tips/index.php?/forums/topic/168047-run-baby-run-2023-tamil-ss-web-dl-h264-ddp51atmos-2160p-1080p-62gb-35gb-drive/&do=findComment&comment=343799)
 - [Dochevaarevarura &lpar;2023&rpar; Telugu Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.tips/index.php?/forums/topic/172199-dochevaarevarura-2023-telugu-proper-hq-predvd-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=343796)
 - [Nede Vidudala &lpar;2023&rpar; Telugu Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.tips/index.php?/forums/topic/172198-nede-vidudala-2023-telugu-proper-hq-predvd-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=343795)
 - [Wednesday &lpar;2022&rpar; Original Series Soundtrack Master Quality 24bit - FLAC - Danny Elfman &amp; Chris Bacon Musical - 1.16 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172178-wednesday-2022-original-series-soundtrack-master-quality-24bit-flac-danny-elfman-chris-bacon-musical-116-gb/&do=findComment&comment=343794)
-- [Iratta &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Malayalam + Kannada] - 5.8GB - 2.8GB - 1.6GB &amp; 1GB] - [x264 - 800MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172189-iratta-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-malayalam-kannada-58gb-28gb-16gb-1gb-x264-800mb-450mb-250mb-esub/&do=findComment&comment=343793)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
