@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Shazam!: Fury of the Gods &lpar;2023&rpar; Original Motion Picture Soundtrack Master Quality 24bit - FLAC - Christophe Beck Musical - 622 MB](https://www.1tamilmv.tips/index.php?/forums/topic/172193-shazam-fury-of-the-gods-2023-original-motion-picture-soundtrack-master-quality-24bit-flac-christophe-beck-musical-622-mb/&do=findComment&comment=343767)
+- [[60FPS] Vikram Vedha &lpar;2017&rpar; 1080p 10bit AMZN WEBRip TAM-HIN DDP5.1 H.265 - 9.4 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172192-60fps-vikram-vedha-2017-1080p-10bit-amzn-webrip-tam-hin-ddp51-h265-94-gb/&do=findComment&comment=343766)
 - [Request your movies as a comment to this topic.!](https://www.1tamilmv.tips/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=343765)
 - [Iratta &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Malayalam + Kannada] - 5.8GB - 2.8GB - 1.6GB &amp; 1GB] - [x264 - 800MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172189-iratta-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-malayalam-kannada-58gb-28gb-16gb-1gb-x264-800mb-450mb-250mb-esub/&do=findComment&comment=343764)
 - [Home &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC / HEVC - AAC - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172182-home-2023-tamil-web-dl-1080p-720p-avc-hevc-aac-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343763)
-- [Iratta &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Malayalam + Kannada] - 5.8GB - 2.8GB - 1.6GB &amp; 1GB] - [x264 - 800MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172189-iratta-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-malayalam-kannada-58gb-28gb-16gb-1gb-x264-800mb-450mb-250mb-esub/&do=findComment&comment=343762)
-- [Dada &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 9GB - 5GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172132-dada-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-9gb-5gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343761)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
