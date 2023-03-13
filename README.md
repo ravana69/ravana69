@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ready &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;Tamil + Telugu&rpar; - 2.7GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172210-ready-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-27gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343838)
 - [Oscars 95th Academy Awards &lpar;2023&rpar; English - S01 E01 TRUE WEB-DL - [1080p &amp; 720p - AVC - 5GB - 2.5GB - 1.4GB]](https://www.1tamilmv.tips/index.php?/forums/topic/172208-oscars-95th-academy-awards-2023-english-s01-e01-true-web-dl-1080p-720p-avc-5gb-25gb-14gb/&do=findComment&comment=343837)
 - [Ready &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;Tamil + Telugu&rpar; - 2.7GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172210-ready-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-27gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343836)
 - [David &lpar;2013&rpar; Dual &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [Tamil DD+5.1 &lpar;640Kbps&rpar; - Telugu DDP 2.0 &lpar;224k&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.tips/index.php?/forums/topic/172080-david-2013-dual-music-video-album-1080p-web-hd-untouched-avc-tamil-dd51-640kbps-telugu-ddp-20-224k-e-sub-by-beast-uk/&do=findComment&comment=343835)
 - [Ninaivirukka &lpar;From &quot;Pathu Thala&quot;&rpar; Master Quality 24bit 96kHz - FLAC - A.R. Rahman Musical - 82 MB | 69 MB](https://www.1tamilmv.tips/index.php?/forums/topic/172212-ninaivirukka-from-pathu-thala-master-quality-24bit-96khz-flac-ar-rahman-musical-82-mb-69-mb/&do=findComment&comment=343834)
-- [Ninaivirukka &lpar;From &quot;Pathu Thala&quot;&rpar; Master Quality 24bit 96kHz - FLAC - A.R. Rahman Musical - 82 MB | 69 MB](https://www.1tamilmv.tips/index.php?/forums/topic/172212-ninaivirukka-from-pathu-thala-master-quality-24bit-96khz-flac-ar-rahman-musical-82-mb-69-mb/&do=findComment&comment=343833)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
