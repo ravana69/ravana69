@@ -22,10 +22,10 @@
 
 <!-- BLOG-POST-LIST:START -->
 - [Ayothi &lpar;2023&rpar; Tamil [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - N R Raghunandan Musical](https://www.1tamilmv.tips/index.php?/forums/topic/172181-ayothi-2023-tamil-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-n-r-raghunandan-musical/&do=findComment&comment=343810)
+- [American Exit &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB]](https://www.1tamilmv.tips/index.php?/forums/topic/172205-american-exit-2019-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-450mb/&do=findComment&comment=343809)
 - [The Last of Us S01E09 HMAX WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR] | 1080p | 720p - 5.6 GB | 2.7 GB | 1.3 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172204-the-last-of-us-s01e09-hmax-web-dl-ddp51-atmos-esubs-2160p-hdr-1080p-720p-56-gb-27-gb-13-gb/&do=findComment&comment=343808)
 - [Kondraal Paavam &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.tips/index.php?/forums/topic/172157-kondraal-paavam-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=343807)
 - [Agilan &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.tips/index.php?/forums/topic/172151-agilan-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=343806)
-- [The Elephant Whisperers &lpar;2022&rpar; WEB-DL Multi DDP5.1 Esubs - 2160p [HDR] | 1080p | 720p - 6 GB | 2.8 GB | 1.7 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172203-the-elephant-whisperers-2022-web-dl-multi-ddp51-esubs-2160p-hdr-1080p-720p-6-gb-28-gb-17-gb/&do=findComment&comment=343805)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
