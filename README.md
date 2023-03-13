@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oru Narupushpamai | Meghamalhar | KS Chithra | Ramesh Narayan | ONV Kurup](https://www.youtube.com/watch?v=ybaycVOlxLs)
 - [En Jeevane Engaanu Nee | Devadoothan | KJ Yesudas | Vidyasagar | Kaithapram](https://www.youtube.com/watch?v=AZQypD4pSQc)
 - [Congratulations to MM Keeravani for the Oscar Award Achievement](https://www.youtube.com/watch?v=Hn_LMNv3508)
 - [Manikyakallal Video Song | Mohanlal | Divya Unni | MG Sreekumar | Swarnalatha | Vidyasagar](https://www.youtube.com/watch?v=Mm-0hz1JBHg)
 - [ഉദയഗിരി ഇറങ്ങി വരും കാറ്റേ | Udayagiri Irangivarum Katte | Ilanjippookkal 1986 | K. S Chithra](https://www.youtube.com/watch?v=K3vEVIfVRYY)
 - [Krushil Enne Thedivanna Sneham | Nonstop Evergreen Christian Songs | Superhit Christian Songs](https://www.youtube.com/watch?v=kWp0AraCI3o)
-- [Nokkipparkkunne Ikshithiyathil | Christian Shorts Video | നോക്കിപ്പാർക്കുന്നേ | Releasing Soon](https://www.youtube.com/watch?v=ZTHB-m6nmFk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
