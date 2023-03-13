@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [En Jeevane Engaanu Nee | Devadoothan | KJ Yesudas | Vidyasagar | Kaithapram](https://www.youtube.com/watch?v=AZQypD4pSQc)
+- [Congratulations to MM Keeravani for the Oscar Award Achievement](https://www.youtube.com/watch?v=Hn_LMNv3508)
+- [Manikyakallal Video Song | Mohanlal | Divya Unni | MG Sreekumar | Swarnalatha | Vidyasagar](https://www.youtube.com/watch?v=Mm-0hz1JBHg)
+- [ഉദയഗിരി ഇറങ്ങി വരും കാറ്റേ | Udayagiri Irangivarum Katte | Ilanjippookkal 1986 | K. S Chithra](https://www.youtube.com/watch?v=K3vEVIfVRYY)
 - [Krushil Enne Thedivanna Sneham | Nonstop Evergreen Christian Songs | Superhit Christian Songs](https://www.youtube.com/watch?v=kWp0AraCI3o)
 - [Nokkipparkkunne Ikshithiyathil | Christian Shorts Video | നോക്കിപ്പാർക്കുന്നേ | Releasing Soon](https://www.youtube.com/watch?v=ZTHB-m6nmFk)
-- [Congratulations to MM Keeravani for the Oscar Award Achievement](https://www.youtube.com/watch?v=yXgnrCNtzrw)
-- [സ്വകാര്യസ്വത്തായി അഹങ്കരിച്ച എൺപതുകളിലെ ത്രസിപ്പിക്കും സിനിമാഗാനങ്ങൾ  | 80s HITS | MALAYALAM SONGS](https://www.youtube.com/watch?v=Z3Ny6UdMjIM)
-- [മലയാള സിനിമയിലെ മനസ്സിനെ താലോലിക്കുന്ന ആർദ്ര ഗാനങ്ങൾ | Malayalam Evergreen Film Songs](https://www.youtube.com/watch?v=OMxvq747eig)
-- [Prabhatha Geethangal | Kester | Praise and Worship Songs | Christian Morning Prayer Songs](https://www.youtube.com/watch?v=OIJEl0bmNLY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
