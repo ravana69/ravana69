@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ninaivirukka &lpar;From &quot;Pathu Thala&quot;&rpar; Master Quality 24bit 96kHz - FLAC - A.R. Rahman Musical - 82 MB | 69 MB](https://www.1tamilmv.tips/index.php?/forums/topic/172212-ninaivirukka-from-pathu-thala-master-quality-24bit-96khz-flac-ar-rahman-musical-82-mb-69-mb/&do=findComment&comment=343833)
 - [Ready &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;Tamil + Telugu&rpar; - 2.7GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172210-ready-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-27gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343832)
 - [Ready &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;Tamil + Telugu&rpar; - 2.7GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172210-ready-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-27gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343831)
 - [American Exit &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB]](https://www.1tamilmv.tips/index.php?/forums/topic/172205-american-exit-2019-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-450mb/&do=findComment&comment=343830)
 - [Oscars 95th Academy Awards &lpar;2023&rpar; English - S01 E01 TRUE WEB-DL - [1080p &amp; 720p - AVC - 5GB - 2.5GB - 1.4GB]](https://www.1tamilmv.tips/index.php?/forums/topic/172208-oscars-95th-academy-awards-2023-english-s01-e01-true-web-dl-1080p-720p-avc-5gb-25gb-14gb/&do=findComment&comment=343829)
-- [Smurfs: The Lost Village &lpar;2017&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Malayalam + Kannada + Eng&rpar; - 2.2GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin + Mal + Kan&rpar; - 500MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172201-smurfs-the-lost-village-2017-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-eng-22gb-11gb-x264-tam-tel-hin-mal-kan-500mb-esub/&do=findComment&comment=343828)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
