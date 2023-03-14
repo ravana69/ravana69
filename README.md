@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഓസ്‌കാർ അവാർഡ് ജേതാവ് തെന്നിന്ത്യയുടെ അഭിമാനം കീരവാണി ഈണമിട്ട മലയാളസിനിമാഗാനങ്ങൾ | KEERAVANI HITS](https://www.youtube.com/watch?v=RfxFvXTik1E)
+- [കേരളക്കരയാകെ ഇളക്കിമറിച്ച ഏവരുടെയും ഇഷ്ടഗാനങ്ങൾ കൊണ്ടൊരു സംഗീതമാല | SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=sTG29W1G4bE)
 - [ഓസ്‌കർ ജേതാവ്  കീരവാണിയുടെ ഹിറ്റ് സോങ്ങ് | M. M. Keeravani | Mammootty | Soorya Manasam](https://www.youtube.com/watch?v=WYwsslLiuZ8)
 - [Stunt Theme Audio Song | Pailwaan Malayalam | Kichcha Sudeepa | Suniel Shetty | Krishna](https://www.youtube.com/watch?v=II2o90jydeo)
 - [Thottal Pookkum Cover | Aparna](https://www.youtube.com/watch?v=cGh3oxjtoCU)
 - [Palaazhi Madhanathil | Dasavatharam| P Jayachandran #shorts](https://www.youtube.com/watch?v=Ej7IRSq-RNM)
-- [Singer Of The Week | Christian Devotinal Songs Malayalam | Kester | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=7SmktNlZkBQ)
-- [Palaazhi Madhanathil | Dasavatharam| P Jayachandran #shorts](https://www.youtube.com/watch?v=3mXAqFube0c)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
