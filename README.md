@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Christy &lpar;2023&rpar; TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 6.4GB - 3GB - 1.5GB &amp; 1GB] - [x264 - 800MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172227-christy-2023-true-web-dl-4k-1080p-720p-avc-hevc-tamil-telugu-hindi-malayalam-kannada-64gb-3gb-15gb-1gb-x264-800mb-450mb-250mb-esub/&do=findComment&comment=343869)
+- [Cocaine Bear &lpar;2023&rpar; English HQ HDRip - 720p - x264 - &lpar;DD5.1 - 192Kbps &amp; AAC&rpar; - 900MB - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172223-cocaine-bear-2023-english-hq-hdrip-720p-x264-dd51-192kbps-aac-900mb-esub/&do=findComment&comment=343868)
 - [Christy &lpar;2023&rpar; TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 6.4GB - 3GB - 1.5GB &amp; 1GB] - [x264 - 800MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172227-christy-2023-true-web-dl-4k-1080p-720p-avc-hevc-tamil-telugu-hindi-malayalam-kannada-64gb-3gb-15gb-1gb-x264-800mb-450mb-250mb-esub/&do=findComment&comment=343867)
 - [Shazam &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.8GB &amp; 1.5GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 500MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172222-shazam-2019-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-38gb-15gb-x264-tam-tel-hin-500mb-esub/&do=findComment&comment=343866)
 - [Cocaine Bear &lpar;2023&rpar; English HQ HDRip - 720p - x264 - &lpar;DD5.1 - 192Kbps &amp; AAC&rpar; - 900MB - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172223-cocaine-bear-2023-english-hq-hdrip-720p-x264-dd51-192kbps-aac-900mb-esub/&do=findComment&comment=343865)
-- [Christy &lpar;2023&rpar; TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 6.4GB - 3GB - 1.5GB &amp; 1GB] - [x264 - 800MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172227-christy-2023-true-web-dl-4k-1080p-720p-avc-hevc-tamil-telugu-hindi-malayalam-kannada-64gb-3gb-15gb-1gb-x264-800mb-450mb-250mb-esub/&do=findComment&comment=343864)
-- [Attahasam &lpar;2004&rpar; Tamil TRUE WEB-DL - 1080p x264 UNTOUCHED - DDP 2.0 - 7.4GB - ESub - Direct Download](https://www.1tamilmv.tips/index.php?/forums/topic/172229-attahasam-2004-tamil-true-web-dl-1080p-x264-untouched-ddp-20-74gb-esub-direct-download/&do=findComment&comment=343863)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
