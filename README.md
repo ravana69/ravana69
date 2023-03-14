@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Christy &lpar;2023&rpar; TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 6.4GB - 3GB - 1.5GB &amp; 1GB] - [x264 - 800MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172227-christy-2023-true-web-dl-4k-1080p-720p-avc-hevc-tamil-telugu-hindi-malayalam-kannada-64gb-3gb-15gb-1gb-x264-800mb-450mb-250mb-esub/&do=findComment&comment=343874)
+- [Shazam &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.8GB &amp; 1.5GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 500MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172222-shazam-2019-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-38gb-15gb-x264-tam-tel-hin-500mb-esub/&do=findComment&comment=343873)
 - [RRR &lpar;2022&rpar; [Tamil|Telugu] Original Motion Picture Soundtrack Hi-FI Quality 16bit - M.M. Keeravaani Musical - 210 MB | 193 MB](https://www.1tamilmv.tips/index.php?/forums/topic/172219-rrr-2022-tamiltelugu-original-motion-picture-soundtrack-hi-fi-quality-16bit-mm-keeravaani-musical-210-mb-193-mb/&do=findComment&comment=343872)
 - [Vaa Vaathi Full Video Song | Vaathi Movie | Dhanush, Samyuktha | GV Prakash Kumar | Venky Atluri](https://www.1tamilmv.tips/index.php?/forums/topic/172231-vaa-vaathi-full-video-song-vaathi-movie-dhanush-samyuktha-gv-prakash-kumar-venky-atluri/&do=findComment&comment=343871)
 - [t67_2501_3.thumb.jpeg.b9be749d0496c4210642f209437cad24.jpeg](https://www.1tamilmv.tips/index.php?/gallery/image/37-t67_2501_3thumbjpegb9be749d0496c4210642f209437cad24jpeg/)
-- [Nayakan[Nayagan]&lpar;1987&rpar; AMZN WEB-DL [1080p &amp; 720p - AVC / HEVC - [Tamil - 14GB - 9GB - 6GB - 4.1GB - 2.8GB -  1.7GB - 1.4GB &amp; 1GB] - [x264 - 700MB - 450MB &amp; 340MB].mkv](https://www.1tamilmv.tips/index.php?/forums/topic/172230-nayakannayagan1987-amzn-web-dl-1080p-720p-avc-hevc-tamil-14gb-9gb-6gb-41gb-28gb-17gb-14gb-1gb-x264-700mb-450mb-340mbmkv/&do=findComment&comment=343870)
-- [Christy &lpar;2023&rpar; TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 6.4GB - 3GB - 1.5GB &amp; 1GB] - [x264 - 800MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172227-christy-2023-true-web-dl-4k-1080p-720p-avc-hevc-tamil-telugu-hindi-malayalam-kannada-64gb-3gb-15gb-1gb-x264-800mb-450mb-250mb-esub/&do=findComment&comment=343869)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
