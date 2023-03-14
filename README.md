@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thottal Pookkum Cover | Aparna](https://www.youtube.com/watch?v=cGh3oxjtoCU)
 - [Palaazhi Madhanathil | Dasavatharam| P Jayachandran #shorts](https://www.youtube.com/watch?v=Ej7IRSq-RNM)
 - [Singer Of The Week | Christian Devotinal Songs Malayalam | Kester | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=7SmktNlZkBQ)
 - [Palaazhi Madhanathil | Dasavatharam| P Jayachandran #shorts](https://www.youtube.com/watch?v=3mXAqFube0c)
 - [13 March 2023](https://www.youtube.com/watch?v=HW0nl-TA7G4)
 - [Neela Nilaave Nee | Oomapenninu Uriyadapayyan | Jayasurya | Kavya Madhavan | Vinayan | Mohan Sithara](https://www.youtube.com/watch?v=LjefXOmyQ3Q)
-- [Congratulations to MM Keeravani for the Oscar Award Achievement](https://www.youtube.com/watch?v=qFMcg8sztlc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
