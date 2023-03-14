@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Veera Simha Reddy &lpar;2023&rpar; TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 15GB - 8GB - 3GB - 1.7GB &amp; 1GB] - [x264 - 850MB - 500MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/171895-veera-simha-reddy-2023-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-tamil-telugu-hindi-malayalam-kannada-15gb-8gb-3gb-17gb-1gb-x264-850mb-500mb-250mb-esub/&do=findComment&comment=343841)
 - [Sasanasabha &lpar;2023&rpar; Telugu Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172214-sasanasabha-2023-telugu-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343840)
 - [Sasanasabha &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172213-sasanasabha-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343839)
 - [Ready &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;Tamil + Telugu&rpar; - 2.7GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172210-ready-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-27gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343838)
 - [Oscars 95th Academy Awards &lpar;2023&rpar; English - S01 E01 TRUE WEB-DL - [1080p &amp; 720p - AVC - 5GB - 2.5GB - 1.4GB]](https://www.1tamilmv.tips/index.php?/forums/topic/172208-oscars-95th-academy-awards-2023-english-s01-e01-true-web-dl-1080p-720p-avc-5gb-25gb-14gb/&do=findComment&comment=343837)
-- [Ready &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;Tamil + Telugu&rpar; - 2.7GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172210-ready-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-27gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343836)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
