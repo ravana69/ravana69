@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Sasanasabha &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172213-sasanasabha-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343853)
+- [Shazam &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.8GB &amp; 1.5GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 500MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172222-shazam-2019-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-38gb-15gb-x264-tam-tel-hin-500mb-esub/&do=findComment&comment=343852)
 - [Kathavarayan &lpar;2008&rpar;.Tamil.480p.HDTV.x264.AAC2.0  - 2GB](https://www.1tamilmv.tips/index.php?/forums/topic/172221-kathavarayan-2008tamil480phdtvx264aac20-2gb/&do=findComment&comment=343851)
 - [Dada &lpar;2023&rpar; Tamil - Music Videos - AMZN - WEB-DL - 1080p - AVC - DDP 5.1&lpar;640kbps&rpar; - ESub - 2.4GB](https://www.1tamilmv.tips/index.php?/forums/topic/172220-dada-2023-tamil-music-videos-amzn-web-dl-1080p-avc-ddp-51640kbps-esub-24gb/&do=findComment&comment=343850)
 - [Sasanasabha &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172213-sasanasabha-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343849)
-- [Ninaivirukka &lpar;From &quot;Pathu Thala&quot;&rpar; Master Quality 24bit 96kHz - FLAC - A.R. Rahman Musical - 82 MB | 69 MB](https://www.1tamilmv.tips/index.php?/forums/topic/172212-ninaivirukka-from-pathu-thala-master-quality-24bit-96khz-flac-ar-rahman-musical-82-mb-69-mb/&do=findComment&comment=343848)
-- [RRR &lpar;2022&rpar; [Tamil|Telugu] Original Motion Picture Soundtrack Hi-FI Quality 16bit - M.M. Keeravaani Musical - 210 MB | 193 MB](https://www.1tamilmv.tips/index.php?/forums/topic/172219-rrr-2022-tamiltelugu-original-motion-picture-soundtrack-hi-fi-quality-16bit-mm-keeravaani-musical-210-mb-193-mb/&do=findComment&comment=343847)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
