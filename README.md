@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Prarthichu Theerum Munpe | Chithra Arun | Joby Kavalam | Joji Johns | Christian Song](https://www.youtube.com/watch?v=FLMRFZGgSxs)
+- [Pakkaala Paadaan | Dreams | Sankar Mahadevan | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=cM1A26Yb2YU)
+- [Dasara (Malayalam) - Official Trailer |  Nani, Keerthy Suresh | Santhosh Narayanan | Srikanth Odela](https://www.youtube.com/watch?v=WxVz6A77tQU)
 - [Swapnam Thyajichaal | Rakshasa Rajavu | K J Yesudas | Mohan Sithara | Vinayan](https://www.youtube.com/watch?v=WK9nauWY-S8)
 - [Congratulations to MM Keeravani for the Oscar Award Achievement](https://www.youtube.com/watch?v=Ctoj1zjBsm4)
 - [Kannil Nilavu Video Song | Rambha | KS Chithra | Deepak Dev | Kaithapram | Chronic Bachelor](https://www.youtube.com/watch?v=Wc8Zrm8yXFo)
-- [Congratulations to MM Keeravani for the Oscar Award Achievement](https://www.youtube.com/watch?v=ETkQ8GbMo3o)
-- [Congratulations to MM Keeravani for the Oscar Award Achievement](https://www.youtube.com/watch?v=67wuxUetXpw)
-- [ഓസ്‌കാർ അവാർഡ് ജേതാവ് തെന്നിന്ത്യയുടെ അഭിമാനം കീരവാണി ഈണമിട്ട മലയാളസിനിമാഗാനങ്ങൾ | KEERAVANI HITS](https://www.youtube.com/watch?v=RfxFvXTik1E)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
