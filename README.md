@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oru Madhura Kinavin (Remix) -Kinavu Reworked- Audio Song | K.J. Yesudas | Bichu Thirumala | Dj Savyo](https://www.youtube.com/watch?v=PZqv_vYUQq0)
+- [Christian Superhit Songs | Kester | Valiya Nombu Songs | Lent Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=MsnPOq1hUqY)
 - [Ullasa Poothirigal (Revival) | Meen | K.J. Yesudas Revival Hits Volume 07](https://www.youtube.com/watch?v=7arYaSHm2lo)
 - [Ravanaprabhu | VIDEO JUKEBOX | Mohanlal | Vasundharadas | Jagathy | Suresh Peters | K J Yesudas](https://www.youtube.com/watch?v=vIZ__NpD4p4)
 - [Nammalu Koyyum Vayalellam Video Song | Mohanlal | KS Chithra | MG Sreekumar | ONV Kurup](https://www.youtube.com/watch?v=qLWOmw4OXT4)
 - [Darling Darling Neeyenikku | Darling Darling | SP Balasubramaniam | Ouseppachan | S Ramesan Nair](https://www.youtube.com/watch?v=xIkp0yY6ljw)
-- [വിടരുമോരോ നാണം | Manjarikal Manjushakal - Enthino Pookkunna Pookkal (1982) | K. J. Yesudas](https://www.youtube.com/watch?v=FwOUOP1uP-M)
-- [Meerayayi Mizhi Nanayumbol - Lyrical Video | Bhagavan | KS Chithra | Gireesh Puthenchery | Mohanlal](https://www.youtube.com/watch?v=Vl66RCNbWyE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
