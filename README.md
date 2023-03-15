@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Hero of Color City &lpar;2014&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Malayalam + Eng&rpar; - 1.6GB &amp; 950MB | x264 - &lpar;Tam + Tel + Hin + Mal&rpar; - 450MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172240-the-hero-of-color-city-2014-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-malayalam-eng-16gb-950mb-x264-tam-tel-hin-mal-450mb-esub/&do=findComment&comment=343887)
 - [SRIMANNARAYANA &lpar;2012&rpar; &lpar;Music Video Album&rpar; - 1080P - GP - WEBDL - AVC - #TEL DDP 5.1 @ 384K - ESubs - 1.2GB 〰️ [Avatar]](https://www.1tamilmv.tips/index.php?/forums/topic/172239-srimannarayana-2012-music-video-album-1080p-gp-webdl-avc-tel-ddp-51-384k-esubs-12gb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=343886)
 - [Mofussil &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.tips/index.php?/forums/topic/172238-mofussil-2023-tamil-true-web-dl-1080p-720p-avc-hevc-26gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=343885)
 - [Cocaine Bear &lpar;2023&rpar; MA WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10] | 1080p | 720p - 16.7 GB | 5.8 GB | 3.2 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172237-cocaine-bear-2023-ma-web-dl-ddp51-atmos-esubs-2160p-hdr10-1080p-720p-167-gb-58-gb-32-gb/&do=findComment&comment=343884)
 - [Sharper 2023 Movie ATVP WebRip English MSubs 480p 720p 1080p 2160p &lpar;Gdrive&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172236-sharper-2023-movie-atvp-webrip-english-msubs-480p-720p-1080p-2160p-gdrive/&do=findComment&comment=343883)
-- [Christy &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil + Telugu + Hindi + Malayalam + Kannada]  3GB - 1.5GB &amp; 1GB] - [x264 - 800MB - 450MB &amp; 250MB] - ESub &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172235-christy-2023-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-hindi-malayalam-kannada-3gb-15gb-1gb-x264-800mb-450mb-250mb-esub-direct-download/&do=findComment&comment=343882)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
