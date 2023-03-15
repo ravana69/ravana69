@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Thirathodum Theeram Mele | Shorts | Aparna Rajeev | Rajeev ONV | BijuMurali | Suresh Gopal | Thuruth](https://www.youtube.com/watch?v=HutlCn7Nd78)
-- [കനകതാരമേ | Kanakatharame | Nagarathil Samsara Vishayam Movie Song | K.S.Chithra | Krishnachandran](https://www.youtube.com/watch?v=E2h3xjZaliQ)
-- [Puda Njoriyana Kayalolam | Thuruth | Shorts |  Suresh Gopal | Rajeev ONV | Sudheep Kumar](https://www.youtube.com/watch?v=1Ip_HdNKkHI)
-- [Peedanubhava Pana | Paul Chittor | Kester | Christian Devotional Songs Malayalam | Daleema](https://www.youtube.com/watch?v=QVVr7qfNm2E)
-- [Oru Poovithalil | Agnidevan | Mohanlal | Revathi | MG Sreekumar | Jagadheesh | Gireesh Puthanchery](https://www.youtube.com/watch?v=9_iap8Xeklk)
-- [14 March 2023](https://www.youtube.com/watch?v=KcwMpLdhNpA)
+- [Oru Comrade Dialogue  Dear Comrade Dialogues   Vijay Deverakonda, Rashmika](https://www.youtube.com/watch?v=qbrN7COD6QI)
+- [Or Oru Government Dialogue | Dear Comrade Dialogues | Vijay Deverakonda, Rashmika](https://www.youtube.com/watch?v=HWJJgcvdPl4)
+- [കുടുംബപ്രേക്ഷകരുടെ പ്രിയതാരം മുകേഷ് അഭിനയിച്ച ചിത്രങ്ങളിലെ ആരും മറക്കാത്ത ഗാനങ്ങൾ | MUKESH HITS](https://www.youtube.com/watch?v=tkZ-bcwssq4)
+- [Nyangal Dialogue | Dear Comrade Dialogues | Vijay Deverakonda, Rashmika](https://www.youtube.com/watch?v=MRx63qUQUhs)
+- [Nee Yaaranu Dialogue | Dear Comrade Dialogues | Vijay Deverakonda, Rashmika](https://www.youtube.com/watch?v=byTKN4cVCQ4)
+- [Nee Avakasham Dialogue | Dear Comrade Dialogues | Vijay Deverakonda, Rashmika](https://www.youtube.com/watch?v=XG9WE4aGDf8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
