@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Puda Njoriyana Kayalolam | Thuruth | Shorts |  Suresh Gopal | Rajeev ONV | Sudheep Kumar](https://www.youtube.com/watch?v=1Ip_HdNKkHI)
 - [Peedanubhava Pana | Paul Chittor | Kester | Christian Devotional Songs Malayalam | Daleema](https://www.youtube.com/watch?v=QVVr7qfNm2E)
 - [Oru Poovithalil | Agnidevan | Mohanlal | Revathi | MG Sreekumar | Jagadheesh | Gireesh Puthanchery](https://www.youtube.com/watch?v=9_iap8Xeklk)
 - [14 March 2023](https://www.youtube.com/watch?v=KcwMpLdhNpA)
 - [Prarthichu Theerum Munpe | Chithra Arun | Joby Kavalam | Joji Johns | Christian Song](https://www.youtube.com/watch?v=FLMRFZGgSxs)
 - [Pakkaala Paadaan | Dreams | Sankar Mahadevan | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=cM1A26Yb2YU)
-- [Dasara (Malayalam) - Official Trailer |  Nani, Keerthy Suresh | Santhosh Narayanan | Srikanth Odela](https://www.youtube.com/watch?v=WxVz6A77tQU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
