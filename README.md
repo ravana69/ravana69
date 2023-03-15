@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ravanaprabhu | VIDEO JUKEBOX | Mohanlal | Vasundharadas | Jagathy | Suresh Peters | K J Yesudas](https://www.youtube.com/watch?v=vIZ__NpD4p4)
+- [Nammalu Koyyum Vayalellam Video Song | Mohanlal | KS Chithra | MG Sreekumar | ONV Kurup](https://www.youtube.com/watch?v=qLWOmw4OXT4)
+- [Darling Darling Neeyenikku | Darling Darling | SP Balasubramaniam | Ouseppachan | S Ramesan Nair](https://www.youtube.com/watch?v=xIkp0yY6ljw)
+- [വിടരുമോരോ നാണം | Manjarikal Manjushakal - Enthino Pookkunna Pookkal (1982) | K. J. Yesudas](https://www.youtube.com/watch?v=FwOUOP1uP-M)
 - [Meerayayi Mizhi Nanayumbol - Lyrical Video | Bhagavan | KS Chithra | Gireesh Puthenchery | Mohanlal](https://www.youtube.com/watch?v=Vl66RCNbWyE)
 - [Thalam Thalam | Karumaadikkuttan | KJ Yesudas | Mohan Sithara | Yusufali Kechery](https://www.youtube.com/watch?v=i5wBND0-z1M)
-- [Oru Comrade Dialogue  Dear Comrade Dialogues   Vijay Deverakonda, Rashmika](https://www.youtube.com/watch?v=qbrN7COD6QI)
-- [Or Oru Government Dialogue | Dear Comrade Dialogues | Vijay Deverakonda, Rashmika](https://www.youtube.com/watch?v=HWJJgcvdPl4)
-- [കുടുംബപ്രേക്ഷകരുടെ പ്രിയതാരം മുകേഷ് അഭിനയിച്ച ചിത്രങ്ങളിലെ ആരും മറക്കാത്ത ഗാനങ്ങൾ | MUKESH HITS](https://www.youtube.com/watch?v=tkZ-bcwssq4)
-- [Nyangal Dialogue | Dear Comrade Dialogues | Vijay Deverakonda, Rashmika](https://www.youtube.com/watch?v=MRx63qUQUhs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
