@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Varthinkal Thellalle | Dreams | Swarnalatha | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=T9NJlDhry44)
-- [Kanakanilave | Kauravar | Malayalam Super Hit Song | Mammootty | Anju - SP Venkitesh Hits](https://www.youtube.com/watch?v=G2OxMJsyGxY)
-- [Ganapathi Bappa Moriya Video Song | Mohanlal | MG Sreekumar | Raveendran | Kaithapram | Abhimanyu](https://www.youtube.com/watch?v=zcI_2HSfgDc)
-- [വർഷങ്ങളേറെയായ്  ശ്രോതാക്കളുടെ മനസിൽ പുതുമഴപോലെ അനുഭൂതിയേകുന്ന സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | MALAYALAM SONGS](https://www.youtube.com/watch?v=rG7CzxaDacg)
-- [കാറ്റും മഴയും വരുന്നല്ലോ | Ninavinte Kaayalil...| Maniyara [1983] | Mammootty, Seema](https://www.youtube.com/watch?v=YX-tcmapEoM)
-- [മലയാളികളുടെ മനസിൽ ചേക്കേറിയ പുതിയ കാലഘട്ടത്തിലെ വിലമതിക്കാനാവാത്ത ഗാനങ്ങൾ | SUPERHIT MOVIE SONGS](https://www.youtube.com/watch?v=_cycqrWZhUg)
+- [Christian Songs Karaoke Malayalam | Joji Johns | Christian Meldoy Songs | Christian Songs](https://www.youtube.com/watch?v=nU0-ssLEfC8)
+- [Ullasa Poothirigal (Revival) | Meen | K.J. Yesudas Revival Hits Volume 07](https://www.youtube.com/watch?v=rmpiEYpuOy4)
+- [Sharathkala Mukile | Rakshasa Rajavu | MG Sreekumar | Mohan Sithara | S Ramesan Nair](https://www.youtube.com/watch?v=RdSMFvGVa3o)
+- [Oru Madhura Kinavin (Remix) -Kinavu Reworked- Audio Song | K.J. Yesudas | Bichu Thirumala | Dj Savyo](https://www.youtube.com/watch?v=8dJfmdW8J1g)
+- [K. J. YESUDAS  CHRISTIAN DEVOTIONAL SONGS/OWN MEDIA MUSIC/](https://www.youtube.com/watch?v=7eOAFBV7loU)
+- [Kuyilina Thedi (Remix) - Future Shock Mix - Audio Song | Janamma David | Dj Savyo](https://www.youtube.com/watch?v=_6DPFFZKJp4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
