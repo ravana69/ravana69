@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [അതിമനോഹരമായ പഴയകാല ഗാനങ്ങൾ old christian songs malayalam with lyrics ! daily worship songs malayalam](https://www.youtube.com/watch?v=qYmBdyIm2dM)
+- [ദൈവകൃപ പകർന്നു നൽകും ഈ ഗാനങ്ങൾ കേൾക്കുമ്പോൾ | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=LMbvyspMDAw)
 - [Kallakurumbi Chellakurumbi | Sathyam | Prithviraj | Priyamani | Sujatha | M Jayachandran](https://www.youtube.com/watch?v=wHIZH6lPzmA)
 - [15 March 2023](https://www.youtube.com/watch?v=6dGkAwigoUs)
 - [Oru Madhura Kinavin (Remix) -Kinavu Reworked- Audio Song | K.J. Yesudas | Bichu Thirumala | Dj Savyo](https://www.youtube.com/watch?v=PZqv_vYUQq0)
 - [Christian Superhit Songs | Kester | Valiya Nombu Songs | Lent Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=MsnPOq1hUqY)
-- [Ullasa Poothirigal (Revival) | Meen | K.J. Yesudas Revival Hits Volume 07](https://www.youtube.com/watch?v=7arYaSHm2lo)
-- [Ravanaprabhu | VIDEO JUKEBOX | Mohanlal | Vasundharadas | Jagathy | Suresh Peters | K J Yesudas](https://www.youtube.com/watch?v=vIZ__NpD4p4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
