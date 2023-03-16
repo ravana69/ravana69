@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Shazam Fury Of The Gods &lpar;2023&rpar; English PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1GB &amp; 400MB]](https://www.1tamilmv.tips/index.php?/forums/topic/172200-shazam-fury-of-the-gods-2023-english-predvd-1080p-720p-x264-28gb-1gb-400mb/&do=findComment&comment=343979)
+- [Shazam! Fury Of The Gods &lpar;2023&rpar; [Tamil + Telugu + Hindi] Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172298-shazam-fury-of-the-gods-2023-tamil-telugu-hindi-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343978)
+- [Shazam! Fury of the Gods &lpar;2023&rpar; Tamil HDCAM - [1080p &amp; 720p - x264 - 2.1GB &amp; 1.1GB | x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.tips/index.php?/forums/topic/172285-shazam-fury-of-the-gods-2023-tamil-hdcam-1080p-720p-x264-21gb-11gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=343977)
+- [Harry Potter collection  2001-2011 Hybrid 2160p UHD Blu-ray Remux HEVC Dovi HDR [DDP2.0 Tamil-Telugu-Hindi AMZN DD 5.1 640Kbps - Eng  DTS-X 7.1]-MSubs 640GB [G-Drive]](https://www.1tamilmv.tips/index.php?/forums/topic/172194-harry-potter-collection-2001-2011-hybrid-2160p-uhd-blu-ray-remux-hevc-dovi-hdr-ddp20-tamil-telugu-hindi-amzn-dd-51-640kbps-eng-dts-x-71-msubs-640gb-g-drive/&do=findComment&comment=343976)
 - [Shazam! Fury of the Gods &lpar;2023&rpar; Tamil HDCAM - [1080p &amp; 720p - x264 - 2.1GB &amp; 1.1GB | x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.tips/index.php?/forums/topic/172285-shazam-fury-of-the-gods-2023-tamil-hdcam-1080p-720p-x264-21gb-11gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=343975)
-- [Unna Pethavan Single &lpar;From 3&lpar;2012&rpar;&rpar; [Tamil MP3 320Kbps] - Anirudh Musical - Unreleased Track - First On Net.mp3](https://www.1tamilmv.tips/index.php?/forums/topic/172297-unna-pethavan-single-from-32012-tamil-mp3-320kbps-anirudh-musical-unreleased-track-first-on-netmp3/&do=findComment&comment=343974)
-- [Uttama Villain&lpar;2015&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil - 6GB - 3.8GB - 2.5GB - 1.4GB - 1.7GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172272-uttama-villain2015-true-web-dl-1080p-720p-avc-hevc-tamil-6gb-38gb-25gb-14gb-17gb-900mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343973)
-- [Shazam! Fury of the Gods &lpar;2023&rpar; Tamil HDCAM - [1080p &amp; 720p - x264 - 2.1GB &amp; 1.1GB | x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.tips/index.php?/forums/topic/172285-shazam-fury-of-the-gods-2023-tamil-hdcam-1080p-720p-x264-21gb-11gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=343972)
-- [Shazam! Fury of the Gods &lpar;2023&rpar; Tamil HDCAM - [1080p &amp; 720p - x264 - 2.1GB &amp; 1.1GB | x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.tips/index.php?/forums/topic/172285-shazam-fury-of-the-gods-2023-tamil-hdcam-1080p-720p-x264-21gb-11gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=343971)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
