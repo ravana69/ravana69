@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Kuttey 2023 Hindi Movie NF WEB-DL 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172268-kuttey-2023-hindi-movie-nf-web-dl-1080p-720p-480p-direct-download/&do=findComment&comment=343929)
-- [Congratulations 2023 Gujarati Movie AMZN WEB-DL 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172267-congratulations-2023-gujarati-movie-amzn-web-dl-1080p-720p-480p-direct-download/&do=findComment&comment=343928)
-- [Samundi &lpar;1992&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 1.8GB - GDRIVE](https://www.1tamilmv.tips/index.php?/forums/topic/172266-samundi-1992tamil480phdtvx264aac20-18gb-gdrive/&do=findComment&comment=343927)
-- [Rocket Boys &lpar;2022&rpar; S01 EP&lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p &amp; 480p - AVC - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 5GB - 2.8GB &amp; 950MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172260-rocket-boys-2022-s01-ep01-08-true-web-dl-1080p-720p-480p-avc-aac-20-tamil-telugu-hindi-malayalam-kannada-5gb-28gb-950mb-esub/&do=findComment&comment=343926)
-- [DESAMUDURU &lpar;2006&rpar; TELUGU &lpar;MUSIC VIDEO ALBUM&rpar; - 1080P - UNTOUCHED WEBDL - AVC - DTS 5.1 - DVD AUDIO - ESUBS - 2.5GB](https://www.1tamilmv.tips/index.php?/forums/topic/172251-desamuduru-2006-telugu-music-video-album-1080p-untouched-webdl-avc-dts-51%C2%A0-dvd-audio-esubs-25gb/&do=findComment&comment=343925)
+- [Kuttey &lpar;2023&rpar; Hindi 1080p WebRip x265 HEVC 10Bit - AC3 - 5.1 - 1.4GB - Esub - Direct Download](https://www.1tamilmv.tips/index.php?/forums/topic/172271-kuttey-2023-hindi-1080p-webrip-x265-hevc-10bit-ac3-51-14gb-esub-direct-download/&do=findComment&comment=343936)
+- [Rocket Boys &lpar;2023&rpar; S02 &lpar; EP01 - EP08 &rpar; Hindi 1080p TRUE WEB-DL AVC - AAC 2.0 - 5.5GB - ESub - Direct Download](https://www.1tamilmv.tips/index.php?/forums/topic/172270-rocket-boys-2023-s02-ep01-ep08-hindi-1080p-true-web-dl-avc-aac-20-55gb-esub-direct-download/&do=findComment&comment=343935)
+- [Bommai Nayagi &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC / HEVC - AAC - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172133-bommai-nayagi-2023-tamil-web-dl-1080p-720p-avc-hevc-aac-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343934)
+- [Rana Naidu &lpar;2023&rpar; S01 EP&lpar;01-10&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tam + Tel + Hin + Mal] - 13GB - 7GB - 1.3GB - 750MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172166-rana-naidu-2023-s01-ep01-10-true-web-dl-1080p-720p-avc-dd51-640kbps-tam-tel-hin-mal-13gb-7gb-13gb-750mb-esub/&do=findComment&comment=343933)
+- [Christy &lpar;2023&rpar; TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 6.4GB - 3GB - 1.5GB &amp; 1GB] - [x264 - 800MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172227-christy-2023-true-web-dl-4k-1080p-720p-avc-hevc-tamil-telugu-hindi-malayalam-kannada-64gb-3gb-15gb-1gb-x264-800mb-450mb-250mb-esub/&do=findComment&comment=343932)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
