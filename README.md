@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കാറ്റും മഴയും വരുന്നല്ലോ | Ninavinte Kaayalil...| Maniyara [1983] | Mammootty, Seema](https://www.youtube.com/watch?v=YX-tcmapEoM)
 - [മലയാളികളുടെ മനസിൽ ചേക്കേറിയ പുതിയ കാലഘട്ടത്തിലെ വിലമതിക്കാനാവാത്ത ഗാനങ്ങൾ | SUPERHIT MOVIE SONGS](https://www.youtube.com/watch?v=_cycqrWZhUg)
 - [Panchamudipuzha thandi | Sundarakilladi | Bichu thirumala | Ouseppachan | MG Sreekumar | Dileep](https://www.youtube.com/watch?v=O_XafrncWy0)
 - [നീ മധുപകരു മലർചൊരിയു | Nee Madhu Pakaru... | Moodalmanju Superhit Malayalam Movie Song](https://www.youtube.com/watch?v=mCoM4MgjAAY)
 - [Kappal Paattu Lyric Video | Thuramukham | Rajeev Ravi | Nivin Pauly | Shahabaz Aman | Anvar Ali](https://www.youtube.com/watch?v=CW4ZfVkcQPk)
 - [Kuyilina Thedi (Remix) - Future Shock Mix - Audio Song | Janamma David | Dj Savyo](https://www.youtube.com/watch?v=x6jLl6lbE4U)
-- [Aaradhanayaay Maridename | K G Markose | Ashok CLG | Anuraj Adoor | Latest Malayalam Christian Songs](https://www.youtube.com/watch?v=j_yI4RrmY6s)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
