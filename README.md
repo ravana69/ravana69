@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Dheena &lpar;2001&rpar; Tamil TRUE WEB-DL 1080P AVC UNTOUCHED - DDP 2.0 - 9.7GB - ESUB - Direct Download](https://www.1tamilmv.tips/index.php?/forums/topic/172284-dheena-2001-tamil-true-web-dl-1080p-avc-untouched-ddp-20-97gb-esub-direct-download/&do=findComment&comment=343957)
-- [Komaram Puli &lpar;2010&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [Telugu DD+5.1 &lpar;192Kbps&rpar;] By-Beast UK](https://www.1tamilmv.tips/index.php?/forums/topic/172283-komaram-puli-2010-telugu-music-video-album-1080p-web-hd-untouched-avc-telugu-dd51-192kbps-by-beast-uk/&do=findComment&comment=343956)
-- [Khaleja &lpar;2010&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [Telugu DD+5.1 &lpar;192Kbps&rpar;] By-Beast UK](https://www.1tamilmv.tips/index.php?/forums/topic/172282-khaleja-2010-telugu-music-video-album-1080p-web-hd-untouched-avc-telugu-dd51-192kbps-by-beast-uk/&do=findComment&comment=343955)
-- [Fish &amp; Cat[Mahi va Gorbeh] &lpar;2013&rpar; Persian HDTV-Rip [720P - HQ HDRip - x264 - AAC - 1GB].mkv](https://www.1tamilmv.tips/index.php?/forums/topic/172281-fish-catmahi-va-gorbeh-2013-persian-hdtv-rip-720p-hq-hdrip-x264-aac-1gbmkv/&do=findComment&comment=343954)
-- [Pandarathi Puranam - From Karnan &lpar;2021&rpar; - 2nd Single Tamil - Song - FLAC - Santhosh Narayanan Musical](https://www.1tamilmv.tips/index.php?/forums/topic/172280-pandarathi-puranam-from-karnan-2021-2nd-single-tamil-song-flac-santhosh-narayanan-musical/&do=findComment&comment=343953)
+- [Shazam! Fury of the Gods &lpar;2023&rpar; Tamil HDCAM - [1080p &amp; 720p - x264 - 2.1GB &amp; 1.1GB | x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.tips/index.php?/forums/topic/172285-shazam-fury-of-the-gods-2023-tamil-hdcam-1080p-720p-x264-21gb-11gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=343972)
+- [Shazam! Fury of the Gods &lpar;2023&rpar; Tamil HDCAM - [1080p &amp; 720p - x264 - 2.1GB &amp; 1.1GB | x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.tips/index.php?/forums/topic/172285-shazam-fury-of-the-gods-2023-tamil-hdcam-1080p-720p-x264-21gb-11gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=343971)
+- [Shazam Fury Of The Gods &lpar;2023&rpar; English PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1GB &amp; 400MB]](https://www.1tamilmv.tips/index.php?/forums/topic/172200-shazam-fury-of-the-gods-2023-english-predvd-1080p-720p-x264-28gb-1gb-400mb/&do=findComment&comment=343970)
+- [Shazam! Fury Of The Gods &lpar;2023&rpar; English Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172296-shazam-fury-of-the-gods-2023-english-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343969)
+- [Shazam! Fury of the Gods &lpar;2023&rpar; Tamil HDCAM - [1080p &amp; 720p - x264 - 2.1GB &amp; 1.1GB | x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.tips/index.php?/forums/topic/172285-shazam-fury-of-the-gods-2023-tamil-hdcam-1080p-720p-x264-21gb-11gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=343958)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
