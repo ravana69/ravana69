@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Demon Slayer &lpar;Kimetsu No Yaiba&rpar; Complete S02 {Entertainment District} - [1080p - 720p] BluRay 10Bit [&lpar;English + Japanese&rpar;] x265 - ESub &lpar;Google Drive&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172277-demon-slayer-kimetsu-no-yaiba-complete-s02-entertainment-district-1080p-720p-bluray-10bit-english-japanese-x265-esub-google-drive/&do=findComment&comment=343948)
+- [Luther: The Fallen Sun 2023 Movie Hindi &amp; Multi Audio NF WEB-DL 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172275-luther-the-fallen-sun-2023-movie-hindi-multi-audio-nf-web-dl-1080p-720p-480p-direct-download/&do=findComment&comment=343946)
+- [Shazam &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.8GB &amp; 1.5GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 500MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172222-shazam-2019-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-38gb-15gb-x264-tam-tel-hin-500mb-esub/&do=findComment&comment=343945)
 - [Missing &lpar;2023&rpar; English TRUE WEB-DL - 4K SDR - HEVC - &lpar;DD+5.1 - 640kbps&rpar; - 10GB - ESub.mkv](https://www.1tamilmv.tips/index.php?/forums/topic/172274-missing-2023-english-true-web-dl-4k-sdr-hevc-dd51-640kbps-10gb-esubmkv/&do=findComment&comment=343944)
 - [Hello June &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172273-hello-june-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343943)
-- [Laatti Charge &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172261-laatti-charge-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-atmos-448kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=343942)
-- [Hello June &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;Tamil + Malayalam&rpar; - 2.5GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172269-hello-june-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-malayalam-25gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=343941)
-- [Rocket Boys &lpar;2022&rpar; S01 EP&lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p &amp; 480p - AVC - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 5GB - 2.8GB &amp; 950MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172260-rocket-boys-2022-s01-ep01-08-true-web-dl-1080p-720p-480p-avc-aac-20-tamil-telugu-hindi-malayalam-kannada-5gb-28gb-950mb-esub/&do=findComment&comment=343940)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
