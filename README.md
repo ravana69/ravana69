@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Varthinkal Thellalle | Dreams | Swarnalatha | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=T9NJlDhry44)
+- [Kanakanilave | Kauravar | Malayalam Super Hit Song | Mammootty | Anju - SP Venkitesh Hits](https://www.youtube.com/watch?v=G2OxMJsyGxY)
+- [Ganapathi Bappa Moriya Video Song | Mohanlal | MG Sreekumar | Raveendran | Kaithapram | Abhimanyu](https://www.youtube.com/watch?v=zcI_2HSfgDc)
+- [വർഷങ്ങളേറെയായ്  ശ്രോതാക്കളുടെ മനസിൽ പുതുമഴപോലെ അനുഭൂതിയേകുന്ന സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | MALAYALAM SONGS](https://www.youtube.com/watch?v=rG7CzxaDacg)
 - [കാറ്റും മഴയും വരുന്നല്ലോ | Ninavinte Kaayalil...| Maniyara [1983] | Mammootty, Seema](https://www.youtube.com/watch?v=YX-tcmapEoM)
 - [മലയാളികളുടെ മനസിൽ ചേക്കേറിയ പുതിയ കാലഘട്ടത്തിലെ വിലമതിക്കാനാവാത്ത ഗാനങ്ങൾ | SUPERHIT MOVIE SONGS](https://www.youtube.com/watch?v=_cycqrWZhUg)
-- [Panchamudipuzha thandi | Sundarakilladi | Bichu thirumala | Ouseppachan | MG Sreekumar | Dileep](https://www.youtube.com/watch?v=O_XafrncWy0)
-- [നീ മധുപകരു മലർചൊരിയു | Nee Madhu Pakaru... | Moodalmanju Superhit Malayalam Movie Song](https://www.youtube.com/watch?v=mCoM4MgjAAY)
-- [Khali Purse Of Billionaires Audio Jukebox | Dhyan Sreenivasan |Prakash Alex |Anil Lal | Maxwell Jose](https://www.youtube.com/watch?v=HyAEWQ3VEGM)
-- [Kappal Paattu Lyric Video | Thuramukham | Rajeev Ravi | Nivin Pauly | Shahabaz Aman | Anvar Ali](https://www.youtube.com/watch?v=CW4ZfVkcQPk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
