@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kappal Paattu Lyric Video | Thuramukham | Rajeev Ravi | Nivin Pauly | Shahabaz Aman | Anvar Ali](https://www.youtube.com/watch?v=CW4ZfVkcQPk)
+- [Kuyilina Thedi (Remix) - Future Shock Mix - Audio Song | Janamma David | Dj Savyo](https://www.youtube.com/watch?v=x6jLl6lbE4U)
 - [അതിമനോഹരമായ പഴയകാല ഗാനങ്ങൾ old christian songs malayalam with lyrics ! daily worship songs malayalam](https://www.youtube.com/watch?v=qYmBdyIm2dM)
 - [ദൈവകൃപ പകർന്നു നൽകും ഈ ഗാനങ്ങൾ കേൾക്കുമ്പോൾ | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=LMbvyspMDAw)
 - [Kallakurumbi Chellakurumbi | Sathyam | Prithviraj | Priyamani | Sujatha | M Jayachandran](https://www.youtube.com/watch?v=wHIZH6lPzmA)
 - [15 March 2023](https://www.youtube.com/watch?v=6dGkAwigoUs)
-- [Oru Madhura Kinavin (Remix) -Kinavu Reworked- Audio Song | K.J. Yesudas | Bichu Thirumala | Dj Savyo](https://www.youtube.com/watch?v=PZqv_vYUQq0)
-- [Christian Superhit Songs | Kester | Valiya Nombu Songs | Lent Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=MsnPOq1hUqY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
