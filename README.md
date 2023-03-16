@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Rocket Boys &lpar;2022&rpar; S01 EP&lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p &amp; 480p - AVC - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 5GB - 2.8GB &amp; 950MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172260-rocket-boys-2022-s01-ep01-08-true-web-dl-1080p-720p-480p-avc-aac-20-tamil-telugu-hindi-malayalam-kannada-5gb-28gb-950mb-esub/&do=findComment&comment=343919)
+- [Kuttey &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 2.3GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172257-kuttey-2023-hindi-true-web-dl-1080p-720p-avc-dd51-atmos-768kbps-23gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=343918)
+- [Laatti Charge &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172261-laatti-charge-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-atmos-448kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=343917)
 - [Laatti Charge &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172261-laatti-charge-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-atmos-448kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=343916)
 - [Rocket Boys &lpar;2022&rpar; S01 EP&lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p &amp; 480p - AVC - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 5GB - 2.8GB &amp; 950MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172260-rocket-boys-2022-s01-ep01-08-true-web-dl-1080p-720p-480p-avc-aac-20-tamil-telugu-hindi-malayalam-kannada-5gb-28gb-950mb-esub/&do=findComment&comment=343915)
-- [Mofussil &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172259-mofussil-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343914)
-- [Kuttey &lpar;2023&rpar; Hindi Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172258-kuttey-2023-hindi-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=343913)
-- [Kuttey &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 2.3GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172257-kuttey-2023-hindi-true-web-dl-1080p-720p-avc-dd51-atmos-768kbps-23gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=343912)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
