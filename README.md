@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Momo In Dubai &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD5.1 - 320Kbps&rpar; - 2.6GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172306-momo-in-dubai-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-320kbps-26gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=344018)
+- [Writer Padmabhushan &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2GB &amp; 1.2GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172303-writer-padmabhushan-2023-telugu-true-web-dl-1080p-720p-avc-aac-2gb-12gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344017)
 - [Once Upon A Time In Jamaaligudda &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172305-once-upon-a-time-in-jamaaligudda-2023-kannada-true-web-dl-1080p-720p-avc-dd51-192kbps-28gb-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=344016)
 - [Writer Padmabhushan &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2GB &amp; 1.2GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172303-writer-padmabhushan-2023-telugu-true-web-dl-1080p-720p-avc-aac-2gb-12gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344015)
 - [Momo In Dubai &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD5.1 - 320Kbps&rpar; - 2.6GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172306-momo-in-dubai-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-320kbps-26gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=344014)
-- [Gandhada Gudi &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+2.0 - 224Kbps&rpar; - 5.4GB - 2.4GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172302-gandhada-gudi-2022-kannada-true-web-dl-1080p-720p-avc-dd20-224kbps-54gb-24gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=344013)
-- [Vaathi &lpar;2023&rpar; NF WEB-DL DDP5.1 Esubs x264 - 1080p| 720p - 5.2 GB | 1.4 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172318-vaathi-2023-nf-web-dl-ddp51-esubs-x264-1080p-720p-52-gb-14-gb/&do=findComment&comment=344012)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
