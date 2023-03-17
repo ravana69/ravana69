@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nattumavin Kombathu | Junior Senior | Kaithapram | M Jayachandran | Kunchacko boban | Meenakshi](https://www.youtube.com/watch?v=VlMPLugMw4I)
+- [Christian Superhit Songs | Kester | Valiya Nombu Songs | Pandalam balan | Joji Johns](https://www.youtube.com/watch?v=DpbfColNsCw)
 - [Manasilum Pookkaalam - Lyrical | Pookkaalam | Vijayaraghavan, KPAC Leela | Sachin Warrier](https://www.youtube.com/watch?v=cMzxosJ9fKo)
 - [Yahi Raadhe Yamuna | Karumaadikkuttan | KS Chithra | Mohan Sithara | Yusufali Kechery](https://www.youtube.com/watch?v=Iix113xO3L0)
 - [Super Girl | Navya Bhaskaran | Anitha Shaiq | Dr. Vandana Bhaskaran | ASQ Music | Musical Album](https://www.youtube.com/watch?v=IXf3HySbjjs)
 - [Nilaponkal Ayelo Song | Thenmavin Kombath Title Song | Gireesh Puthenchery | Malgudi Subha | CO Anto](https://www.youtube.com/watch?v=YQeJTxjbmfI)
-- [Mathapoothiri Penkutti | Devadoothan | MG Sreekumar | Sujatha Mohan | Vidyasagar | Kaithapram](https://www.youtube.com/watch?v=mMFRqm5QEdQ)
-- [കൂത്തമ്പലത്തിൽ വെച്ചോ | Koothambalathil Vecho | Mohanlal Super Hit Movie Video Song | MG. Sreekumar](https://www.youtube.com/watch?v=0C_Sjnt4lMY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
