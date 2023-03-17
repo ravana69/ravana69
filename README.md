@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കാന്തൻ യേശു വാനമേഘേ | Teaser](https://www.youtube.com/watch?v=7V2Hwc1A3-U)
+- [Neeyam Thanalinu | Cocktail | Vijay Yesudas | Thulasi Yatheendran | Anoop Menon | Samvrutha](https://www.youtube.com/watch?v=YgS6pBKs6F8)
+- [Navam | Instrumental - Vocal Fusion | Prakash Ulliyeri | Mattannur Sankarankutty | Vedha Prakash](https://www.youtube.com/watch?v=DDsHuHWmBXc)
 - [Kude Nee | An Anees Burhan Musical](https://www.youtube.com/watch?v=-ongmlpQWDM)
 - [17 March 2023](https://www.youtube.com/watch?v=Ts1PPJqIrW8)
 - [Nattumavin Kombathu | Junior Senior | Kaithapram | M Jayachandran | Kunchacko boban | Meenakshi](https://www.youtube.com/watch?v=VlMPLugMw4I)
-- [Christian Superhit Songs | Kester | Valiya Nombu Songs | Pandalam balan | Joji Johns](https://www.youtube.com/watch?v=DpbfColNsCw)
-- [Manasilum Pookkaalam - Lyrical | Pookkaalam | Vijayaraghavan, KPAC Leela | Sachin Warrier](https://www.youtube.com/watch?v=cMzxosJ9fKo)
-- [Yahi Raadhe Yamuna | Karumaadikkuttan | KS Chithra | Mohan Sithara | Yusufali Kechery](https://www.youtube.com/watch?v=Iix113xO3L0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
