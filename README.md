@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [എത്ര വലിയ ടെൻഷനും ക്ഷിപ്ര നേരം കൊണ്ട് ദൂരെയകറ്റുന്ന ശാന്തമായ മെലഡി ഗാനങ്ങൾ | SOFT MELODY SONGS](https://www.youtube.com/watch?v=LThnILQ-txM)
+- [ശാന്ത സുന്ദര മെലഡി ഗാനങ്ങൾ  | MELODY SONGS MALAYALAM | EVERGREEN MELODY SONGS | NISARI MUSIC](https://www.youtube.com/watch?v=MM-vlvTeMhw)
 - [പോയകാലം പൂവിരിച്ച | Poya kaalam Pooviricha | Moonnu Maasangalkku Munpu | Mammootty](https://www.youtube.com/watch?v=bZ2GXUpPUAQ)
 - [Song "  Arikeyonnu Kandoru Neram " from the movie Vellaripattanam #shorts](https://www.youtube.com/watch?v=soVxpL4v0k8)
 - [Song "  Arikeyonnu Kandoru Neram " from the movie Vellaripattanam #shorts](https://www.youtube.com/watch?v=XTUeTiEnzV8)
 - [Songs Of The Week | Wilson Piravom | Joji Johns | Christian Songs | Kester | Holy Communion Songs](https://www.youtube.com/watch?v=NlU_Trve564)
-- [16 March 2023](https://www.youtube.com/watch?v=Yggyelz3Uvk)
-- [Orikkal Nee Paranju | Positive | Skanda Ashok | Ananya | Alex Paul | G Venugopal](https://www.youtube.com/watch?v=HkRGwhZPIto)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
