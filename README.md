@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [RRR &lpar;2022&rpar; [Tamil|Telugu] Original Motion Picture Soundtrack Hi-FI Quality 16bit - M.M. Keeravaani Musical - 210 MB | 193 MB](https://www.1tamilmv.tips/index.php?/forums/topic/172219-rrr-2022-tamiltelugu-original-motion-picture-soundtrack-hi-fi-quality-16bit-mm-keeravaani-musical-210-mb-193-mb/&do=findComment&comment=344070)
 - [Bikili &lpar;From &quot;Pichaikkaran 2&quot;&rpar; Hi-Fi Quality 16bit - FLAC - Vijay Antony Musical - 29 MB](https://www.1tamilmv.tips/index.php?/forums/topic/172343-bikili-from-pichaikkaran-2-hi-fi-quality-16bit-flac-vijay-antony-musical-29-mb/&do=findComment&comment=344069)
 - [Single Shankarum Smartphone Simranum &lpar;2023&rpar; 1080p AMZN WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 8.9 GB | 2.4 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172315-single-shankarum-smartphone-simranum-2023-1080p-amzn-web-dl-ddp51-esubs-x264-1080p-720p-89-gb-24-gb/&do=findComment&comment=344068)
 - [Butta Bomma &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Malayalam + Kannada] - 6GB - 2.8GB - 1.6GB &amp; 1GB] - [x264 - 850MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172032-butta-bomma-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-malayalam-kannada-6gb-28gb-16gb-1gb-x264-850mb-450mb-250mb-esub/&do=findComment&comment=344067)
 - [Michael Jackson - Thriller Album &lpar;1982&rpar; - Wanna Be Startin&#39; Somethin&#39; - FLAC - 44.1khz - English - 42mb](https://www.1tamilmv.tips/index.php?/forums/topic/172340-michael-jackson-thriller-album-1982-wanna-be-startin-somethin-flac-441khz-english-42mb/&do=findComment&comment=344066)
-- [Locke and Key &lpar;2020&rpar; Complete S01 Merged - [1080p - 720p] 10bit NF WEBRip HEVC [&lpar;HIN - ENG&rpar; - DDP 5.1] x265 - ESub [Google Drive]](https://www.1tamilmv.tips/index.php?/forums/topic/172342-locke-and-key-2020-complete-s01-merged-1080p-720p-10bit-nf-webrip-hevc-hin-eng-ddp-51-x265-esub-google-drive/&do=findComment&comment=344065)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
