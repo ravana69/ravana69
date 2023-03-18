@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Michael Jackson - Thriller Album &lpar;1982&rpar; - Wanna Be Startin&#39; Somethin&#39; - FLAC - 44.1khz - English - 42mb](https://www.1tamilmv.tips/index.php?/forums/topic/172340-michael-jackson-thriller-album-1982-wanna-be-startin-somethin-flac-441khz-english-42mb/&do=findComment&comment=344062)
+- [Kuruthipunal&lpar;1995&rpar; TRUE Upscaled - [1080p &amp; 720p - AVC / HEVC - [Tamil - 8GB - 6GB - 2.5GB - 1.4GB - 1.7GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.tips/index.php?/forums/topic/172339-kuruthipunal1995-true-upscaled-1080p-720p-avc-hevc-tamil-8gb-6gb-25gb-14gb-17gb-900mb-x264-700mb-400mb-250mb/&do=findComment&comment=344061)
 - [Cannibal Holocaust &lpar;1980&rpar; Blu-ray REMASTERED [English - BDRip - 1080p HD AVC UNTOUCHED - x264 - FLAC2.0 - 12GB - MSub.mkv](https://www.1tamilmv.tips/index.php?/forums/topic/172338-cannibal-holocaust-1980-blu-ray-remastered-english-bdrip-1080p-hd-avc-untouched-x264-flac20-12gb-msubmkv/&do=findComment&comment=344060)
 - [Hansika&#39;s Love Shaadi Drama &lpar;2023&rpar; S01 EP06 TRUE WEB-DL - [1080p, 720p - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 900MB - 300MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172307-hansikas-love-shaadi-drama-2023-s01-ep06-true-web-dl-1080p-720p-tamil-telugu-hindi-eng-dd51-192kbps-900mb-300mb-esub/&do=findComment&comment=344059)
 - [Bodhai Ah Viduda [Mathu Vadalara] &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;Tamil + Telugu&rpar; - 2.5GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172276-bodhai-ah-viduda-mathu-vadalara-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-25gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344058)
-- [Kabzaa &lpar;2023&rpar; Kannada Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.tips/index.php?/forums/topic/171911-kabzaa-2023-kannada-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=344057)
-- [The Magician&#39;s Elephant &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172319-the-magicians-elephant-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-3gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=344056)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
