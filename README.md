@@ -33,9 +33,9 @@
 - [വാരാന്ത്യ ആഘോഷപരിപാടികൾക്ക് ചുക്കാൻ പിടിക്കുന്ന മലയാളസിനിമയിലെ തട്ടുപൊളിപ്പൻഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=GICguoCA0u8)
 - [മലയാളസിനിമയിലെ പേരുകേട്ട അടിപൊളി ഗാനങ്ങൾ  | SUPERHIT MALAYALAM SONGS | NISARI CHITHRAGEETHAM](https://www.youtube.com/watch?v=2xqo9BhV45E)
 - [Thappu Thakilu | Manjeeradhwani | MD Rajendran | Ilayaraja | KS Chithra | Malayalam Songs](https://www.youtube.com/watch?v=2S2gYpIz2Tw)
+- [Kallanum Bhagavathiyum Official Teaser 2  |Vishnu Unnikrishnan, Anusree, Mokksha| East Coast Vijayan](https://www.youtube.com/watch?v=rcPYGDXZZh8)
 - [Thirathodum Theeram Mele | Shorts | Aparna Rajeev | Rajeev ONV | BijuMurali | Suresh Gopal | Thuruth](https://www.youtube.com/watch?v=ATNkQqUZAxM)
 - [Navam | ശിവമണി | മട്ടന്നൂർ ശങ്കരൻകുട്ടി | പ്രകാശ് ഉള്ളിയേരി |സുമേഷ് പരമേശ്വർ | വേദ പ്രകാശ്](https://www.youtube.com/watch?v=fJ0mxw5OCwk)
-- [Christian Video Songs Malayalam | Ragi Raj | Kester | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=rRonxhboZuE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
