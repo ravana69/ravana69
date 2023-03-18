@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Drive Angry &lpar;2011&rpar; &lpar;HD + Original Audios&rpar; - [1080p WEB-DL &lpar;DDP 2.0&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 5.4GB] - ESub - Direct Download](https://www.1tamilmv.tips/index.php?/forums/topic/172335-drive-angry-2011-hd-original-audios-1080p-web-dl-ddp-20-tamil-telugu-hindi-eng-54gb-esub-direct-download/&do=findComment&comment=344051)
+- [Vaathi &lpar;2023&rpar; Tamil , Hindi , Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.3GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172334-vaathi-2023-tamil-hindi-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-53gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-soft-esub-direct-download/&do=findComment&comment=344050)
+- [Kabzaa &lpar;2023&rpar; [Tamil + Telugu + Malayalam + Kannada] Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172333-kabzaa-2023-tamil-telugu-malayalam-kannada-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=344049)
 - [Phalana Abbayi Phalana Ammayi &lpar;2023&rpar; Telugu Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172332-phalana-abbayi-phalana-ammayi-2023-telugu-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=344048)
 - [Ghosty &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172331-ghosty-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=344047)
-- [Bodhai Ah Viduda &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172330-bodhai-ah-viduda-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=344046)
-- [The Magician&#39;s Elephant &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172319-the-magicians-elephant-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-3gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=344045)
-- [Ghosty &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.tips/index.php?/forums/topic/172294-ghosty-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=344044)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
