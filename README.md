@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ghosty &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.tips/index.php?/forums/topic/172294-ghosty-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=344044)
+- [Caught Out: Crime Corruption Cricket &lpar;2023&rpar; NF WEB-DL MULTI DDP5.1 Esubs - 1080p [HDR] | 720p - 4.7 GB | 2.9 GB | 2.8 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172329-caught-out-crime-corruption-cricket-2023-nf-web-dl-multi-ddp51-esubs-1080p-hdr-720p-47-gb-29-gb-28-gb/&do=findComment&comment=344043)
+- [The Magicians Elephant &lpar;2023&rpar; NF WEB-DL Multi DDP5.1 Atmos Esubs - 1080p [HDR] | 720p - 5.4 GB | 4.2 GB | 3.2 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172328-the-magicians-elephant-2023-nf-web-dl-multi-ddp51-atmos-esubs-1080p-hdr-720p-54-gb-42-gb-32-gb/&do=findComment&comment=344042)
 - [Dom &lpar;2023&rpar; S02 EP &lpar;01-03&rpar; TRUE WEB-DL - [1080p, 720p - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 640Kbps&rpar; - 5GB - 1.3GB &amp; 700MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172316-dom-2023-s02-ep-01-03-true-web-dl-1080p-720p-tamil-telugu-hindi-eng-dd51-640kbps-5gb-13gb-700mb-esub/&do=findComment&comment=344041)
 - [PULI &lpar;2015&rpar; &lpar;Music Video Album&rpar; 1080P - iTunes - WEBDL - TAM DD 5.1 @ 384K - 1.2GB 〰️ [Avatar]](https://www.1tamilmv.tips/index.php?/forums/topic/172327-puli-2015-music-video-album-1080p-itunes-webdl-tam-dd-51-384k-12gb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=344040)
-- [Hey Raam&lpar;2000&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil - 14GB - 8GB - 5GB - 2.5GB - 1.4GB - 1.7GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172323-hey-raam2000-true-web-dl-1080p-720p-avc-hevc-tamil-14gb-8gb-5gb-25gb-14gb-17gb-900mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344039)
-- [Hey Raam&lpar;2000&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil - 14GB - 8GB - 5GB - 2.5GB - 1.4GB - 1.7GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172323-hey-raam2000-true-web-dl-1080p-720p-avc-hevc-tamil-14gb-8gb-5gb-25gb-14gb-17gb-900mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344038)
-- [Khaleja &lpar;2010&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [Telugu DD+5.1 &lpar;192Kbps&rpar;] By-Beast UK](https://www.1tamilmv.tips/index.php?/forums/topic/172282-khaleja-2010-telugu-music-video-album-1080p-web-hd-untouched-avc-telugu-dd51-192kbps-by-beast-uk/&do=findComment&comment=344037)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
