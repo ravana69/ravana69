@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [📌 VAATHI [Sir] &lpar;2023&rpar; &lpar;Tam + Tel + Hin&rpar; &lpar;Music Video Album&rpar; - HQ 1080P - NF - WEBDL - AVC - MULTI DDP 5.1 @ 640Kbps - ESubs - 1GB 〰️ [Avatar]](https://www.1tamilmv.tips/index.php?/forums/topic/172348-%F0%9F%93%8C-vaathi-sir-2023-tam-tel-hin-music-video-album-hq-1080p-nf-webdl-avc-multi-ddp-51-640kbps-esubs-1gb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=344078)
 - [Butta Bomma &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Malayalam + Kannada] - 6GB - 2.8GB - 1.6GB &amp; 1GB] - [x264 - 850MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172032-butta-bomma-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-malayalam-kannada-6gb-28gb-16gb-1gb-x264-850mb-450mb-250mb-esub/&do=findComment&comment=344077)
 - [Robin Hood 2018 Movie Tamil &amp; Multi Audio BluRay 2160p 4K 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172347-robin-hood-2018-movie-tamil-multi-audio-bluray-2160p-4k-1080p-720p-480p-direct-download/&do=findComment&comment=344076)
 - [Pop Kaun 2023 Season 1 All Episodes Hindi &amp; Multi Audio DSNP WEB-DL 2160p 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172346-pop-kaun-2023-season-1-all-episodes-hindi-multi-audio-dsnp-web-dl-2160p-1080p-720p-480p-direct-download/&do=findComment&comment=344075)
 - [You Keep the Kids 2021 Movie Hindi &amp; Multi Audio AMZN WEB-DL 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172345-you-keep-the-kids-2021-movie-hindi-multi-audio-amzn-web-dl-1080p-720p-480p-direct-download/&do=findComment&comment=344074)
-- [Pathu Thala &lpar;2023&rpar; Tamil MP3 [320Kbps &amp; 128Kbps] - AR.Rahman Musical](https://www.1tamilmv.tips/index.php?/forums/topic/172344-pathu-thala-2023-tamil-mp3-320kbps-128kbps-arrahman-musical/&do=findComment&comment=344073)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
