@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Phalana Abbayi Phalana Ammayi &lpar;2023&rpar; Telugu Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172332-phalana-abbayi-phalana-ammayi-2023-telugu-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=344048)
+- [Ghosty &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172331-ghosty-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=344047)
+- [Bodhai Ah Viduda &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172330-bodhai-ah-viduda-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=344046)
+- [The Magician&#39;s Elephant &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172319-the-magicians-elephant-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-3gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=344045)
 - [Ghosty &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.tips/index.php?/forums/topic/172294-ghosty-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=344044)
-- [Caught Out: Crime Corruption Cricket &lpar;2023&rpar; NF WEB-DL MULTI DDP5.1 Esubs - 1080p [HDR] | 720p - 4.7 GB | 2.9 GB | 2.8 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172329-caught-out-crime-corruption-cricket-2023-nf-web-dl-multi-ddp51-esubs-1080p-hdr-720p-47-gb-29-gb-28-gb/&do=findComment&comment=344043)
-- [The Magicians Elephant &lpar;2023&rpar; NF WEB-DL Multi DDP5.1 Atmos Esubs - 1080p [HDR] | 720p - 5.4 GB | 4.2 GB | 3.2 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172328-the-magicians-elephant-2023-nf-web-dl-multi-ddp51-atmos-esubs-1080p-hdr-720p-54-gb-42-gb-32-gb/&do=findComment&comment=344042)
-- [Dom &lpar;2023&rpar; S02 EP &lpar;01-03&rpar; TRUE WEB-DL - [1080p, 720p - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 640Kbps&rpar; - 5GB - 1.3GB &amp; 700MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172316-dom-2023-s02-ep-01-03-true-web-dl-1080p-720p-tamil-telugu-hindi-eng-dd51-640kbps-5gb-13gb-700mb-esub/&do=findComment&comment=344041)
-- [PULI &lpar;2015&rpar; &lpar;Music Video Album&rpar; 1080P - iTunes - WEBDL - TAM DD 5.1 @ 384K - 1.2GB 〰️ [Avatar]](https://www.1tamilmv.tips/index.php?/forums/topic/172327-puli-2015-music-video-album-1080p-itunes-webdl-tam-dd-51-384k-12gb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=344040)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
