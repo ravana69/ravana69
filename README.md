@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Michael Jackson - Thriller Album &lpar;1982&rpar; - Wanna Be Startin&#39; Somethin&#39; - FLAC - 44.1khz - English - 42mb](https://www.1tamilmv.tips/index.php?/forums/topic/172340-michael-jackson-thriller-album-1982-wanna-be-startin-somethin-flac-441khz-english-42mb/&do=findComment&comment=344066)
 - [Locke and Key &lpar;2020&rpar; Complete S01 Merged - [1080p - 720p] 10bit NF WEBRip HEVC [&lpar;HIN - ENG&rpar; - DDP 5.1] x265 - ESub [Google Drive]](https://www.1tamilmv.tips/index.php?/forums/topic/172342-locke-and-key-2020-complete-s01-merged-1080p-720p-10bit-nf-webrip-hevc-hin-eng-ddp-51-x265-esub-google-drive/&do=findComment&comment=344065)
 - [Popcorn &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.8GB &amp; 1.2GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172341-popcorn-2023-telugu-true-web-dl-1080p-720p-avc-dd51-192kbps-28gb-12gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344064)
 - [RRR &lpar;2022&rpar; [Tamil|Telugu] Original Motion Picture Soundtrack Hi-FI Quality 16bit - M.M. Keeravaani Musical - 210 MB | 193 MB](https://www.1tamilmv.tips/index.php?/forums/topic/172219-rrr-2022-tamiltelugu-original-motion-picture-soundtrack-hi-fi-quality-16bit-mm-keeravaani-musical-210-mb-193-mb/&do=findComment&comment=344063)
 - [Michael Jackson - Thriller Album &lpar;1982&rpar; - Wanna Be Startin&#39; Somethin&#39; - FLAC - 44.1khz - English - 42mb](https://www.1tamilmv.tips/index.php?/forums/topic/172340-michael-jackson-thriller-album-1982-wanna-be-startin-somethin-flac-441khz-english-42mb/&do=findComment&comment=344062)
-- [Kuruthipunal&lpar;1995&rpar; TRUE Upscaled - [1080p &amp; 720p - AVC / HEVC - [Tamil - 8GB - 6GB - 2.5GB - 1.4GB - 1.7GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.tips/index.php?/forums/topic/172339-kuruthipunal1995-true-upscaled-1080p-720p-avc-hevc-tamil-8gb-6gb-25gb-14gb-17gb-900mb-x264-700mb-400mb-250mb/&do=findComment&comment=344061)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
