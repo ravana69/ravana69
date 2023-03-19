@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Butta Bomma &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Malayalam + Kannada] - 6GB - 2.8GB - 1.6GB &amp; 1GB] - [x264 - 850MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172032-butta-bomma-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-malayalam-kannada-6gb-28gb-16gb-1gb-x264-850mb-450mb-250mb-esub/&do=findComment&comment=344084)
+- [Boston Strangler &lpar;2023&rpar; DSNP WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10] | 1080p | 720p - 11.8 GB | 5.8 GB | 2.8 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172352-boston-strangler-2023-dsnp-web-dl-ddp51-atmos-esubs-2160p-hdr10-1080p-720p-118-gb-58-gb-28-gb/&do=findComment&comment=344083)
 - [Boston Strangler &lpar;2023&rpar; DSNP WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10] | 1080p | 720p - 11.8 GB | 5.8 GB | 2.8 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172352-boston-strangler-2023-dsnp-web-dl-ddp51-atmos-esubs-2160p-hdr10-1080p-720p-118-gb-58-gb-28-gb/&do=findComment&comment=344082)
 - [Pathu Thala &lpar;2023&rpar; Original Motion Picture Soundtrack Master Quality 24bit 96kHz - FLAC - A.R. Rahman Musical - 305 MB](https://www.1tamilmv.tips/index.php?/forums/topic/172351-pathu-thala-2023-original-motion-picture-soundtrack-master-quality-24bit-96khz-flac-ar-rahman-musical-305-mb/&do=findComment&comment=344081)
 - [Raavana Kottam &lpar;2023&rpar; Tamil [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - A R Rahman Musical](https://www.1tamilmv.tips/index.php?/forums/topic/172350-raavana-kottam-2023-tamil-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-a-r-rahman-musical/&do=findComment&comment=344080)
-- [Pathu Thala &lpar;2023&rpar; Tamil Trailer &amp; Complete Album [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - A R Rahman Musical](https://www.1tamilmv.tips/index.php?/forums/topic/172349-pathu-thala-2023-tamil-trailer-complete-album-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-a-r-rahman-musical/&do=findComment&comment=344079)
-- [📌 VAATHI [Sir] &lpar;2023&rpar; &lpar;Tam + Tel + Hin&rpar; &lpar;Music Video Album&rpar; - HQ 1080P - NF - WEBDL - AVC - MULTI DDP 5.1 @ 640Kbps - ESubs - 1GB 〰️ [Avatar]](https://www.1tamilmv.tips/index.php?/forums/topic/172348-%F0%9F%93%8C-vaathi-sir-2023-tam-tel-hin-music-video-album-hq-1080p-nf-webdl-avc-multi-ddp-51-640kbps-esubs-1gb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=344078)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
