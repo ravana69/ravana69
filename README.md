@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Muthu&lpar;1995&rpar; Blu-ray - [1080p &amp; 720p - HD AVC / HEVC - &lpar;DTS-HDMA 2.0&lpar;1509Kbps&rpar; + DD2.0&rpar;[Tamil - 10GB - 7GB - 5GB - 2.5GB - 1.4GB - 1.7GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.tips/index.php?/forums/topic/172362-muthu1995-blu-ray-1080p-720p-hd-avc-hevc-dts-hdma-201509kbps-dd20tamil-10gb-7gb-5gb-25gb-14gb-17gb-900mb-x264-700mb-400mb-250mb/&do=findComment&comment=344106)
+- [Sool &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - 1GB &amp; 900MB] - [x264 - 400MB &amp; 250MB]](https://www.1tamilmv.tips/index.php?/forums/topic/172358-sool-2023-tamil-web-dl-1080p-720p-avc-1gb-900mb-x264-400mb-250mb/&do=findComment&comment=344105)
 - [Michael Jackson - Thriller Album &lpar;1982&rpar; - Baby Be Mine - FLAC - 44.1khz - English - 30mb](https://www.1tamilmv.tips/index.php?/forums/topic/172361-michael-jackson-thriller-album-1982-baby-be-mine-flac-441khz-english-30mb/&do=findComment&comment=344104)
 - [Pop Kaun &lpar;2023&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p, 720p - [Tamil + Telugu + Hindi + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 6GB - 1.3GB &amp; 700MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172310-pop-kaun-2023-s01-ep-01-06-true-web-dl-1080p-720p-tamil-telugu-hindi-malayalam-kannada-dd51-192kbps-6gb-13gb-700mb-esub/&do=findComment&comment=344103)
 - [Predestination &lpar;2014&rpar; Bluray[English - 1080p HD AVC UNTOUCHED x264 - DTS 5.1&lpar;1509kbps&rpar; - 7GB - ESub].mkv](https://www.1tamilmv.tips/index.php?/forums/topic/172360-predestination-2014-blurayenglish-1080p-hd-avc-untouched-x264-dts-511509kbps-7gb-esubmkv/&do=findComment&comment=344102)
-- [Lake Placid vs. Anaconda &lpar;2015&rpar; &lpar;UNRATED HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.8GB &amp; 900MB| x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172073-lake-placid-vs-anaconda-2015-unrated-hd-original-audios-1080p-720p-x264-tamil-hindi-eng-18gb-900mb-x264-tam-hin-400mb-esub/&do=findComment&comment=344101)
-- [Butta Bomma &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Malayalam + Kannada] - 6GB - 2.8GB - 1.6GB &amp; 1GB] - [x264 - 850MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172032-butta-bomma-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-malayalam-kannada-6gb-28gb-16gb-1gb-x264-850mb-450mb-250mb-esub/&do=findComment&comment=344100)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
