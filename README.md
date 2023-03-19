@@ -30,12 +30,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Dhooram Ethra Dhooram | Kattaruvi | G Devarajan | AP Gopalan | Sukumaran | Malayalam Songs](https://www.youtube.com/watch?v=_rqDwfE52ME)
+- [മഞ്ഞു മഴക്കാലമല്ലേ ...#shortsyoutube  #bestmelodysongs #youtubeshorts #mohanlal #poojabatra](https://www.youtube.com/watch?v=DGlZMHJxOQc)
 - [Rathriyil Manju Pole | Dreams | Sujatha Mohan | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=xK4bkpqbDz8)
 - [Song "  Arikeyonnu Kandoru Neram " from the movie Vellaripattanam](https://www.youtube.com/watch?v=gtqKHoR3cHo)
 - [Sahyasaanu Shruthi | Karumaadikkuttan | K J Yesudas | Mohan Sithara | Yusufali Kechery | Vinayan](https://www.youtube.com/watch?v=bgn_jukKx-g)
 - [Vellaripattanam |Official Trailer| Manju Warrier | Soubin Shahir |  Mahesh Vettiyaar |Fullon Studios](https://www.youtube.com/watch?v=OE0mHWhPOgY)
-- [Athmavil Video Song | Enthada Saji | Jayasurya | Nivetha Thomas | Nithya Mammen | William Francis](https://www.youtube.com/watch?v=S2j3JTuOWJY)
-- [കാളി കൊടുംകാളി   Release on 21st March Tuesday morning 5 am Lyrics: Siju Thuravoor # Durga Viswanath](https://www.youtube.com/watch?v=JCpXvS2mxJw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
