@@ -21,11 +21,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Butta Bomma &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Malayalam + Kannada] - 6GB - 2.8GB - 1.6GB &amp; 1GB] - [x264 - 850MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172032-butta-bomma-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-malayalam-kannada-6gb-28gb-16gb-1gb-x264-850mb-450mb-250mb-esub/&do=findComment&comment=344090)
 - [RRR &lpar;2022&rpar; [Tamil|Telugu] Original Motion Picture Soundtrack Hi-FI Quality 16bit - M.M. Keeravaani Musical - 210 MB | 193 MB](https://www.1tamilmv.tips/index.php?/forums/topic/172219-rrr-2022-tamiltelugu-original-motion-picture-soundtrack-hi-fi-quality-16bit-mm-keeravaani-musical-210-mb-193-mb/&do=findComment&comment=344089)
 - [John Wick - Chapter 3 - Parabellum &lpar;2019&rpar; AMZN WEB-DL x264 &lpar;DD+ 5.1 - 640Kbps&rpar; [Telugu + Tamil + Hindi + Kannada + English] ESubs [Google Drive]](https://www.1tamilmv.tips/index.php?/forums/topic/172353-john-wick-chapter-3-parabellum-2019-amzn-web-dl-x264-dd-51-640kbps-telugu-tamil-hindi-kannada-english-esubs-google-drive/&do=findComment&comment=344088)
 - [Dada &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 9GB - 5GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172132-dada-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-9gb-5gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344087)
 - [Cooku With Comali &lpar;2023&rpar; Tamil - S04 EP15 TRUE WEB-DL - [1080p, 720p, 480p - AVC - UNTOUCHED - 2.2GB - 900MB &amp; 450MB] [18-03-2023]](https://www.1tamilmv.tips/index.php?/forums/topic/172336-cooku-with-comali-2023-tamil-s04-ep15-true-web-dl-1080p-720p-480p-avc-untouched-22gb-900mb-450mb-18-03-2023/&do=findComment&comment=344086)
-- [Locked &lpar;2023&rpar; S01 EP&lpar;01-07&rpar; Tamil TRUE WEB-DL - [1080p - 720p &amp; 480p - AVC - &lpar;DD+5.1 - 384Kbps &amp; AAC 2.0&rpar; - 2.5GB - 1.3GB &amp; 600MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172308-locked-2023-s01-ep01-07-tamil-true-web-dl-1080p-720p-480p-avc-dd51-384kbps-aac-20-25gb-13gb-600mb-esub/&do=findComment&comment=344085)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
