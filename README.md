@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Never Back Down &lpar;2008&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 1.8GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/171757-never-back-down-2008-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-18gb-1gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=344155)
-- [Racha &lpar;2012&rpar; Telugu Bluray – [1080p, 720p, 576p, 480p] – AVC/HEVC – [DD5.1 – 448kbps &amp; DTS &amp; DTS.HDMA] – Esubs](https://www.1tamilmv.tips/index.php?/forums/topic/172369-racha-2012-telugu-bluray-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avchevc-%E2%80%93-dd51-%E2%80%93-448kbps-dts-dtshdma-%E2%80%93-esubs/&do=findComment&comment=344154)
-- [Kavalai Vendam &lpar;2016&rpar; Tamil TRUE WEB-DL 1080p UNTOUCHED AVC DDP.5.1 - 8GB - Esub - Direct Download](https://www.1tamilmv.tips/index.php?/forums/topic/172379-kavalai-vendam-2016-tamil-true-web-dl-1080p-untouched-avc-ddp51-8gb-esub-direct-download/&do=findComment&comment=344153)
-- [📌 YAMADONGA &lpar;2007&rpar; &lpar;Music Video Album&rpar; - 1080P - AMZN - WEBDL - H264 - TEL DD® 5.1 @ 448K / DTS® 5.1 @ 768K - DVD Sync - Esubs - 2GB](https://www.1tamilmv.tips/index.php?/forums/topic/172378-%F0%9F%93%8C-yamadonga-2007-music-video-album-1080p-amzn-webdl-h264-tel-dd%C2%AE-51-448k-dts%C2%AE-51-768k-dvd-sync-esubs-2gb/&do=findComment&comment=344152)
-- [Aga Naga From &lpar;&quot;PS-2&quot;&rpar; &lpar;2023&rpar; Multi [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - A R Rahman Musical](https://www.1tamilmv.tips/index.php?/forums/topic/172350-aga-naga-from-ps-2-2023-multi-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-a-r-rahman-musical/&do=findComment&comment=344151)
+- [Tirupathi &lpar;2006&rpar; Tamil TRUE WEB-DL 1080p UNTOUCHED HEVC DDP.5.1 - 7.6GB - Esub - Direct Download](https://www.1tamilmv.tips/index.php?/forums/topic/172382-tirupathi-2006-tamil-true-web-dl-1080p-untouched-hevc-ddp51-76gb-esub-direct-download/&do=findComment&comment=344160)
+- [Untouched Tamil BluRay collection BD50 &lpar;Gdrive&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/170655-untouched-tamil-bluray-collection-bd50-gdrive/&do=findComment&comment=344159)
+- [PS2 - Aga Naga - Lyrical - 1080P &amp; 4K - DD5.1 + DTS5.1 &lpar;ITunes M4A Upmixed&rpar; - Cinema Surround 5.1](https://www.1tamilmv.tips/index.php?/forums/topic/172380-ps2-aga-naga-lyrical-1080p-4k-dd51-dts51-itunes-m4a-upmixed-cinema-surround-51/&do=findComment&comment=344158)
+- [The.Last.of.Us.S01E00.Making.of.The.Last.of.Us.1080p.WEB.H264.ESub - 1.8GB](https://www.1tamilmv.tips/index.php?/forums/topic/172381-thelastofuss01e00makingofthelastofus1080pwebh264esub-18gb/&do=findComment&comment=344157)
+- [PS2 - Aga Naga - Lyrical - 1080P &amp; 4K - DD5.1 + DTS5.1 &lpar;ITunes M4A Upmixed&rpar; - Cinema Surround 5.1](https://www.1tamilmv.tips/index.php?/forums/topic/172380-ps2-aga-naga-lyrical-1080p-4k-dd51-dts51-itunes-m4a-upmixed-cinema-surround-51/&do=findComment&comment=344156)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
