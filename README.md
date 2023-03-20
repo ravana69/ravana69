@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [50 Tamil Movies - H264/H265 - DDP5.1/DD5.1/AAC2.0 - ESub - [1080p &amp; 720p - 350GB] [Gdrive]](https://www.1tamilmv.tips/index.php?/forums/topic/164660-50-tamil-movies-h264h265-ddp51dd51aac20-esub-1080p-720p-350gb-gdrive/&do=findComment&comment=344126)
+- [Racha &lpar;2012&rpar; Telugu Bluray – [1080p, 720p, 576p, 480p] – AVC/HEVC – [DD5.1 – 448kbps &amp; DTS &amp; DTS.HDMA] – Esubs](https://www.1tamilmv.tips/index.php?/forums/topic/172369-racha-2012-telugu-bluray-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avchevc-%E2%80%93-dd51-%E2%80%93-448kbps-dts-dtshdma-%E2%80%93-esubs/&do=findComment&comment=344124)
 - [Once Upon A Time In Jamaaligudda &lpar;2023&rpar; Kannada SNXT WEB-DL DDP5.1 Esubs - 2160p [HDR10+] | 1080p | 720p - 8.7 GB | 2.8 GB | 1.1 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172368-once-upon-a-time-in-jamaaligudda-2023-kannada-snxt-web-dl-ddp51-esubs-2160p-hdr10-1080p-720p-87-gb-28-gb-11-gb/&do=findComment&comment=344123)
 - [Butta Bomma &lpar;2023&rpar; NF WEB-DL Multi DDP5.1 Esubs x264 - 1080p | 720p - 5.9 GB | 2.7 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172367-butta-bomma-2023-nf-web-dl-multi-ddp51-esubs-x264-1080p-720p-59-gb-27-gb/&do=findComment&comment=344122)
 - [55 Tamil Movies - 1080p - WEB DL - HEVC x265 - DD5.1 / AAC5.1 / AAC2.0 - Esub - 75GB [GDrive]](https://www.1tamilmv.tips/index.php?/forums/topic/164468-55-tamil-movies-1080p-web-dl-hevc-x265-dd51-aac51-aac20-esub-75gb-gdrive/&do=findComment&comment=344120)
-- [Interstellar &lpar;2014&rpar; - Deluxe Edition - Complete Soundtrack - DD5.1 640Kbps + DTSHDMA5.1 &lpar; Lossless 24Bit TIDAL MASTER FLAC Upmixed&rpar; - 3GB + 1GB](https://www.1tamilmv.tips/index.php?/forums/topic/169183-interstellar-2014-deluxe-edition-complete-soundtrack-dd51-640kbps-dtshdma51-lossless-24bit-tidal-master-flac-upmixed-3gb-1gb/&do=findComment&comment=344119)
-- [Michael Jackson - Thriller Album &lpar;1982&rpar; - Baby Be Mine - FLAC - 44.1khz - English - 30mb](https://www.1tamilmv.tips/index.php?/forums/topic/172361-michael-jackson-thriller-album-1982-baby-be-mine-flac-441khz-english-30mb/&do=findComment&comment=344118)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
