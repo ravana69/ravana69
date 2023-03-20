@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Tamil Bluray - Music Videos Collection  BDRemux - AVC - DTS-HD MA 5.1 - DTS 5.1 - DD 5.1 - ESubs] &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172364-tamil-bluray-music-videos-collection-bdremux-avc-dts-hd-ma-51-dts-51-dd-51-esubs-direct-download/&do=findComment&comment=344127)
-- [50 Tamil Movies - H264/H265 - DDP5.1/DD5.1/AAC2.0 - ESub - [1080p &amp; 720p - 350GB] [Gdrive]](https://www.1tamilmv.tips/index.php?/forums/topic/164660-50-tamil-movies-h264h265-ddp51dd51aac20-esub-1080p-720p-350gb-gdrive/&do=findComment&comment=344126)
-- [Never Back Down: Revolt &lpar;2021&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Eng&rpar; - 2.1GB &amp; 1GB | x264 - &lpar;Tam + Tel&rpar; - 450MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172370-never-back-down-revolt-2021-bluray-original-audios-1080p-720p-x264-tamil-telugu-eng-21gb-1gb-x264-tam-tel-450mb-esub/&do=findComment&comment=344125)
-- [Racha &lpar;2012&rpar; Telugu Bluray – [1080p, 720p, 576p, 480p] – AVC/HEVC – [DD5.1 – 448kbps &amp; DTS &amp; DTS.HDMA] – Esubs](https://www.1tamilmv.tips/index.php?/forums/topic/172369-racha-2012-telugu-bluray-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avchevc-%E2%80%93-dd51-%E2%80%93-448kbps-dts-dtshdma-%E2%80%93-esubs/&do=findComment&comment=344124)
-- [Once Upon A Time In Jamaaligudda &lpar;2023&rpar; Kannada SNXT WEB-DL DDP5.1 Esubs - 2160p [HDR10+] | 1080p | 720p - 8.7 GB | 2.8 GB | 1.1 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172368-once-upon-a-time-in-jamaaligudda-2023-kannada-snxt-web-dl-ddp51-esubs-2160p-hdr10-1080p-720p-87-gb-28-gb-11-gb/&do=findComment&comment=344123)
+- [Secretary Part 1 + 2 - 2023 Hindi Ullu Web Series 720p 1080p 480p HDRip](https://www.1tamilmv.tips/index.php?/forums/topic/153033-secretary-part-1-2-2023-hindi-ullu-web-series-720p-1080p-480p-hdrip/&do=findComment&comment=344136)
+- [Secretary Part 1 + 2 - 2023 Hindi Ullu Web Series 720p 1080p 480p HDRip](https://www.1tamilmv.tips/index.php?/forums/topic/153033-secretary-part-1-2-2023-hindi-ullu-web-series-720p-1080p-480p-hdrip/&do=findComment&comment=344135)
+- [Shoot the Kuruvi &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - 1.5GB &amp; 1GB] - [x264 - 400MB &amp; 250MB]](https://www.1tamilmv.tips/index.php?/forums/topic/172359-shoot-the-kuruvi-2023-tamil-web-dl-1080p-720p-avc-15gb-1gb-x264-400mb-250mb/&do=findComment&comment=344134)
+- [Bhai &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;Tamil + Telugu&rpar; - 2.5GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172366-bhai-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-25gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344133)
+- [Never Back Down: Revolt &lpar;2021&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Eng&rpar; - 2.1GB &amp; 1GB | x264 - &lpar;Tam + Tel&rpar; - 450MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172370-never-back-down-revolt-2021-bluray-original-audios-1080p-720p-x264-tamil-telugu-eng-21gb-1gb-x264-tam-tel-450mb-esub/&do=findComment&comment=344132)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
