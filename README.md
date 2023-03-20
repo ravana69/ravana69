@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Sigappu Rojakkal&lpar;1978&rpar; TRUE Upscaled - [1080p &amp; 720p - AVC / HEVC - [Tamil - 10GB - 7GB - 4GB - 2.5GB - 1.4GB - 1.7GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.tips/index.php?/forums/topic/172376-sigappu-rojakkal1978-true-upscaled-1080p-720p-avc-hevc-tamil-10gb-7gb-4gb-25gb-14gb-17gb-900mb-x264-700mb-400mb-250mb/&do=findComment&comment=344149)
+- [Abhimanyudu &lpar;2018&rpar; Telugu SUNNXT WEB-DL – [1080p, 720p, 576p, 480p] – AVC/HEVC – [DD+5.1 – 192kbps &amp; AAC2.0] – Esubs](https://www.1tamilmv.tips/index.php?/forums/topic/172375-abhimanyudu-2018-telugu-sunnxt-web-dl-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avchevc-%E2%80%93-dd51-%E2%80%93-192kbps-aac20-%E2%80%93-esubs/&do=findComment&comment=344148)
 - [Bhai &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172374-bhai-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=344147)
 - [📌 DESAMUDURU &lpar;2006&rpar; Telugu &lpar;Music Video Album&rpar; - 1080P - WEBDL - AVC - DD® 5.1 @ 448K / DTS® 5.1 @ 1536K - DVD9 OrgAuds - ESubs - 2GB 〰️ [Avatar]](https://www.1tamilmv.tips/index.php?/forums/topic/172241-%F0%9F%93%8C-desamuduru-2006-telugu-music-video-album-1080p-webdl-avc-dd%C2%AE-51-448k-dts%C2%AE-51-1536k-dvd9-orgauds-esubs-2gb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=344146)
 - [Stalin &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu&rpar; - 2.7GB - 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172373-stalin-2023-tamil-web-dl-1080p-720p-avc-tamil-telugu-27gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344145)
-- [Raavana Kottam &lpar;2023&rpar; Tamil [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - A R Rahman Musical](https://www.1tamilmv.tips/index.php?/forums/topic/172350-raavana-kottam-2023-tamil-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-a-r-rahman-musical/&do=findComment&comment=344144)
-- [Once Upon A Time In Jamaaligudda &lpar;2023&rpar; Kannada SNXT WEB-DL DDP5.1 Esubs - 2160p [HDR10+] | 1080p | 720p - 8.7 GB | 2.8 GB | 1.1 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172368-once-upon-a-time-in-jamaaligudda-2023-kannada-snxt-web-dl-ddp51-esubs-2160p-hdr10-1080p-720p-87-gb-28-gb-11-gb/&do=findComment&comment=344143)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
