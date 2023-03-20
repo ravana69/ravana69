@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Never Back Down &lpar;2008&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 1.8GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/171757-never-back-down-2008-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-18gb-1gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=344155)
+- [Racha &lpar;2012&rpar; Telugu Bluray – [1080p, 720p, 576p, 480p] – AVC/HEVC – [DD5.1 – 448kbps &amp; DTS &amp; DTS.HDMA] – Esubs](https://www.1tamilmv.tips/index.php?/forums/topic/172369-racha-2012-telugu-bluray-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avchevc-%E2%80%93-dd51-%E2%80%93-448kbps-dts-dtshdma-%E2%80%93-esubs/&do=findComment&comment=344154)
+- [Kavalai Vendam &lpar;2016&rpar; Tamil TRUE WEB-DL 1080p UNTOUCHED AVC DDP.5.1 - 8GB - Esub - Direct Download](https://www.1tamilmv.tips/index.php?/forums/topic/172379-kavalai-vendam-2016-tamil-true-web-dl-1080p-untouched-avc-ddp51-8gb-esub-direct-download/&do=findComment&comment=344153)
+- [📌 YAMADONGA &lpar;2007&rpar; &lpar;Music Video Album&rpar; - 1080P - AMZN - WEBDL - H264 - TEL DD® 5.1 @ 448K / DTS® 5.1 @ 768K - DVD Sync - Esubs - 2GB](https://www.1tamilmv.tips/index.php?/forums/topic/172378-%F0%9F%93%8C-yamadonga-2007-music-video-album-1080p-amzn-webdl-h264-tel-dd%C2%AE-51-448k-dts%C2%AE-51-768k-dvd-sync-esubs-2gb/&do=findComment&comment=344152)
 - [Aga Naga From &lpar;&quot;PS-2&quot;&rpar; &lpar;2023&rpar; Multi [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - A R Rahman Musical](https://www.1tamilmv.tips/index.php?/forums/topic/172350-aga-naga-from-ps-2-2023-multi-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-a-r-rahman-musical/&do=findComment&comment=344151)
-- [‎Golmaal &lpar;1998&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 2.2GB - GDRIVE](https://www.1tamilmv.tips/index.php?/forums/topic/172377-%E2%80%8Egolmaal-1998tamil480phdtvx264aac20-22gb-gdrive/&do=findComment&comment=344150)
-- [Sigappu Rojakkal&lpar;1978&rpar; TRUE Upscaled - [1080p &amp; 720p - AVC / HEVC - [Tamil - 10GB - 7GB - 4GB - 2.5GB - 1.4GB - 1.7GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.tips/index.php?/forums/topic/172376-sigappu-rojakkal1978-true-upscaled-1080p-720p-avc-hevc-tamil-10gb-7gb-4gb-25gb-14gb-17gb-900mb-x264-700mb-400mb-250mb/&do=findComment&comment=344149)
-- [Abhimanyudu &lpar;2018&rpar; Telugu SUNNXT WEB-DL – [1080p, 720p, 576p, 480p] – AVC/HEVC – [DD+5.1 – 192kbps &amp; AAC2.0] – Esubs](https://www.1tamilmv.tips/index.php?/forums/topic/172375-abhimanyudu-2018-telugu-sunnxt-web-dl-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avchevc-%E2%80%93-dd51-%E2%80%93-192kbps-aac20-%E2%80%93-esubs/&do=findComment&comment=344148)
-- [Bhai &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172374-bhai-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=344147)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
