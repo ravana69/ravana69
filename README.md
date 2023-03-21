@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [സ്വന്തം ഗ്രാമവും നാടും വിട്ട് പോവാനാവാതെ മനസിനെ തടഞ്ഞു നിർത്തുന്ന മലയാളത്തനിമയുള്ള ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=AXontpWe4wQ)
+- [കേൾക്കുന്ന നേരം മനസിന് എന്തെന്നില്ലാത്ത സന്തോഷമേകുന്ന സുഖകര ഗാനങ്ങൾ  | MALAYALAM SOFT MELODIES](https://www.youtube.com/watch?v=vzxwhf3Esk8)
+- [Thirike Njaan Varumenna | Arabikkatha | bijipal | KJ Yesudas | Sreenivasan | Indrajith | Jayasurya](https://www.youtube.com/watch?v=GuKn4KZzcAA)
 - [Singer Of The Week | P Jayachandran | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=AdkWwxdoMgE)
 - [Be Happy Man](https://www.youtube.com/watch?v=d3KjWPtH3g4)
 - [20 March 2023](https://www.youtube.com/watch?v=Aw312IK3QBs)
-- [Christian Superhit Songs | Jessy Raju | Biju Narayanan | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=7k-y-RtyRe4)
-- [Yo Yo Payya | Video Song | Boy Friend | Vinayan | Kaithapram | M.Jayachandran | Alex | Jyotsana](https://www.youtube.com/watch?v=2VWp_l4Z3OE)
-- [Darling Darling Neeyenikku | Darling Darling | Hariharan | Ouseppachan | S Ramesan Nair](https://www.youtube.com/watch?v=s145lPyCMI0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
