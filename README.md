@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kavalai Vendam &lpar;2016&rpar; Tamil TRUE WEB-DL 1080p UNTOUCHED AVC DDP.5.1 - 8GB - Esub - Direct Download](https://www.1tamilmv.tips/index.php?/forums/topic/172379-kavalai-vendam-2016-tamil-true-web-dl-1080p-untouched-avc-ddp51-8gb-esub-direct-download/&do=findComment&comment=344190)
+- [Writer Padmabhushan 2023 Movie Hindi Studio Dub + Telugu WebRip 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172403-writer-padmabhushan-2023-movie-hindi-studio-dub-telugu-webrip-1080p-720p-480p-direct-download/&do=findComment&comment=344189)
 - [Raavan 2022 Bengali Movie DSNP WEB-DL 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172402-raavan-2022-bengali-movie-dsnp-web-dl-1080p-720p-480p-direct-download/&do=findComment&comment=344188)
 - [Butta Bomma 2023 Movie Multi Audio NF WEB-DL 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172401-butta-bomma-2023-movie-multi-audio-nf-web-dl-1080p-720p-480p-direct-download/&do=findComment&comment=344187)
 - [The Magician’s Elephant 2023 Movie Tamil &amp; Multi Audio NF WEB-DL 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172400-the-magician%E2%80%99s-elephant-2023-movie-tamil-multi-audio-nf-web-dl-1080p-720p-480p-direct-download/&do=findComment&comment=344186)
-- [Caught Out: Crime. Corruption.Cricket. 2023 Movie Tamil &amp; Multi Audio NF WEB-DL 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172399-caught-out-crime-corruptioncricket-2023-movie-tamil-multi-audio-nf-web-dl-1080p-720p-480p-direct-download/&do=findComment&comment=344185)
-- [Pop Corn 2023 Telugu Movie AMZN WEB-DL 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172398-pop-corn-2023-telugu-movie-amzn-web-dl-1080p-720p-480p-direct-download/&do=findComment&comment=344184)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
