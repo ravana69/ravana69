@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Shivam &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;Tamil + Telugu&rpar; - 2.9GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.tips/index.php?/forums/topic/172383-shivam-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-29gb-14gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=344169)
 - [PAAYUM PULI &lpar;2015&rpar; Jayasurya &lpar;Music Video Album&rpar; - 1080P - iTUNES - WEBDL - AVC - TAM DD 5.1 @ 384K - TEL DDP 2.0 @ 224K - Esubs - 1GB 〰️ [Avatar]](https://www.1tamilmv.tips/index.php?/forums/topic/172388-paayum-puli-2015-jayasurya-music-video-album-1080p-itunes-webdl-avc-tam-dd-51-384k-tel-ddp-20-224k-esubs-1gb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=344168)
 - [Chalachithram &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 1.8GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.tips/index.php?/forums/topic/172387-chalachithram-2023-malayalam-true-web-dl-1080p-720p-avc-aac-18gb-12gb-x264-700mb-400mb/&do=findComment&comment=344167)
 - [Pathimoonu &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 1.7GB &amp; 950MB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.tips/index.php?/forums/topic/172386-pathimoonu-2023-malayalam-true-web-dl-1080p-720p-avc-aac-17gb-950mb-x264-700mb-400mb/&do=findComment&comment=344166)
 - [Work From Home &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.6GB &amp; 1.5GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.tips/index.php?/forums/topic/172385-work-from-home-2023-malayalam-true-web-dl-1080p-720p-avc-aac-26gb-15gb-x264-700mb-400mb/&do=findComment&comment=344165)
-- [Stalin &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172384-stalin-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=344164)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
