@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Singer Of The Week | P Jayachandran | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=AdkWwxdoMgE)
 - [Be Happy Man](https://www.youtube.com/watch?v=d3KjWPtH3g4)
 - [20 March 2023](https://www.youtube.com/watch?v=Aw312IK3QBs)
 - [Christian Superhit Songs | Jessy Raju | Biju Narayanan | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=7k-y-RtyRe4)
 - [Yo Yo Payya | Video Song | Boy Friend | Vinayan | Kaithapram | M.Jayachandran | Alex | Jyotsana](https://www.youtube.com/watch?v=2VWp_l4Z3OE)
 - [Darling Darling Neeyenikku | Darling Darling | Hariharan | Ouseppachan | S Ramesan Nair](https://www.youtube.com/watch?v=s145lPyCMI0)
-- [Paalinu Madhuram | Rakshasa Rajavu | KJ Yesudas | Mohan Sithara | S Ramesan Nair](https://www.youtube.com/watch?v=Sf0ZQ0Olnmo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
