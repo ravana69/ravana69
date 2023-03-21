@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Azhake Nee Paadum | Joker | K J Yesudas | Mohan Sithara | Lohithadas](https://www.youtube.com/watch?v=C9Y1qz7Ea1M)
+- [Olathumbathirunnooyaladum Video Song | Shobana | S Janaki | Ilayaraja | Bichu Thirumala](https://www.youtube.com/watch?v=myflHjdtkJk)
+- [Nee Mayalle - Video Song | Enkilum Chandrike | Suraj, Basil, Saiju | Vijay Babu | Adithyan | Ifthi](https://www.youtube.com/watch?v=kVJ0iGP3oIY)
 - [#KanniluKannilu | #Ayisha  | #Shorts #YTshorts](https://www.youtube.com/watch?v=9W7ovU2VGpM)
 - [കോവിലിൽ പുലർ‌വേളയിൽ | Sreeraagamo Thedunnu | Pavithram | Mohanlal | Shobana | Sreevidhya](https://www.youtube.com/watch?v=lGTYohBWpEs)
 - [Kaakka Nottam Neetti Enne - Lyrical Video | Duplicate | Jassie Gift | Alex Paul | Suraj Venjaramood](https://www.youtube.com/watch?v=FFrmMBgVvP8)
-- [സ്വന്തം ഗ്രാമവും നാടും വിട്ട് പോവാനാവാതെ മനസിനെ തടഞ്ഞു നിർത്തുന്ന മലയാളത്തനിമയുള്ള ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=AXontpWe4wQ)
-- [കേൾക്കുന്ന നേരം മനസിന് എന്തെന്നില്ലാത്ത സന്തോഷമേകുന്ന സുഖകര ഗാനങ്ങൾ  | MALAYALAM SOFT MELODIES](https://www.youtube.com/watch?v=vzxwhf3Esk8)
-- [Thirike Njaan Varumenna | Arabikkatha | bijipal | KJ Yesudas | Sreenivasan | Indrajith | Jayasurya](https://www.youtube.com/watch?v=GuKn4KZzcAA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
