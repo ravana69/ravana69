@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Game of Thrones Complete S01 Merged [1080p - 720p] 10Bit BluRay 6CH [&lpar;English - AAC5.1&rpar;&lpar;Telugu Fan Dub&rpar;] x265 - ESub [Google Drive]](https://www.1tamilmv.tips/index.php?/forums/topic/172389-game-of-thrones-complete-s01-merged-1080p-720p-10bit-bluray-6ch-english-aac51telugu-fan-dub-x265-esub-google-drive/&do=findComment&comment=344193)
+- [Michael Jackson - Thriller Album &lpar;1982&rpar; - Thriller - FLAC - 44.1khz - English - 41mb](https://www.1tamilmv.tips/index.php?/forums/topic/172405-michael-jackson-thriller-album-1982-thriller-flac-441khz-english-41mb/&do=findComment&comment=344192)
 - [The Whale &lpar;2022&rpar; English AMZN WEB-DL - 4K SDR - 2160p - HEVC - x265 - DD+5.1&lpar;768kbps&rpar; Atmos - 13.5GB - ESub.mkv](https://www.1tamilmv.tips/index.php?/forums/topic/172404-the-whale-2022-english-amzn-web-dl-4k-sdr-2160p-hevc-x265-dd51768kbps-atmos-135gb-esubmkv/&do=findComment&comment=344191)
 - [Kavalai Vendam &lpar;2016&rpar; Tamil TRUE WEB-DL 1080p UNTOUCHED AVC DDP.5.1 - 8GB - Esub - Direct Download](https://www.1tamilmv.tips/index.php?/forums/topic/172379-kavalai-vendam-2016-tamil-true-web-dl-1080p-untouched-avc-ddp51-8gb-esub-direct-download/&do=findComment&comment=344190)
 - [Writer Padmabhushan 2023 Movie Hindi Studio Dub + Telugu WebRip 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172403-writer-padmabhushan-2023-movie-hindi-studio-dub-telugu-webrip-1080p-720p-480p-direct-download/&do=findComment&comment=344189)
-- [Raavan 2022 Bengali Movie DSNP WEB-DL 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172402-raavan-2022-bengali-movie-dsnp-web-dl-1080p-720p-480p-direct-download/&do=findComment&comment=344188)
-- [Butta Bomma 2023 Movie Multi Audio NF WEB-DL 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172401-butta-bomma-2023-movie-multi-audio-nf-web-dl-1080p-720p-480p-direct-download/&do=findComment&comment=344187)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
