@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Gurthunda Seethakalam &lpar;2022&rpar; Malayalam TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DDP 2.0&rpar; - 4.6GB - ESub - Direct Download](https://www.1tamilmv.tips/index.php?/forums/topic/172391-gurthunda-seethakalam-2022-malayalam-true-web-dl-1080p-avc-untouched-ddp-20-46gb-esub-direct-download/&do=findComment&comment=344177)
-- [Muthu&lpar;1995&rpar; Blu-ray - [1080p &amp; 720p - HD AVC / HEVC - &lpar;DTS-HDMA 2.0&lpar;1509Kbps&rpar; + DD2.0&rpar;[Tamil - 10GB - 7GB - 5GB - 2.5GB - 1.4GB - 1.7GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.tips/index.php?/forums/topic/172362-muthu1995-blu-ray-1080p-720p-hd-avc-hevc-dts-hdma-201509kbps-dd20tamil-10gb-7gb-5gb-25gb-14gb-17gb-900mb-x264-700mb-400mb-250mb/&do=findComment&comment=344176)
-- [Work From Home &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.6GB &amp; 1.5GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.tips/index.php?/forums/topic/172385-work-from-home-2023-malayalam-true-web-dl-1080p-720p-avc-aac-26gb-15gb-x264-700mb-400mb/&do=findComment&comment=344175)
-- [Rajasthan &lpar;1999&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 1.6GB](https://www.1tamilmv.tips/index.php?/forums/topic/172390-rajasthan-1999tamil480phdtvx264aac20-16gb/&do=findComment&comment=344174)
-- [Stalin &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu&rpar; - 2.7GB - 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172373-stalin-2023-tamil-web-dl-1080p-720p-avc-tamil-telugu-27gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344173)
+- [Raavan 2022 Bengali Movie DSNP WEB-DL 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172402-raavan-2022-bengali-movie-dsnp-web-dl-1080p-720p-480p-direct-download/&do=findComment&comment=344188)
+- [Butta Bomma 2023 Movie Multi Audio NF WEB-DL 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172401-butta-bomma-2023-movie-multi-audio-nf-web-dl-1080p-720p-480p-direct-download/&do=findComment&comment=344187)
+- [The Magician’s Elephant 2023 Movie Tamil &amp; Multi Audio NF WEB-DL 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172400-the-magician%E2%80%99s-elephant-2023-movie-tamil-multi-audio-nf-web-dl-1080p-720p-480p-direct-download/&do=findComment&comment=344186)
+- [Caught Out: Crime. Corruption.Cricket. 2023 Movie Tamil &amp; Multi Audio NF WEB-DL 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172399-caught-out-crime-corruptioncricket-2023-movie-tamil-multi-audio-nf-web-dl-1080p-720p-480p-direct-download/&do=findComment&comment=344185)
+- [Pop Corn 2023 Telugu Movie AMZN WEB-DL 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172398-pop-corn-2023-telugu-movie-amzn-web-dl-1080p-720p-480p-direct-download/&do=findComment&comment=344184)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
