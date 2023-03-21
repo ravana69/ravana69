@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Shoot the Kuruvi &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - 1.5GB &amp; 1GB] - [x264 - 400MB &amp; 250MB]](https://www.1tamilmv.tips/index.php?/forums/topic/172359-shoot-the-kuruvi-2023-tamil-web-dl-1080p-720p-avc-15gb-1gb-x264-400mb-250mb/&do=findComment&comment=344204)
 - [📌 |4K| - SURYA s/o KRISHNAN &lpar;2008&rpar; Vaaranam Aayiram &lpar;Music Video Album&rpar; - 2160P / 1080P - WEBHD - TEL* DD® 5.1 @ 448K / TAM DTS® 5.1 @ 768K - #DVD Sync 〰️ [Avatar]](https://www.1tamilmv.tips/index.php?/forums/topic/172415-%F0%9F%93%8C-4k-surya-so-krishnan-2008-vaaranam-aayiram-music-video-album-2160p-1080p-webhd-tel-dd%C2%AE-51-448k-tam-dts%C2%AE-51-768k-dvd-sync-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=344203)
 - [Spider-Man &lpar;2002&rpar; BluRay 1080p AVC HYBRID REMUX MSub [Hindi DDP5.1 + Tamil DDP5.1 + Telugu DDP5.1 + English TrueHD Atmos 7.1] [G-Drive]](https://www.1tamilmv.tips/index.php?/forums/topic/172414-spider-man-2002-bluray-1080p-avc-hybrid-remux-msub-hindi-ddp51-tamil-ddp51-telugu-ddp51-english-truehd-atmos-71-g-drive/&do=findComment&comment=344202)
 - [Saaho &lpar;2019&rpar; Tamil AMZN WEB-DL – [1080p, 720p, 576p, 480p] – AVC/HEVC -[DD+5.1 – 640kbps] – Esubs](https://www.1tamilmv.tips/index.php?/forums/topic/172409-saaho-2019-tamil-amzn-web-dl-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avchevc-dd51-%E2%80%93-640kbps-%E2%80%93-esubs/&do=findComment&comment=344197)
 - [Raja The Great &lpar;2017&rpar; Telugu AMZN WEB-DL – [1080p, 720p, 576p, 480p] – AVC/HEVC – [DD+5.1 – 640kbps] – Esubs](https://www.1tamilmv.tips/index.php?/forums/topic/172408-raja-the-great-2017-telugu-amzn-web-dl-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avchevc-%E2%80%93-dd51-%E2%80%93-640kbps-%E2%80%93-esubs/&do=findComment&comment=344196)
-- [Ko &lpar;2011&rpar; Blu-ray [1080p &amp; 720p - HD AVC / HEVC - &lpar;DTS 5.1 &lpar;1509Kbps&rpar; - DD 5.1 &lpar;640Kbps&rpar;[Tamil - 12GB - 8GB - 5GB - 2.5GB - 1.4GB - 1.7GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB]ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172407-ko-2011-blu-ray-1080p-720p-hd-avc-hevc-dts-51-1509kbps-dd-51-640kbpstamil-12gb-8gb-5gb-25gb-14gb-17gb-900mb-x264-700mb-400mb-250mbesub/&do=findComment&comment=344195)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
