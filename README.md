@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pathaan &lpar;2023&rpar; Multi &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [Hin+Tel+Tam DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.tips/index.php?/forums/topic/172422-pathaan-2023-multi-music-video-album-1080p-web-hd-untouched-avc-hinteltam-dd51-640kbps-e-sub-by-beast-uk/&do=findComment&comment=344213)
+- [Pathaan &lpar;2023&rpar; Multi &lpar;MUSIC VIDEO ALBUM&rpar; VBR 4K WEB-HD UNTOUCHED - HEVC - [Hin+Tel+Tam DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.tips/index.php?/forums/topic/172421-pathaan-2023-multi-music-video-album-vbr-4k-web-hd-untouched-hevc-hinteltam-dd51-640kbps-e-sub-by-beast-uk/&do=findComment&comment=344212)
+- [Pathaan &lpar;2023&rpar; Multi &lpar;MUSIC VIDEO ALBUM&rpar; CBR 4K WEB-HD UNTOUCHED - HEVC - [Hin+Tel+Tam DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.tips/index.php?/forums/topic/172420-pathaan-2023-multi-music-video-album-cbr-4k-web-hd-untouched-hevc-hinteltam-dd51-640kbps-e-sub-by-beast-uk/&do=findComment&comment=344211)
 - [Raja Kali Amman &lpar;2000&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 1.7GB](https://www.1tamilmv.tips/index.php?/forums/topic/172419-raja-kali-amman-2000tamil480phdtvx264aac20-17gb/&do=findComment&comment=344210)
 - [Pathaan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 17GB - 11GB - 6GB - 2.7GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172412-pathaan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-17gb-11gb-6gb-27gb-14gb-950mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=344209)
-- [Pathaan &lpar;2023&rpar; Hindi HQ HDRip - 1080p - HEVC - x265 10Bit - AC3 5.1 - 1.7GB - ESub - Direct Download](https://www.1tamilmv.tips/index.php?/forums/topic/172418-pathaan-2023-hindi-hq-hdrip-1080p-hevc-x265-10bit-ac3-51-17gb-esub-direct-download/&do=findComment&comment=344208)
-- [Pathaan &lpar;2023&rpar; AMZN WEB-DL Multi DDP5.1 Esubs - 2160p | 1080p | 720p - 17.5 GB | 11.2 GB | 3.9 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172417-pathaan-2023-amzn-web-dl-multi-ddp51-esubs-2160p-1080p-720p-175-gb-112-gb-39-gb/&do=findComment&comment=344207)
-- [Pathaan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 17GB - 11GB - 6GB - 2.7GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172412-pathaan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-17gb-11gb-6gb-27gb-14gb-950mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=344206)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
