@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kaanthan Yeshu Vaanameghe | Shorts Video | Christian Songs Shorts Video](https://www.youtube.com/watch?v=FSKhevOpx08)
+- [Maarikolunth | Kanninum Kannadikkum | Kalabhavan Mani | M Jayachandran | Rameshan Nair](https://www.youtube.com/watch?v=CdgIXboGtD0)
 - [കാളി കൊടുംകാളി   Sung by Durga Viswanath  Lyrics by Siju Thuravoor](https://www.youtube.com/watch?v=ZQ-TY4cRI18)
 - [Divya Pooja Thudanguvan | Christian Video Song | Gagul Joseph | Entrance Song |  Cyriac Adithyapuram](https://www.youtube.com/watch?v=BPolUgZZy8c)
 - [22 March 2023](https://www.youtube.com/watch?v=-4fM5-CBD3o)
 - [Amme Karmegha Varnini | Kodungallur Devotional Song | Aryavrinda #shorts](https://www.youtube.com/watch?v=16kuUVzb0k8)
-- [Dhoom Dhaam Dhosthay - Video Song | Dasara (Malayalam) | Nani, Keerthy Suresh | Santhosh Narayanan](https://www.youtube.com/watch?v=KpN1fQ83mzM)
-- [Kallanum Bhagavathiyum - MAKING VIDEO 2 | Vishnu Unnikrishnan, Anusree, Mokksha | East Coast Vijayan](https://www.youtube.com/watch?v=VC8fIP65iy4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
