@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pathaan &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 17GB - 11GB - 6.7GB - 2.9GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172410-pathaan-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-17gb-11gb-67gb-29gb-14gb-950mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344257)
+- [Khosty &lpar;2023&rpar; Telugu Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.tips/index.php?/forums/topic/172432-khosty-2023-telugu-proper-hq-predvd-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=344256)
+- [Super Machi &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - x264 - 3.2GB &amp;1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/158673-super-machi-2022-telugu-true-web-dl-1080p-720p-x264-32gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344255)
+- [Pathaan &lpar;2023&rpar; Hindi TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 17GB - 11GB - 6.7GB - 2.9GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172411-pathaan-2023-hindi-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-17gb-11gb-67gb-29gb-14gb-950mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344254)
 - [Anjathe &lpar;2008&rpar;.Tamil.1080p.DVD9Rip.10Bit.HEVC.DD5.1 - 1.7GB](https://www.1tamilmv.tips/index.php?/forums/topic/172443-anjathe-2008tamil1080pdvd9rip10bithevcdd51-17gb/&do=findComment&comment=344253)
-- [Iru Dhuruvam &lpar;2019&rpar; S01 EP &lpar;01-09&rpar; TRUE WEB-DL - [1080p &amp; 720p - HD AVC - &lpar;Tamil + Telugu&rpar; - 3.8GB - 2.3GB &amp; 1.6GB] - [x264 - 1.1GB &amp; 600MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/130914-iru-dhuruvam-2019-s01-ep-01-09-true-web-dl-1080p-720p-hd-avc-tamil-telugu-38gb-23gb-16gb-x264-11gb-600mb-esub/&do=findComment&comment=344252)
-- [Aranmanai Kili &lpar;1993&rpar; - Tamil - Pyramid - Raja - CD PYR 8061 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Illaiyaraaja Musical](https://www.1tamilmv.tips/index.php?/forums/topic/167463-aranmanai-kili-1993-tamil-pyramid-raja-cd-pyr-8061-true-mp3-441khz-16bit-320kbps-illaiyaraaja-musical/&do=findComment&comment=344251)
-- [Aranmanai Kili &lpar;1993&rpar; - Tamil - Pyramid - Raja - CD PYR 8061 - TRUE MP3 - 44.1kHz - 16Bit - 320Kbps - Illaiyaraaja Musical](https://www.1tamilmv.tips/index.php?/forums/topic/167463-aranmanai-kili-1993-tamil-pyramid-raja-cd-pyr-8061-true-mp3-441khz-16bit-320kbps-illaiyaraaja-musical/&do=findComment&comment=344250)
-- [Romeo Juliet &lpar;2015&rpar; Tamil 1080p WEB-DL AAC 2.0  [8.1GB + 4.4GB G-DRIVE] Ninja 360](https://www.1tamilmv.tips/index.php?/forums/topic/106200-romeo-juliet-2015-tamil-1080p-web-dl-aac-20-81gb-44gb-g-drive-ninja-360/&do=findComment&comment=344249)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
