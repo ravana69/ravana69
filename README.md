@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Raja Kali Amman &lpar;2000&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 1.7GB](https://www.1tamilmv.tips/index.php?/forums/topic/172419-raja-kali-amman-2000tamil480phdtvx264aac20-17gb/&do=findComment&comment=344210)
+- [Pathaan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 17GB - 11GB - 6GB - 2.7GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172412-pathaan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-17gb-11gb-6gb-27gb-14gb-950mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=344209)
 - [Pathaan &lpar;2023&rpar; Hindi HQ HDRip - 1080p - HEVC - x265 10Bit - AC3 5.1 - 1.7GB - ESub - Direct Download](https://www.1tamilmv.tips/index.php?/forums/topic/172418-pathaan-2023-hindi-hq-hdrip-1080p-hevc-x265-10bit-ac3-51-17gb-esub-direct-download/&do=findComment&comment=344208)
 - [Pathaan &lpar;2023&rpar; AMZN WEB-DL Multi DDP5.1 Esubs - 2160p | 1080p | 720p - 17.5 GB | 11.2 GB | 3.9 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172417-pathaan-2023-amzn-web-dl-multi-ddp51-esubs-2160p-1080p-720p-175-gb-112-gb-39-gb/&do=findComment&comment=344207)
 - [Pathaan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 17GB - 11GB - 6GB - 2.7GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172412-pathaan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-17gb-11gb-6gb-27gb-14gb-950mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=344206)
-- [Pathaan &lpar;2023&rpar; 1080p HQ AMZN WEB-DL HEVC &lpar;DD+ 5.1 - 640Kbps&rpar; [Hin + Tam + Tel] MSub - 5.8GB - DIRECT LINK](https://www.1tamilmv.tips/index.php?/forums/topic/172416-pathaan-2023-1080p-hq-amzn-web-dl-hevc-dd-51-640kbps-hin-tam-tel-msub-58gb-direct-link/&do=findComment&comment=344205)
-- [Shoot the Kuruvi &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - 1.5GB &amp; 1GB] - [x264 - 400MB &amp; 250MB]](https://www.1tamilmv.tips/index.php?/forums/topic/172359-shoot-the-kuruvi-2023-tamil-web-dl-1080p-720p-avc-15gb-1gb-x264-400mb-250mb/&do=findComment&comment=344204)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
