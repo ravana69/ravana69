@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pathaan &lpar;2023&rpar; AMZN WEB-DL Multi DDP5.1 Esubs - 2160p | 1080p | 720p - 17.5 GB | 11.2 GB | 3.9 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172417-pathaan-2023-amzn-web-dl-multi-ddp51-esubs-2160p-1080p-720p-175-gb-112-gb-39-gb/&do=findComment&comment=344207)
 - [Pathaan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 17GB - 11GB - 6GB - 2.7GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172412-pathaan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-17gb-11gb-6gb-27gb-14gb-950mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=344206)
 - [Pathaan &lpar;2023&rpar; 1080p HQ AMZN WEB-DL HEVC &lpar;DD+ 5.1 - 640Kbps&rpar; [Hin + Tam + Tel] MSub - 5.8GB - DIRECT LINK](https://www.1tamilmv.tips/index.php?/forums/topic/172416-pathaan-2023-1080p-hq-amzn-web-dl-hevc-dd-51-640kbps-hin-tam-tel-msub-58gb-direct-link/&do=findComment&comment=344205)
 - [Shoot the Kuruvi &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - 1.5GB &amp; 1GB] - [x264 - 400MB &amp; 250MB]](https://www.1tamilmv.tips/index.php?/forums/topic/172359-shoot-the-kuruvi-2023-tamil-web-dl-1080p-720p-avc-15gb-1gb-x264-400mb-250mb/&do=findComment&comment=344204)
 - [📌 |4K| - SURYA s/o KRISHNAN &lpar;2008&rpar; Vaaranam Aayiram &lpar;Music Video Album&rpar; - 2160P / 1080P - WEBHD - TEL* DD® 5.1 @ 448K / TAM DTS® 5.1 @ 768K - #DVD Sync 〰️ [Avatar]](https://www.1tamilmv.tips/index.php?/forums/topic/172415-%F0%9F%93%8C-4k-surya-so-krishnan-2008-vaaranam-aayiram-music-video-album-2160p-1080p-webhd-tel-dd%C2%AE-51-448k-tam-dts%C2%AE-51-768k-dvd-sync-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=344203)
-- [Spider-Man &lpar;2002&rpar; BluRay 1080p AVC HYBRID REMUX MSub [Hindi DDP5.1 + Tamil DDP5.1 + Telugu DDP5.1 + English TrueHD Atmos 7.1] [G-Drive]](https://www.1tamilmv.tips/index.php?/forums/topic/172414-spider-man-2002-bluray-1080p-avc-hybrid-remux-msub-hindi-ddp51-tamil-ddp51-telugu-ddp51-english-truehd-atmos-71-g-drive/&do=findComment&comment=344202)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
