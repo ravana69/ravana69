@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pathaan &lpar;2023&rpar; Hindi TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 17GB - 11GB - 6.7GB - 2.9GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172411-pathaan-2023-hindi-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-17gb-11gb-67gb-29gb-14gb-950mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344266)
+- [ashwagandha and cialis together](https://www.1tamilmv.tips/index.php?/forums/topic/172446-ashwagandha-and-cialis-together/&do=findComment&comment=344265)
+- [ashwagandha and cialis together](https://www.1tamilmv.tips/index.php?/forums/topic/172446-ashwagandha-and-cialis-together/&do=findComment&comment=344264)
+- [Rocket Boys &lpar;2023&rpar; S02 &lpar; EP01 - EP08 &rpar; Hindi 1080p TRUE WEB-DL AVC - AAC 2.0 - 5.5GB - ESub - Direct Download](https://www.1tamilmv.tips/index.php?/forums/topic/172270-rocket-boys-2023-s02-ep01-ep08-hindi-1080p-true-web-dl-avc-aac-20-55gb-esub-direct-download/&do=findComment&comment=344263)
 - [Request your movies as a comment to this topic.!](https://www.1tamilmv.tips/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=344262)
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.tips/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=344261)
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.tips/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=344260)
-- [Pokkiri&lpar;2007&rpar; Blu-ray [1080p &amp; 720p - HD AVC / HEVC - &lpar;PCM 5.1&lpar;6912Kbps&rpar; - DD+5.1&lpar;768kbps&rpar; Atmos [Tamil - 13GB - 8GB - 5GB - 2.5GB - 1.4GB - 1.7GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB]ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172439-pokkiri2007-blu-ray-1080p-720p-hd-avc-hevc-pcm-516912kbps-dd51768kbps-atmos-tamil-13gb-8gb-5gb-25gb-14gb-17gb-900mb-x264-700mb-400mb-250mbesub/&do=findComment&comment=344259)
-- [📌 |4K| - PATHAAN &lpar;2023&rpar; &lpar;Hin + Tel + Tam&rpar; &lpar;Music Video Album&rpar; - HQ 4K - AMZN - WEBDL - H265 - DDP 5.1 @ 640K - SoftEsubs - 2.8GB 〰️ [Avatar]](https://www.1tamilmv.tips/index.php?/forums/topic/172445-%F0%9F%93%8C-4k-pathaan-2023-hin-tel-tam-music-video-album-hq-4k-amzn-webdl-h265-ddp-51-640k-softesubs-28gb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=344258)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
