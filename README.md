@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Babysitting &lpar;2014&rpar; French - 1080p - BluRay HQ HDRip - x264 - AAC5.1&lpar;384kbps&rpar; - 1.5GB - ESub.mkv](https://www.1tamilmv.tips/index.php?/forums/topic/172438-babysitting-2014-french-1080p-bluray-hq-hdrip-x264-aac51384kbps-15gb-esubmkv/&do=findComment&comment=344235)
+- [Sin City &lpar;2005&rpar; UNRATED RECUT EXTENDED English - 1080p BluRay HD AVC UNTOUCHED - x264 - DTS 5.1&lpar;1536kbps&rpar; - 12GB - ESub.mkv](https://www.1tamilmv.tips/index.php?/forums/topic/172437-sin-city-2005-unrated-recut-extended-english-1080p-bluray-hd-avc-untouched-x264-dts-511536kbps-12gb-esubmkv/&do=findComment&comment=344234)
 - [Michael Jackson - Thriller Album &lpar;1982&rpar; - Beat It - FLAC - 44.1khz - English - 30mb](https://www.1tamilmv.tips/index.php?/forums/topic/172429-michael-jackson-thriller-album-1982-beat-it-flac-441khz-english-30mb/&do=findComment&comment=344226)
 - [Michael Jackson - Thriller Album &lpar;1982&rpar; - Beat It - FLAC - 44.1khz - English - 30mb](https://www.1tamilmv.tips/index.php?/forums/topic/172429-michael-jackson-thriller-album-1982-beat-it-flac-441khz-english-30mb/&do=findComment&comment=344225)
 - [Pathaan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 17GB - 11GB - 6GB - 2.7GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172412-pathaan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-17gb-11gb-6gb-27gb-14gb-950mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=344224)
-- [Vinaro Bhagyamu Vishnu Katha &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.7GB - 2.4GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172413-vinaro-bhagyamu-vishnu-katha-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-37gb-24gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344223)
-- [Pathaan 2023 Movie Download Tamil &amp; Multi Audio AMZN WEB-DL 2160p 4K 1080p 720p 480p  &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172428-pathaan-2023-movie-download-tamil-multi-audio-amzn-web-dl-2160p-4k-1080p-720p-480p%C2%A0-direct-download/&do=findComment&comment=344222)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
