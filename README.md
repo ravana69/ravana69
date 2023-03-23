@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [[144FPS|60FPS] Pathaan &lpar;2023&rpar; AMZN WEBRip Multi DDP5.1 H.265 - 2160p [4K60FPS] | 1080p [144FPS|60FPS] - 29.7 GB | 18 GB | 11.3 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172449-144fps60fps-pathaan-2023-amzn-webrip-multi-ddp51-h265-2160p-4k60fps-1080p-144fps60fps-297-gb-18-gb-113-gb/&do=findComment&comment=344271)
+- [Aga Naga &lpar;From &quot;Ponniyin Selvan Part-2&quot;&rpar; [Tamil|Telugu|Hindi] Master Quality 24bit - ALAC - A.R. Rahman Musical..m4a [52.83 MB]](https://www.1tamilmv.tips/index.php?/forums/topic/172448-aga-naga-from-ponniyin-selvan-part-2-tamilteluguhindi-master-quality-24bit-alac-ar-rahman-musicalm4a-5283-mb/&do=findComment&comment=344270)
+- [Aga Naga &lpar;From &quot;Ponniyin Selvan Part-2&quot;&rpar; [Tamil|Telugu|Hindi] Master Quality 24bit - ALAC - A.R. Rahman Musical..m4a [52.83 MB]](https://www.1tamilmv.tips/index.php?/forums/topic/172447-aga-naga-from-ponniyin-selvan-part-2-tamilteluguhindi-master-quality-24bit-alac-ar-rahman-musicalm4a-5283-mb/&do=findComment&comment=344269)
 - [Request your movies as a comment to this topic.!](https://www.1tamilmv.tips/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=344268)
 - [Request your movies as a comment to this topic.!](https://www.1tamilmv.tips/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=344267)
-- [Pathaan &lpar;2023&rpar; Hindi TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 17GB - 11GB - 6.7GB - 2.9GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172411-pathaan-2023-hindi-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-17gb-11gb-67gb-29gb-14gb-950mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344266)
-- [ashwagandha and cialis together](https://www.1tamilmv.tips/index.php?/forums/topic/172446-ashwagandha-and-cialis-together/&do=findComment&comment=344265)
-- [ashwagandha and cialis together](https://www.1tamilmv.tips/index.php?/forums/topic/172446-ashwagandha-and-cialis-together/&do=findComment&comment=344264)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
