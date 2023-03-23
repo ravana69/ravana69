@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Pidiyana Pidiyana | Thuruppugulan | Alex Paul | Mammooty | Sneha | Kaithapram | Vineeth Sreenivasan](https://www.youtube.com/watch?v=dA_VSZRQ_fY)
+- [23 March 2023](https://www.youtube.com/watch?v=QDC2QRpp-yY)
 - [Christian Superhit Songs | Easter Special Songs | Madhu Balakrishnan | Holy Week Songs | Joji Johns](https://www.youtube.com/watch?v=v6wRbuh0tN4)
 - [കേരളത്തിലെ വീട്ടമ്മമാർ ഉച്ചമയക്കത്തിന് മുമ്പ് കേൾക്കുന്ന പ്രണയാർദ്രഗാനങ്ങൾ  |EVERGREEN ROMANTIC HITS](https://www.youtube.com/watch?v=K2F4S__xDtw)
 - [Konchi Konchi Koovadi | Colours | Gireesh Puthenchery | Bhama | Roma | Malayalam Song](https://www.youtube.com/watch?v=CMTNOP12KXA)
 - [Thanaro - Lyrical Video | Kasargold | Asif Ali, Sunny Wayne, Vinayakan | Niranj Suresh | Mridul Nair](https://www.youtube.com/watch?v=0p2NY9ITNIQ)
-- [Pakal Poove Video Song | Lalu Alex | KJ Yesudas | Deepak Dev | Kaithapram | Chronic Bachelor](https://www.youtube.com/watch?v=qveDOuZGQnw)
-- [മന്ദമാരുതൻ പോലെ  തഴുകിയുണർത്തുന്ന മലയാളസിനിമയിലെ മനോഹര ഗാനങ്ങൾ | NISARI MUSIC](https://www.youtube.com/watch?v=ZvNfnV49SJw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
