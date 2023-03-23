@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Poovan &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.5GB &amp; 1.5GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.tips/index.php?/forums/topic/172477-poovan-2023-malayalam-true-web-dl-1080p-720p-avc-aac-25gb-15gb-x264-700mb-400mb/&do=findComment&comment=344375)
+- [Poovan &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.5GB &amp; 1.5GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.tips/index.php?/forums/topic/172477-poovan-2023-malayalam-true-web-dl-1080p-720p-avc-aac-25gb-15gb-x264-700mb-400mb/&do=findComment&comment=344373)
+- [📌 |4K| - SURYA s/o KRISHNAN &lpar;2008&rpar; Vaaranam Aayiram &lpar;Music Video Album&rpar; - 2160P / 1080P - WEBHD - TEL* DD® 5.1 @ 448K / TAM DTS® 5.1 @ 768K - #DVD Sync 〰️ [Avatar]](https://www.1tamilmv.tips/index.php?/forums/topic/172415-%F0%9F%93%8C-4k-surya-so-krishnan-2008-vaaranam-aayiram-music-video-album-2160p-1080p-webhd-tel-dd%C2%AE-51-448k-tam-dts%C2%AE-51-768k-dvd-sync-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=344372)
 - [Purusha Pretham &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.6GB &amp; 1.5GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172475-purusha-pretham-2023-malayalam-true-web-dl-1080p-720p-avc-aac-26gb-15gb-x264-700mb-400mb-esub/&do=findComment&comment=344370)
-- [Marudhamalai &lpar;2007&rpar;.Remastered.1080p.SS.WEB-DL.AAC2.0.H.264 - 4.5GB](https://www.1tamilmv.tips/index.php?/forums/topic/172473-marudhamalai-2007remastered1080pssweb-dlaac20h264-45gb/&do=findComment&comment=344368)
-- [Purusha Pretham &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 6.4GB - 3GB - 1.5GB &amp; 1GB] - [x264 - 800MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172472-purusha-pretham-2023-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-hindi-malayalam-kannada-64gb-3gb-15gb-1gb-x264-800mb-450mb-250mb-esub/&do=findComment&comment=344367)
-- [female cialis buy](https://www.1tamilmv.tips/index.php?/forums/topic/172471-female-cialis-buy/&do=findComment&comment=344366)
-- [female cialis buy](https://www.1tamilmv.tips/index.php?/forums/topic/172471-female-cialis-buy/&do=findComment&comment=344365)
+- [Bakasuran &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 11GB - 2.9GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172474-bakasuran-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-11gb-29gb-14gb-950mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=344369)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
