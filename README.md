@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [#KanniluKannilu 💙 | #Ayisha  | #Shorts #YTshorts](https://www.youtube.com/watch?v=XRD2y9xiwNU)
 - [#KanniluKannilu 💌 | #Ayisha  | #Shorts #YTshorts](https://www.youtube.com/watch?v=u16i-IBEZ5Q)
 - [കാളി കൊടുംകാളി   Sung by Durga Viswanath  Lyrics by Siju Thuravoor](https://www.youtube.com/watch?v=p5G97gCy244)
 - [മനം അറിയാതെ എപ്പോഴും ഏറ്റുപാടുന്ന സ്തുതിഗീതങ്ങൾ ethratholam jayam tanna | Kester | christian songs](https://www.youtube.com/watch?v=Z21j2J6Uow8)
 - [ഈശോ ഈ ഗാനങ്ങളിലൂടെ നിന്നിലേക്ക് എത്തുന്നു  | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=_cLBmMN96r0)
 - [Amme Karmegha Varnini | Kodungallur Devotional Song | Aryavrinda #shorts](https://www.youtube.com/watch?v=5Dn5h257EO0)
-- [Natural ⭐ #Nani 's #DhaamDhoom Video Song is Out Now! | #Dasara | #SaregamaMalayalam | #Shorts](https://www.youtube.com/watch?v=xwBoyoi5UMQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
