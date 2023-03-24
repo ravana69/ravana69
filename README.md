@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Michael Jackson - Thriller Album &lpar;1982&rpar; - Human Nature - FLAC - 44.1khz - English - 27.4mb](https://www.1tamilmv.tips/index.php?/forums/topic/172491-michael-jackson-thriller-album-1982-human-nature-flac-441khz-english-274mb/&do=findComment&comment=344417)
 - [Tees Maar Khan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;Tamil + Telugu&rpar; - 2.9GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172469-tees-maar-khan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-29gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344416)
 - [Dom &lpar;2023&rpar; S02 EP04 TRUE WEB-DL - [1080p, 720p - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 640Kbps&rpar; - 3GB - 1.3GB &amp; 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172487-dom-2023-s02-ep04-true-web-dl-1080p-720p-tamil-telugu-hindi-eng-dd51-640kbps-3gb-13gb-400mb-esub/&do=findComment&comment=344415)
 - [John Wick: Chapter 4 &lpar;2023&rpar; Tamil HDCAM - [1080p &amp; 720p - x264 - 2.4GB &amp; 1.2GB | x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.tips/index.php?/forums/topic/172434-john-wick-chapter-4-2023-tamil-hdcam-1080p-720p-x264-24gb-12gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=344414)
 - [Balagam &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Malayalam] - 6GB - 2.8GB - 1.6GB &amp; 1GB] - [x264 - 850MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172478-balagam-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-malayalam-6gb-28gb-16gb-1gb-x264-850mb-450mb-250mb-esub/&do=findComment&comment=344413)
-- [Bakasuran &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 11GB - 2.9GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172474-bakasuran-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-11gb-29gb-14gb-950mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=344412)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
