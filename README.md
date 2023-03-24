@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [PATHAAN &lpar;2023&rpar; [CLEAN] MULTI &lpar;MUSIC VIDEO ALBUM&rpar; - HQ 4K - AMZN - UNTOUCHED - WEBDL - HEVC - DDP 5.1 @ 640Kbps - ESubs 〰️ [Avatar]](https://www.1tamilmv.tips/index.php?/forums/topic/172511-pathaan-2023-clean-multi-music-video-album-hq-4k-amzn-untouched-webdl-hevc-ddp-51-640kbps-esubs-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=344475)
+- [📌 JAANU &lpar;2020&rpar; Telugu &lpar;Music Video Album&rpar; - 1080P - WEBDL - H264 - DDP 5.1 @ 640Kbps - Esubs - 1.6GB 〰️ [Avatar]](https://www.1tamilmv.tips/index.php?/forums/topic/172510-%F0%9F%93%8C-jaanu-2020-telugu-music-video-album-1080p-webdl-h264-ddp-51-640kbps-esubs-16gb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=344474)
 - [Vikram &lpar;1986&rpar;.Tamil.1080p.HDTV.HEVC.AAC2.0 - 2GB](https://www.1tamilmv.tips/index.php?/forums/topic/172470-vikram-1986tamil1080phdtvhevcaac20-2gb/&do=findComment&comment=344473)
 - [Avatar: The Way of Water 2022 Movie Download Dual Audio Hindi Eng HDRip 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172509-avatar-the-way-of-water-2022-movie-download-dual-audio-hindi-eng-hdrip-1080p-720p-480p%C2%A0direct-download/&do=findComment&comment=344472)
 - [Balagam 2023 Movie Tamil &amp; Multi Audio AMZN WEB-DL 1080p 720p 480p  &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172508-balagam-2023-movie-tamil-multi-audio-amzn-web-dl-1080p-720p-480p%C2%A0-direct-download/&do=findComment&comment=344471)
-- [Bakasuran 2023 Tamil Movie AMZN WEB-DL 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172507-bakasuran-2023-tamil-movie-amzn-web-dl-1080p-720p-480p-direct-download/&do=findComment&comment=344470)
-- [Purusha Pretham 2023 Movie Hindi &amp; Multi Audio SONY WEB-DL 1080p 720p 480p  &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172506-purusha-pretham-2023-movie-hindi-multi-audio-sony-web-dl-1080p-720p-480p%C2%A0-direct-download/&do=findComment&comment=344469)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
