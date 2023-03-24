@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Rocket Boys &lpar;2022&rpar; Complete S01 Merged WEB-DL - [1080p - 720p - 480p] - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - ESub [Google Drive]](https://www.1tamilmv.tips/index.php?/forums/topic/172489-rocket-boys-2022-complete-s01-merged-web-dl-1080p-720p-480p-avc-tamil-telugu-hindi-malayalam-kannada-esub-google-drive/&do=findComment&comment=344409)
+- [[ 🔞 18+] ELITE &lpar;2018&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + English&rpar; - 5.2GB &amp; 2.2GB | x264 - 1GB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/142768-%F0%9F%94%9E-18-elite-2018-s01-ep-01-08-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-english-52gb-22gb-x264-1gb-esub/&do=findComment&comment=344408)
 - [Sathyam Sivam Sundharam &lpar;1990&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 1.7GB](https://www.1tamilmv.tips/index.php?/forums/topic/172488-sathyam-sivam-sundharam-1990tamil480phdtvx264aac20-17gb/&do=findComment&comment=344407)
 - [Purusha Pretham &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 6.4GB - 3GB - 1.5GB &amp; 1GB] - [x264 - 800MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172472-purusha-pretham-2023-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-hindi-malayalam-kannada-64gb-3gb-15gb-1gb-x264-800mb-450mb-250mb-esub/&do=findComment&comment=344406)
 - [Balagam &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Malayalam + Kannada] - 6GB - 2.8GB - 1.6GB &amp; 1GB] - [x264 - 850MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172478-balagam-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-malayalam-kannada-6gb-28gb-16gb-1gb-x264-850mb-450mb-250mb-esub/&do=findComment&comment=344405)
-- [Dom &lpar;2023&rpar; S02 EP &lpar;01-03&rpar; TRUE WEB-DL - [1080p, 720p - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 640Kbps&rpar; - 5GB - 1.3GB &amp; 700MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172316-dom-2023-s02-ep-01-03-true-web-dl-1080p-720p-tamil-telugu-hindi-eng-dd51-640kbps-5gb-13gb-700mb-esub/&do=findComment&comment=344404)
-- [Dom &lpar;2023&rpar; S02 EP04 TRUE WEB-DL - [1080p, 720p - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 640Kbps&rpar; - 3GB - 1.3GB &amp; 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172487-dom-2023-s02-ep04-true-web-dl-1080p-720p-tamil-telugu-hindi-eng-dd51-640kbps-3gb-13gb-400mb-esub/&do=findComment&comment=344403)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
