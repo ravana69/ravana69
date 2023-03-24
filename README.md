@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vikram &lpar;1986&rpar;.Tamil.1080p.HDTV.HEVC.AAC2.0 - 2GB](https://www.1tamilmv.tips/index.php?/forums/topic/172470-vikram-1986tamil1080phdtvhevcaac20-2gb/&do=findComment&comment=344473)
 - [Avatar: The Way of Water 2022 Movie Download Dual Audio Hindi Eng HDRip 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172509-avatar-the-way-of-water-2022-movie-download-dual-audio-hindi-eng-hdrip-1080p-720p-480p%C2%A0direct-download/&do=findComment&comment=344472)
 - [Balagam 2023 Movie Tamil &amp; Multi Audio AMZN WEB-DL 1080p 720p 480p  &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172508-balagam-2023-movie-tamil-multi-audio-amzn-web-dl-1080p-720p-480p%C2%A0-direct-download/&do=findComment&comment=344471)
 - [Bakasuran 2023 Tamil Movie AMZN WEB-DL 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172507-bakasuran-2023-tamil-movie-amzn-web-dl-1080p-720p-480p-direct-download/&do=findComment&comment=344470)
 - [Purusha Pretham 2023 Movie Hindi &amp; Multi Audio SONY WEB-DL 1080p 720p 480p  &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172506-purusha-pretham-2023-movie-hindi-multi-audio-sony-web-dl-1080p-720p-480p%C2%A0-direct-download/&do=findComment&comment=344469)
-- [Chor Nikal Ke Bhaga 2023 Movie Tamil &amp; Hindi &amp; Multi Audio NF WEB-DL 1080p 720p 480p  &lpar;Direct Download&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/172505-chor-nikal-ke-bhaga-2023-movie-tamil-hindi-multi-audio-nf-web-dl-1080p-720p-480p%C2%A0-direct-download/&do=findComment&comment=344468)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
