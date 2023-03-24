@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Bakasuran &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 11GB - 2.9GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172474-bakasuran-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-11gb-29gb-14gb-950mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=344463)
 - [Ponniyin Selvan - 2 Trailer From March 29🔥🔥🔥🔥](https://www.1tamilmv.tips/index.php?/forums/topic/172502-ponniyin-selvan-2-trailer-from-march-29%F0%9F%94%A5%F0%9F%94%A5%F0%9F%94%A5%F0%9F%94%A5/&do=findComment&comment=344462)
 - [Dr. Romantic &lpar;2016&rpar; S01 EP &lpar;01-05&rpar; HDRip - 720p - x264 - [Tamil + Telugu + Hindi] - 1.8GB ZipFile](https://www.1tamilmv.tips/index.php?/forums/topic/166819-dr-romantic-2016-s01-ep-01-05-hdrip-720p-x264-tamil-telugu-hindi-18gb-zipfile/&do=findComment&comment=344461)
 - [Dr. Romantic &lpar;2016&rpar; S01 EP &lpar;01-05&rpar; TRUE WEB-DL - [1080p &amp; 720p - &lpar;Tamil + Telugu + Hindi&rpar; - 3.4GB &amp; 1.8GB] - [x264 - 950MB](https://www.1tamilmv.tips/index.php?/forums/topic/134648-dr-romantic-2016-s01-ep-01-05-true-web-dl-1080p-720p-tamil-telugu-hindi-34gb-18gb-x264-950mb/&do=findComment&comment=344460)
 - [Dr. Romantic &lpar;2016&rpar; S01 EP &lpar;01-05&rpar; TRUE WEB-DL - [1080p &amp; 720p - &lpar;Tamil + Telugu + Hindi&rpar; - 3.4GB &amp; 1.8GB] - [x264 - 950MB]](https://www.1tamilmv.tips/index.php?/forums/topic/123385-dr-romantic-2016-s01-ep-01-05-true-web-dl-1080p-720p-tamil-telugu-hindi-34gb-18gb-x264-950mb/&do=findComment&comment=344459)
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.tips/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=344458)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
