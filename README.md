@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളികളുടെ മനസ്സറിഞ്ഞു പ്രതിഭകൾ അണിയിച്ചൊരുക്കിയ ശാന്തസുന്ദര ഗാനങ്ങൾ | SOFT MELODY SONGS](https://www.youtube.com/watch?v=_Mb6KpUU_2k)
 - [കനവെല്ലാം കതിരാകുവാൻ | ജോൺസൺ മാഷ് 💎കെ ജെ യേശുദാസ്🎤 പൂവച്ചൽ ഖാദർ✍️ Anuragini](https://www.youtube.com/watch?v=JskNL62Ehbs)
 - [Kallanum Bhagavathiyum Heroin Mokksha's Dance Performance | Vishnu Unnikrishnan | East Coast Vijayan](https://www.youtube.com/watch?v=ElrPuG3Hi0M)
 - [Kaanthan Yeshu Vaanameghe | Anna Baby | Reji Abraham | Malayalam Christian Devotional Songs 2023](https://www.youtube.com/watch?v=sJj0_EsNTD8)
 - [മുറ്റത്തെ മുല്ലേ ചൊല്ല് | Mayavi Malayalam Movie Song | Mammootty | K J Yesudas](https://www.youtube.com/watch?v=ZDkVmvIH1Xs)
 - [#KanniluKannilu ❤️ | #Ayisha  | #Shorts #YTshorts](https://www.youtube.com/watch?v=P8CTkZihD7s)
-- [Songs Of The Week | Binoy Chacko | Praise and Worship Songs | Malayalam Christian Songs | Kester](https://www.youtube.com/watch?v=Ih4rOf1EVXI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
