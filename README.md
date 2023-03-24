@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nurayunnoru Surayaane- Lyrical Video | Duplicate | Vidhu Prathap | Alex Paul | Suraj Venjaramood](https://www.youtube.com/watch?v=A8MiubhNkTk)
 - [കേട്ടവർ കേൾക്കാത്തവരോട് പറയുന്നു നാട്ടിലെങ്ങും പാട്ടായ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=ARvGHok9pMY)
 - [മലയാളികളുടെ മനസ്സറിഞ്ഞു പ്രതിഭകൾ അണിയിച്ചൊരുക്കിയ ശാന്തസുന്ദര ഗാനങ്ങൾ | SOFT MELODY SONGS](https://www.youtube.com/watch?v=_Mb6KpUU_2k)
 - [Kolaambi | Official Trailer | T K Rajeevkumar | Renji Panicker | Nithya Menon | Nirmalyam Cinema](https://www.youtube.com/watch?v=n7w2xWyBrhE)
 - [കനവെല്ലാം കതിരാകുവാൻ | ജോൺസൺ മാഷ് 💎കെ ജെ യേശുദാസ്🎤 പൂവച്ചൽ ഖാദർ✍️ Anuragini](https://www.youtube.com/watch?v=JskNL62Ehbs)
 - [Kallanum Bhagavathiyum Heroin Mokksha's Dance Performance | Vishnu Unnikrishnan | East Coast Vijayan](https://www.youtube.com/watch?v=ElrPuG3Hi0M)
-- [Kaanthan Yeshu Vaanameghe | Anna Baby | Reji Abraham | Malayalam Christian Devotional Songs 2023](https://www.youtube.com/watch?v=sJj0_EsNTD8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
