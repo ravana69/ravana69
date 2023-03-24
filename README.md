@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Bakasuran 2023 Tamil AMZN WEB DL - H264/H265 - DDP5.1&lpar;640kbps&rpar; - [1080p &amp; 720p - 11.2GB - 7.9GB - 2.1GB - 1.7GB] [GDRIVE]](https://www.1tamilmv.tips/index.php?/forums/topic/172483-bakasuran-2023-tamil-amzn-web-dl-h264h265-ddp51640kbps-1080p-720p-112gb-79gb-21gb-17gb-gdrive/&do=findComment&comment=344392)
-- [Unnai Thedi &lpar;1999&rpar; Tamil TRUE WEB-DL - 1080p HQ - HEVC x265 - UNTOUCHED - &lpar;DDP.2.0&rpar; - 5.1GB - ESub - Direct Download](https://www.1tamilmv.tips/index.php?/forums/topic/172451-unnai-thedi-1999-tamil-true-web-dl-1080p-hq-hevc-x265-untouched-ddp20-51gb-esub-direct-download/&do=findComment&comment=344391)
-- [Dhoom Trilogy &lpar;2004-2013&rpar; BluRay - &lpar;Original Audios&rpar; - &lpar;Telugu &lpar;2&rpar; + Tamil + Hindi&rpar;](https://www.1tamilmv.tips/index.php?/forums/topic/167240-dhoom-trilogy-2004-2013-bluray-original-audios-telugu-2-tamil-hindi/&do=findComment&comment=344390)
-- [when does pain go away after stopping tamoxifen](https://www.1tamilmv.tips/index.php?/forums/topic/172482-when-does-pain-go-away-after-stopping-tamoxifen/&do=findComment&comment=344389)
-- [Bakasuran &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 11GB - 2.9GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172474-bakasuran-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-11gb-29gb-14gb-950mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=344388)
+- [Balagam &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Malayalam + Kannada] - 6GB - 2.8GB - 1.6GB &amp; 1GB] - [x264 - 850MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172478-balagam-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-malayalam-kannada-6gb-28gb-16gb-1gb-x264-850mb-450mb-250mb-esub/&do=findComment&comment=344397)
+- [Bakasuran &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 11GB - 2.9GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172474-bakasuran-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-11gb-29gb-14gb-950mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=344396)
+- [The Mandalorian S03E04 DSNP WEB-DL DDP5.1 Esubs - 2160p [HDR] | 1080p | 720p - 2.8 GB |1.6 GB | 0.9 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172486-the-mandalorian-s03e04-dsnp-web-dl-ddp51-esubs-2160p-hdr-1080p-720p-28-gb-16-gb-09-gb/&do=findComment&comment=344395)
+- [Marudhamalai &lpar;2007&rpar; SS WEB-DL AAC2.0 Esubs x264 - 2160p | 1080p | 720p - 8.2 GB | 4.5 GB | 2.5 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172485-marudhamalai-2007-ss-web-dl-aac20-esubs-x264-2160p-1080p-720p-82-gb-45-gb-25-gb/&do=findComment&comment=344394)
+- [Bakasuran &lpar;2023&rpar; AMZN WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 11.8 GB | 6.4 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172484-bakasuran-2023-amzn-web-dl-ddp51-esubs-x264-1080p-720p-118-gb-64-gb/&do=findComment&comment=344393)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
