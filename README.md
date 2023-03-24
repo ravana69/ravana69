@@ -42,12 +42,8 @@
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
 
-# Me:
-<div align="center">
-<a href="https://ravana69.github.io/thispersondoesnotexist/">
-    <img src="https://raw.githubusercontent.com/ravana69/thispersondoesnotexist/main/github-metrics.svg" alt="github-metrics.svg" />
-  </a>
-</div>
+# Team:
+<p align="center"><img width="148" alt="pull-1-default" src="https://raw.githubusercontent.com/ravana69/ravana69/main/images/AI%20Person/1.webp"> <img width="148" alt="pull-2-default" src="https://raw.githubusercontent.com/ravana69/ravana69/main/images/AI%20Person/2.webp"> <img width="148" alt="pull-3-default" src="https://raw.githubusercontent.com/ravana69/ravana69/main/images/AI%20Person/3.webp"> <img width="148" alt="pull-4-default" src="https://raw.githubusercontent.com/ravana69/ravana69/main/images/AI%20Person/4.webp"> <img width="148" alt="pull-5-default" src="https://raw.githubusercontent.com/ravana69/ravana69/main/images/AI%20Person/5.webp"> <img width="148" alt="pull-6-default" src="https://raw.githubusercontent.com/ravana69/ravana69/main/images/AI%20Person/6.webp"> <img width="148" alt="pull-7-default" src="https://raw.githubusercontent.com/ravana69/ravana69/main/images/AI%20Person/7.webp">
 
 # Nationality:
 <div align="center">
