@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Amme Karmegha Varnini | Kodungallur Devotional Song | Aryavrinda #shorts](https://www.youtube.com/watch?v=lzQsGWSRDUQ)
+- [Varaham Sadaham Namami | P Jayachandran | Dasavatharam #shorts](https://www.youtube.com/watch?v=xQ01R5aEiTw)
+- [Amme Karmegha Varnini | Kodungallur Devotional Song | Aryavrinda #shorts](https://www.youtube.com/watch?v=6eTM_gbaHVY)
+- [Varaham Sadaham Namami | P Jayachandran | Dasavatharam #shorts](https://www.youtube.com/watch?v=6BygEuFENrY)
+- [Christian Video Songs Malayalam | Kester | KG Markose | Christian Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=8cT9dzkS7fw)
 - [24 March 2023](https://www.youtube.com/watch?v=5zmlyAeNJ_Y)
-- [Kanthari Penne | Inspector Garud | Afsal | Alex Paul | Kavya Madhavan | Dileep | Santhosh Varma](https://www.youtube.com/watch?v=Lb2R31IOgpI)
-- [24 March 2023](https://www.youtube.com/watch?v=hE7yZ0qpMx4)
-- [പ്രാരാബ്ധങ്ങളാൽ വലയുന്ന മനുഷ്യർക്ക് ഒരിറ്റു സാന്ത്വനമേകുന്ന കരുണനിറഞ്ഞ ക്രിസ്തീയ ഗാനങ്ങൾ  Joji Johns](https://www.youtube.com/watch?v=XXBdj8Muyo0)
-- [Amme Karmegha Varnini | Kodungallur Devotional Song | Aryavrinda #shorts](https://www.youtube.com/watch?v=i8sMjsCeNY0)
-- [കാളി കൊടുംകാളി   Sung by Durga Viswanath  Lyrics by Siju Thuravoor](https://www.youtube.com/watch?v=vw88-y_Kj3M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
