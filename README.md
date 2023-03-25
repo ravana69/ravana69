@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Balagam &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Malayalam] - 6GB - 2.8GB - 1.6GB &amp; 1GB] - [x264 - 850MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172478-balagam-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-malayalam-6gb-28gb-16gb-1gb-x264-850mb-450mb-250mb-esub/&do=findComment&comment=344480)
-- [Avatar: The Way of Water &lpar;2022&rpar; Tamil IMAX HD - [1080p &amp; 720p - x264 - 2.6GB &amp; 1.4GB | x264 - 500MB] - HQ Clean Audio](https://www.1tamilmv.tips/index.php?/forums/topic/170825-avatar-the-way-of-water-2022-tamil-imax-hd-1080p-720p-x264-26gb-14gb-x264-500mb-hq-clean-audio/&do=findComment&comment=344479)
-- [Iyarkai&lpar;2003&rpar; Tamil AYN - DVD9 UNTOUCHED - REMUXED HQ AVC / HEVC &lpar;DTS-HDMA 7.1 &lpar;3784kbps&rpar; + DD+5.1 &lpar;768kbps&rpar; Atmos&rpar; - 9GB - 5.5GB - 2.7GB - 1.4GB - 1.7GB &amp; 900MB][x264 - 700MB - 400MB &amp; 250MB].mkv](https://www.1tamilmv.tips/index.php?/forums/topic/172455-iyarkai2003-tamil-ayn-dvd9-untouched-remuxed-hq-avc-hevc-dts-hdma-71-3784kbps-dd51-768kbps-atmos-9gb-55gb-27gb-14gb-17gb-900mbx264-700mb-400mb-250mbmkv/&do=findComment&comment=344478)
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.tips/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=344477)
-- [Avatar: The Way of Water &lpar;2022&rpar; Tamil IMAX HD - [1080p &amp; 720p - x264 - 2.6GB &amp; 1.4GB | x264 - 500MB] - HQ Clean Audio](https://www.1tamilmv.tips/index.php?/forums/topic/170825-avatar-the-way-of-water-2022-tamil-imax-hd-1080p-720p-x264-26gb-14gb-x264-500mb-hq-clean-audio/&do=findComment&comment=344476)
+- [Anbanavan Asaradhavan Adangadhavan &lpar;2017&rpar; Tamil TRUE WEB-DL - 1080p - HEVC x265 - UNTOUCHED - &lpar;DDP 2.0&rpar; - 4GB - ESub - Direct Download](https://www.1tamilmv.tips/index.php?/forums/topic/172501-anbanavan-asaradhavan-adangadhavan-2017-tamil-true-web-dl-1080p-hevc-x265-untouched-ddp-20-4gb-esub-direct-download/&do=findComment&comment=344487)
+- [Sengalam &lpar;2023&rpar; - s01 - 1080P - DD+5.1 256Kbps Upmixed - 6.5GB - DIRECT LINK](https://www.1tamilmv.tips/index.php?/forums/topic/172514-sengalam-2023-s01-1080p-dd51-256kbps-upmixed-65gb-direct-link/&do=findComment&comment=344486)
+- [Poovan &lpar;2023&rpar; ZEE5 WEB-DL AAC2.0 Esubs x264 - 1080p | 720p - 2.6 GB | 1.2 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172513-poovan-2023-zee5-web-dl-aac20-esubs-x264-1080p-720p-26-gb-12-gb/&do=findComment&comment=344485)
+- [Chor Nikal Ke Bhaga &lpar;2023&rpar; NF WEB-DL Multi DDP5.1 Esubs x264 - 1080p | 720p - 6.5 GB | 4.4 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172512-chor-nikal-ke-bhaga-2023-nf-web-dl-multi-ddp51-esubs-x264-1080p-720p-65-gb-44-gb/&do=findComment&comment=344484)
+- [Sengalam &lpar;2023&rpar; S01 EP &lpar;01-09&rpar; Tamil WEB-DL - [1080p &amp; 720p - x264 - 6GB - 2GB &amp; 900MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172498-sengalam-2023-s01-ep-01-09-tamil-web-dl-1080p-720p-x264-6gb-2gb-900mb-esub/&do=findComment&comment=344483)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
