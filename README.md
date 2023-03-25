@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [സാഗരങ്ങളേ പാടി ഉണര്‍ത്തിയ | Panjagni Malayalam Movie Song | Mohanlal | Geetha | Murali | Thilakan](https://www.youtube.com/watch?v=RopgsBLUxqs)
+- [Mahaveeryar OST Jukebox | Abrid Shine | Nivin Pauly | Asif Ali | Ishaan Chhabra](https://www.youtube.com/watch?v=CGAlUktAKZI)
 - [Varaham Sadaham Namami | P Jayachandran | Dasavatharam #shorts](https://www.youtube.com/watch?v=8R4TYPUq03g)
 - [Amme Karmegha Varnini | Kodungallur Devotional Song | Aryavrinda #shorts](https://www.youtube.com/watch?v=lzQsGWSRDUQ)
 - [Varaham Sadaham Namami | P Jayachandran | Dasavatharam #shorts](https://www.youtube.com/watch?v=xQ01R5aEiTw)
 - [Amme Karmegha Varnini | Kodungallur Devotional Song | Aryavrinda #shorts](https://www.youtube.com/watch?v=6eTM_gbaHVY)
-- [Varaham Sadaham Namami | P Jayachandran | Dasavatharam #shorts](https://www.youtube.com/watch?v=6BygEuFENrY)
-- [Christian Video Songs Malayalam | Kester | KG Markose | Christian Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=8cT9dzkS7fw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
