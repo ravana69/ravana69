@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manase Padoo Nee | Paranju Theeratha Visheshangal | KJ Yesudas | M Jayachandran](https://www.youtube.com/watch?v=hEqHg3L_xSM)
+- [Aathira Varavai | Thudarkatha | MG Sreekumar | KS Chithra | S P Venkitesh | O N V Kurup](https://www.youtube.com/watch?v=YlyIuMPGyng)
 - [മലയാളികൾ അകമറിഞ്ഞു സ്നേഹിച്ച വർണമനോഹര സിനിമാഗാനങ്ങൾ  | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=Vugt-dUV7-g)
 - [എത്രകേട്ടാലും മനസ്സ് മടുക്കാത്ത അത്രമേൽ ഇഷ്ടമുള്ള സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ  | SUPERHIT SONGS](https://www.youtube.com/watch?v=OIJ_5ZnWWT4)
 - [Enikinnu Venam | Junior Senior | Kaithapram | M Jayachandran | P Jayachandran | Sujatha Mohan](https://www.youtube.com/watch?v=vdDjPlsozAo)
 - [സാഗരങ്ങളേ പാടി ഉണര്‍ത്തിയ | Panjagni Malayalam Movie Song | Mohanlal | Geetha | Murali | Thilakan](https://www.youtube.com/watch?v=RopgsBLUxqs)
-- [Mahaveeryar OST Jukebox | Abrid Shine | Nivin Pauly | Asif Ali | Ishaan Chhabra](https://www.youtube.com/watch?v=CGAlUktAKZI)
-- [Varaham Sadaham Namami | P Jayachandran | Dasavatharam #shorts](https://www.youtube.com/watch?v=8R4TYPUq03g)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
