@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kannadi Kayalinoram | Oruthee | P Jayachandran | Hari Narayanan | VK Prakash | GopiSundar| NavyaNair](https://www.youtube.com/watch?v=07Y7mqMFUSg)
 - [Alarunna Thiramalakalkkappuram | New Christian Video Song | Richukuttan | Joji Johns | Easter Songs](https://www.youtube.com/watch?v=dTfdxLsnEvQ)
 - [Kelivipinam Vijanam | Manthrikam | Mohanlal | Vineetha | Biju Narayanan | SP Venkitesh](https://www.youtube.com/watch?v=qMT0FcYWjP8)
 - [Oru Narupushpamai Full Video Song | HD | Meghamalhar Movie Song | REMASTERED AUDIO |](https://www.youtube.com/watch?v=83T8fMeLkHY)
 - [Manase Padoo Nee | Paranju Theeratha Visheshangal | KJ Yesudas | M Jayachandran](https://www.youtube.com/watch?v=hEqHg3L_xSM)
 - [Aathira Varavai | Thudarkatha | MG Sreekumar | KS Chithra | S P Venkitesh | O N V Kurup](https://www.youtube.com/watch?v=YlyIuMPGyng)
-- [മലയാളികൾ അകമറിഞ്ഞു സ്നേഹിച്ച വർണമനോഹര സിനിമാഗാനങ്ങൾ  | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=Vugt-dUV7-g)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
