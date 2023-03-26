@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Swapnamalini Theerathundoru | Devadas | Evergreen Malayalam Song | venu Nagavally | Parvathi](https://www.youtube.com/watch?v=tz5nhC-R9Mo)
 - [Romantic duet song from the movie HIGUITA](https://www.youtube.com/watch?v=Hmm0qcygYJk)
 - [Tharakamalarukal Viriyum | Arabikkatha | Vineeth Sreenivasan | Sujatha | Bijibal | Anil Panachooran](https://www.youtube.com/watch?v=q4CiFJncGL0)
 - [കരിനീലക്കണ്ണഴകി കണ്ണകി....#shortsyoutube #kodungallurbharani2023 #meenabharani  #youtubeshorts](https://www.youtube.com/watch?v=CIWwTVv0JbM)
 - [Varmazhaville | Mizhirandilum | Sreenivas | Raveendran | Vayalar Sarathchandra Varma](https://www.youtube.com/watch?v=F7xiKV1qfJk)
 - [Koothambalathil Vecho | Appu | M G Sreekumar | T Sundararajan | Sree Kumaran Thampi](https://www.youtube.com/watch?v=GodtaNgQdKM)
-- [Beautiful Romantic duet by K J Yesudas & Gayathri Ashokan from Mohanlal movie Naran](https://www.youtube.com/watch?v=BW0SCrWg9QE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
