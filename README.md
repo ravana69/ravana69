@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [📌 |4K|  BEAST &lpar;2022&rpar; REPACK &lpar;Tam + Tel + Kan + Mal&rpar; &lpar;Music Video Album&rpar; - 2160P - WEBDL - H265 - DDP 5.1 ATMOS @ 448Kbps - Esubs - 1.2GB〰️ [Avatar]](https://www.1tamilmv.tips/index.php?/forums/topic/172536-%F0%9F%93%8C-4k-beast-2022-repack-tam-tel-kan-mal-music-video-album-2160p-webdl-h265-ddp-51-atmos-448kbps-esubs-12gb%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=344569)
 - [Monkey King: Return of Wu Kong &lpar;2018&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Chi&rpar; - 2GB &amp; 950MB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB]](https://www.1tamilmv.tips/index.php?/forums/topic/172526-monkey-king-return-of-wu-kong-2018-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-chi-2gb-950mb-x264-tam-tel-hin-450mb/&do=findComment&comment=344568)
 - [Ellaam Mela Irukuravan Paathuppan &lpar;2023&rpar; Tamil HQ HDTV - [1080p &amp; 720p - x264 - 3.4GB - 2.5GB &amp; 1.4GB] - [x264 - 700MB - 400MB - 250MB]](https://www.1tamilmv.tips/index.php?/forums/topic/172535-ellaam-mela-irukuravan-paathuppan-2023-tamil-hq-hdtv-1080p-720p-x264-34gb-25gb-14gb-x264-700mb-400mb-250mb/&do=findComment&comment=344567)
 - [Aalavandhan &lpar;2001&rpar; TRUE AMZN WEB-DL[1080p &amp; 720p - HD AVC / HEVC - &lpar;DD+5.1&lpar;192kbps&rpar; + AAC&rpar; [Tamil - 12GB - 8GB - 5GB - 2.7GB - 1.4GB - 1.7GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB - ESub].mkv](https://www.1tamilmv.tips/index.php?/forums/topic/172534-aalavandhan-2001-true-amzn-web-dl1080p-720p-hd-avc-hevc-dd51192kbps-aac-tamil-12gb-8gb-5gb-27gb-14gb-17gb-900mb-x264-700mb-400mb-250mb-esubmkv/&do=findComment&comment=344566)
 - [Michael Jackson - Thriller Album &lpar;1982&rpar; - The Lady In My Life - FLAC - 44.1khz - English - 30.5mb](https://www.1tamilmv.tips/index.php?/forums/topic/172530-michael-jackson-thriller-album-1982-the-lady-in-my-life-flac-441khz-english-305mb/&do=findComment&comment=344565)
-- [Sivaji &lpar;2007&rpar; Tamil - BluRay - 1080p - TRUE HD AVC UNTOUCHED - x264 - DTS 5.1&lpar;1536kbps&rpar; - 10GB - ESub.mkv](https://www.1tamilmv.tips/index.php?/forums/topic/172532-sivaji-2007-tamil-bluray-1080p-true-hd-avc-untouched-x264-dts-511536kbps-10gb-esubmkv/&do=findComment&comment=344564)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
