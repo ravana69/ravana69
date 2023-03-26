@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Tharakamalarukal Viriyum | Arabikkatha | Vineeth Sreenivasan | Sujatha | Bijibal | Anil Panachooran](https://www.youtube.com/watch?v=q4CiFJncGL0)
+- [കരിനീലക്കണ്ണഴകി കണ്ണകി....#shortsyoutube #kodungallurbharani2023 #meenabharani  #youtubeshorts](https://www.youtube.com/watch?v=CIWwTVv0JbM)
 - [Varmazhaville | Mizhirandilum | Sreenivas | Raveendran | Vayalar Sarathchandra Varma](https://www.youtube.com/watch?v=F7xiKV1qfJk)
 - [Koothambalathil Vecho | Appu | M G Sreekumar | T Sundararajan | Sree Kumaran Thampi](https://www.youtube.com/watch?v=GodtaNgQdKM)
 - [Beautiful Romantic duet by K J Yesudas & Gayathri Ashokan from Mohanlal movie Naran](https://www.youtube.com/watch?v=BW0SCrWg9QE)
 - [Kannadi Kayalinoram | Oruthee | P Jayachandran | Hari Narayanan | VK Prakash | GopiSundar| NavyaNair](https://www.youtube.com/watch?v=07Y7mqMFUSg)
-- [Alarunna Thiramalakalkkappuram | New Christian Video Song | Richukuttan | Joji Johns | Easter Songs](https://www.youtube.com/watch?v=dTfdxLsnEvQ)
-- [Kelivipinam Vijanam | Manthrikam | Mohanlal | Vineetha | Biju Narayanan | SP Venkitesh](https://www.youtube.com/watch?v=qMT0FcYWjP8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
