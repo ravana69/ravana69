@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Aalavandhan &lpar;2001&rpar; TRUE AMZN WEB-DL[1080p &amp; 720p - HD AVC / HEVC - &lpar;DD+5.1&lpar;192kbps&rpar; + AAC&rpar; [Tamil - 12GB - 8GB - 5GB - 2.7GB - 1.4GB - 1.7GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB - ESub].mkv](https://www.1tamilmv.tips/index.php?/forums/topic/172534-aalavandhan-2001-true-amzn-web-dl1080p-720p-hd-avc-hevc-dd51192kbps-aac-tamil-12gb-8gb-5gb-27gb-14gb-17gb-900mb-x264-700mb-400mb-250mb-esubmkv/&do=findComment&comment=344548)
+- [10000 Years Later &lpar;2015&rpar; &lpar;HD + Original Audio&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Chi&rpar; - 2GB &amp; 900MB | x264 - &lpar;Tamil&rpar; - 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172533-10000-years-later-2015-hd-original-audio-1080p-720p-x264-tamil-chi-2gb-900mb-x264-tamil-400mb-esub/&do=findComment&comment=344547)
 - [Sivaji &lpar;2007&rpar; Tamil - BluRay - 1080p - TRUE HD AVC UNTOUCHED - x264 - DTS 5.1&lpar;1536kbps&rpar; - 10GB - ESub.mkv](https://www.1tamilmv.tips/index.php?/forums/topic/172532-sivaji-2007-tamil-bluray-1080p-true-hd-avc-untouched-x264-dts-511536kbps-10gb-esubmkv/&do=findComment&comment=344546)
 - [The Fabelmans &lpar;2022&rpar; English MA WEB-DL - 1080p - TRUE HD AVC UNTOUCHED - x264 - DD+7.1&lpar;640kbps&rpar; - 9GB - ESub.mkv](https://www.1tamilmv.tips/index.php?/forums/topic/172531-the-fabelmans-2022-english-ma-web-dl-1080p-true-hd-avc-untouched-x264-dd71640kbps-9gb-esubmkv/&do=findComment&comment=344545)
 - [Michael Jackson - Thriller Album &lpar;1982&rpar; - The Lady In My Life - FLAC - 44.1khz - English - 30.5mb](https://www.1tamilmv.tips/index.php?/forums/topic/172530-michael-jackson-thriller-album-1982-the-lady-in-my-life-flac-441khz-english-305mb/&do=findComment&comment=344544)
-- [Thavasi &lpar;2001&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 1.7GB](https://www.1tamilmv.tips/index.php?/forums/topic/172529-thavasi-2001tamil480phdtvx264aac20-17gb/&do=findComment&comment=344543)
-- [Poovan &lpar;2023&rpar; ZEE5 WEB-DL AAC2.0 Esubs x264 - 1080p | 720p - 2.6 GB | 1.2 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172513-poovan-2023-zee5-web-dl-aac20-esubs-x264-1080p-720p-26-gb-12-gb/&do=findComment&comment=344542)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
