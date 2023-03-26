@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Koothambalathil Vecho | Appu | M G Sreekumar | T Sundararajan | Sree Kumaran Thampi](https://www.youtube.com/watch?v=GodtaNgQdKM)
 - [Beautiful Romantic duet by K J Yesudas & Gayathri Ashokan from Mohanlal movie Naran](https://www.youtube.com/watch?v=BW0SCrWg9QE)
 - [Kannadi Kayalinoram | Oruthee | P Jayachandran | Hari Narayanan | VK Prakash | GopiSundar| NavyaNair](https://www.youtube.com/watch?v=07Y7mqMFUSg)
 - [Alarunna Thiramalakalkkappuram | New Christian Video Song | Richukuttan | Joji Johns | Easter Songs](https://www.youtube.com/watch?v=dTfdxLsnEvQ)
 - [Kelivipinam Vijanam | Manthrikam | Mohanlal | Vineetha | Biju Narayanan | SP Venkitesh](https://www.youtube.com/watch?v=qMT0FcYWjP8)
 - [Oru Narupushpamai Full Video Song | HD | Meghamalhar Movie Song | REMASTERED AUDIO |](https://www.youtube.com/watch?v=83T8fMeLkHY)
-- [Manase Padoo Nee | Paranju Theeratha Visheshangal | KJ Yesudas | M Jayachandran](https://www.youtube.com/watch?v=hEqHg3L_xSM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
