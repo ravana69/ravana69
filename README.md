@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Fabelmans &lpar;2022&rpar; English MA WEB-DL - 1080p - TRUE HD AVC UNTOUCHED - x264 - DD+7.1&lpar;640kbps&rpar; - 9GB - ESub.mkv](https://www.1tamilmv.tips/index.php?/forums/topic/172531-the-fabelmans-2022-english-ma-web-dl-1080p-true-hd-avc-untouched-x264-dd71640kbps-9gb-esubmkv/&do=findComment&comment=344545)
 - [Michael Jackson - Thriller Album &lpar;1982&rpar; - The Lady In My Life - FLAC - 44.1khz - English - 30.5mb](https://www.1tamilmv.tips/index.php?/forums/topic/172530-michael-jackson-thriller-album-1982-the-lady-in-my-life-flac-441khz-english-305mb/&do=findComment&comment=344544)
 - [Thavasi &lpar;2001&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 1.7GB](https://www.1tamilmv.tips/index.php?/forums/topic/172529-thavasi-2001tamil480phdtvx264aac20-17gb/&do=findComment&comment=344543)
 - [Poovan &lpar;2023&rpar; ZEE5 WEB-DL AAC2.0 Esubs x264 - 1080p | 720p - 2.6 GB | 1.2 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172513-poovan-2023-zee5-web-dl-aac20-esubs-x264-1080p-720p-26-gb-12-gb/&do=findComment&comment=344542)
 - [Chor Nikal Ke Bhaga &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Hindi] - 6GB - 2.8GB - 1.6GB &amp; 1GB] - [x264 - 850MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172490-chor-nikal-ke-bhaga-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-hindi-6gb-28gb-16gb-1gb-x264-850mb-450mb-250mb-esub/&do=findComment&comment=344541)
-- [Thavasi &lpar;2001&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 1.7GB](https://www.1tamilmv.tips/index.php?/forums/topic/172529-thavasi-2001tamil480phdtvx264aac20-17gb/&do=findComment&comment=344540)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
