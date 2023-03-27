@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [📌 VINAYA VIDHEYA RAMA &lpar;2019&rpar; &lpar;Music Video Album&rpar; - HQ 1080P - AMZN - WEBDL - H264 - TEL DDP 5.1 @ 640Kbps - 2.4GB](https://www.1tamilmv.tips/index.php?/forums/topic/172551-%F0%9F%93%8C-vinaya-vidheya-rama-2019-music-video-album-hq-1080p-amzn-webdl-h264-tel-ddp-51-640kbps-24gb/&do=findComment&comment=344625)
 - [Doraemon: Nobita&#39;s Chronicle of the Moon Exploration &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Jap&rpar; - 2.5GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/171402-doraemon-nobitas-chronicle-of-the-moon-exploration-2019-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-jap-25gb-11gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=344624)
 - [Avatar: The Way of Water &lpar;2023&rpar; English Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172550-avatar-the-way-of-water-2023-english-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=344623)
 - [Avatar The Way Of Water &lpar;2023&rpar; English TRUE iTunes WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 33GB - 14GB - 3GB &amp; 1.6GB] - [x264 - 500MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172547-avatar-the-way-of-water-2023-english-true-itunes-web-dl-4k-1080p-720p-hevc-avc-33gb-14gb-3gb-16gb-x264-500mb-esub/&do=findComment&comment=344622)
 - [Avatar: The Way of Water &lpar;2023&rpar; English Full Movie Watch Now in HD For Free](https://www.1tamilmv.tips/index.php?/forums/topic/172550-avatar-the-way-of-water-2023-english-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=344621)
-- [Avatar The Way Of Water &lpar;2023&rpar; English TRUE iTunes WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 33GB - 14GB - 3GB &amp; 1.6GB] - [x264 - 500MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172547-avatar-the-way-of-water-2023-english-true-itunes-web-dl-4k-1080p-720p-hevc-avc-33gb-14gb-3gb-16gb-x264-500mb-esub/&do=findComment&comment=344620)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
