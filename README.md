@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [beautiful Romantic duet song from the new Malayalam Movie HIGUITA](https://www.youtube.com/watch?v=rwfBDSOB60A)
 - [beautiful Romantic duet song by K J Yesudas and Gayathri Ashokan from Mohanlal movie Naran](https://www.youtube.com/watch?v=GKkn65C-tFg)
 - [Varaham Sadaham Namami | P Jayachandran | Dasavatharam #shorts](https://www.youtube.com/watch?v=BXxNLi_ECgc)
 - [Aarodum Parayuka | KOLAAMBI | Madhushree Narayan | T K Rajeevkumar| Ramesh Narayanan | Prabha Varma](https://www.youtube.com/watch?v=tJ-xQSbgrbc)
 - [Varaham Sadaham Namami | P Jayachandran | Dasavatharam #shorts](https://www.youtube.com/watch?v=pl0ar-icgBo)
 - [സാധു കൊച്ചുകുഞ്ഞുപദേശിയുടെ ആശ്വാസഗീതങ്ങൾ | Nonstop Traditional Christian Songs](https://www.youtube.com/watch?v=xikJqrNO_zo)
-- [Kunukku Penmaniye Full Video Song  HD | Mr Butler Movie Song | REMASTERED AUDIO |](https://www.youtube.com/watch?v=bMi8FlCIUhw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
