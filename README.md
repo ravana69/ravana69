@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [മലയാളികളെ കുടു കുടെ പൊട്ടിച്ചിരിപ്പിച്ച ഹാസ്യരാജാവിന് കണ്ണീർ പ്രണാമം | INNOCENT HITS](https://www.youtube.com/watch?v=u6GUHZMpqcA)
-- [ഇന്നസെന്റ് അവിസ്മരണീയമാക്കിയ പരമന്‍ പത്തനാപുരം | Innocent | Mohanlan | Nedumudi Venu](https://www.youtube.com/watch?v=gLydIa2JMPY)
-- [ഹാസ്യത്തിന് പുതിയ ഭാവം പകർന്ന ഇന്നസെന്റ് അഭിനയിച്ച ചിത്രങ്ങളിലെ മനോഹര ഗാനങ്ങൾ | INNOCENT HITS](https://www.youtube.com/watch?v=kV6vsv3usvI)
-- [Ore Mukham | Uschool | Shahabaz Aman | Vinayak Sasikumar | P M Thomas Kutty | Malayalam Movie Songs](https://www.youtube.com/watch?v=d4TBPpkUw7k)
-- [beautiful Romantic duet song from the new Malayalam Movie HIGUITA](https://www.youtube.com/watch?v=rwfBDSOB60A)
-- [beautiful Romantic duet song by K J Yesudas and Gayathri Ashokan from Mohanlal movie Naran](https://www.youtube.com/watch?v=GKkn65C-tFg)
+- [vishudhavaara Geethangal |Easter Special Songs |Holy Week Songs |Manoj Christy |Kester Easter Songs](https://www.youtube.com/watch?v=HRlpsXVqpsg)
+- [Varnnapainkili Ennodothumo | Cycle | Vineeth Sreenivasan | Mejo Joseph | Anil Panachooran](https://www.youtube.com/watch?v=Aep6xjnTuR8)
+- [Swargaswara Lokamo | Kolaambi | Shorts |T K Rajeevkumar](https://www.youtube.com/watch?v=ibDKIVw9G_Q)
+- [Paadanariyilla | Vinayapoorvam Vidhyaadharan | KJ Yesudas | Kaithapram](https://www.youtube.com/watch?v=yvHd71EAr5o)
+- [Thirusannidanam | Pavam IA Ivachan | Super Hit Movie Song | Innocent | Srividya | Sukumari | Kavya](https://www.youtube.com/watch?v=5bVqsgAoLsU)
+- [Kunukku Penmaniye Video Song | Innocent | Dileep | KS Chithra | MG Sreekumar | Vidyasagar](https://www.youtube.com/watch?v=r4PGTCJFz74)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
