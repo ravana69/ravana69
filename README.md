@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളികളെ കുടു കുടെ പൊട്ടിച്ചിരിപ്പിച്ച ഹാസ്യരാജാവിന് കണ്ണീർ പ്രണാമം | INNOCENT HITS](https://www.youtube.com/watch?v=u6GUHZMpqcA)
 - [ഇന്നസെന്റ് അവിസ്മരണീയമാക്കിയ പരമന്‍ പത്തനാപുരം | Innocent | Mohanlan | Nedumudi Venu](https://www.youtube.com/watch?v=gLydIa2JMPY)
 - [ഹാസ്യത്തിന് പുതിയ ഭാവം പകർന്ന ഇന്നസെന്റ് അഭിനയിച്ച ചിത്രങ്ങളിലെ മനോഹര ഗാനങ്ങൾ | INNOCENT HITS](https://www.youtube.com/watch?v=kV6vsv3usvI)
+- [Ore Mukham | Uschool | Shahabaz Aman | Vinayak Sasikumar | P M Thomas Kutty | Malayalam Movie Songs](https://www.youtube.com/watch?v=d4TBPpkUw7k)
 - [beautiful Romantic duet song from the new Malayalam Movie HIGUITA](https://www.youtube.com/watch?v=rwfBDSOB60A)
 - [beautiful Romantic duet song by K J Yesudas and Gayathri Ashokan from Mohanlal movie Naran](https://www.youtube.com/watch?v=GKkn65C-tFg)
-- [Varaham Sadaham Namami | P Jayachandran | Dasavatharam #shorts](https://www.youtube.com/watch?v=BXxNLi_ECgc)
-- [Aarodum Parayuka | KOLAAMBI | Madhushree Narayan | T K Rajeevkumar| Ramesh Narayanan | Prabha Varma](https://www.youtube.com/watch?v=tJ-xQSbgrbc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
