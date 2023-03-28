@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nonthavarkke Novariyoo | Mehfil | Mustaffa | Devi Saranya | Deepankuran | Kaithapram](https://www.youtube.com/watch?v=MC01q7j5eHM)
 - [Sreematha -Lyrical Video | Kallanum Bhagavathiyum | Vishnu Unnikrishan | East Coast Vijayan | Ranjin](https://www.youtube.com/watch?v=w4t9tcKBpgk)
 - [BTS from Jawanum Mullapoovum | Sumesh Chandran | Sshivada | 2 CreativeMinds | Raghumenon](https://www.youtube.com/watch?v=cxK-CzLXPm8)
 - [Oru Mathra Nin | Siddy | Sooraj Santhosh | Ramesh Narayan | Vinayak Sasikumar](https://www.youtube.com/watch?v=DAjyo64n3qo)
 - [Innocent Hit Song | ഒരായിരം കിനാക്കളാൽ| Ramji Rao Speaking Movie Song | Mukesh | Innocent | Saikumar](https://www.youtube.com/watch?v=uF147J88RYM)
 - [ആഭേരിയിൽ ഇഷ്ടഗാനങ്ങൾ | Abheri Raaga | Raveendran | Johnson | Vidyasagar | Ousepchan | Berny Ignatius](https://www.youtube.com/watch?v=zCHLbDgEI2o)
-- [Kazhikkaan Rasamulla - Lyrical Video | Duplicate | MG Sreekumar | Alex Paul | Suraj Venjaramood](https://www.youtube.com/watch?v=je8sTVVRYOU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
