@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഒരു ഗാനം പോലും മാറ്റിവെക്കാനില്ലാത്ത മഹാഗായകൻ ജയചന്ദ്രന്റെ എല്ലാ തലമുറയും സ്നേഹിക്കും ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=N1xVPSagGqw)
+- [Kumbari Kumbananedi | Colours | Vidhu Prathap | Renjini Jose | Suresh Peters | Dileep | Roma](https://www.youtube.com/watch?v=G5gPogMeYb8)
+- [കാലത്തിനോ കാലാവസ്ഥക്കോ മാറ്റിമറിക്കാൻ സാധിക്കാത്ത മലയാളികളുടെ ഇഷ്ടഗാനങ്ങൾ  | MALAYALAM FILM  SONGS](https://www.youtube.com/watch?v=9KSIGoGCMVk)
 - [K G Markose|Singer of the week |EasterSpecial Songs |Joji Johns|Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=ekXZxIuCA2w)
 - [27 March 2023](https://www.youtube.com/watch?v=oJ4pXa9hovw)
 - [Irulin Kayangalil | December | Manjulan | KJ Yesudas | Jassie Gift | Kaithapram | Aparna Pillai](https://www.youtube.com/watch?v=UlPDTez_vN8)
-- [vishudhavaara Geethangal |Easter Special Songs |Holy Week Songs |Manoj Christy |Kester Easter Songs](https://www.youtube.com/watch?v=HRlpsXVqpsg)
-- [Varnnapainkili Ennodothumo | Cycle | Vineeth Sreenivasan | Mejo Joseph | Anil Panachooran](https://www.youtube.com/watch?v=Aep6xjnTuR8)
-- [Swargaswara Lokamo | Kolaambi | Shorts |T K Rajeevkumar](https://www.youtube.com/watch?v=ibDKIVw9G_Q)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
