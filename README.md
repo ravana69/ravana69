@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Avatar The Way Of Water &lpar;2023&rpar; English TRUE iTunes WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 33GB - 14GB - 3GB &amp; 1.6GB] - [x264 - 500MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172547-avatar-the-way-of-water-2023-english-true-itunes-web-dl-4k-1080p-720p-hevc-avc-33gb-14gb-3gb-16gb-x264-500mb-esub/&do=findComment&comment=344650)
+- [Kaakha Kaakha &lpar;2003&rpar; AMZN WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 10.8 GB | 3.2 GB](https://www.1tamilmv.tips/index.php?/forums/topic/172537-kaakha-kaakha-2003-amzn-web-dl-ddp51-esubs-x264-1080p-720p-108-gb-32-gb/&do=findComment&comment=344649)
+- [Marudhamalai &lpar;2007&rpar; REMASTERED TRUE SS WEB-DL[4K SDR,1080p &amp; 720p - HD AVC / HEVC - [Tamil - 8.5GB - 5GB - 2.7GB - 1.4GB - 1.7GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB].mkv](https://www.1tamilmv.tips/index.php?/forums/topic/172563-marudhamalai-2007-remastered-true-ss-web-dl4k-sdr1080p-720p-hd-avc-hevc-tamil-85gb-5gb-27gb-14gb-17gb-950mb-x264-700mb-400mb-250mbmkv/&do=findComment&comment=344648)
+- [Along With The Gods : The Two Worlds &lpar;2017&rpar; KOREAN - BluRay - 1080p - HQ HDRip - x264 - AAC - 2.5GB - ESub.mkv](https://www.1tamilmv.tips/index.php?/forums/topic/172562-along-with-the-gods-the-two-worlds-2017-korean-bluray-1080p-hq-hdrip-x264-aac-25gb-esubmkv/&do=findComment&comment=344647)
 - [Michael Jackson - Bad Album &lpar;1987&rpar; - The Way You Make Me Feel - FLAC - 44.1khz - English - 35mb](https://www.1tamilmv.tips/index.php?/forums/topic/172561-michael-jackson-bad-album-1987-the-way-you-make-me-feel-flac-441khz-english-35mb/&do=findComment&comment=344646)
-- [Maruthamalai &lpar;2007&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 4.5GB - 2.7GB &amp; 1.4GB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172557-maruthamalai-2007-tamil-true-web-dl-1080p-720p-avc-45gb-27gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=344645)
-- [Maruthamalai &lpar;2007&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 4.5GB - 2.7GB &amp; 1.4GB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172557-maruthamalai-2007-tamil-true-web-dl-1080p-720p-avc-45gb-27gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=344644)
-- [Triangle Of Sadness &lpar;2022&rpar; English - HULU WEB-DL - 4K[2160p] 10bit SDR - TRUE HD UNTOUCHED - HEVC - x265 - DD+5.1&lpar;384kbps&rpar; - 13GB - MSub.mkv](https://www.1tamilmv.tips/index.php?/forums/topic/172560-triangle-of-sadness-2022-english-hulu-web-dl-4k2160p-10bit-sdr-true-hd-untouched-hevc-x265-dd51384kbps-13gb-msubmkv/&do=findComment&comment=344643)
-- [Mr. King &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.7GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172559-mr-king-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-27gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344642)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
