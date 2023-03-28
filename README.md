@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Sreematha -Lyrical Video | Kallanum Bhagavathiyum | Vishnu Unnikrishan | East Coast Vijayan | Ranjin](https://www.youtube.com/watch?v=w4t9tcKBpgk)
+- [BTS from Jawanum Mullapoovum | Sumesh Chandran | Sshivada | 2 CreativeMinds | Raghumenon](https://www.youtube.com/watch?v=cxK-CzLXPm8)
+- [Oru Mathra Nin | Siddy | Sooraj Santhosh | Ramesh Narayan | Vinayak Sasikumar](https://www.youtube.com/watch?v=DAjyo64n3qo)
+- [Innocent Hit Song | ഒരായിരം കിനാക്കളാൽ| Ramji Rao Speaking Movie Song | Mukesh | Innocent | Saikumar](https://www.youtube.com/watch?v=uF147J88RYM)
+- [ആഭേരിയിൽ ഇഷ്ടഗാനങ്ങൾ | Abheri Raaga | Raveendran | Johnson | Vidyasagar | Ousepchan | Berny Ignatius](https://www.youtube.com/watch?v=zCHLbDgEI2o)
 - [Kazhikkaan Rasamulla - Lyrical Video | Duplicate | MG Sreekumar | Alex Paul | Suraj Venjaramood](https://www.youtube.com/watch?v=je8sTVVRYOU)
-- [Aariraaro Rariraaro - Lyrical | Dasara (Malayalam)| Nani, Keerthy Suresh | Santhosh Narayanan](https://www.youtube.com/watch?v=89W0egkJrBw)
-- [NonStop Old Malayalam Christian Devotional Songs | Old Christian Songs | Traditional Malayalam Songs](https://www.youtube.com/watch?v=AVNROyvcQlE)
-- [ഒരു ഗാനം പോലും മാറ്റിവെക്കാനില്ലാത്ത മഹാഗായകൻ ജയചന്ദ്രന്റെ എല്ലാ തലമുറയും സ്നേഹിക്കും ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=N1xVPSagGqw)
-- [Kumbari Kumbananedi | Colours | Vidhu Prathap | Renjini Jose | Suresh Peters | Dileep | Roma](https://www.youtube.com/watch?v=G5gPogMeYb8)
-- [കാലത്തിനോ കാലാവസ്ഥക്കോ മാറ്റിമറിക്കാൻ സാധിക്കാത്ത മലയാളികളുടെ ഇഷ്ടഗാനങ്ങൾ  | MALAYALAM FILM  SONGS](https://www.youtube.com/watch?v=9KSIGoGCMVk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
