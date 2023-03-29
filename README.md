@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Balagam &lpar;2023&rpar; Multi &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [Tel+Tam+Mal DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.tips/index.php?/forums/topic/172578-balagam-2023-multi-music-video-album-1080p-web-hd-untouched-avc-teltammal-dd51-640kbps-e-sub-by-beast-uk/&do=findComment&comment=344718)
+- [Balagam &lpar;2023&rpar; Multi &lpar;MUSIC VIDEO ALBUM&rpar; 4K WEB-HD UNTOUCHED - HEVC - [Tel+Tam+Mal DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.tips/index.php?/forums/topic/172577-balagam-2023-multi-music-video-album-4k-web-hd-untouched-hevc-teltammal-dd51-640kbps-e-sub-by-beast-uk/&do=findComment&comment=344717)
 - [Dharmapuri &lpar;2006&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 2.2GB](https://www.1tamilmv.tips/index.php?/forums/topic/172576-dharmapuri-2006tamil480phdtvx264aac20-22gb/&do=findComment&comment=344716)
 - [Maya the Bee 2: The Honey Games &lpar;2018&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Malayalam + Eng&rpar; - 2.1GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin + Mal&rpar; - 500MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172574-maya-the-bee-2-the-honey-games-2018-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-malayalam-eng-21gb-11gb-x264-tam-tel-hin-mal-500mb-esub/&do=findComment&comment=344715)
 - [Maya the Bee 3: The Golden Orb &lpar;2021&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Malayalam + Eng&rpar; - 2.1GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin + Mal&rpar; - 500MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172544-maya-the-bee-3-the-golden-orb-2021-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-malayalam-eng-21gb-11gb-x264-tam-tel-hin-mal-500mb-esub/&do=findComment&comment=344714)
-- [Ottu &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.9GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172558-ottu-2023-telugu-true-web-dl-1080p-720p-avc-dd51-192kbps-29gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=344713)
-- [Maruthamalai &lpar;2007&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - 8.3GB - 4.5GB - 2.7GB &amp; 1.4GB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.tips/index.php?/forums/topic/172557-maruthamalai-2007-tamil-true-web-dl-4k-1080p-720p-avc-83gb-45gb-27gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=344712)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
