@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഇന്നസെൻ്റെ ആലപിച്ച അടിപൊളി ഗാനം| Kunuku Penmaniye| Mr.Butler Malayalam Movie Song| Innocent | Dileep](https://www.youtube.com/watch?v=Rj4Q2gXcefQ)
 - [#Thanaro](https://www.youtube.com/watch?v=KPt29kwqURo)
 - [ഒരു മഴ നനഞ്ഞ ലാഘവത്തോടെ കേട്ടിരിക്കാൻ സുഖമുള്ള മൃദുല ഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=rB1BMpZMpK0)
 - [Bhagavan Dasante Ramarajyam - Motion Poster | Akshay R, Nandana R, TG Ravi | Rasheed P | Vishnu S](https://www.youtube.com/watch?v=pAreswMwIjE)
 - [Beautiful song from the movie Vellaripattanam](https://www.youtube.com/watch?v=sIYgCW2H8uQ)
 - [വിലാപഗീതങ്ങൾ |vilapageethagal |OWN MEDIA MUSIC |](https://www.youtube.com/watch?v=LaejG1GEK1Y)
-- [Kandanaal Muthal | Positive | Jayasurya | Vani Kishore | Alex Paul | Jayachandran](https://www.youtube.com/watch?v=3lxCRufjoDs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
