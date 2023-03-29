@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mohikkum Neelmizhiyode | Manthrikam | Mohanlal | Priyaraman | Thamby Kannanthanam | S.P.Venkitesh](https://www.youtube.com/watch?v=pG1jILTVELQ)
+- [Ellam Kshamikkan  |Midhila Michael |Joji Johns |Br. Anil Malappuram |Easter Special Video Song](https://www.youtube.com/watch?v=93j2YhGx-qI)
 - [പ്രേക്ഷക സ്വീകാര്യത നേടിയ മലയാളസിനിമയിലെ പ്രശസ്‌തമായ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=PSPXRTlRdNE)
 - [Ellaam Kshamikkaan  |Christian Video Song |Easter Special Songs |Midhila Michael |Joji Johns](https://www.youtube.com/watch?v=w0n6iS2X4RM)
 - [29 March 2023](https://www.youtube.com/watch?v=lVxnHkvY14k)
 - [Nizhalu Pole Kaathidaam | Thottampatturayunna Meleppothy | Madhu Balakrishnan | Sony Sai](https://www.youtube.com/watch?v=rJsWXU440OU)
-- [പിച്ചിയും തെച്ചിയും ചൂടികൊച്ചമ്മിണിപ്പെണ്ണ് വന്നാല്‍ | Kunuku Penmaniye| Mr.Butler |Innocent |Dileep](https://www.youtube.com/watch?v=bS0G2xKpJ60)
-- [Kunje Ninakku Vendi Video Song | Mammootty | KJ Yesudas | Mohan Sithara | Kaithapram | Kaazhcha](https://www.youtube.com/watch?v=Z-4RUR2eiRs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
