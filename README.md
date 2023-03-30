@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Bholaa &lpar;2023&rpar; Hindi Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172615-bholaa-2023-hindi-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=344793)
+- [The.Whale.2022.1080p.BluRay.REMUX.AVC.[Hindi AAC 2.0 -Tamil-Telugu-English DTS-HD MA 5.1] Esub 24GB [G-Drive]](https://www.1tamilmv.help/index.php?/forums/topic/172614-thewhale20221080pblurayremuxavchindi-aac-20-tamil-telugu-english-dts-hd-ma-51-esub-24gb-g-drive/&do=findComment&comment=344792)
+- [American Pie Collection &lpar;1999-2001-2003-2012&rpar; English UNRATED 1080p BluRay - HEVC x265 10Bit - AC3 5.1 - ESub - 6.6GB - Direct Download](https://www.1tamilmv.help/index.php?/forums/topic/172613-american-pie-collection-1999-2001-2003-2012-english-unrated-1080p-bluray-hevc-x265-10bit-ac3-51-esub-66gb-direct-download/&do=findComment&comment=344791)
+- [Michael Jackson - Bad Album &lpar;1987&rpar; - Speed Demon - FLAC - 44.1khz - English - 25mb](https://www.1tamilmv.help/index.php?/forums/topic/172612-michael-jackson-bad-album-1987-speed-demon-flac-441khz-english-25mb/&do=findComment&comment=344790)
 - [Along With The Gods The Last 49 Days &lpar;2018&rpar; BluRay [Korean - 1080p - HQ HDRip - x264 - AAC - 2.5GB - ESub.mkv](https://www.1tamilmv.help/index.php?/forums/topic/172611-along-with-the-gods-the-last-49-days-2018-bluray-korean-1080p-hq-hdrip-x264-aac-25gb-esubmkv/&do=findComment&comment=344789)
-- [Agilan &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.6GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.help/index.php?/forums/topic/172587-agilan-2023-tamil-web-dl-1080p-720p-avc-aac-26gb-13gb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=344788)
-- [The Whale &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.6GB &amp; 1.GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 500MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172592-the-whale-2022-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-26gb-1gb-x264-tam-tel-hin-500mb-esub/&do=findComment&comment=344787)
-- [Three Billboards Outside Ebbing Missouri &lpar;2017&rpar; English - BluRay - 4K [2160p] 10bit SDR - TRUE HD UNTOUCHED - HEVC - x265 - AAC5.1&lpar;384kbps&rpar; - 5GB - ESub.mkv](https://www.1tamilmv.help/index.php?/forums/topic/172610-three-billboards-outside-ebbing-missouri-2017-english-bluray-4k-2160p-10bit-sdr-true-hd-untouched-hevc-x265-aac51384kbps-5gb-esubmkv/&do=findComment&comment=344786)
-- [Pathu Thala &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.help/index.php?/forums/topic/172595-pathu-thala-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=344785)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
