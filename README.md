@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കള്ളനും ഭഗവതിയും നാളെ മുതല്‍ തീയറ്ററുകളില്‍ | Vishnu Unnikrishnan | East Coast Vijayan | Mokksha](https://www.youtube.com/watch?v=p_R0yoL7iGU)
 - [Choraveena Mannil Ninnum  | Arabikkatha | Sreenivasan | Anil Panachooran | Sreenivasan](https://www.youtube.com/watch?v=McxxwP5jWUg)
 - [മലയാളസിനിമക്ക് മാറ്റിനിർത്താനാവാത്ത മഹാപ്രതിഭ ശ്രീനിവാസൻ അഭിനയിച്ച ചിത്രങ്ങളിലെ ഗാനങ്ങൾ | SUPER HITS](https://www.youtube.com/watch?v=RDAVT9P3WxI)
 - [ഒരു ഉത്സവകാല പ്രതീതിയുണർത്തും ഉന്നതനിലവാരമുള്ള ചലച്ചിത്രഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=_GGAu0mXMlo)
 - [ഇന്നസെൻ്റെ ആലപിച്ച ആ മനോഹര ഗാനം കേൾക്കു  | ആനച്ചന്തം | Aanachandam | Gajakesariyogam | Innocent](https://www.youtube.com/watch?v=3gz67rZbg-A)
 - [Karthru Kaahalam | Shorts | Wilson Piravom | Elizabeth Raju](https://www.youtube.com/watch?v=-q3mWylvKfA)
-- [Vedhana Thingunna | Teena Mary Abraham | Dr. Sandeep R | Lila George | Malayalam Christian Songs](https://www.youtube.com/watch?v=6dwQJBqr6Fs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
