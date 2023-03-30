@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Jeevithame Then Kumbilakumee | Mehfil | Ramesh Narayan | Deepankuran | Kaithapram](https://www.youtube.com/watch?v=hh1aDxAuQcM)
+- [Swayam Varamai | Evergreen Malayalam Movie Song | Paithrukam | Jayaram | Sindhu - SP Venkitesh Hits](https://www.youtube.com/watch?v=XFciLs8ls1g)
+- [Kaakka Poocha Ottaka Video Song | Badusha | Seenadadi | Ilayaraja | Minmini | Bichu Thirumala](https://www.youtube.com/watch?v=mKwBSQz0M8M)
+- [Rhythm of Padavettu  - Making | Nivin Pauly, Aditi Balan | Liju Krishna | Govinth Vasantha](https://www.youtube.com/watch?v=0j4-PMg2Ycw)
 - [കള്ളനും ഭഗവതിയും നാളെ മുതല്‍ തീയറ്ററുകളില്‍ | Vishnu Unnikrishnan | East Coast Vijayan | Mokksha](https://www.youtube.com/watch?v=p_R0yoL7iGU)
 - [Choraveena Mannil Ninnum  | Arabikkatha | Sreenivasan | Anil Panachooran | Sreenivasan](https://www.youtube.com/watch?v=McxxwP5jWUg)
-- [മലയാളസിനിമക്ക് മാറ്റിനിർത്താനാവാത്ത മഹാപ്രതിഭ ശ്രീനിവാസൻ അഭിനയിച്ച ചിത്രങ്ങളിലെ ഗാനങ്ങൾ | SUPER HITS](https://www.youtube.com/watch?v=RDAVT9P3WxI)
-- [ഒരു ഉത്സവകാല പ്രതീതിയുണർത്തും ഉന്നതനിലവാരമുള്ള ചലച്ചിത്രഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=_GGAu0mXMlo)
-- [Kallanum Bhagavathiyum Official Teaser 3  |Vishnu Unnikrishnan, Anusree, Mokksha| East Coast Vijayan](https://www.youtube.com/watch?v=9d5YdN2DgUo)
-- [Ee Maruvanamaakave | Video Song | Made In Caravan | KK Nishad | Annu Antony | Jomy Kuriakose](https://www.youtube.com/watch?v=eTxrBxnRp7k)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
