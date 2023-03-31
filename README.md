@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Agilan &lpar;2023&rpar; ZEE5 WEB.DL AAC2.0 Esubs x264 - 1080p | 720p - 2.1 GB | 1.1 GB](https://www.1tamilmv.help/index.php?/forums/topic/172627-agilan-2023-zee5-webdl-aac20-esubs-x264-1080p-720p-21-gb-11-gb/&do=findComment&comment=344812)
-- [Bagheera &lpar;2023&rpar; SNXT WEB-DL DDP5.1 Atmos Esubs - 2160p | 1080p | 720p - 13.6 GB | 4.6 GB | 1.8 GB](https://www.1tamilmv.help/index.php?/forums/topic/172626-bagheera-2023-snxt-web-dl-ddp51-atmos-esubs-2160p-1080p-720p-136-gb-46-gb-18-gb/&do=findComment&comment=344811)
-- [Ariyavan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 9GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172618-ariyavan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-atmos-448kbps-9gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344810)
-- [Bagheera &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 13.6GB - 5GB - 2.8GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.help/index.php?/forums/topic/172622-bagheera-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-atmos-448kbps-136gb-5gb-28gb-14gb-950mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=344809)
-- [Michael Jackson - Bad Album &lpar;1987&rpar; - Speed Demon - FLAC - 44.1khz - English - 25mb](https://www.1tamilmv.help/index.php?/forums/topic/172612-michael-jackson-bad-album-1987-speed-demon-flac-441khz-english-25mb/&do=findComment&comment=344808)
+- [Bagheera &lpar;2023&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD+5.1 ATMOS&rpar; - 5GB - ESub - Direct Download](https://www.1tamilmv.help/index.php?/forums/topic/172633-bagheera-2023-tamil-true-web-dl-1080p-hq-avc-untouched-dd51-atmos-5gb-esub-direct-download/&do=findComment&comment=344818)
+- [Gaslight &lpar;2023&rpar; Hindi Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172632-gaslight-2023-hindi-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=344817)
+- [Gaslight &lpar;2023&rpar; Hindi Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172631-gaslight-2023-hindi-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=344816)
+- [Faraaz &lpar;2023&rpar; Hindi Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172630-faraaz-2023-hindi-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=344815)
+- [Mr. Bachelor &lpar;2023&rpar; Kannada Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172629-mr-bachelor-2023-kannada-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=344814)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
