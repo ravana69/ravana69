@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കോലക്കുഴൽ - Kolakuzhal | Karaoke With Lyrics | Nivedyam | M Jayachandran | Lohithadas](https://www.youtube.com/watch?v=XfBjqREWsuY)
+- [എൻ ജീവിതം ഞാൻ നൽകാം...](https://www.youtube.com/watch?v=tnrDEjsibvI)
+- [Ororo Novin | Kolambi Film Songs | Shorts](https://www.youtube.com/watch?v=vAziTjTNdDc)
+- [Neeharamaniyunna | Ente Maavum Pookkum | Swetha Mohan | George Nirmal | Sivadas Thathampully](https://www.youtube.com/watch?v=3wzDdOxnj24)
+- [Sujatha Mohan Hits | എൻ്റെ പ്രിയഗാനങ്ങൾ | Malayalam Film Song | Best Malayalam Songs](https://www.youtube.com/watch?v=N876k0zE8ag)
 - [Ottayan | Official Trailer | Nishad Kattoor | Anju Ginu | TK Balaram Thypparambil | Anwar Sadut](https://www.youtube.com/watch?v=Cdci5PgmakQ)
-- [ജനകീയ നായകൻ ദിലീപിന്റെ പ്രേക്ഷകർ ഇരുകൈയ്യും നീട്ടി സ്വീകരിച്ച ജനപ്രിയ ഗാനങ്ങൾ](https://www.youtube.com/watch?v=yX42eMjfObc)
-- [സുന്ദരി നീയും|Sundari Neeyum Video Song | Michael Madana Kama Rajan| Kamal Haasan| Ilayaraja |Janaki](https://www.youtube.com/watch?v=0o8llrnhpO4)
-- [കുട്ടി മനസുകൾക്ക് ആഹ്‌ളാദം പകരുന്ന മലയാളസിനിമാഗാനങ്ങൾ  | CHILDRENS SPECIAL SONGS](https://www.youtube.com/watch?v=F9cwVCsHfg4)
-- [Fire power with #Thanaro | #Kasargold | #AsifAli #SunnyWayne #Vinayakan | #Shorts #YTshorts](https://www.youtube.com/watch?v=IIEF3ijx0vc)
-- [വിശുദ്ധ വാരത്തിൽ ലോകമെങ്ങും കേൾക്കാൻ ആഗ്രഹിക്കുന്ന ഏറ്റവും മികച്ച ഈസ്റ്റര് ഗാനങ്ങൾ|Songs Of The Week](https://www.youtube.com/watch?v=cHk-juSWa5Y)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
