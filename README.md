@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [PS2 &lpar;2023&rpar; - Complete Soundtrack - A.R.R - DD5.1 640Kbps &amp; DTSHDMA5.1 3902Kbps &lpar;Lossless 24Bit ALAC Upmixed&rpar; - 300MB &amp; 772MB &lpar;MKV Audio&rpar;](https://www.1tamilmv.help/index.php?/forums/topic/172654-ps2-2023-complete-soundtrack-arr-dd51-640kbps-dtshdma51-3902kbps-lossless-24bit-alac-upmixed-300mb-772mb-mkv-audio/&do=findComment&comment=344875)
+- [Viduthalai Part 1 &lpar;2023&rpar;.Tamil.1080p.PDVD.x264.HQ Clean Audio - 2.8GB &lpar;Aspect Ratio Corrected&rpar;](https://www.1tamilmv.help/index.php?/forums/topic/172653-viduthalai-part-1-2023tamil1080ppdvdx264hq-clean-audio-28gb-aspect-ratio-corrected/&do=findComment&comment=344874)
 - [Dr. 56 &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.2GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172652-dr-56-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-12gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344873)
-- [Memories &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 4.2GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172645-memories-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-42gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344868)
-- [Request your movies as a comment to this topic.!](https://www.1tamilmv.help/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=344867)
-- [Dr.56 &lpar;2023&rpar; Telugu TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DD+5.1&rpar; - 4.1GB - ESub - Direct Download](https://www.1tamilmv.help/index.php?/forums/topic/172647-dr56-2023-telugu-true-web-dl-1080p-avc-untouched-dd51-41gb-esub-direct-download/&do=findComment&comment=344866)
-- [Creed III &lpar;2023&rpar; English TRUE WEB-DL - [1080p HQ HEVC - x265 - &lpar;DD+5.1&rpar; - 1.8GB ] - ESub - Direct Download](https://www.1tamilmv.help/index.php?/forums/topic/172646-creed-iii-2023-english-true-web-dl-1080p-hq-hevc-x265-dd51-18gb-esub-direct-download/&do=findComment&comment=344865)
+- [Hondisi Bareyiri &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172650-hondisi-bareyiri-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=344871)
+- [Amigos &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172648-amigos-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-5gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344869)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
