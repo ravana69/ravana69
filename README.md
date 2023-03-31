@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [55 Tamil Movies [2013 - 2014] - BluRay / WEB DL - HEVC - x265 - DD5.1/AAC2.0 - ESub - [1080p - 75GB] [GDRIVE]](https://www.1tamilmv.help/index.php?/forums/topic/164659-55-tamil-movies-2013-2014-bluray-web-dl-hevc-x265-dd51aac20-esub-1080p-75gb-gdrive/&do=findComment&comment=344825)
+- [Software Blues &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 1.8GB &amp; 1GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172636-software-blues-2022-telugu-true-web-dl-1080p-720p-avc-aac-18gb-1gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344824)
 - [Dom &lpar;2023&rpar; S02 EP05 TRUE WEB-DL - [1080p, 720p - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 640Kbps&rpar; - 3GB - 1.3GB &amp; 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172635-dom-2023-s02-ep05-true-web-dl-1080p-720p-tamil-telugu-hindi-eng-dd51-640kbps-3gb-13gb-400mb-esub/&do=findComment&comment=344823)
+- [The Power &lpar;2023&rpar; S01 EP&lpar;01-03&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tam + Tel + Hin + Mal + Kan + Eng] - 5.6GB - 2GB - 650MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172634-the-power-2023-s01-ep01-03-true-web-dl-1080p-720p-avc-dd51-640kbps-tam-tel-hin-mal-kan-eng-56gb-2gb-650mb-esub/&do=findComment&comment=344822)
 - [Dasara &lpar;2023&rpar; Hindi HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.2GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.help/index.php?/forums/topic/172602-dasara-2023-hindi-hq-predvd-1080p-720p-x264-26gb-12gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=344821)
-- [Dasara &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.help/index.php?/forums/topic/172598-dasara-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=344820)
-- [Bagheera &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 13.6GB - 5GB - 2.8GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.help/index.php?/forums/topic/172622-bagheera-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-atmos-448kbps-136gb-5gb-28gb-14gb-950mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=344819)
-- [Bagheera &lpar;2023&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD+5.1 ATMOS&rpar; - 5GB - ESub - Direct Download](https://www.1tamilmv.help/index.php?/forums/topic/172633-bagheera-2023-tamil-true-web-dl-1080p-hq-avc-untouched-dd51-atmos-5gb-esub-direct-download/&do=findComment&comment=344818)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
