@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kallanum Bhagavathiyum Theatre Response | Vishnu Unnikrishnan, Anusree, Mokksha| East Coast Vijayan](https://www.youtube.com/watch?v=9Vp263KP2Xc)
+- [Mizhikal Vanilare - Video Song | Bullet Diaries | Dhyan Sreenivasan,Prayaga Martin| Santhosh Mandoor](https://www.youtube.com/watch?v=ACEoPpqko-E)
+- [Appappappo | Siddy | Madhuvanthi Narayan | Madhushree Narayan | Sooraj Santhosh | Ramesh Narayan](https://www.youtube.com/watch?v=5jvUXXNH9Sc)
 - [കോലക്കുഴൽ - Kolakuzhal | Karaoke With Lyrics | Nivedyam | M Jayachandran | Lohithadas](https://www.youtube.com/watch?v=XfBjqREWsuY)
 - [എൻ ജീവിതം ഞാൻ നൽകാം...](https://www.youtube.com/watch?v=tnrDEjsibvI)
 - [Ororo Novin | Kolambi Film Songs | Shorts](https://www.youtube.com/watch?v=vAziTjTNdDc)
-- [Neeharamaniyunna | Ente Maavum Pookkum | Swetha Mohan | George Nirmal | Sivadas Thathampully](https://www.youtube.com/watch?v=3wzDdOxnj24)
-- [Sujatha Mohan Hits | എൻ്റെ പ്രിയഗാനങ്ങൾ | Malayalam Film Song | Best Malayalam Songs](https://www.youtube.com/watch?v=N876k0zE8ag)
-- [Ottayan | Official Trailer | Nishad Kattoor | Anju Ginu | TK Balaram Thypparambil | Anwar Sadut](https://www.youtube.com/watch?v=Cdci5PgmakQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
