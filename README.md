@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ജനകീയ നായകൻ ദിലീപിന്റെ പ്രേക്ഷകർ ഇരുകൈയ്യും നീട്ടി സ്വീകരിച്ച ജനപ്രിയ ഗാനങ്ങൾ](https://www.youtube.com/watch?v=yX42eMjfObc)
 - [സുന്ദരി നീയും|Sundari Neeyum Video Song | Michael Madana Kama Rajan| Kamal Haasan| Ilayaraja |Janaki](https://www.youtube.com/watch?v=0o8llrnhpO4)
 - [കുട്ടി മനസുകൾക്ക് ആഹ്‌ളാദം പകരുന്ന മലയാളസിനിമാഗാനങ്ങൾ  | CHILDRENS SPECIAL SONGS](https://www.youtube.com/watch?v=F9cwVCsHfg4)
 - [Fire power with #Thanaro | #Kasargold | #AsifAli #SunnyWayne #Vinayakan | #Shorts #YTshorts](https://www.youtube.com/watch?v=IIEF3ijx0vc)
 - [വിശുദ്ധ വാരത്തിൽ ലോകമെങ്ങും കേൾക്കാൻ ആഗ്രഹിക്കുന്ന ഏറ്റവും മികച്ച ഈസ്റ്റര് ഗാനങ്ങൾ|Songs Of The Week](https://www.youtube.com/watch?v=cHk-juSWa5Y)
 - [Sundhariye Chembaka | Panthayakozhi | Narein | Pooja | Vidhu Prathap | Kaithapram | Alex Paul](https://www.youtube.com/watch?v=eFB28J3NIf4)
-- [കുണുക്കുപെണ്മണിയെ ഞുണുക്കു വിദ്യകളാല്‍ | Kunuku Penmaniye| Mr.Butler Malayalam Movie Song| Innocent](https://www.youtube.com/watch?v=5xo-Qst7zws)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
