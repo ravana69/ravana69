@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Michael Jackson - Bad Album &lpar;1987&rpar; - Speed Demon - FLAC - 44.1khz - English - 25mb](https://www.1tamilmv.help/index.php?/forums/topic/172612-michael-jackson-bad-album-1987-speed-demon-flac-441khz-english-25mb/&do=findComment&comment=344808)
 - [Bagheera &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 13.6GB - 5GB - 2.8GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.help/index.php?/forums/topic/172622-bagheera-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-atmos-448kbps-136gb-5gb-28gb-14gb-950mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=344807)
 - [Ariyavan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 9GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172618-ariyavan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-atmos-448kbps-9gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344806)
 - [Agilan &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC / HEVC - AAC - 2GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.help/index.php?/forums/topic/172619-agilan-2023-tamil-web-dl-1080p-720p-avc-hevc-aac-2gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=344805)
 - [Ariyavan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 9GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172618-ariyavan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-atmos-448kbps-9gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344804)
-- [Bagheera &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Telugu + Malayalam + Kannada] - 2.8GB &amp; 1.4GB] - [x264 - 850MB &amp; 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172625-bagheera-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-telugu-malayalam-kannada-28gb-14gb-x264-850mb-450mb-esub/&do=findComment&comment=344803)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
