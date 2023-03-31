@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കുട്ടി മനസുകൾക്ക് ആഹ്‌ളാദം പകരുന്ന മലയാളസിനിമാഗാനങ്ങൾ  | CHILDRENS SPECIAL SONGS](https://www.youtube.com/watch?v=F9cwVCsHfg4)
+- [Fire power with #Thanaro | #Kasargold | #AsifAli #SunnyWayne #Vinayakan | #Shorts #YTshorts](https://www.youtube.com/watch?v=IIEF3ijx0vc)
 - [വിശുദ്ധ വാരത്തിൽ ലോകമെങ്ങും കേൾക്കാൻ ആഗ്രഹിക്കുന്ന ഏറ്റവും മികച്ച ഈസ്റ്റര് ഗാനങ്ങൾ|Songs Of The Week](https://www.youtube.com/watch?v=cHk-juSWa5Y)
 - [Sundhariye Chembaka | Panthayakozhi | Narein | Pooja | Vidhu Prathap | Kaithapram | Alex Paul](https://www.youtube.com/watch?v=eFB28J3NIf4)
 - [കുണുക്കുപെണ്മണിയെ ഞുണുക്കു വിദ്യകളാല്‍ | Kunuku Penmaniye| Mr.Butler Malayalam Movie Song| Innocent](https://www.youtube.com/watch?v=5xo-Qst7zws)
 - [30 March 2023](https://www.youtube.com/watch?v=hLZalhEXqEc)
-- [Bandhanamellam Azhiyatte | Sojan Parackal |Vipin Kurishuthara  C M I|  Christian Video Song |Easter](https://www.youtube.com/watch?v=-UQepd8IsL8)
-- [മലയാള യുവ സിനിമാ നായകൻ കൈലാഷ് ആലപിക്കുന്ന മനോഹരമായ അയ്യപ്പ ഭക്തിഗാനം  | Punyam Poomkavanam](https://www.youtube.com/watch?v=stKi_E4e1yY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
