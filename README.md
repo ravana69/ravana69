@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Creed III &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 2.5GB &amp; 1.2GB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172638-creed-iii-2023-english-true-web-dl-1080p-720p-x264-dd51-atmos-768kbps-25gb-12gb-esub/&do=findComment&comment=344885)
+- [Hondisi Bareyiri &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172650-hondisi-bareyiri-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=344884)
+- [Amigos &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172648-amigos-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-5gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344883)
 - [Cooku With Comali &lpar;2023&rpar; Tamil - S04 EP19 TRUE WEB-DL - [1080p, 720p, 480p - AVC - UNTOUCHED - 2GB - 800MB &amp; 400MB] [01-04-2023]](https://www.1tamilmv.help/index.php?/forums/topic/172659-cooku-with-comali-2023-tamil-s04-ep19-true-web-dl-1080p-720p-480p-avc-untouched-2gb-800mb-400mb-01-04-2023/&do=findComment&comment=344881)
 - [Amigos &lpar;2023&rpar; 1080p NF WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 5.4 GB | 1.4 GB](https://www.1tamilmv.help/index.php?/forums/topic/172658-amigos-2023-1080p-nf-web-dl-ddp51-esubs-x264-1080p-720p-54-gb-14-gb/&do=findComment&comment=344880)
-- [Creed III &lpar;2023&rpar; AMZN WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR] | 1080p | 720p - 20.2 GB | 5.8 GB | 2.7 GB](https://www.1tamilmv.help/index.php?/forums/topic/172657-creed-iii-2023-amzn-web-dl-ddp51-atmos-esubs-2160p-hdr-1080p-720p-202-gb-58-gb-27-gb/&do=findComment&comment=344879)
-- [Never Back Down Revolt &lpar;2021&rpar; DDP5.1 Tamil-DTS 5.1 English-AAC 2.0 Telugu 1080p Blu-Ray Remux Msubs  28GB [G-Drive]](https://www.1tamilmv.help/index.php?/forums/topic/172656-never-back-down-revolt-2021-ddp51-tamil-dts-51-english-aac-20-telugu-1080p-blu-ray-remux-msubs-28gb-g-drive/&do=findComment&comment=344878)
-- [Memories &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 4.2GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172645-memories-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-42gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344877)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
