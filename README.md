@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [#JawanumMullapoovum - In Cinemas Near You!](https://www.youtube.com/watch?v=uRs5x2ZCb3o)
+- [Ponnu Pennanu | Indrajith | Kalabhavan Mani | Indraja | MG Sreekumar | Sujatha | M Jayachandran](https://www.youtube.com/watch?v=MCwk8IsDlJg)
 - [Onninum Samayamillathodunna |New Christian Video Song |Madhu Balakrishnan |Easter Special Songs](https://www.youtube.com/watch?v=EwFgxPO4sdE)
 - [1 April 2023](https://www.youtube.com/watch?v=Bt2b29G6yLI)
 - [Ore Pakal - Lyrical | Pookkaalam |Shahabaz Aman, KS Chithra | Rafeeq Ahamed | Sachin Warrier](https://www.youtube.com/watch?v=X0O4QHYN0Ns)
 - [#JawanumMullapoovum - Watch now at Cinemas Near You!](https://www.youtube.com/watch?v=vqZVCEFIseA)
-- [Kanavaano Ninavaano | Mehfil | G Venugopal | Jyothi Menon | Deepankuran | Kaithapram](https://www.youtube.com/watch?v=1HPRck3VTGE)
-- [Theduvathethoru Video Song | Sanjay Mithra | Sanjay Mithra | KS Chithra | Bombay Ravi | ONV Kurup](https://www.youtube.com/watch?v=17yXhZYMl-o)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
