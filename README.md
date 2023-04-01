@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [#JawanumMullapoovum - In Cinemas Near You!](https://www.youtube.com/watch?v=q7vegwA4pz4)
 - [കുരിശിന്റെ വഴിയിലെ ഓര്മകളുണർത്തും  നൊമ്പരമുണർത്തും പീഡാനുഭവ ഗാനങ്ങൾ |Way Of The Cross|Wilson Piravom](https://www.youtube.com/watch?v=1PG4shVMfoY)
 - [Thumbipenne Vaa Vaa | Dhruvam | Mammootty | Jayaram | Joshiy | Yesudas | Sujatha](https://www.youtube.com/watch?v=Qi_Vem52k90)
 - [Varuveen Ee Nalla Samayam | Heidel & Irine | KV Joseph | Evergreen Malayalam Christian Songs](https://www.youtube.com/watch?v=af3__GB4Rlg)
 - [ജെറുസലേം വീഥിയിൽ അന്ന് കേട്ട ആർപ്പുവിളിയുടെ ഓര്മകളുണർത്തും  ഓശാന ഗീതങ്ങൾ |Holy Week Songs |Kester](https://www.youtube.com/watch?v=-23f-feoHOc)
 - [Kallanum Bhagavathiyum Theatre Response | Vishnu Unnikrishnan, Anusree, Mokksha| East Coast Vijayan](https://www.youtube.com/watch?v=9Vp263KP2Xc)
-- [Mizhikal Vanilare - Video Song | Bullet Diaries | Dhyan Sreenivasan,Prayaga Martin| Santhosh Mandoor](https://www.youtube.com/watch?v=ACEoPpqko-E)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
