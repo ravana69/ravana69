@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Neram Nalla Neram - Lyrical Video | Thoovalkkattu | MG Sreekumar | Kaithapram](https://www.youtube.com/watch?v=xLgbixFJAR0)
 - [#JawanumMullapoovum - In Cinemas Near You!](https://www.youtube.com/watch?v=-jAx2_N7niI)
 - [ഇന്നത്തെ കൊച്ചുകുട്ടികൾ പോലും എപ്പോഴും കേൾക്കുകയും പാടുകയും ചെയ്യുന്ന പഴയ മനോഹര ഗാനങ്ങൾ | SUPERHITS](https://www.youtube.com/watch?v=WomH7S-Enz0)
 - [24 മണിക്കൂറും ചുണ്ടിൽ അറിയാതെ വിരിയുന്ന മലയാളസിനിമയിലെ ആരും കൊതിക്കും ഗാനങ്ങൾ | MALAYALAM SUPERHITS](https://www.youtube.com/watch?v=s4828VLWiEU)
 - [Kasavulla Pattuduth  |  Ulsavamelam   Evergreen Malayalam Film Songs  |  ONV Kurup | Sujatha Mohan](https://www.youtube.com/watch?v=zC8ityXNJYI)
 - [#JawanumMullapoovum - In Cinemas Near You!](https://www.youtube.com/watch?v=q7vegwA4pz4)
-- [കുരിശിന്റെ വഴിയിലെ ഓര്മകളുണർത്തും  നൊമ്പരമുണർത്തും പീഡാനുഭവ ഗാനങ്ങൾ |Way Of The Cross|Wilson Piravom](https://www.youtube.com/watch?v=1PG4shVMfoY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
