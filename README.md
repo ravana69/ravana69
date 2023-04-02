@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [A weekend with #Thanaro 🍾| #Kasargold | #AsifAli #SunnyWayne #Vinayakan | #Shorts #YTshorts](https://www.youtube.com/watch?v=AFmcaDLc4Os)
 - [Kallanum Bhagavathiyum | Mokksha | Vishnu Unnikrishnan | Anusree | East Coast Vijayan](https://www.youtube.com/watch?v=cCkRe9NRrv0)
 - [Sandhye Kanneeril Enthe | Madanolsavam | S Janaki | ONV Kurup | Salil Chowdhary | Zarina Wahab](https://www.youtube.com/watch?v=vg6HtNLg9Ec)
 - [രാത്തിങ്കൾ  പൂത്താലി ചാർത്തി #shortsyoutube #bestmelodysongs #bijumenon #mohini](https://www.youtube.com/watch?v=buuEjx4RxYk)
 - [ഭഗവതിയെ കണ്ട് മനസ്സ് നിറഞ്ഞ്  പ്രേക്ഷകർ | Kallanum Bhagavathiyum | Theatre Response | Movie Review](https://www.youtube.com/watch?v=HSUoYHwysGs)
 - [പാട്ടുപെട്ടി  Vol 1 | Malayalam Film Songs](https://www.youtube.com/watch?v=y1SuLDtIoDM)
-- [Vishudhavara Geethangal|Easter Special Songs|HolyWeekSongs 2023|Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=kGT54vXA-gI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
