@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Laama Laama - Song Teaser | Bhagavan Dasante Ramarajyam | Akshay R, Nandana R Rasheed P | Vishnu S](https://www.youtube.com/watch?v=azEW_i717_0)
+- [Manjin Margazhi Thumbi Video Song | Dileep | Sreekumar | Sujatha Mohan | Johnson | S Ramesan Nair](https://www.youtube.com/watch?v=Rw0F5lFVjgs)
+- [തീയറ്ററിൽ ഭഗവതി പ്രത്യക്ഷപ്പെട്ടപ്പോൾ | Kallanum Bhagavathiyum | Theatre Response | Movie Review](https://www.youtube.com/watch?v=dOLW-53Zoo8)
 - [A weekend with #Thanaro 🍾| #Kasargold | #AsifAli #SunnyWayne #Vinayakan | #Shorts #YTshorts](https://www.youtube.com/watch?v=AFmcaDLc4Os)
 - [Kallanum Bhagavathiyum | Mokksha | Vishnu Unnikrishnan | Anusree | East Coast Vijayan](https://www.youtube.com/watch?v=cCkRe9NRrv0)
 - [Sandhye Kanneeril Enthe | Madanolsavam | S Janaki | ONV Kurup | Salil Chowdhary | Zarina Wahab](https://www.youtube.com/watch?v=vg6HtNLg9Ec)
-- [രാത്തിങ്കൾ  പൂത്താലി ചാർത്തി #shortsyoutube #bestmelodysongs #bijumenon #mohini](https://www.youtube.com/watch?v=buuEjx4RxYk)
-- [ഭഗവതിയെ കണ്ട് മനസ്സ് നിറഞ്ഞ്  പ്രേക്ഷകർ | Kallanum Bhagavathiyum | Theatre Response | Movie Review](https://www.youtube.com/watch?v=HSUoYHwysGs)
-- [പാട്ടുപെട്ടി  Vol 1 | Malayalam Film Songs](https://www.youtube.com/watch?v=y1SuLDtIoDM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
