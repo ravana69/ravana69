@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pure as Snow &lpar;2019&rpar; AMZN WEB-DL DDP2.0 Esubs x264 - 1080p | 720p - 4.7 GB  | 2.5 GB](https://www.1tamilmv.help/index.php?/forums/topic/172664-pure-as-snow-2019-amzn-web-dl-ddp20-esubs-x264-1080p-720p-47-gb-25-gb/&do=findComment&comment=344909)
+- [The Exorcist 1973 Blu-Ray EXTENDED DC 1080p Remux AAC 2.0 Tamil-Hindi DDP 2.0- English DD 5.1 x264 ESub 9GB &amp; 31GB [G-Drive]](https://www.1tamilmv.help/index.php?/forums/topic/171836-the-exorcist-1973-blu-ray-extended-dc-1080p-remux-aac-20-tamil-hindi-ddp-20-english-dd-51-x264-esub-9gb-31gb-g-drive/&do=findComment&comment=344908)
 - [Viduthalai Part-1 &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.help/index.php?/forums/topic/172603-viduthalai-part-1-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=344907)
 - [Higuita &lpar;2023&rpar; Malayalam Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.help/index.php?/forums/topic/172605-higuita-2023-malayalam-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=344906)
 - [Ammachi Koottile Pranayakalam &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.2GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.help/index.php?/forums/topic/172649-ammachi-koottile-pranayakalam-2023-malayalam-true-web-dl-1080p-720p-avc-aac-22gb-13gb-x264-700mb-400mb/&do=findComment&comment=344905)
-- [Jawanum Mullappoovum &lpar;2023&rpar; Malayalam Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.help/index.php?/forums/topic/172604-jawanum-mullappoovum-2023-malayalam-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=344904)
-- [Ammachi Koottile Pranayakalam &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.2GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.help/index.php?/forums/topic/172649-ammachi-koottile-pranayakalam-2023-malayalam-true-web-dl-1080p-720p-avc-aac-22gb-13gb-x264-700mb-400mb/&do=findComment&comment=344903)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
