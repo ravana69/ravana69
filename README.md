@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Minnale &lpar;2001&rpar; Tamil HQ DVDRip - [1080p &amp; 720p - x264 - 3GB - 1.4GB | x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/171723-minnale-2001-tamil-hq-dvdrip-1080p-720p-x264-3gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=344928)
+- [Waltair Veerayya &lpar;2023&rpar; Hindi HDRip - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.help/index.php?/forums/topic/171259-waltair-veerayya-2023-hindi-hdrip-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=344927)
+- [Vindhya Victim Verdict V3 &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.help/index.php?/forums/topic/171152-vindhya-victim-verdict-v3-2023-tamil-proper-hq-predvd-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=344926)
+- [Naai Sekar Returns &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.5GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.help/index.php?/forums/topic/171135-naai-sekar-returns-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-55gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=344925)
 - [Pallu Padama Paathuka &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.6GB - 2.3GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.help/index.php?/forums/topic/172667-pallu-padama-paathuka-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-56gb-23gb-13gb-800mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=344924)
-- [Pallu Padama Paathuka &lpar;2023&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD+5.1&rpar; - 5.6GB - ESub - Direct Download](https://www.1tamilmv.help/index.php?/forums/topic/172672-pallu-padama-paathuka-2023-tamil-true-web-dl-1080p-hq-avc-untouched-dd51-56gb-esub-direct-download/&do=findComment&comment=344923)
-- [Premadesam &lpar;2023&rpar; Telugu Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172671-premadesam-2023-telugu-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=344922)
-- [Premadesam &lpar;2023&rpar; Telugu TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD+5.1&rpar; - 9.6GB - ESub - Direct Download](https://www.1tamilmv.help/index.php?/forums/topic/172670-premadesam-2023-telugu-true-web-dl-1080p-hq-avc-untouched-dd51-96gb-esub-direct-download/&do=findComment&comment=344921)
-- [Pallu Padama Paathuka &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172669-pallu-padama-paathuka-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=344920)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
