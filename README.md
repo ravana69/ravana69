@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [3 April 2023](https://www.youtube.com/watch?v=X1X5U8rZHf0)
+- [Podiyamma | Thottampatturayunna Meleppothy | Sony Sai | Balakrishnan Samanwaya](https://www.youtube.com/watch?v=XUk9W-DZo-A)
 - [Marakkilla Njan - Video Song  | Kallanum Bhagavathiyum | Vishnu Unnikrishan | East Coast Vijayan](https://www.youtube.com/watch?v=Wo_5vtrq6po)
 - [Masalama - Lyrical | Ayisha | Manju Warrier | Shreya Ghoshal | M Jayachandran | Aamir Pallikkal](https://www.youtube.com/watch?v=JnbkNOmnn6M)
 - [Mukilinte Madiyil | Mehfil | Hridya Manoj | Deepankuran | Kaithapram](https://www.youtube.com/watch?v=YdWTqpLrWuc)
 - [BTS from Onnu Thotte | Jawanum Mullapoovum | Sumesh, Sshivada | Vijay Yesudas | 4 MUSICS | #Shorts](https://www.youtube.com/watch?v=AyiVjkV7EeM)
-- [Puliyankakkolam Ketti Video Song | Mohanlal | MG Sreekumar | Gireesh Puthenchery | Anand | Nirnayam](https://www.youtube.com/watch?v=OXHQbl894f8)
-- [താമരപ്പൂവിൽ വാഴും ദേവിയല്ലോ നീ HD | Chandralekha | Evergreen Malayalam Film Song | Mohanlal](https://www.youtube.com/watch?v=puUhXg1i-mw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
