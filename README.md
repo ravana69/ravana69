@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [😼. MALAI PART 1+2 2023 HINDI ULLU WEB SERIES HDRIP](https://www.1tamilmv.help/index.php?/forums/topic/153729-%F0%9F%98%BC-malai-part-12-2023-hindi-ullu-web-series-hdrip/&do=findComment&comment=344981)
+- [😼. AAMRAS 2023 ULLU S01 COMPLETE HINDI WEB SERIES 1080P | 720P | 480P HDRIP MKV](https://www.1tamilmv.help/index.php?/forums/topic/155687-%F0%9F%98%BC-aamras-2023-ullu-s01-complete-hindi-web-series-1080p-720p-480p-hdrip-mkv/&do=findComment&comment=344980)
 - [😼. MALAI PART 1+2 2023 HINDI ULLU WEB SERIES HDRIP](https://www.1tamilmv.help/index.php?/forums/topic/153729-%F0%9F%98%BC-malai-part-12-2023-hindi-ullu-web-series-hdrip/&do=findComment&comment=344979)
 - [😼. BADAN PART 1+2+3 2023 HINDI ULLU WEB SERIES HDRIP](https://www.1tamilmv.help/index.php?/forums/topic/165984-%F0%9F%98%BC-badan-part-123-2023-hindi-ullu-web-series-hdrip/&do=findComment&comment=344978)
 - [😼. BADAN PART 1+2+3 2023 HINDI ULLU WEB SERIES HDRIP](https://www.1tamilmv.help/index.php?/forums/topic/165984-%F0%9F%98%BC-badan-part-123-2023-hindi-ullu-web-series-hdrip/&do=findComment&comment=344977)
-- [😼. BADAN PART 1+2+3 2023 HINDI ULLU WEB SERIES HDRIP](https://www.1tamilmv.help/index.php?/forums/topic/165984-%F0%9F%98%BC-badan-part-123-2023-hindi-ullu-web-series-hdrip/&do=findComment&comment=344976)
-- [The Red Ghost &lpar;2020&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.2GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172680-the-red-ghost-2020-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-22gb-11gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=344973)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
