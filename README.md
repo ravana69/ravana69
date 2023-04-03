@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [#Thanaro Powerrr | #Kasargold | #AsifAli #SunnyWayne #Vinayakan | #Shorts #YTshorts](https://www.youtube.com/watch?v=KbTgcnZRRzE)
 - [പുതിയ ഗാനങ്ങളെക്കാളും മലയാളികൾ മനസ്സിലേറെ സ്നേഹിക്കുന്ന എൺപതുകളിലെ അതിമനോഹരഗാനങ്ങൾ | NISARI SONGS](https://www.youtube.com/watch?v=51Y4vC97JHA)
 - [കള്ളനേയും ഭഗവതിയേയും ഏറ്റെടുത്ത് കുടുംബ പ്രേക്ഷകർ  | Kallanum Bhagavathiyum | Theatre Response](https://www.youtube.com/watch?v=Mk72zkWfSHo)
 - [Onnukanan Oru Moham | Vaikom Vijayalekhsmi | Sam Issac | Latest Christian Devotional Song Malayalam](https://www.youtube.com/watch?v=0AS6uXnuKVM)
 - [Muthe Ninne | Amrutham | Arun | Bhavana | Madhu Balakrishnan | M Jayachandran | Sibi Malayil](https://www.youtube.com/watch?v=kx0M9zVSClA)
 - [2 April 2023](https://www.youtube.com/watch?v=ZmHj4UzVoIs)
-- [കുടുംബപ്രേക്ഷകര്‍ കൂട്ടത്തോടെ തീയറ്ററുകളിലേക്ക്... | Kallanum BHagavathiyum](https://www.youtube.com/watch?v=y9THrCf8Kkc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
