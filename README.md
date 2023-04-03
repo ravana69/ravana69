@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കള്ളനേയും ഭഗവതിയേയും ഏറ്റെടുത്ത് കുടുംബ പ്രേക്ഷകർ  | Kallanum Bhagavathiyum | Theatre Response](https://www.youtube.com/watch?v=Mk72zkWfSHo)
 - [Onnukanan Oru Moham | Vaikom Vijayalekhsmi | Sam Issac | Latest Christian Devotional Song Malayalam](https://www.youtube.com/watch?v=0AS6uXnuKVM)
 - [Muthe Ninne | Amrutham | Arun | Bhavana | Madhu Balakrishnan | M Jayachandran | Sibi Malayil](https://www.youtube.com/watch?v=kx0M9zVSClA)
 - [2 April 2023](https://www.youtube.com/watch?v=ZmHj4UzVoIs)
 - [കുടുംബപ്രേക്ഷകര്‍ കൂട്ടത്തോടെ തീയറ്ററുകളിലേക്ക്... | Kallanum BHagavathiyum](https://www.youtube.com/watch?v=y9THrCf8Kkc)
 - [lവിശുദ്ധവാരം മുഴുവൻ യേശുവോടൊത്തു പ്രാർത്ഥനയിൽ മുഴുകാൻ സഹായിക്കുന്ന ഈസ്റ്റര് ഗാനങ്ങൾ |Holy Week Songs](https://www.youtube.com/watch?v=K5GMt9AtC0g)
-- [Laama Laama - Song Teaser | Bhagavan Dasante Ramarajyam | Akshay R, Nandana R Rasheed P | Vishnu S](https://www.youtube.com/watch?v=azEW_i717_0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
