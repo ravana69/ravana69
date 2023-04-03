@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [😼. MALAI PART 1+2 2023 HINDI ULLU WEB SERIES HDRIP](https://www.1tamilmv.help/index.php?/forums/topic/153729-%F0%9F%98%BC-malai-part-12-2023-hindi-ullu-web-series-hdrip/&do=findComment&comment=344979)
+- [😼. BADAN PART 1+2+3 2023 HINDI ULLU WEB SERIES HDRIP](https://www.1tamilmv.help/index.php?/forums/topic/165984-%F0%9F%98%BC-badan-part-123-2023-hindi-ullu-web-series-hdrip/&do=findComment&comment=344978)
+- [😼. BADAN PART 1+2+3 2023 HINDI ULLU WEB SERIES HDRIP](https://www.1tamilmv.help/index.php?/forums/topic/165984-%F0%9F%98%BC-badan-part-123-2023-hindi-ullu-web-series-hdrip/&do=findComment&comment=344977)
+- [😼. BADAN PART 1+2+3 2023 HINDI ULLU WEB SERIES HDRIP](https://www.1tamilmv.help/index.php?/forums/topic/165984-%F0%9F%98%BC-badan-part-123-2023-hindi-ullu-web-series-hdrip/&do=findComment&comment=344976)
 - [The Red Ghost &lpar;2020&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.2GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172680-the-red-ghost-2020-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-22gb-11gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=344973)
-- [Memories &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 4.2GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172645-memories-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-42gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344972)
-- [The Red Ghost &lpar;2020&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.2GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172680-the-red-ghost-2020-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-22gb-11gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=344971)
-- [Manmadhan &lpar;2004&rpar; Tamil 1080p Aha WEB-DL AAC2.0 H264-WA - 2.7GB](https://www.1tamilmv.help/index.php?/forums/topic/172684-manmadhan-2004-tamil-1080p-aha-web-dl-aac20-h264-wa-27gb/&do=findComment&comment=344970)
-- [Tamizh &lpar;2002&rpar; Tamil 1080p Aha WEB-DL AAC2.0 H264-WA - 3.4GB](https://www.1tamilmv.help/index.php?/forums/topic/172683-tamizh-2002-tamil-1080p-aha-web-dl-aac20-h264-wa-34gb/&do=findComment&comment=344969)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
