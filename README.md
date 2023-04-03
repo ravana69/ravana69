@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Marakkilla Njan - Video Song  | Kallanum Bhagavathiyum | Vishnu Unnikrishan | East Coast Vijayan](https://www.youtube.com/watch?v=Wo_5vtrq6po)
+- [Masalama - Lyrical | Ayisha | Manju Warrier | Shreya Ghoshal | M Jayachandran | Aamir Pallikkal](https://www.youtube.com/watch?v=JnbkNOmnn6M)
+- [Mukilinte Madiyil | Mehfil | Hridya Manoj | Deepankuran | Kaithapram](https://www.youtube.com/watch?v=YdWTqpLrWuc)
+- [BTS from Onnu Thotte | Jawanum Mullapoovum | Sumesh, Sshivada | Vijay Yesudas | 4 MUSICS | #Shorts](https://www.youtube.com/watch?v=AyiVjkV7EeM)
+- [Puliyankakkolam Ketti Video Song | Mohanlal | MG Sreekumar | Gireesh Puthenchery | Anand | Nirnayam](https://www.youtube.com/watch?v=OXHQbl894f8)
 - [താമരപ്പൂവിൽ വാഴും ദേവിയല്ലോ നീ HD | Chandralekha | Evergreen Malayalam Film Song | Mohanlal](https://www.youtube.com/watch?v=puUhXg1i-mw)
-- [ഭഗവതിയെ  മുന്നിൽ കണ്ട ഫീൽ കിട്ടിയ സന്തോഷത്തിൽ പ്രേക്ഷകർ | Kallanum Bhagavathiyum | Theatre Response](https://www.youtube.com/watch?v=ilZbOU4h5nw)
-- [Kannalla Kannalla Kathunna Kallanu | Uschool | P M Thomas Kutty | Malayalam Movie Songs](https://www.youtube.com/watch?v=7UN3MONT2Y4)
-- [#Thanaro Powerrr | #Kasargold | #AsifAli #SunnyWayne #Vinayakan | #Shorts #YTshorts](https://www.youtube.com/watch?v=KbTgcnZRRzE)
-- [പുതിയ ഗാനങ്ങളെക്കാളും മലയാളികൾ മനസ്സിലേറെ സ്നേഹിക്കുന്ന എൺപതുകളിലെ അതിമനോഹരഗാനങ്ങൾ | NISARI SONGS](https://www.youtube.com/watch?v=51Y4vC97JHA)
-- [കള്ളനേയും ഭഗവതിയേയും ഏറ്റെടുത്ത് കുടുംബ പ്രേക്ഷകർ  | Kallanum Bhagavathiyum | Theatre Response](https://www.youtube.com/watch?v=Mk72zkWfSHo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
