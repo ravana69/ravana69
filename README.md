@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Thiruda Thirudi &lpar;2003&rpar; Tamil 1080p Aha WEB-DL AAC2.0 H264-WA - 2.8GB](https://www.1tamilmv.help/index.php?/forums/topic/172681-thiruda-thirudi-2003-tamil-1080p-aha-web-dl-aac20-h264-wa-28gb/&do=findComment&comment=344967)
+- [Request your movies as a comment to this topic.!](https://www.1tamilmv.help/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=344966)
 - [The Red Ghost &lpar;2020&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.2GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172680-the-red-ghost-2020-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-22gb-11gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=344965)
 - [The Red Ghost &lpar;2020&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.2GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172680-the-red-ghost-2020-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-22gb-11gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=344964)
 - [Ariyavan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 9GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172618-ariyavan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-atmos-448kbps-9gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344963)
-- [Karotiyin Kadhali &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 3.5GB - 2.3GB - 1.3GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172676-karotiyin-kadhali-2022-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-35gb-23gb-13gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=344962)
-- [Oru Kal Oru Kannadi &lpar;2012&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps &amp; AAC&rpar; - 4.9GB - 2.7GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172679-oru-kal-oru-kannadi-2012-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-aac-49gb-27gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=344961)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
