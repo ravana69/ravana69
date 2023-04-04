@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Game Of Thrones Complete S02 Merged - [1080p - 720p] 10Bit BluRay 6CH [&lpar;English - AAC5.1&rpar;] x265 - ESub [Google Drive]](https://www.1tamilmv.help/index.php?/forums/topic/172695-game-of-thrones-complete-s02-merged-1080p-720p-10bit-bluray-6ch-english-aac51-x265-esub-google-drive/&do=findComment&comment=345022)
 - [Exodus.Gods and Kings.2014.Multi.2160p.UHD.BluRay.HDR.DTS.5.1.[English+Hindi+Tamil+Telugu] - x265 - [23GB]](https://www.1tamilmv.help/index.php?/forums/topic/144951-exodusgods-and-kings2014multi2160puhdblurayhdrdts51englishhinditamiltelugu-x265-23gb/&do=findComment&comment=345021)
 - [Exodus.Gods and Kings.2014.Multi.2160p.UHD.BluRay.HDR.DTS.5.1.[English+Hindi+Tamil+Telugu] - x265 - [23GB]](https://www.1tamilmv.help/index.php?/forums/topic/144951-exodusgods-and-kings2014multi2160puhdblurayhdrdts51englishhinditamiltelugu-x265-23gb/&do=findComment&comment=345020)
 - [House Arrest &lpar;2021&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.4GB &amp; 1.2GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172687-house-arrest-2021-telugu-true-web-dl-1080p-720p-avc-dd51-384kbps-24gb-12gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=345019)
 - [Boy Friend For Hire &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.3GB &amp; 1.2GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172688-boy-friend-for-hire-2022-telugu-true-web-dl-1080p-720p-avc-dd51-384kbps-23gb-12gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=345018)
-- [Dear Megha &lpar;2021&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.5GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.help/index.php?/forums/topic/172689-dear-megha-2021-telugu-true-web-dl-1080p-720p-avc-aac-25gb-13gb-x264-700mb-400mb-250mb/&do=findComment&comment=345017)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
