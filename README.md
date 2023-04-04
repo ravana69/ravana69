@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കുരിശിലെ വേദനകൾക്കിടയിലും പാപികളായ നമ്മുക്ക് വേണ്ടി പ്രാർത്ഥിക്കും ഈശോയുടെ ഗാനങ്ങൾ | Easter Songs](https://www.youtube.com/watch?v=4fp_Mjtg_u0)
+- [4 April 2023](https://www.youtube.com/watch?v=7pnVtgGLGiQ)
 - [നിറഞ്ഞ സദസ്സിൽ കള്ളനും ഭഗവതിയും വിജയാഘോഷം | Kallanum Bhagavathiyum Success Celebration](https://www.youtube.com/watch?v=Tf5A5SZWr_A)
 - [Thannanam Paadi Varaamo | Swayamvara Panthal | K J Yesudas | Johnson | ONV Kurup](https://www.youtube.com/watch?v=gGw180mz8RU)
 - [Marannittumenthino | Randaam Bhaavam | P Jayachandran | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=h8GBqncBHuY)
 - [Konchi Karayalle | Evergreen Malayalam Movie Song | Poomukhappadiyil Ninneyum Kaathu -Rahman |Cicily](https://www.youtube.com/watch?v=Yd4TOWLCof8)
-- [Sooryanayi Thazhuki Video Song | Kunchacko Boban | Vidyasagar | Biju Narayanan | Kaithapram](https://www.youtube.com/watch?v=7WcBDnx-VqE)
-- [Onninum Samayamillathodunna.. #eastersongs #jojijohns #madhubalakrishnansongs #christianvideosong](https://www.youtube.com/watch?v=K1BbfTC_87Q)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
