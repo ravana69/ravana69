@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ദൈവമേ ഭഗവതിയാ... ഭഗവതിയെ കണ്ട് അന്തംവിട്ട് പ്രേക്ഷകര്‍ | Kallanum Bhagavathiyum | Theatre Response](https://www.youtube.com/watch?v=KFbItKpbzfc)
+- [അവധിക്കാലം അടിച്ചു പൊളിക്കാൻ ഏറ്റവും നല്ല സിനിമ ഗാനങ്ങൾ  |Remastered Video Songs](https://www.youtube.com/watch?v=VCGCKLAXSfk)
+- [Neerattu en manasarani | Anupallavi | Bichu thirumala | KJ Joy | Jayachandran | Vani jayaram | Jayan](https://www.youtube.com/watch?v=oDp8aRHpvXo)
+- [പുതിയ തലമുറക്കും പഴയ തലമുറക്കും ഭാവി തലമുറക്കും വേണ്ടി ഒരുക്കിയ എക്കാലത്തെയും മികച്ച ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=F6mLZZLwMXE)
 - [BTS video of the melody Manasilum Pookkaalam from Pookkaalam | Sachin Warrier | #Shorts](https://www.youtube.com/watch?v=G1HgXnKarxs)
 - [ഒരു പുതുമുഖ നായികയ്ക്ക് കിട്ടാവുന്ന ഏറ്റവും വലിയ സ്വീകാര്യത.ദൈവീക അനുഭൂതിയിൽ മോക്ഷ #shorts #Mokksha](https://www.youtube.com/watch?v=1gORjRHotZs)
-- [കേരളക്കരയുടെ പ്രിയങ്കരിയായി മാറുന്നു  ഈ ഭഗവതി | Kallanum Bhagavathiyum | Theatre Response](https://www.youtube.com/watch?v=yS6VKHFjk6A)
-- [എല്ലാവർക്കും ഇഷ്ടമുള്ള കുസൃതിക്കുട്ടൻ റിച്ചുകുട്ടൻ ആലപിച്ച കരളലിയിക്കും ക്രിസ്തീയഗാനങ്ങൾ | Rithuraj](https://www.youtube.com/watch?v=c3-fgcAwzmE)
-- [Pattum Paadi | The Speedtrack | Dileep | Deepak Dev | Yesudas | Kaithapram](https://www.youtube.com/watch?v=KQN67B9M0lM)
-- [ക്ഷമയാണ് വിജയമെന്ന് ഓരോ മനുഷ്യനും തിരിച്ചറിയുന്ന ഈസ്റ്റർ സ്പെഷ്യൽ ഗാനങ്ങൾ | Midhila | Easter Songs](https://www.youtube.com/watch?v=Vyo2raRbizo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
