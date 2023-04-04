@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [എല്ലാവർക്കും ഇഷ്ടമുള്ള കുസൃതിക്കുട്ടൻ റിച്ചുകുട്ടൻ ആലപിച്ച കരളലിയിക്കും ക്രിസ്തീയഗാനങ്ങൾ | Rithuraj](https://www.youtube.com/watch?v=c3-fgcAwzmE)
 - [Pattum Paadi | The Speedtrack | Dileep | Deepak Dev | Yesudas | Kaithapram](https://www.youtube.com/watch?v=KQN67B9M0lM)
 - [ക്ഷമയാണ് വിജയമെന്ന് ഓരോ മനുഷ്യനും തിരിച്ചറിയുന്ന ഈസ്റ്റർ സ്പെഷ്യൽ ഗാനങ്ങൾ | Midhila | Easter Songs](https://www.youtube.com/watch?v=Vyo2raRbizo)
 - [3 April 2023](https://www.youtube.com/watch?v=X1X5U8rZHf0)
 - [Podiyamma | Thottampatturayunna Meleppothy | Sony Sai | Balakrishnan Samanwaya](https://www.youtube.com/watch?v=XUk9W-DZo-A)
 - [Marakkilla Njan - Video Song  | Kallanum Bhagavathiyum | Vishnu Unnikrishan | East Coast Vijayan](https://www.youtube.com/watch?v=Wo_5vtrq6po)
-- [Masalama - Lyrical | Ayisha | Manju Warrier | Shreya Ghoshal | M Jayachandran | Aamir Pallikkal](https://www.youtube.com/watch?v=JnbkNOmnn6M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
