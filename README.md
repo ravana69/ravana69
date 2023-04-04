@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [😼. MALAI PART 1+2 2023 HINDI ULLU WEB SERIES HDRIP](https://www.1tamilmv.help/index.php?/forums/topic/153729-%F0%9F%98%BC-malai-part-12-2023-hindi-ullu-web-series-hdrip/&do=findComment&comment=344981)
-- [😼. AAMRAS 2023 ULLU S01 COMPLETE HINDI WEB SERIES 1080P | 720P | 480P HDRIP MKV](https://www.1tamilmv.help/index.php?/forums/topic/155687-%F0%9F%98%BC-aamras-2023-ullu-s01-complete-hindi-web-series-1080p-720p-480p-hdrip-mkv/&do=findComment&comment=344980)
-- [😼. MALAI PART 1+2 2023 HINDI ULLU WEB SERIES HDRIP](https://www.1tamilmv.help/index.php?/forums/topic/153729-%F0%9F%98%BC-malai-part-12-2023-hindi-ullu-web-series-hdrip/&do=findComment&comment=344979)
-- [😼. BADAN PART 1+2+3 2023 HINDI ULLU WEB SERIES HDRIP](https://www.1tamilmv.help/index.php?/forums/topic/165984-%F0%9F%98%BC-badan-part-123-2023-hindi-ullu-web-series-hdrip/&do=findComment&comment=344978)
-- [😼. BADAN PART 1+2+3 2023 HINDI ULLU WEB SERIES HDRIP](https://www.1tamilmv.help/index.php?/forums/topic/165984-%F0%9F%98%BC-badan-part-123-2023-hindi-ullu-web-series-hdrip/&do=findComment&comment=344977)
+- [Thiruda Thirudi &lpar;2003&rpar; Tamil 1080p Aha WEB-DL AAC2.0 H264-WA - 2.8GB](https://www.1tamilmv.help/index.php?/forums/topic/172681-thiruda-thirudi-2003-tamil-1080p-aha-web-dl-aac20-h264-wa-28gb/&do=findComment&comment=344987)
+- [Kuththu &lpar;2004&rpar; Tamil 1080p Aha WEB-DL AAC2.0 H264-WA - 2.7GB](https://www.1tamilmv.help/index.php?/forums/topic/172682-kuththu-2004-tamil-1080p-aha-web-dl-aac20-h264-wa-27gb/&do=findComment&comment=344986)
+- [Tamizh &lpar;2002&rpar; Tamil 1080p Aha WEB-DL AAC2.0 H264-WA - 3.4GB](https://www.1tamilmv.help/index.php?/forums/topic/172683-tamizh-2002-tamil-1080p-aha-web-dl-aac20-h264-wa-34gb/&do=findComment&comment=344985)
+- [Manmadhan &lpar;2004&rpar; Tamil 1080p Aha WEB-DL AAC2.0 H264-WA - 2.7GB](https://www.1tamilmv.help/index.php?/forums/topic/172684-manmadhan-2004-tamil-1080p-aha-web-dl-aac20-h264-wa-27gb/&do=findComment&comment=344984)
+- [Oru Kal Oru Kannadi &lpar;2012&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps &amp; AAC&rpar; - 4.9GB - 2.7GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172679-oru-kal-oru-kannadi-2012-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-aac-49gb-27gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=344983)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
