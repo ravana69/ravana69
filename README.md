@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Marannittumenthino | Randaam Bhaavam | P Jayachandran | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=h8GBqncBHuY)
+- [Konchi Karayalle | Evergreen Malayalam Movie Song | Poomukhappadiyil Ninneyum Kaathu -Rahman |Cicily](https://www.youtube.com/watch?v=Yd4TOWLCof8)
+- [Sooryanayi Thazhuki Video Song | Kunchacko Boban | Vidyasagar | Biju Narayanan | Kaithapram](https://www.youtube.com/watch?v=7WcBDnx-VqE)
 - [Onninum Samayamillathodunna.. #eastersongs #jojijohns #madhubalakrishnansongs #christianvideosong](https://www.youtube.com/watch?v=K1BbfTC_87Q)
 - [Ayyada Maname | Video Song | Vellaripattanam | Madhu Vasudevan |Sachin Shankor Mannath | Pushpavathi](https://www.youtube.com/watch?v=NGzgWaJQOto)
 - [ദൈവമേ ഭഗവതിയാ... ഭഗവതിയെ കണ്ട് അന്തംവിട്ട് പ്രേക്ഷകര്‍ | Kallanum Bhagavathiyum | Theatre Response](https://www.youtube.com/watch?v=KFbItKpbzfc)
-- [അവധിക്കാലം അടിച്ചു പൊളിക്കാൻ ഏറ്റവും നല്ല സിനിമ ഗാനങ്ങൾ  |Remastered Video Songs](https://www.youtube.com/watch?v=VCGCKLAXSfk)
-- [Neerattu en manasarani | Anupallavi | Bichu thirumala | KJ Joy | Jayachandran | Vani jayaram | Jayan](https://www.youtube.com/watch?v=oDp8aRHpvXo)
-- [പുതിയ തലമുറക്കും പഴയ തലമുറക്കും ഭാവി തലമുറക്കും വേണ്ടി ഒരുക്കിയ എക്കാലത്തെയും മികച്ച ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=F6mLZZLwMXE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
