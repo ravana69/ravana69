@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Daddy My Daddy | Daddycool | Mammootty | Shwetha Mohan | Santhosh Varma | Bijipal](https://www.youtube.com/watch?v=Tb-hCo_7xIc)
+- [Mahimayode Uyarthu Ente Yeshu | Easter Song | Gladvin A Devas | Amal Jose | Christian Video Song](https://www.youtube.com/watch?v=8dTrvYFttJM)
 - [Karimizhi Kuruviye Cover | Ashitha | Meesamadhavan | Dileep | Kavya Madhavan](https://www.youtube.com/watch?v=xSCN6gxnkQ4)
 - [കുരിശിലെ വേദനകൾക്കിടയിലും പാപികളായ നമ്മുക്ക് വേണ്ടി പ്രാർത്ഥിക്കും ഈശോയുടെ ഗാനങ്ങൾ | Easter Songs](https://www.youtube.com/watch?v=4fp_Mjtg_u0)
 - [4 April 2023](https://www.youtube.com/watch?v=7pnVtgGLGiQ)
 - [നിറഞ്ഞ സദസ്സിൽ കള്ളനും ഭഗവതിയും വിജയാഘോഷം | Kallanum Bhagavathiyum Success Celebration](https://www.youtube.com/watch?v=Tf5A5SZWr_A)
-- [Thannanam Paadi Varaamo | Swayamvara Panthal | K J Yesudas | Johnson | ONV Kurup](https://www.youtube.com/watch?v=gGw180mz8RU)
-- [Marannittumenthino | Randaam Bhaavam | P Jayachandran | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=h8GBqncBHuY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
