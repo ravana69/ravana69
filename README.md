@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Naagamallika Male Final Out](https://www.youtube.com/watch?v=o6svj8zeOsA)
-- [Venpraave Yathrayaavam | Randaam Bhaavam | KJ Yesudas | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=HWtX15EkGxY)
-- [Ore Oru Lakshyam - Audio Song | Kunnakudi Vaidyanathan | K.J. Yesudas | Saregama Malayalam](https://www.youtube.com/watch?v=14BhbamAOx4)
-- [5 April 2023](https://www.youtube.com/watch?v=_O1QALv12mY)
-- [Hemantha Geetham - Audio Song | Thaalam Thettiya Thaaraattu | K.J. Yesudas, S. Janaki | Raveendran](https://www.youtube.com/watch?v=Je6ObxcfsQ4)
-- [#Thanaro by the Nature | #Kasargold | #AsifAli #SunnyWayne #Vinayakan | #Shorts #YTshorts](https://www.youtube.com/watch?v=5uaxz_5SwN4)
+- [Anupama Sneham | Adv. Subal Paul | Reju Joseph | Dr. Berchmans Kodackal | Christian Devotional](https://www.youtube.com/watch?v=SEjIgLejX2A)
+- [Malayalam Trending Songs Audio Jukebox | Malayalam Latest Collection | Malayalam Hits](https://www.youtube.com/watch?v=-j-zQv1Mg3U)
+- [Kurishinte Vazhiye... #eastersongs #chithraarun #jojijohns #christiandevotionalsongs #holyweeksongs](https://www.youtube.com/watch?v=IBFllFhn-Xg)
+- [A Calming Reel for your Mid-Week Blues.. | Athmave Po | Saregama Malayalam | #shorts](https://www.youtube.com/watch?v=qt-kX5d0Lio)
+- [Calmness of the waves 🏖 | Kanave | Saregama Malayalam | #Shorts #YTshorts](https://www.youtube.com/watch?v=Q_3EuqcTX4Y)
+- [Starry Nights ✨ | Neelakasham Pole | Saregama Malayalam | #Shorts #YTshorts](https://www.youtube.com/watch?v=YU2MPrktjKw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
