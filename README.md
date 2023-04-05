@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ദാസനെപോലെ ശൂന്യനായിതീർന്ന യേശുനാഥന്റെ ദിവ്യസ്നേഹം പാരിനു നൽകും പെസഹാഗാനങ്ങൾ | Maundy Thursday Songs](https://www.youtube.com/watch?v=bpybDI7IopQ)
+- [അതിമനോഹരമായ പഴയ പ്രാർത്ഥനാ ഗാനങ്ങൾ old nostalgic songs with lyrics | daily worship songs malayalam](https://www.youtube.com/watch?v=CP14O4vwPZo)
 - [Daddy My Daddy | Daddycool | Mammootty | Shwetha Mohan | Santhosh Varma | Bijipal](https://www.youtube.com/watch?v=Tb-hCo_7xIc)
 - [Mahimayode Uyarthu Ente Yeshu | Easter Song | Gladvin A Devas | Amal Jose | Christian Video Song](https://www.youtube.com/watch?v=8dTrvYFttJM)
 - [Karimizhi Kuruviye Cover | Ashitha | Meesamadhavan | Dileep | Kavya Madhavan](https://www.youtube.com/watch?v=xSCN6gxnkQ4)
 - [കുരിശിലെ വേദനകൾക്കിടയിലും പാപികളായ നമ്മുക്ക് വേണ്ടി പ്രാർത്ഥിക്കും ഈശോയുടെ ഗാനങ്ങൾ | Easter Songs](https://www.youtube.com/watch?v=4fp_Mjtg_u0)
-- [4 April 2023](https://www.youtube.com/watch?v=7pnVtgGLGiQ)
-- [നിറഞ്ഞ സദസ്സിൽ കള്ളനും ഭഗവതിയും വിജയാഘോഷം | Kallanum Bhagavathiyum Success Celebration](https://www.youtube.com/watch?v=Tf5A5SZWr_A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
