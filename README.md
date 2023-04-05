@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [എൺപതുകളിൽ യുവഹൃദയങ്ങളെ പുളകം കൊള്ളിച്ച മാസ്‌മര ഗാനങ്ങൾ  | HITS OF 80s | EVERGREEN SONGS MALAYALAM](https://www.youtube.com/watch?v=LToQ9YPOrDY)
+- [Kurishinte Vazhiyil | Easter Special Song | Chithra Arun | Joji Johns | Jinisha P Manuel |Video Song](https://www.youtube.com/watch?v=-Nsh1BhxxBI)
+- [athazha meshayil[അത്താഴ മേശയിൽ ]OWN MEDIA MUSIC](https://www.youtube.com/watch?v=vutZKV1cNBQ)
+- [നാലാം ദിനവും പ്രേക്ഷക പ്രീതി നേടി കള്ളനും ഭഗവതിയും | Kallanum Bhagavathiyum | Theatre Response](https://www.youtube.com/watch?v=5TyelR4sNJo)
 - [Anupama Sneham | Adv. Subal Paul | Reju Joseph | Dr. Berchmans Kodackal | Christian Devotional](https://www.youtube.com/watch?v=SEjIgLejX2A)
 - [Malayalam Trending Songs Audio Jukebox | Malayalam Latest Collection | Malayalam Hits](https://www.youtube.com/watch?v=-j-zQv1Mg3U)
-- [Kurishinte Vazhiye... #eastersongs #chithraarun #jojijohns #christiandevotionalsongs #holyweeksongs](https://www.youtube.com/watch?v=IBFllFhn-Xg)
-- [A Calming Reel for your Mid-Week Blues.. | Athmave Po | Saregama Malayalam | #shorts](https://www.youtube.com/watch?v=qt-kX5d0Lio)
-- [Calmness of the waves 🏖 | Kanave | Saregama Malayalam | #Shorts #YTshorts](https://www.youtube.com/watch?v=Q_3EuqcTX4Y)
-- [Starry Nights ✨ | Neelakasham Pole | Saregama Malayalam | #Shorts #YTshorts](https://www.youtube.com/watch?v=YU2MPrktjKw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
