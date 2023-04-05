@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Lake Placid 3 &lpar;2010&rpar; &lpar;UNRATED HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.9GB &amp; 1.2GB| x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172704-lake-placid-3-2010-unrated-hd-original-audios-1080p-720p-x264-tamil-hindi-eng-19gb-12gb-x264-tam-hin-400mb-esub/&do=findComment&comment=345051)
 - [Kazhugu &lpar;2012&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps &amp; AAC&rpar; - 4.5GB - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172698-kazhugu-2012-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-aac-45gb-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=345050)
 - [Ramayana - The Legend of Prince Rama &lpar;1992&rpar;.Eng.DVD9Rip.x264.AAC2.0 &lpar;Eng + Hin&rpar;.ESub - 1.3GB](https://www.1tamilmv.help/index.php?/forums/topic/172703-ramayana-the-legend-of-prince-rama-1992engdvd9ripx264aac20-eng-hinesub-13gb/&do=findComment&comment=345049)
 - [The Pale Blue Eye &lpar;2022&rpar; English - NF WEB-DL - 4K [2160p] 10bit SDR - TRUE HD UNTOUCHED - HEVC - x265 - DD+5.1&lpar;768kbps&rpar; Atmos - 10.6GB - MSub.mkv](https://www.1tamilmv.help/index.php?/forums/topic/172702-the-pale-blue-eye-2022-english-nf-web-dl-4k-2160p-10bit-sdr-true-hd-untouched-hevc-x265-dd51768kbps-atmos-106gb-msubmkv/&do=findComment&comment=345048)
 - [House Arrest &lpar;2021&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.4GB &amp; 1.2GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172687-house-arrest-2021-telugu-true-web-dl-1080p-720p-avc-dd51-384kbps-24gb-12gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=345047)
-- [Boy Friend For Hire &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.3GB &amp; 1.2GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172688-boy-friend-for-hire-2022-telugu-true-web-dl-1080p-720p-avc-dd51-384kbps-23gb-12gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=345046)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
