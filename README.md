@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Introducing Anu Antony as Elsi | #Pookkaalam In Cinemas from April 8!](https://www.youtube.com/watch?v=UiZd26_VOiI)
+- [Introducing Arun Kurien as Susheel | #Pookkaalam In Cinemas from April 8!](https://www.youtube.com/watch?v=k7Mo3acTC1o)
+- [പ്രതിഭാധനരായ കലാകാരൻമാർ മലയാളസിനിമക്ക് സമ്മാനിച്ച എക്കാലത്തെയും മികച്ച മെലഡി ഗാനങ്ങൾ | SUPERHITS](https://www.youtube.com/watch?v=5V_HFdGvPwc)
+- [പീഡകൾ സഹിച്ചു മരിച്ചു ഉത്ഥാനം ചെയ്‌ത യേശുനാഥന്റെ അനുകമ്പ നിറഞ്ഞ സ്നേഹഗീതങ്ങൾ | Easter Songs](https://www.youtube.com/watch?v=AfPaL4P6S-0)
+- [Aayiram Mathala Pookkal - Anupallavi(1979) | P Jayachandran | Bichu Thirumala | K.J Joy | Film Songs](https://www.youtube.com/watch?v=5tCiZRgnSzs)
 - [ഈ തെന്നലും തിങ്കളൂം പൂക്കളും | Ee Thennalum | Nee Varuvolam Movie Song | Johnson](https://www.youtube.com/watch?v=-lS1PPHyJEY)
-- [ഉരുകി ഉരുകി എരിയുമീ | Evergreen Super Hit Song | Lelam | K. J. Yesudas | Suresh Gopi](https://www.youtube.com/watch?v=RZ5Prq92U6Y)
-- [Madaprave Vaa - Audio Song | Devadasi | K.J. Yesudas | Salil Chowdhury | Saregama Malayalam](https://www.youtube.com/watch?v=QVdxXVEDxKg)
-- [ഈ ലോകജീവിതം ദുസ്സഹമായി തോന്നുന്നവർ ഈ ഗാനങ്ങൾ കേൾക്കുക | Christian  Songs Malayalam | Easter Songs](https://www.youtube.com/watch?v=pOcMLC8ikC4)
-- [Coming Soon | Chothiyum Kannanum | Guruvayoorappa Devotional Song by Chothi Shalu](https://www.youtube.com/watch?v=PneF2W4FfnM)
-- [Aaru Tharum Ini | Makeup Man | Jayaram | Sheela Kawl | Vidyasagar | Madhu Balkrishnan](https://www.youtube.com/watch?v=QkRuri09wZI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
