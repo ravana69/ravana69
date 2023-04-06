@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Rangamarthanda &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172723-rangamarthanda-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-29gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=345101)
 - [📌 RAMAIYA VASTAVAIYA &lpar;2013&rpar; &amp;nbsp;&lpar;Music Video Album&rpar; - 1080P - AMZN - WEBDL - H264 - HIN DD® 5.1 @ 448K + DDP 5.1 @ 640K - ESubs - 2.5GB 〰️ [Avatar]](https://www.1tamilmv.help/index.php?/forums/topic/172726-%F0%9F%93%8C-ramaiya-vastavaiya-2013-nbspmusic-video-album-1080p-amzn-webdl-h264-hin-dd%C2%AE-51-448k-ddp-51-640k-esubs-25gb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=345100)
 - [Kabzaa &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.6GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.help/index.php?/forums/topic/172725-kabzaa-2023-tamil-web-dl-1080p-720p-avc-aac-26gb-13gb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=345099)
 - [Khali Purse of Billionaires &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172724-khali-purse-of-billionaires-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-192kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=345098)
 - [Rangamarthanda &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172723-rangamarthanda-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-29gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=345097)
-- [Ayothi &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - AAC - 2.4GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.help/index.php?/forums/topic/172617-ayothi-2023-tamil-true-web-dl-1080p-720p-avc-hevc-aac-24gb-14gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=345096)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
