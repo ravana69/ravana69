@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Introducing Aristo Suresh as Xavier | #Pookkaalam In Cinemas from April 8!](https://www.youtube.com/watch?v=7UxsERlwkUk)
+- [Introducing Abu Salim as Venu | #Pookkaalam In Cinemas from April 8!](https://www.youtube.com/watch?v=7R0pMeIOWhI)
+- [Ellam Kshamikkan  |Midhila Michael |Joji Johns |Br. Anil Malappuram |Easter Special Video Song](https://www.youtube.com/watch?v=NuwsMh7kc0A)
+- [Neelum Manal Paatha | Video Song | Made In Caravan | Indrans | Annu Antony | Jomy Kuriakose](https://www.youtube.com/watch?v=qojwbh9hvhU)
 - [Introducing Ganga Meera as Elsamma | #Pookkaalam In Cinemas from April 8!](https://www.youtube.com/watch?v=66IQcpvyjMw)
 - [അടിച്ചുപൊളിക്കാൻ ആടി തിമിർക്കാൻ കേൾക്കാം മലയാളസിനിമയിലെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=-oUCw8UBlv0)
-- [Introducing Sarath Sabha as Father Gabriel | #Pookkaalam In Cinemas from April 8!](https://www.youtube.com/watch?v=n_2eLEo_icw)
-- [Kuyilente Maninadham - Audio Song | Padmaragam | K. J. Yesudas | M. K. Arjunan | Saregama Malayalam](https://www.youtube.com/watch?v=WxKyn-9SMFo)
-- [Introducing Anu Antony as Elsi | #Pookkaalam In Cinemas from April 8!](https://www.youtube.com/watch?v=UiZd26_VOiI)
-- [Introducing Arun Kurien as Susheel | #Pookkaalam In Cinemas from April 8!](https://www.youtube.com/watch?v=k7Mo3acTC1o)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
