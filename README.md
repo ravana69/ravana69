@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ayothi &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - AAC - 2.4GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.help/index.php?/forums/topic/172617-ayothi-2023-tamil-true-web-dl-1080p-720p-avc-hevc-aac-24gb-14gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=345087)
 - [Corona Papers &lpar;2023&rpar; Malayalam Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.help/index.php?/forums/topic/172715-corona-papers-2023-malayalam-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=345084)
 - [Jubilee &lpar;2023&rpar; S01 EP&lpar;01-04&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tam + Tel + Hin + Mal + Kan] - 2.8GB - 1.7GB - 900MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172714-jubilee-2023-s01-ep01-04-true-web-dl-1080p-720p-avc-dd51-192kbps-tam-tel-hin-mal-kan-28gb-17gb-900mb-esub/&do=findComment&comment=345083)
 - [Jubilee &lpar;2023&rpar; S01 EP&lpar;01-04&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tam + Tel + Hin + Mal + Kan] - 2.8GB - 1.7GB - 900MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172714-jubilee-2023-s01-ep01-04-true-web-dl-1080p-720p-avc-dd51-192kbps-tam-tel-hin-mal-kan-28gb-17gb-900mb-esub/&do=findComment&comment=345082)
 - [Jubilee &lpar;2023&rpar; S01 EP&lpar;01-04&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tam + Tel + Hin + Mal + Kan] - 2.8GB - 1.7GB - 900MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172714-jubilee-2023-s01-ep01-04-true-web-dl-1080p-720p-avc-dd51-192kbps-tam-tel-hin-mal-kan-28gb-17gb-900mb-esub/&do=findComment&comment=345081)
-- [Kushi &lpar;2001&rpar; Telugu TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 11.5GB - Esub - [Direct + Drive]](https://www.1tamilmv.help/index.php?/forums/topic/172705-kushi-2001-telugu-true-web-dl-1080p-hq-avc-untouched-ddp20-115gb-esub-direct-drive/&do=findComment&comment=345080)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
