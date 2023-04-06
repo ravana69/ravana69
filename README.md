@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈ തെന്നലും തിങ്കളൂം പൂക്കളും | Ee Thennalum | Nee Varuvolam Movie Song | Johnson](https://www.youtube.com/watch?v=-lS1PPHyJEY)
+- [ഉരുകി ഉരുകി എരിയുമീ | Evergreen Super Hit Song | Lelam | K. J. Yesudas | Suresh Gopi](https://www.youtube.com/watch?v=RZ5Prq92U6Y)
+- [Madaprave Vaa - Audio Song | Devadasi | K.J. Yesudas | Salil Chowdhury | Saregama Malayalam](https://www.youtube.com/watch?v=QVdxXVEDxKg)
 - [ഈ ലോകജീവിതം ദുസ്സഹമായി തോന്നുന്നവർ ഈ ഗാനങ്ങൾ കേൾക്കുക | Christian  Songs Malayalam | Easter Songs](https://www.youtube.com/watch?v=pOcMLC8ikC4)
 - [Coming Soon | Chothiyum Kannanum | Guruvayoorappa Devotional Song by Chothi Shalu](https://www.youtube.com/watch?v=PneF2W4FfnM)
 - [Aaru Tharum Ini | Makeup Man | Jayaram | Sheela Kawl | Vidyasagar | Madhu Balkrishnan](https://www.youtube.com/watch?v=QkRuri09wZI)
-- [Pookkaalam - Official Trailer | Vijayaraghavan, Basil Joseph, Vineeth Sreenivasan | Ganesh Raj](https://www.youtube.com/watch?v=PaKujbIWw8Y)
-- [എൺപതുകളിൽ യുവഹൃദയങ്ങളെ പുളകം കൊള്ളിച്ച മാസ്‌മര ഗാനങ്ങൾ  | HITS OF 80s | EVERGREEN SONGS MALAYALAM](https://www.youtube.com/watch?v=LToQ9YPOrDY)
-- [Kurishinte Vazhiyil | Easter Special Song | Chithra Arun | Joji Johns | Jinisha P Manuel |Video Song](https://www.youtube.com/watch?v=-Nsh1BhxxBI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
