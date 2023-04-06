@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Game Of Thrones Complete S03 Merged [1080p - 720p] 10Bit BluRay 6CH [&lpar;English - AAC5.1&rpar;] x265 - ESub [Google Drive]](https://www.1tamilmv.help/index.php?/forums/topic/172713-game-of-thrones-complete-s03-merged-1080p-720p-10bit-bluray-6ch-english-aac51-x265-esub-google-drive/&do=findComment&comment=345079)
 - [Lake Placid 3 &lpar;2010&rpar; &lpar;UNRATED HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.9GB &amp; 1.2GB| x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172704-lake-placid-3-2010-unrated-hd-original-audios-1080p-720p-x264-tamil-hindi-eng-19gb-12gb-x264-tam-hin-400mb-esub/&do=findComment&comment=345078)
 - [📌 ARUL &lpar;2004&rpar; &lpar;Music Video Album&rpar; - 1080P - WEBDL - H264 - #TAM DD® 5.1 @ 448K / DTS® 5.1 @ 768K - #DVD Sync - 1.6GB 〰️ [Avatar]](https://www.1tamilmv.help/index.php?/forums/topic/172712-%F0%9F%93%8C-arul-2004-music-video-album-1080p-webdl-h264-tam-dd%C2%AE-51-448k-dts%C2%AE-51-768k-dvd-sync-16gb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=345077)
 - [Michael Jackson - Bad Album &lpar;1987&rpar; - Liberian Girl - FLAC - 44.1khz - English - 21.8mb](https://www.1tamilmv.help/index.php?/forums/topic/172711-michael-jackson-bad-album-1987-liberian-girl-flac-441khz-english-218mb/&do=findComment&comment=345076)
 - [Tamil Bluray - Music Videos Collection  BDRemux - AVC - DTS-HD MA 5.1 - DTS 5.1 - DD 5.1 - ESubs] &lpar;Direct Download&rpar;](https://www.1tamilmv.help/index.php?/forums/topic/172364-tamil-bluray-music-videos-collection-bdremux-avc-dts-hd-ma-51-dts-51-dd-51-esubs-direct-download/&do=findComment&comment=345075)
-- [Mersal &lpar;2017&rpar; BluRay Original Audios - [Tamil - Telugu - Hindi - Malayalam - [#2160p #4K - 10GB - 5.5GB] [#1080p - 38GB - 6.7GB - 6GB - 4.5GB - 3.7GB - 3GB - 2GB - 1.9GB - 1.8GB][#720p - 1.8GB - 1.4GB - 900MB - 800MB] - ESubs](https://www.1tamilmv.help/index.php?/forums/topic/167266-mersal-2017-bluray-original-audios-tamil-telugu-hindi-malayalam-2160p-4k-10gb-55gb-1080p-38gb-67gb-6gb-45gb-37gb-3gb-2gb-19gb-18gb720p-18gb-14gb-900mb-800mb-esubs/&do=findComment&comment=345074)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
