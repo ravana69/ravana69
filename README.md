@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Khali Purse of Billionaires &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172724-khali-purse-of-billionaires-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-192kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=345098)
+- [Rangamarthanda &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172723-rangamarthanda-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-29gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=345097)
 - [Ayothi &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - AAC - 2.4GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.help/index.php?/forums/topic/172617-ayothi-2023-tamil-true-web-dl-1080p-720p-avc-hevc-aac-24gb-14gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=345096)
 - [Burqa &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 1.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172720-burqa-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-16gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=345095)
 - [Romancham &lpar;2023&rpar; TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Malayalam + Hindi] - 12GB - 4GB - 2.6GB - 1.7GB &amp; 1GB] - [x264 - 800MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172717-romancham-2023-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-tamil-telugu-malayalam-hindi-12gb-4gb-26gb-17gb-1gb-x264-800mb-450mb-250mb-esub/&do=findComment&comment=345094)
-- [[60FPS] Extraction &lpar;2020&rpar; 1080p 10bit NF WEBRip Multi DD+5.1 Atmos H.265 MSubs - 9.24 GB](https://www.1tamilmv.help/index.php?/forums/topic/168527-60fps-extraction-2020-1080p-10bit-nf-webrip-multi-dd51-atmos-h265-msubs-924-gb/&do=findComment&comment=345093)
-- [Maheshum Marutiyum &lpar;2023&rpar; Malayalam TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 12GB - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172722-maheshum-marutiyum-2023-malayalam-true-web-dl-4k-1080p-720p-avc-dd51-640kbps-12gb-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=345092)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
