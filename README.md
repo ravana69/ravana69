@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Total Recall &lpar;2012&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.8GB &amp; 1.5GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172699-total-recall-2012-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-38gb-15gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=345055)
 - [Lake Placid 3 &lpar;2010&rpar; &lpar;UNRATED HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.9GB &amp; 1.2GB| x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172704-lake-placid-3-2010-unrated-hd-original-audios-1080p-720p-x264-tamil-hindi-eng-19gb-12gb-x264-tam-hin-400mb-esub/&do=findComment&comment=345054)
 - [Kazhugu &lpar;2012&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps &amp; AAC&rpar; - 4.5GB - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172698-kazhugu-2012-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-aac-45gb-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=345053)
 - [Lake Placid 3 &lpar;2010&rpar; &lpar;UNRATED HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.9GB &amp; 1.2GB| x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172704-lake-placid-3-2010-unrated-hd-original-audios-1080p-720p-x264-tamil-hindi-eng-19gb-12gb-x264-tam-hin-400mb-esub/&do=findComment&comment=345052)
 - [Lake Placid 3 &lpar;2010&rpar; &lpar;UNRATED HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.9GB &amp; 1.2GB| x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172704-lake-placid-3-2010-unrated-hd-original-audios-1080p-720p-x264-tamil-hindi-eng-19gb-12gb-x264-tam-hin-400mb-esub/&do=findComment&comment=345051)
-- [Kazhugu &lpar;2012&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps &amp; AAC&rpar; - 4.5GB - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172698-kazhugu-2012-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-aac-45gb-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=345050)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
