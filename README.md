@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈ ലോകജീവിതം ദുസ്സഹമായി തോന്നുന്നവർ ഈ ഗാനങ്ങൾ കേൾക്കുക | Christian  Songs Malayalam | Easter Songs](https://www.youtube.com/watch?v=pOcMLC8ikC4)
+- [Coming Soon | Chothiyum Kannanum | Guruvayoorappa Devotional Song by Chothi Shalu](https://www.youtube.com/watch?v=PneF2W4FfnM)
 - [Aaru Tharum Ini | Makeup Man | Jayaram | Sheela Kawl | Vidyasagar | Madhu Balkrishnan](https://www.youtube.com/watch?v=QkRuri09wZI)
 - [Pookkaalam - Official Trailer | Vijayaraghavan, Basil Joseph, Vineeth Sreenivasan | Ganesh Raj](https://www.youtube.com/watch?v=PaKujbIWw8Y)
 - [എൺപതുകളിൽ യുവഹൃദയങ്ങളെ പുളകം കൊള്ളിച്ച മാസ്‌മര ഗാനങ്ങൾ  | HITS OF 80s | EVERGREEN SONGS MALAYALAM](https://www.youtube.com/watch?v=LToQ9YPOrDY)
 - [Kurishinte Vazhiyil | Easter Special Song | Chithra Arun | Joji Johns | Jinisha P Manuel |Video Song](https://www.youtube.com/watch?v=-Nsh1BhxxBI)
-- [athazha meshayil[അത്താഴ മേശയിൽ ]OWN MEDIA MUSIC](https://www.youtube.com/watch?v=vutZKV1cNBQ)
-- [നാലാം ദിനവും പ്രേക്ഷക പ്രീതി നേടി കള്ളനും ഭഗവതിയും | Kallanum Bhagavathiyum | Theatre Response](https://www.youtube.com/watch?v=5TyelR4sNJo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
