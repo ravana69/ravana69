@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kurishinte Vazhiyil | Easter Special Song | Rithuraj | Joji Johns | Jinisha P Manuel | Video Song](https://www.youtube.com/watch?v=2LYDT2tZ4gQ)
 - [good friday](https://www.youtube.com/watch?v=9Ann1bEvG5U)
 - [GOOD FRIDAY STATUS](https://www.youtube.com/watch?v=LvToSIvHhiQ)
 - [Sandyayam Kadalile | Hridayathil Sookshikkan | Kunchako Boban | Bhavana | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=GGdL5io_CzA)
 - [6 April 2023](https://www.youtube.com/watch?v=e3BXWHLJ0oU)
 - [മനുജനുവേണ്ടി പീഡകളേറ്റു മരിച്ച യേശുനാഥന്റെ ദിവ്യസ്‌മരണയിൽ മനമുരുകും ഗാനങ്ങൾ | Good Friday Songs](https://www.youtube.com/watch?v=u0S80c4Gw_k)
-- [Kis Lamhe Ki | Randaam Bhaavam | Hariharan | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=KK3aDexkKnA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
