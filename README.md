@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kabzaa &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.6GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.help/index.php?/forums/topic/172725-kabzaa-2023-tamil-web-dl-1080p-720p-avc-aac-26gb-13gb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=345163)
+- [65 &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.9GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172741-65-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-29gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=345162)
+- [Ayothi &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - AAC - 2.4GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.help/index.php?/forums/topic/172617-ayothi-2023-tamil-true-web-dl-1080p-720p-avc-hevc-aac-24gb-14gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=345161)
+- [65 &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.9GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172741-65-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-29gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=345160)
 - [Animation Ultimate Collection &lpar;1937-2017&rpar; MULTi 1080p BluRay x264 - GLaDOS](https://www.1tamilmv.help/index.php?/forums/topic/163686-animation-ultimate-collection-1937-2017-multi-1080p-bluray-x264-glados/&do=findComment&comment=345158)
-- [Ayothi 2023 Tamil Movie ZEE5 WEB-DL 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.help/index.php?/forums/topic/172745-ayothi-2023-tamil-movie-zee5-web-dl-1080p-720p-480p-direct-download/&do=findComment&comment=345146)
-- [65 &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.9GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172741-65-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-29gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=345145)
-- [Murder Mystery 2 – 2023 Movie Tamil &amp; Multi Audio NF WEB-DL 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.help/index.php?/forums/topic/172744-murder-mystery-2-%E2%80%93-2023-movie-tamil-multi-audio-nf-web-dl-1080p-720p-480p-direct-download/&do=findComment&comment=345144)
-- [White as Snow 2019 Movie BluRay Tamil, Hindi &amp; Multi Audio 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.help/index.php?/forums/topic/172743-white-as-snow-2019-movie-bluray-tamil-hindi-multi-audio-1080p-720p-480p-direct-download/&do=findComment&comment=345143)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
