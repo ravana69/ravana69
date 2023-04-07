@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Krooshitha Karunamaya | Baby John Kalayanthani | Abhijith Kollam | Christian Devotional Song Shorts](https://www.youtube.com/watch?v=NJWHWMn4SVk)
+- [Mizhineer Oppunna Sneham | Kester | Shorts | Manorama Music](https://www.youtube.com/watch?v=DmBc8KPLyfI)
+- [Chinnumvenntharathil - Audio Song | Jeevitha Samaram | K.J. Yesudas, S. Janaki | Saregama Malayalam](https://www.youtube.com/watch?v=ahfHKNLhKqM)
 - [Kurishinte Vazhiyil | Easter Special Song | Rithuraj | Joji Johns | Jinisha P Manuel | Video Song](https://www.youtube.com/watch?v=2LYDT2tZ4gQ)
 - [good friday](https://www.youtube.com/watch?v=9Ann1bEvG5U)
 - [GOOD FRIDAY STATUS](https://www.youtube.com/watch?v=LvToSIvHhiQ)
-- [Sandyayam Kadalile | Hridayathil Sookshikkan | Kunchako Boban | Bhavana | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=GGdL5io_CzA)
-- [6 April 2023](https://www.youtube.com/watch?v=e3BXWHLJ0oU)
-- [മനുജനുവേണ്ടി പീഡകളേറ്റു മരിച്ച യേശുനാഥന്റെ ദിവ്യസ്‌മരണയിൽ മനമുരുകും ഗാനങ്ങൾ | Good Friday Songs](https://www.youtube.com/watch?v=u0S80c4Gw_k)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
