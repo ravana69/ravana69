@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Burqa &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172730-burqa-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=345116)
-- [Corona Papers &lpar;2023&rpar; Malayalam Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172729-corona-papers-2023-malayalam-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=345115)
-- [Khali Purse of Billionaires &lpar;2023&rpar; Malayalam Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172728-khali-purse-of-billionaires-2023-malayalam-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=345114)
-- [Romancham &lpar;2023&rpar; [Tamil + Malayalam] Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172727-romancham-2023-tamil-malayalam-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=345113)
-- [Burqa &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 1.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172720-burqa-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-16gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=345112)
+- [Corona Papers &lpar;2023&rpar; Malayalam Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.help/index.php?/forums/topic/172715-corona-papers-2023-malayalam-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=345129)
+- [Burqa &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 1.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172720-burqa-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-16gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=345128)
+- [Maheshum Marutiyum &lpar;2023&rpar; Malayalam TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 12GB - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172722-maheshum-marutiyum-2023-malayalam-true-web-dl-4k-1080p-720p-avc-dd51-640kbps-12gb-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=345127)
+- [Rangamarthanda &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172723-rangamarthanda-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-29gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=345126)
+- [Khali Purse of Billionaires &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172724-khali-purse-of-billionaires-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-192kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=345125)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
