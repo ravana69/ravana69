@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മനസിനേറെ  നൊമ്പരമേകിയ മുഹൂർത്തങ്ങളുള്ള ചിത്രങ്ങളിലെ കണ്ണ് നിറയും ഗാനങ്ങൾ | SAD SONGS MALAYALAM](https://www.youtube.com/watch?v=sfj1AiR7xZ8)
+- [ജനപ്രിയ ചിത്രങ്ങളിലെ ആരും കേൾക്കാൻ ആഗ്രഹിക്കുന്ന നയനമനോഹര ഗാനങ്ങൾ | EVERGREEN HIT SONGS](https://www.youtube.com/watch?v=UV9-PTL7v24)
+- [മനുഷ്യരെല്ലാം തീരാത്ത ദുഖത്തോടെ പങ്കുചേർന്ന കുരിശിലെ മഹായാഗത്തിന് ഗാനങ്ങൾ | Good Friday Songs](https://www.youtube.com/watch?v=FkVEbtpQL4I)
 - [Krooshitha Karunamaya | Baby John Kalayanthani | Abhijith Kollam | Christian Devotional Song Shorts](https://www.youtube.com/watch?v=NJWHWMn4SVk)
 - [Mizhineer Oppunna Sneham | Kester | Shorts | Manorama Music](https://www.youtube.com/watch?v=DmBc8KPLyfI)
 - [Chinnumvenntharathil - Audio Song | Jeevitha Samaram | K.J. Yesudas, S. Janaki | Saregama Malayalam](https://www.youtube.com/watch?v=ahfHKNLhKqM)
-- [Kurishinte Vazhiyil | Easter Special Song | Rithuraj | Joji Johns | Jinisha P Manuel | Video Song](https://www.youtube.com/watch?v=2LYDT2tZ4gQ)
-- [good friday](https://www.youtube.com/watch?v=9Ann1bEvG5U)
-- [GOOD FRIDAY STATUS](https://www.youtube.com/watch?v=LvToSIvHhiQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
