@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kabzaa &lpar;2023&rpar;.Tamil.1080p.Web-dl.HEVC.DD5.1 640Kbps Upmixed.HC-ESub - 2GB](https://www.1tamilmv.help/index.php?/forums/topic/172773-kabzaa-2023tamil1080pweb-dlhevcdd51-640kbps-upmixedhc-esub-2gb/&do=findComment&comment=345190)
 - [Meter &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172772-meter-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=345189)
 - [Meter &lpar;2023&rpar; Telugu Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.help/index.php?/forums/topic/172750-meter-2023-telugu-proper-hq-predvd-1080p-720p-x264-28gb-16gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=345188)
 - [📌 CHHICHHORE &lpar;2019&rpar; &lpar;Music Video Album&rpar; - 1080P - AppleTV - WEBDL - AVC - #HIN DDP 5.1 @ 384K - Esubs - 700MB 〰️ [Avatar]](https://www.1tamilmv.help/index.php?/forums/topic/172771-%F0%9F%93%8C-chhichhore-2019-music-video-album-1080p-appletv-webdl-avc-hin-ddp-51-384k-esubs-700mb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=345187)
 - [Chupa &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 2.8GB &amp; 1.3GB | x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172718-chupa-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-hindi-eng-28gb-13gb-x264-tam-hin-400mb-esub/&do=findComment&comment=345186)
-- [The Pope&#39;s Exorcist &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172770-the-popes-exorcist-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=345185)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
