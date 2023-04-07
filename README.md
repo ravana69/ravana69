@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Chupa &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 2.8GB &amp; 1.3GB | x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172718-chupa-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-hindi-eng-28gb-13gb-x264-tam-hin-400mb-esub/&do=findComment&comment=345186)
 - [The Pope&#39;s Exorcist &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172770-the-popes-exorcist-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=345185)
 - [August 16, 1947 &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172769-august-16-1947-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=345184)
 - [Ravanasura &lpar;2023&rpar; Telugu Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172768-ravanasura-2023-telugu-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=345183)
 - [📌 KAAKHA KAAKHA &lpar;2003&rpar; &lpar;Music VIdeo Album&rpar; - HQ 1080P - AMZN - WEBDL - H264 - TAM DDP 5.1 @ 640K - ESubs - 2GB〰️ [Avatar]](https://www.1tamilmv.help/index.php?/forums/topic/172767-%F0%9F%93%8C-kaakha-kaakha-2003-music-video-album-hq-1080p-amzn-webdl-h264-tam-ddp-51-640k-esubs-2gb%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=345182)
-- [Azhagiya Tamizh Magan &lpar;2007&rpar; &lpar;Music Video Album&rpar; - 1080P - WEBDL - H264 - #TAM DD® 5.1 @ 448K / DTS® 5.1 @ 768K - #DVD Sync - 1.6GB 〰️ [Avatar]](https://www.1tamilmv.help/index.php?/forums/topic/172766-azhagiya-tamizh-magan-2007-music-video-album-1080p-webdl-h264-tam-dd%C2%AE-51-448k-dts%C2%AE-51-768k-dvd-sync-16gb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=345181)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
