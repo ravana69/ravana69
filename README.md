@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manjum Thazhvaravum | Indriyam | Berny-Ignatius | Vijay Yesudas | S Ramesan Nair | Nandu](https://www.youtube.com/watch?v=S07lJO2qS5k)
 - [7 April 2023](https://www.youtube.com/watch?v=DPG9AyQnTB4)
 - [യേശുവിന്റെ തിരുവുത്ഥാനം ആഘോഷിക്കാൻ ഒരുങ്ങുന്നവർക്ക് ഏറെസന്തോഷമേകുന്ന ക്രിസ്തീയഗാനങ്ങൾ | Easter Songs](https://www.youtube.com/watch?v=kjvUeQODnlI)
 - [Mehaboobe Mehaboobe | Randaam Bhaavam | Mano | Vidhu Prathap | Dileep | Vidyasagar](https://www.youtube.com/watch?v=xXDf0x9tGBk)
 - [Puzhayorathil Poonthoni Video Song | Silk Smitha | KS Chithra | Ilayaraja | ONV Kurup | Adharvam](https://www.youtube.com/watch?v=h5mLj24aeJQ)
 - [Raavil Aaro | Soothradharan | K J Yesudas | Sujatha Mohan | Raveendran | S Ramesan Nair](https://www.youtube.com/watch?v=lDshO1U5lso)
-- [Thaniye Thaniye | Video Song | Laika | B T Anilkumar | Satheesh Ramachandran | Ashad Sivaraman](https://www.youtube.com/watch?v=bWvyavQzYIo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
