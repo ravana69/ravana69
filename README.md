@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mehaboobe Mehaboobe | Randaam Bhaavam | Mano | Vidhu Prathap | Dileep | Vidyasagar](https://www.youtube.com/watch?v=xXDf0x9tGBk)
+- [Puzhayorathil Poonthoni Video Song | Silk Smitha | KS Chithra | Ilayaraja | ONV Kurup | Adharvam](https://www.youtube.com/watch?v=h5mLj24aeJQ)
 - [Raavil Aaro | Soothradharan | K J Yesudas | Sujatha Mohan | Raveendran | S Ramesan Nair](https://www.youtube.com/watch?v=lDshO1U5lso)
 - [Thaniye Thaniye | Video Song | Laika | B T Anilkumar | Satheesh Ramachandran | Ashad Sivaraman](https://www.youtube.com/watch?v=bWvyavQzYIo)
 - [അഞ്ചൽ വർഷയിൽ നിറഞ്ഞ സദസ്സിൽ കള്ളനും ഭഗവതിയും വിജയാഘോഷം | Kallanum Bhagavathiyum | Theatre Response](https://www.youtube.com/watch?v=2YInZ6NLfuE)
 - [ഈ കുഞ്ഞു മോനെ സഹായിക്കാൻ മനസാകണേ 🙏🏻](https://www.youtube.com/watch?v=UFK_pFZpH1o)
-- [Indravallari (Revival) - Audio Song | Gandharva Kshetram | K.J. Yesudas | Saregama Malayalam](https://www.youtube.com/watch?v=dx3qPTwR93M)
-- [മനസിനേറെ  നൊമ്പരമേകിയ മുഹൂർത്തങ്ങളുള്ള ചിത്രങ്ങളിലെ കണ്ണ് നിറയും ഗാനങ്ങൾ | SAD SONGS MALAYALAM](https://www.youtube.com/watch?v=sfj1AiR7xZ8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
