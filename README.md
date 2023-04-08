@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Sathyamam Snehathin | Christian Video Song | Easter Special Song | Meenakshi | Holy Week Song](https://www.youtube.com/watch?v=NyEB9er5Agk)
 - [Madhumai Nin Mizhiyoram | Soothradharan | KJ Yesudas | Raveendran | S Ramesh Nair](https://www.youtube.com/watch?v=-GsXSrReCLw)
 - [Release April 10th | Chothiyum Kannanum | Guruvayoorappa Devotional](https://www.youtube.com/watch?v=p5ChcCXEkbI)
 - [Kuppivala Kaikalum | Ee Parakkum Thalika | MG Sreekumar | Ouseppachan | Gireesh Puthanchery](https://www.youtube.com/watch?v=qdxsfSNl1SA)
 - [Poru Nee Vaarilam Video Song | Priya Raman | KS Chithra | MG Sreekumar | Gireesh Puthenchery](https://www.youtube.com/watch?v=RqdW8jIGOQU)
 - [Ithalidum Pookkal Pole |Video Song| Laika | Sudeep Kumar | Satheesh Ramachandran | Ashad Sivaraman](https://www.youtube.com/watch?v=BO1GH96yiN8)
-- [കള്ളനും ഭഗവതിയും വിജയം പത്തനാപുരം സീമാസിൽ  ആഘോഷമാക്കിയപ്പോൾ  | #shorts | Kallanum Bhagavathiyum](https://www.youtube.com/watch?v=FmW7zFczt9g)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
