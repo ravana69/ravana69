@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nala Damayandhi - Audio Song | Rowdy Ramu | K.J. Yesudas | Shyam | Saregama Malayalam](https://www.youtube.com/watch?v=sIQDYR1oYsU)
 - [കള്ളനും ഭഗവതിയും വിജയം അഞ്ചൽ വർഷ തീയറ്ററിൽ ആഘോഷമാക്കിയപ്പോൾ  | #shorts | Kallanum Bhagavathiyum](https://www.youtube.com/watch?v=IUSs2upbl5c)
 - [ഏതൊരു പ്രേക്ഷകന്റെ മനസിലും നൊമ്പരപ്പാട് തീർത്ത ജനകീയമായ വിഷാദഗാനങ്ങൾ | SAD SONGS MALAYALAM](https://www.youtube.com/watch?v=watko4XQbxU)
 - [Together We Rock (Malayalam) | RRR OST Vol -7 | MM Keeravaani | NTR, Ram Charan | SS Rajamouli](https://www.youtube.com/watch?v=sIbW6yfzb9s)
 - [മലയാളികളുടെ ഹൃദയത്തിൽ കൂടുകൂട്ടിയ വാനമ്പാടി  കെ എസ് ചിത്രയുടെ അനശ്വര ഗാനങ്ങൾ | KS CHITHRA HITS](https://www.youtube.com/watch?v=JLL57vmt5iE)
 - [Ammakkoru Ponnumkudam  | Ulsavamelam  | ONV Kurup | Evergreen Malayalam Film Songs | Movie Song](https://www.youtube.com/watch?v=xY9xw9dxijY)
-- [Vikrant Rona Dialogues Jukebox [Malayalam] | Kichcha Sudeepa | B Ajaneesh Loknath | Anup Bhandari](https://www.youtube.com/watch?v=1c-TIAD2xyY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
