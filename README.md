@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vikrant Rona Dialogues Jukebox [Malayalam] | Kichcha Sudeepa | B Ajaneesh Loknath | Anup Bhandari](https://www.youtube.com/watch?v=1c-TIAD2xyY)
+- [Urvasi Urvasi - Audio Song | Lahari | P. Madhuri | G. Devarajan | Saregama Malayalam](https://www.youtube.com/watch?v=gFPcAzFjeek)
 - [നിറഞ്ഞ സദസ്സിൽ പത്തനാപുരം  സീമയിലെ  കള്ളനും ഭഗവതിയും വിജയാഘോഷം | Kallanum Bhagavathiyum](https://www.youtube.com/watch?v=lt3opZNPQoE)
 - [കേട്ടവരെല്ലാം നല്ലതെന്ന് മാത്രംപറയുന്ന എത്രകേട്ടാലും മതിവരാത്ത ക്രിസ്തീയഗാനങ്ങൾ | EASTER VIDEO SONGS](https://www.youtube.com/watch?v=Xb4BrqShxi0)
 - [പഴയകാല ക്രിസ്തീയ ഗീതങ്ങൾ Old Sthothra ganangal - Nostalgic Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=5dQmWSNPXOY)
 - [Manjum Thazhvaravum | Indriyam | Berny-Ignatius | Vijay Yesudas | S Ramesan Nair | Nandu](https://www.youtube.com/watch?v=S07lJO2qS5k)
-- [7 April 2023](https://www.youtube.com/watch?v=DPG9AyQnTB4)
-- [യേശുവിന്റെ തിരുവുത്ഥാനം ആഘോഷിക്കാൻ ഒരുങ്ങുന്നവർക്ക് ഏറെസന്തോഷമേകുന്ന ക്രിസ്തീയഗാനങ്ങൾ | Easter Songs](https://www.youtube.com/watch?v=kjvUeQODnlI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
