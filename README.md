@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ant-Man and the Wasp Quantumania &lpar;2023&rpar; Tamil HD - [1080p &amp; 720p - x264 - 2.3GB &amp; 1.2GB | x264 - 400MB] - HQ Clean Audio](https://www.1tamilmv.help/index.php?/forums/topic/172776-ant-man-and-the-wasp-quantumania-2023-tamil-hd-1080p-720p-x264-23gb-12gb-x264-400mb-hq-clean-audio/&do=findComment&comment=345196)
+- [Ant-Man and the Wasp Quantumania &lpar;2023&rpar; Telugu HD - [1080p &amp; 720p - x264 - 2.3GB &amp; 1.2GB | x264 - 400MB] - HQ Clean Audio](https://www.1tamilmv.help/index.php?/forums/topic/172775-ant-man-and-the-wasp-quantumania-2023-telugu-hd-1080p-720p-x264-23gb-12gb-x264-400mb-hq-clean-audio/&do=findComment&comment=345195)
 - [65 &lpar;2023&rpar; WEBRip 2160p 4K HDR HEVC Multi Original Audios [English+ {Tamil + Telugu+ Hindi} &lpar;DD5.1~640Kbps&rpar;] - x265 - AC3 - 2.8GB - ESubs](https://www.1tamilmv.help/index.php?/forums/topic/172774-65-2023-webrip-2160p-4k-hdr-hevc-multi-original-audios-english-tamil-telugu-hindi-dd51~640kbps-x265-ac3-28gb-esubs/&do=findComment&comment=345194)
 - [Chupa &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 2.8GB &amp; 1.3GB | x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172718-chupa-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-hindi-eng-28gb-13gb-x264-tam-hin-400mb-esub/&do=findComment&comment=345193)
 - [Request your movies as a comment to this topic.!](https://www.1tamilmv.help/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=345192)
-- [The Marksman &lpar;2021&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.2GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172757-the-marksman-2021-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-32gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=345191)
-- [Kabzaa &lpar;2023&rpar;.Tamil.1080p.Web-dl.HEVC.DD5.1 640Kbps Upmixed.HC-ESub - 2GB](https://www.1tamilmv.help/index.php?/forums/topic/172773-kabzaa-2023tamil1080pweb-dlhevcdd51-640kbps-upmixedhc-esub-2gb/&do=findComment&comment=345190)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
