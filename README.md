@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Madhumai Nin Mizhiyoram | Soothradharan | KJ Yesudas | Raveendran | S Ramesh Nair](https://www.youtube.com/watch?v=-GsXSrReCLw)
+- [Release April 10th | Chothiyum Kannanum | Guruvayoorappa Devotional](https://www.youtube.com/watch?v=p5ChcCXEkbI)
+- [Kuppivala Kaikalum | Ee Parakkum Thalika | MG Sreekumar | Ouseppachan | Gireesh Puthanchery](https://www.youtube.com/watch?v=qdxsfSNl1SA)
+- [Poru Nee Vaarilam Video Song | Priya Raman | KS Chithra | MG Sreekumar | Gireesh Puthenchery](https://www.youtube.com/watch?v=RqdW8jIGOQU)
+- [Ithalidum Pookkal Pole |Video Song| Laika | Sudeep Kumar | Satheesh Ramachandran | Ashad Sivaraman](https://www.youtube.com/watch?v=BO1GH96yiN8)
 - [കള്ളനും ഭഗവതിയും വിജയം പത്തനാപുരം സീമാസിൽ  ആഘോഷമാക്കിയപ്പോൾ  | #shorts | Kallanum Bhagavathiyum](https://www.youtube.com/watch?v=FmW7zFczt9g)
-- [Ninne Kandaal - Lyrical Video | Thoovalkkattu | Ranjini Jose, Sasikumar | Kaithapram](https://www.youtube.com/watch?v=h2Bnis7r8mM)
-- [Nala Damayandhi - Audio Song | Rowdy Ramu | K.J. Yesudas | Shyam | Saregama Malayalam](https://www.youtube.com/watch?v=sIQDYR1oYsU)
-- [കള്ളനും ഭഗവതിയും വിജയം അഞ്ചൽ വർഷ തീയറ്ററിൽ ആഘോഷമാക്കിയപ്പോൾ  | #shorts | Kallanum Bhagavathiyum](https://www.youtube.com/watch?v=IUSs2upbl5c)
-- [ഏതൊരു പ്രേക്ഷകന്റെ മനസിലും നൊമ്പരപ്പാട് തീർത്ത ജനകീയമായ വിഷാദഗാനങ്ങൾ | SAD SONGS MALAYALAM](https://www.youtube.com/watch?v=watko4XQbxU)
-- [Together We Rock (Malayalam) | RRR OST Vol -7 | MM Keeravaani | NTR, Ram Charan | SS Rajamouli](https://www.youtube.com/watch?v=sIbW6yfzb9s)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
