@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Azhagiya Tamil Magan&lpar;2007&rpar; Blu-ray[1080p &amp; 720p - HD AVC / HEVC - &lpar;DTS HD-MA 5.1&lpar;3678kbps&rpar; + DD+5.1&lpar;640kbps&rpar;&rpar; [Tamil - 14GB - 10GB - 6.5GB - 2.8GB - 1.4GB - 1.8GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB - ESub].mkv](https://www.1tamilmv.help/index.php?/forums/topic/172785-azhagiya-tamil-magan2007-blu-ray1080p-720p-hd-avc-hevc-dts-hd-ma-513678kbps-dd51640kbps-tamil-14gb-10gb-65gb-28gb-14gb-18gb-950mb-x264-700mb-400mb-250mb-esubmkv/&do=findComment&comment=345229)
 - [Pookkaalam &lpar;2023&rpar; Malayalam Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.help/index.php?/forums/topic/172754-pookkaalam-2023-malayalam-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=345228)
 - [Elvis &lpar;2022&rpar; English - AMZN WEB-DL - 4K [2160p] 10bit SDR - TRUE HD UNTOUCHED - HEVC - x265 - DD+5.1&lpar;768kbps&rpar; Atmos - 14GB - MSub.mkv](https://www.1tamilmv.help/index.php?/forums/topic/172784-elvis-2022-english-amzn-web-dl-4k-2160p-10bit-sdr-true-hd-untouched-hevc-x265-dd51768kbps-atmos-14gb-msubmkv/&do=findComment&comment=345227)
 - [65 &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.9GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172741-65-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-29gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=345226)
 - [Pookkaalam &lpar;2023&rpar; Malayalam Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.help/index.php?/forums/topic/172754-pookkaalam-2023-malayalam-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=345225)
-- [Ayothi &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - AAC - 2.4GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.help/index.php?/forums/topic/172617-ayothi-2023-tamil-true-web-dl-1080p-720p-avc-hevc-aac-24gb-14gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=345224)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
