@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Rise n Shine ☀️ | Aadharanjali | Saregama Malayalam | #shorts #ytshorts](https://www.youtube.com/watch?v=1PiTGb6hGp4)
+- [Songs to Listen During Drives 🚘 | Neelakasham Pole | Saregama Malayalam | #Shorts #YTshorts](https://www.youtube.com/watch?v=9maa2azazlo)
 - [Sivagange Shilagange | Banaras | Vineeth | Navya Nair | M Jayachandran | Gireesh Puthanchery](https://www.youtube.com/watch?v=uX7OE-wATIA)
 - [ശ്രോതാക്കൾക്കായി സമർപ്പിക്കുന്ന ഈസ്റ്റർ സ്പെഷ്യൽഗാനങ്ങൾ | Easter Songs | Sreya | Kester | KG Markose](https://www.youtube.com/watch?v=kmbpIlbXUqo)
 - [Sathyamam Snehathin | Christian Video Song | Easter Special Song | Meenakshi | Holy Week Song](https://www.youtube.com/watch?v=NyEB9er5Agk)
 - [Madhumai Nin Mizhiyoram | Soothradharan | KJ Yesudas | Raveendran | S Ramesh Nair](https://www.youtube.com/watch?v=-GsXSrReCLw)
-- [Release April 10th | Chothiyum Kannanum | Guruvayoorappa Devotional](https://www.youtube.com/watch?v=p5ChcCXEkbI)
-- [Kuppivala Kaikalum | Ee Parakkum Thalika | MG Sreekumar | Ouseppachan | Gireesh Puthanchery](https://www.youtube.com/watch?v=qdxsfSNl1SA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
