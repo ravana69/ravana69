@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കള്ളനും ഭഗവതിയും വിജയം അഞ്ചൽ വർഷ തീയറ്ററിൽ ആഘോഷമാക്കിയപ്പോൾ  | #shorts | Kallanum Bhagavathiyum](https://www.youtube.com/watch?v=IUSs2upbl5c)
+- [ഏതൊരു പ്രേക്ഷകന്റെ മനസിലും നൊമ്പരപ്പാട് തീർത്ത ജനകീയമായ വിഷാദഗാനങ്ങൾ | SAD SONGS MALAYALAM](https://www.youtube.com/watch?v=watko4XQbxU)
+- [Together We Rock (Malayalam) | RRR OST Vol -7 | MM Keeravaani | NTR, Ram Charan | SS Rajamouli](https://www.youtube.com/watch?v=sIbW6yfzb9s)
+- [മലയാളികളുടെ ഹൃദയത്തിൽ കൂടുകൂട്ടിയ വാനമ്പാടി  കെ എസ് ചിത്രയുടെ അനശ്വര ഗാനങ്ങൾ | KS CHITHRA HITS](https://www.youtube.com/watch?v=JLL57vmt5iE)
+- [Ammakkoru Ponnumkudam  | Ulsavamelam  | ONV Kurup | Evergreen Malayalam Film Songs | Movie Song](https://www.youtube.com/watch?v=xY9xw9dxijY)
 - [Vikrant Rona Dialogues Jukebox [Malayalam] | Kichcha Sudeepa | B Ajaneesh Loknath | Anup Bhandari](https://www.youtube.com/watch?v=1c-TIAD2xyY)
-- [Urvasi Urvasi - Audio Song | Lahari | P. Madhuri | G. Devarajan | Saregama Malayalam](https://www.youtube.com/watch?v=gFPcAzFjeek)
-- [നിറഞ്ഞ സദസ്സിൽ പത്തനാപുരം  സീമയിലെ  കള്ളനും ഭഗവതിയും വിജയാഘോഷം | Kallanum Bhagavathiyum](https://www.youtube.com/watch?v=lt3opZNPQoE)
-- [കേട്ടവരെല്ലാം നല്ലതെന്ന് മാത്രംപറയുന്ന എത്രകേട്ടാലും മതിവരാത്ത ക്രിസ്തീയഗാനങ്ങൾ | EASTER VIDEO SONGS](https://www.youtube.com/watch?v=Xb4BrqShxi0)
-- [പഴയകാല ക്രിസ്തീയ ഗീതങ്ങൾ Old Sthothra ganangal - Nostalgic Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=5dQmWSNPXOY)
-- [Manjum Thazhvaravum | Indriyam | Berny-Ignatius | Vijay Yesudas | S Ramesan Nair | Nandu](https://www.youtube.com/watch?v=S07lJO2qS5k)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
