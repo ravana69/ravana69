@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nasrayante Naamam...#easterspecialsongs #rithuraj #christianvideosong #jojijohns](https://www.youtube.com/watch?v=OU7MDZ28mrk)
 - [POV: Attending Weddings Just For The FOOD 🥘🤤 | Uyyandappa | Saregama Malayalam | #shorts](https://www.youtube.com/watch?v=Ok0pFzVvDZ0)
 - [Happy Easter | Kallanum Bhagavathiyum | #shorts](https://www.youtube.com/watch?v=I7FX4MP8Ino)
 - [Release April 10th | Chothiyum Kannanum | Guruvayoorappa Devotional](https://www.youtube.com/watch?v=qgVblAIgvy8)
 - [Release April 10th | Chothiyum Kannanum | Guruvayoorappa Devotional](https://www.youtube.com/watch?v=Z325PST1XQc)
 - [പുതുപുത്തൻ ജീവിതത്തിന് പുതുപുത്തൻ ഗാനങ്ങൾ | Easter Specal Songs | Christian Superhit Songs](https://www.youtube.com/watch?v=AFemc5Y1o_Y)
-- [8 April 2023](https://www.youtube.com/watch?v=qRDrjFDDAvI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
