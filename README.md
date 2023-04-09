@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [വല്ലഭനെ മര്യാദ പഠിപ്പിച്ച ഭഗവതി | Kallanum Bhagavathiyum | Character Intro | Rajesh Madhavan](https://www.youtube.com/watch?v=UyJN1Wrmj60)
 - [Muthumani Thooval Tharam - Kauravar(1992) | KJ Yesudas | Kaithapram | SP Venkitesh | Mammootty Hits](https://www.youtube.com/watch?v=hxxb1-nxATU)
 - [അംഗോപാംഗം സ്വരമുഖരം.. #shortsyoutube #mohanlal #revathy #devasuram #superhitsongs](https://www.youtube.com/watch?v=JQZy14kEvi4)
 - [Nasrayente Namam | Christian Video Song | Rithuraj | Easter Song | Joji Johns | Rajesh Athikayam](https://www.youtube.com/watch?v=4iBvbJAx7NI)
 - [പാട്ടുപെട്ടി  Vol 2 | Malayalam Film Songs](https://www.youtube.com/watch?v=gdSHqtptPTk)
 - [Nasrayante Naamam...#easterspecialsongs #rithuraj #christianvideosong #jojijohns](https://www.youtube.com/watch?v=OU7MDZ28mrk)
-- [POV: Attending Weddings Just For The FOOD 🥘🤤 | Uyyandappa | Saregama Malayalam | #shorts](https://www.youtube.com/watch?v=Ok0pFzVvDZ0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
