@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Release April 10th | Chothiyum Kannanum | Guruvayoorappa Devotional](https://www.youtube.com/watch?v=Z325PST1XQc)
+- [പുതുപുത്തൻ ജീവിതത്തിന് പുതുപുത്തൻ ഗാനങ്ങൾ | Easter Specal Songs | Christian Superhit Songs](https://www.youtube.com/watch?v=AFemc5Y1o_Y)
 - [8 April 2023](https://www.youtube.com/watch?v=qRDrjFDDAvI)
 - [Rise n Shine ☀️ | Aadharanjali | Saregama Malayalam | #shorts #ytshorts](https://www.youtube.com/watch?v=1PiTGb6hGp4)
 - [Songs to Listen During Drives 🚘 | Neelakasham Pole | Saregama Malayalam | #Shorts #YTshorts](https://www.youtube.com/watch?v=9maa2azazlo)
 - [Sivagange Shilagange | Banaras | Vineeth | Navya Nair | M Jayachandran | Gireesh Puthanchery](https://www.youtube.com/watch?v=uX7OE-wATIA)
-- [ശ്രോതാക്കൾക്കായി സമർപ്പിക്കുന്ന ഈസ്റ്റർ സ്പെഷ്യൽഗാനങ്ങൾ | Easter Songs | Sreya | Kester | KG Markose](https://www.youtube.com/watch?v=kmbpIlbXUqo)
-- [Sathyamam Snehathin | Christian Video Song | Easter Special Song | Meenakshi | Holy Week Song](https://www.youtube.com/watch?v=NyEB9er5Agk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
