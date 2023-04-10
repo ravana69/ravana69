@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ole Kanda Naal | Video Song | Ole Kanda Naal | Vineeth Sreenivasan | Hesham Abdul Wahab | Film Songs](https://www.youtube.com/watch?v=_UO7aGqVMWE)
+- [ഹോശാനാ....ഹോശാനാ... | Hosana | Jesus Malayalam Movie Song | Jayabharathi | P Jayachandran](https://www.youtube.com/watch?v=VYyWwxfhveY)
 - [Top Malayalam Hits Audio Jukebox | Most Popular Malayalam Collection | Malayalam Hits](https://www.youtube.com/watch?v=HrOCEHs29fk)
 - [കാണുന്നു  ഞാന്‍ വിശ്വാസത്താല്‍ എന്‍ മുന്‍പില്‍ ചെങ്കടല്‍ രണ്ടാകുന്നു | Shorts | K.G. Markose](https://www.youtube.com/watch?v=xSCcBPtxTp8)
 - [ഉയർത്തെഴുനേറ്റ യേശുനാഥന്റെ കൃപകളും അനുഗ്രഹങ്ങളും ആവോളമേകുന്ന ക്രിസ്തീയ ഗാനങ്ങൾ | Christian Songs](https://www.youtube.com/watch?v=bSFB8opX-JE)
 - [Ninneyere Drohichu Njan | Baby John Kalayanthani | Abhijith Kollam | Christian Song Shorts](https://www.youtube.com/watch?v=iUA_7cHUuzc)
-- [Jeevan Nalki  Snehichu Nee | Baby John Kalayanthani | Abhijith Kollam | Christian Devotional Shorts](https://www.youtube.com/watch?v=vomyhH9Wgag)
-- [9 April 2023](https://www.youtube.com/watch?v=5kiSdae0UrY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
