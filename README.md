@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Christian Superhit Songs | Wilson Piravom | Christian Devotional Songs Malayalam | Minmini |Kester](https://www.youtube.com/watch?v=PBRsXwWl2WE)
+- [Introducing Vineeth Sreenivasan as PL Ravi | #Pookkaalam In Cinemas Now!](https://www.youtube.com/watch?v=jr42XsXR1lA)
+- [Introducing Basil Joseph as Jikkumon | #Pookkaalam In Cinemas Now!](https://www.youtube.com/watch?v=oHXTOBHZqgU)
 - [Shyama Hare Krishna Hare | Soothradharan | Gayathri | Edappal Vishwam  | Raveendran | S Ramesan Nair](https://www.youtube.com/watch?v=oomBinUZP0s)
 - [RDX Music on Saregama Malayalam | Sam CS | Nahas Hidhayath](https://www.youtube.com/watch?v=v_z6XzOR324)
 - [Vijayaraghavan Makeover - Pookkaalam | Vijayaraghavan, Basil Joseph,Vineeth Sreenivasan | Ganesh Raj](https://www.youtube.com/watch?v=yMAIMfW9_P4)
-- [Pathupavanil Kothuvalayum | Ee Parakkum Thalika | MG Sreekumar | Ouseppachan | Gireesh Puthanchery](https://www.youtube.com/watch?v=IrxWjm7GlnM)
-- [Ammakilikoodithil Video Song | Kaithapram | Raveendran | MG Sreekumar | Prithviraj | Navya Nair](https://www.youtube.com/watch?v=aSmhhGQ5nKM)
-- [നിറഞ്ഞ സദസ്സിൽ ചിറ്റൂർ  ശ്രീയിൽ  കള്ളനും ഭഗവതിയും വിജയാഘോഷം | Kallanum Bhagavathiyum](https://www.youtube.com/watch?v=5Y8rV1B3AJ0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
