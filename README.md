@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Host &lpar;2006&rpar; BluRay - 1080p - TRUE HD AVC UNTOUCHED - x264 - [English + Korean] - DTS 5.1&lpar;1509kbps&rpar; - 11GB - MSub.mkv](https://www.1tamilmv.help/index.php?/forums/topic/172807-the-host-2006-bluray-1080p-true-hd-avc-untouched-x264-english-korean-dts-511509kbps-11gb-msubmkv/&do=findComment&comment=345303)
+- [Michael Jackson - Bad Album &lpar;1987&rpar; - I Just Can&#39;t Stop Loving You &lpar;feat. Siedah Garrett&rpar; - FLAC - 44.1khz - English - 25mb](https://www.1tamilmv.help/index.php?/forums/topic/172806-michael-jackson-bad-album-1987-i-just-cant-stop-loving-you-feat-siedah-garrett-flac-441khz-english-25mb/&do=findComment&comment=345302)
 - [200 Tamil Movies [2013 - 2018] - BluRay / WEB DL - HEVC - x265 - DD5.1/AAC2.0 - ESub - [1080p - 300GB] [GDRIVE]](https://www.1tamilmv.help/index.php?/forums/topic/164659-200-tamil-movies-2013-2018-bluray-web-dl-hevc-x265-dd51aac20-esub-1080p-300gb-gdrive/&do=findComment&comment=345301)
 - [Dom &lpar;2023&rpar; S02 EP06 TRUE WEB-DL - [1080p, 720p - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 1.4GB - 450MB &amp; 300MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172804-dom-2023-s02-ep06-true-web-dl-1080p-720p-tamil-telugu-hindi-eng-dd51-192kbps-14gb-450mb-300mb-esub/&do=findComment&comment=345300)
 - [Ayothi &lpar;2023&rpar;.Tamil.V2.1080p.Web-dl.x264.DD5.1 640Kbps Upmixed - 2.3GB &lpar;with Tamil Subtitles for Hindi Dialogues&rpar;](https://www.1tamilmv.help/index.php?/forums/topic/172805-ayothi-2023tamilv21080pweb-dlx264dd51-640kbps-upmixed-23gb-with-tamil-subtitles-for-hindi-dialogues/&do=findComment&comment=345299)
-- [Azhagiya Tamil Magan&lpar;2007&rpar; Blu-ray[1080p &amp; 720p - HD AVC / HEVC - &lpar;DTS HD-MA 5.1&lpar;3678kbps&rpar; + DD+5.1&lpar;640kbps&rpar;&rpar; [Tamil - 14GB - 10GB - 6.5GB - 2.8GB - 1.4GB - 1.8GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB - ESub].mkv](https://www.1tamilmv.help/index.php?/forums/topic/172785-azhagiya-tamil-magan2007-blu-ray1080p-720p-hd-avc-hevc-dts-hd-ma-513678kbps-dd51640kbps-tamil-14gb-10gb-65gb-28gb-14gb-18gb-950mb-x264-700mb-400mb-250mb-esubmkv/&do=findComment&comment=345298)
-- [Pirates Of The Caribbean - Pentalogy &lpar;2003 to 2017&rpar; Movies Collection [720p - BDRip&#39;s - [Tamil + Telugu &lpar;4&rpar; + Hindi + Eng] - x264 - 6.2GB - ESubs.mkv](https://www.1tamilmv.help/index.php?/forums/topic/172796-pirates-of-the-caribbean-pentalogy-2003-to-2017-movies-collection-720p-bdrips-tamil-telugu-4-hindi-eng-x264-62gb-esubsmkv/&do=findComment&comment=345297)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
