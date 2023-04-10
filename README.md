@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉയർത്തെഴുനേറ്റ യേശുനാഥന്റെ കൃപകളും അനുഗ്രഹങ്ങളും ആവോളമേകുന്ന ക്രിസ്തീയ ഗാനങ്ങൾ | Christian Songs](https://www.youtube.com/watch?v=bSFB8opX-JE)
 - [Ninneyere Drohichu Njan | Baby John Kalayanthani | Abhijith Kollam | Christian Song Shorts](https://www.youtube.com/watch?v=iUA_7cHUuzc)
 - [Jeevan Nalki  Snehichu Nee | Baby John Kalayanthani | Abhijith Kollam | Christian Devotional Shorts](https://www.youtube.com/watch?v=vomyhH9Wgag)
 - [9 April 2023](https://www.youtube.com/watch?v=5kiSdae0UrY)
 - [End your Sunday with a peaceful sleep 😴 | Idanenjil | Saregama Malayalam | #shorts #ytshorts](https://www.youtube.com/watch?v=QA_k4BC85Cw)
 - [Poovay Virinju Video Song | Mammootty | MG Sreekumar | Ilayaraja | ONV Kurup | Adharvam](https://www.youtube.com/watch?v=paxDh4REY5E)
-- [വല്ലഭനെ മര്യാദ പഠിപ്പിച്ച ഭഗവതി | Kallanum Bhagavathiyum | Character Intro | Rajesh Madhavan](https://www.youtube.com/watch?v=UyJN1Wrmj60)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
