@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Master - FAN MADE POSTER - Upscaled to 4K with AI Upscaler - 3MB](https://www.1tamilmv.help/index.php?/forums/topic/172803-master-fan-made-poster-upscaled-to-4k-with-ai-upscaler-3mb/&do=findComment&comment=345286)
+- [Raghavan &lpar;2006&rpar; Telugu TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 11.6GB - ESub - [Direct + Drive]](https://www.1tamilmv.help/index.php?/forums/topic/172802-raghavan-2006-telugu-true-web-dl-1080p-avc-untouched-ddp20-116gb-esub-direct-drive/&do=findComment&comment=345285)
+- [Shankara &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;Tamil + Telugu&rpar; - 2.9GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172801-shankara-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-29gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=345284)
 - [Andala Rakshasi &lpar;2012&rpar; TRUE WEB-DL - 1080p - AVC - UNTOUCHED - [ Telugu + Kannada + Malayalam ] - &lpar;DDP.2.0&rpar; - 10GB - ESub - [Direct + Drive]](https://www.1tamilmv.help/index.php?/forums/topic/172800-andala-rakshasi-2012-true-web-dl-1080p-avc-untouched-telugu-kannada-malayalam-ddp20-10gb-esub-direct-drive/&do=findComment&comment=345283)
 - [Ayothi &lpar;2023&rpar; Tamil v2 TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - AAC - 2.4GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.help/index.php?/forums/topic/172794-ayothi-2023-tamil-v2-true-web-dl-1080p-720p-avc-hevc-aac-24gb-14gb-800mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=345282)
-- [Chupa &lpar;2023&rpar; NF WEB-DL DDP5.1 Atmos Esubs x264 - 1080p | 720p - 3.9 GB | 2.2 GB](https://www.1tamilmv.help/index.php?/forums/topic/172799-chupa-2023-nf-web-dl-ddp51-atmos-esubs-x264-1080p-720p-39-gb-22-gb/&do=findComment&comment=345281)
-- [Burqa &lpar;2023&rpar; SS WEB-DL DD5.1 Esubs x264 - 1080p | 720p - 2.3 GB | 1.3 GB](https://www.1tamilmv.help/index.php?/forums/topic/172798-burqa-2023-ss-web-dl-dd51-esubs-x264-1080p-720p-23-gb-13-gb/&do=findComment&comment=345280)
-- [Shazam &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.8GB &amp; 1.5GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 500MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172222-shazam-2019-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-38gb-15gb-x264-tam-tel-hin-500mb-esub/&do=findComment&comment=345279)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
