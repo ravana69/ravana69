@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Chupa &lpar;2023&rpar; NF WEB-DL DDP5.1 Atmos Esubs x264 - 1080p | 720p - 3.9 GB | 2.2 GB](https://www.1tamilmv.help/index.php?/forums/topic/172799-chupa-2023-nf-web-dl-ddp51-atmos-esubs-x264-1080p-720p-39-gb-22-gb/&do=findComment&comment=345281)
+- [Burqa &lpar;2023&rpar; SS WEB-DL DD5.1 Esubs x264 - 1080p | 720p - 2.3 GB | 1.3 GB](https://www.1tamilmv.help/index.php?/forums/topic/172798-burqa-2023-ss-web-dl-dd51-esubs-x264-1080p-720p-23-gb-13-gb/&do=findComment&comment=345280)
+- [Shazam &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.8GB &amp; 1.5GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 500MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172222-shazam-2019-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-38gb-15gb-x264-tam-tel-hin-500mb-esub/&do=findComment&comment=345279)
 - [Ayothi &lpar;2023&rpar; Tamil v2 TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - AAC - 2.4GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.help/index.php?/forums/topic/172794-ayothi-2023-tamil-v2-true-web-dl-1080p-720p-avc-hevc-aac-24gb-14gb-800mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=345278)
 - [Dungeons.And.Dragons.2000 AAC 2.0 Tamil + AAC 2.0 Hindi + AAC 5.1 English 1080p.BluRay.H264.AAC [Go-file]](https://www.1tamilmv.help/index.php?/forums/topic/156126-dungeonsanddragons2000-aac-20-tamil-aac-20-hindi-aac-51-english-1080pblurayh264aac-go-file/&do=findComment&comment=345277)
-- [Dungeons.and.Dragons.The.Book.of.Vile.Darkness.2012 Tamil + Telugu + Hindi + English &lpar;AAC2.0 320kbps&rpar; 1080p.Blu-Ray.H264.AAC](https://www.1tamilmv.help/index.php?/forums/topic/156108-dungeonsanddragonsthebookofviledarkness2012-tamil-telugu-hindi-english-aac20-320kbps-1080pblu-rayh264aac/&do=findComment&comment=345276)
-- [The Circle [Dayereh] &lpar;2000&rpar; PERSIAN - MUBI WEB-DL - 1080p - HQ HDRip - x264 - AAC2.0&lpar;240kbps&rpar; - 3.5GB - ESub.mkv](https://www.1tamilmv.help/index.php?/forums/topic/172793-the-circle-dayereh-2000-persian-mubi-web-dl-1080p-hq-hdrip-x264-aac20240kbps-35gb-esubmkv/&do=findComment&comment=345275)
-- [Ayothi &lpar;2023&rpar; Tamil v2 TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - AAC - 2.4GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.help/index.php?/forums/topic/172794-ayothi-2023-tamil-v2-true-web-dl-1080p-720p-avc-hevc-aac-24gb-14gb-800mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=345273)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
