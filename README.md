@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [സംഗീതത്തിൻറെ ശക്തികൊണ്ട് മനസിന് എന്തെന്നില്ലാത്ത എനർജി ലഭിക്കുന്ന മനോഹരഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=cYV89xgPmQY)
+- [ജീവിതത്തിന് വലിയ മാറ്റം സൃഷ്ടിക്കുന്ന പുതിയ തലങ്ങൾ നൽകുന്ന സൂപ്പർഹിറ്റ് സിനിമാഗാനങ്ങൾ | NISARI MUSIC](https://www.youtube.com/watch?v=7USU3uXMc7s)
+- [നിറഞ്ഞ സദസ്സിൽ പാലക്കാട്‌ പ്രിയതമയിലെ  കള്ളനും ഭഗവതിയും വിജയാഘോഷം | Kallanum Bhagavathiyum](https://www.youtube.com/watch?v=5UiiUWAmPLk)
 - [Ole Kanda Naal | Video Song | Ole Kanda Naal | Vineeth Sreenivasan | Hesham Abdul Wahab | Film Songs](https://www.youtube.com/watch?v=_UO7aGqVMWE)
 - [ഹോശാനാ....ഹോശാനാ... | Hosana | Jesus Malayalam Movie Song | Jayabharathi | P Jayachandran](https://www.youtube.com/watch?v=VYyWwxfhveY)
 - [Top Malayalam Hits Audio Jukebox | Most Popular Malayalam Collection | Malayalam Hits](https://www.youtube.com/watch?v=HrOCEHs29fk)
-- [കാണുന്നു  ഞാന്‍ വിശ്വാസത്താല്‍ എന്‍ മുന്‍പില്‍ ചെങ്കടല്‍ രണ്ടാകുന്നു | Shorts | K.G. Markose](https://www.youtube.com/watch?v=xSCcBPtxTp8)
-- [ഉയർത്തെഴുനേറ്റ യേശുനാഥന്റെ കൃപകളും അനുഗ്രഹങ്ങളും ആവോളമേകുന്ന ക്രിസ്തീയ ഗാനങ്ങൾ | Christian Songs](https://www.youtube.com/watch?v=bSFB8opX-JE)
-- [Ninneyere Drohichu Njan | Baby John Kalayanthani | Abhijith Kollam | Christian Song Shorts](https://www.youtube.com/watch?v=iUA_7cHUuzc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
