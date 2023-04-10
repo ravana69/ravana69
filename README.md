@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Darker the Lake &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.2GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172813-the-darker-the-lake-2022-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-22gb-11gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=345313)
 - [Dom &lpar;2023&rpar; S02 EP06 TRUE WEB-DL - [1080p, 720p - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 1.4GB - 450MB &amp; 300MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172804-dom-2023-s02-ep06-true-web-dl-1080p-720p-tamil-telugu-hindi-eng-dd51-192kbps-14gb-450mb-300mb-esub/&do=findComment&comment=345312)
 - [Pirates Of The Caribbean - Pentalogy &lpar;2003 to 2017&rpar; Movies Collection [720p - BDRip&#39;s - [Tamil + Telugu &lpar;4&rpar; + Hindi + Eng] - x264 - 6.2GB - ESubs.mkv](https://www.1tamilmv.help/index.php?/forums/topic/172796-pirates-of-the-caribbean-pentalogy-2003-to-2017-movies-collection-720p-bdrips-tamil-telugu-4-hindi-eng-x264-62gb-esubsmkv/&do=findComment&comment=345311)
 - [Ayothi &lpar;2023&rpar; Tamil v2 TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - AAC - 2.4GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.help/index.php?/forums/topic/172794-ayothi-2023-tamil-v2-true-web-dl-1080p-720p-avc-hevc-aac-24gb-14gb-800mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=345310)
 - [JAI SIMHA &lpar;2018&rpar; - MUSIC VIDEO ALBUM - AMZN - 1080P - UNTOUCHED - AVC - DDP 5.1 - ESUBS - 1.8GB](https://www.1tamilmv.help/index.php?/forums/topic/172812-jai-simha-2018-music-video-album-amzn-1080p-untouched-avc-ddp-51-esubs-18gb/&do=findComment&comment=345309)
-- [Pistha &lpar;1997&rpar;.Tamil.480p.HTDV.x264.AAC2.0 - 2GB](https://www.1tamilmv.help/index.php?/forums/topic/172811-pistha-1997tamil480phtdvx264aac20-2gb/&do=findComment&comment=345308)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
