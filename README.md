@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mazhamegham Audio Song | Dear Comrade Malayalam| Vijay Deverakonda | Bharat Kamma](https://www.youtube.com/watch?v=rx0e2Z6tT7g)
+- [Kuppivala Kaikalum | Ee Parakkum Thalika | KS Chithra | Ouseppachan | Gireesh Puthanchery](https://www.youtube.com/watch?v=Xu_HhbLUOhk)
+- [Iniyoru Janmamundengil | Kannaki | Super Hit Movie Song | Lal | Nanditha Das|Siddique - Yesudas Hits](https://www.youtube.com/watch?v=8QGCiF9-EWg)
+- [Ella Malle Audio Song | Pailwaan Malayalam | Kichcha Sudeepa | Suniel Shetty | Krishna |Arjun Janya](https://www.youtube.com/watch?v=fjGntJ5kdS0)
+- [Asalasalaayi Video Song | Fahad Faasil | Nikita | Ouseppachan | S Ramesan Nair | MG Sreekumar](https://www.youtube.com/watch?v=R9Yi8pKY7DQ)
 - [Namasthe Saranye - Video Song | Kallanum Bhagavathiyum | Vishnu Unnikrishan | East Coast Vijayan](https://www.youtube.com/watch?v=cwEjEWmrgM4)
-- [മലയാളത്തിന്റെ മഹാനടൻ പ്രേക്ഷകരുടെ വല്ല്യേട്ടൻ മമ്മൂട്ടി അഭിനയിച്ച സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | MAMMOOTTY](https://www.youtube.com/watch?v=thMs6r7M2Po)
-- [നാടെങ്ങും സംസാരവിഷയമായ മലയാളസിനിമയിലെ അതിപ്രശസ്തമായ ഗാനങ്ങൾ  | NISARI CHITHRAGEETHAM](https://www.youtube.com/watch?v=Z40Dmk8Sldc)
-- [Introducing Johny Antony as Narayanan | #Pookkaalam In Cinemas Now!](https://www.youtube.com/watch?v=piioE3VH2yY)
-- [Kannod Kannaya Swapnangal | Kaliyil Alpam Karyam | KJ Yesudas | K S Chithra | Raveendran Master](https://www.youtube.com/watch?v=N9_NQCvX-_c)
-- [ഭഗവതിയെ തളയ്ക്കാൻ വന്ന മന്ത്രവാദിക്ക് പറ്റിയത് | Kallanum Bhagavathiyum|Character Intro|Johny Antony](https://www.youtube.com/watch?v=X5PAH2cZ3L8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
