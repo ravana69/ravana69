@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഭഗവതിയെ തളയ്ക്കാൻ വന്ന മന്ത്രവാദിക്ക് പറ്റിയത് | Kallanum Bhagavathiyum|Character Intro|Johny Antony](https://www.youtube.com/watch?v=X5PAH2cZ3L8)
+- [Vennilave | Sagar Alias Jacky Reloaded | Karaoke Video | Mohanlal | Amal Neerad | Gopi Sundar](https://www.youtube.com/watch?v=wABFErfr1MM)
 - [Melodies Of Malayalam Audio Jukebox | Most Popular Malayalam Melodies Collection | Malayalam Hits](https://www.youtube.com/watch?v=1upfGd5_Ris)
 - [കെസ്റ്ററും വിൽ‌സൺ പിറവവും ചേർന്നാലപിച്ച ഏറ്റവും മികച്ച ക്രിസ്തീയ ഗാനങ്ങൾ | Christian Songs Malayalam](https://www.youtube.com/watch?v=EurcJ4yRHJw)
 - [10 April 2023](https://www.youtube.com/watch?v=4TIdvfgdLfQ)
 - [Paathi Paathi 💕 raw cover | night drive | Shibin Ojai](https://www.youtube.com/watch?v=d0PgvppoGrM)
-- [Thachak Machak | Point Range | Appani Sarath](https://www.youtube.com/watch?v=Gmz2K-NspMU)
-- [Thachak Machak | Point Range | Appani Sarath](https://www.youtube.com/watch?v=2_VV3r1c1U4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
