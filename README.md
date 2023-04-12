@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ishtam Ishtam Enikkishtam | Amrutham | Jayaram | Padmapriya | Kaithapram | Chithra](https://www.youtube.com/watch?v=6rg4lPbi2Wg)
 - [12 April 2023](https://www.youtube.com/watch?v=4XGG1FTe_f0)
 - [മനസിന് ഇഷ്ടം കൂടുതൽ തോന്നി കേൾക്കുന്ന സൂപ്പർഹിറ്റ് സിനിമ ഗാനങ്ങൾ |Mammootty |Evergreen Film Songs](https://www.youtube.com/watch?v=SLMGZw6uN9s)
 - [Christian Melody Songs | M G Sreekumar | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=2borT7kcS_U)
 - [Mookambika Devotional Song by Sankaran Namboothiri](https://www.youtube.com/watch?v=bjboj_rQo8o)
 - [Pookkaalam - Success Trailer | Vijayaraghavan, Basil Joseph, Vineeth Sreenivasan | Ganesh Raj](https://www.youtube.com/watch?v=-uR49zoLaiU)
-- [Minnaaram Maanath Video Song | Mohanlal | Sreelekshmi | Sujatha Mohan | Ilayaraja | S Ramesan Nair](https://www.youtube.com/watch?v=b2CKB7Zr4D4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
