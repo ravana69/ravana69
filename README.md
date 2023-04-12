@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Pookkaalam - Success Trailer | Vijayaraghavan, Basil Joseph, Vineeth Sreenivasan | Ganesh Raj](https://www.youtube.com/watch?v=-uR49zoLaiU)
+- [Minnaaram Maanath Video Song | Mohanlal | Sreelekshmi | Sujatha Mohan | Ilayaraja | S Ramesan Nair](https://www.youtube.com/watch?v=b2CKB7Zr4D4)
 - [Mookambika Devotional Song by Sankaran Namboothiri](https://www.youtube.com/watch?v=G9iiUxv0G_M)
 - [Pathinalam Ravil - Lyrical Video | Thoovalkkattu | Ranjini Jose, Sasikumar | Kaithapram](https://www.youtube.com/watch?v=PWEKNUx8DI8)
 - [ഏതോ നിദ്രതൻ | Etho Nidrathan | Ayal Kadha Ezhuthukayanu Film Song | K.J. Yesudas| Mohan Lal| Nandini](https://www.youtube.com/watch?v=wcuBSSTU5jg)
 - [Top 10 Malayalam Dance Hit Songs | Latest Malayalam Hits Audio Jukebox | Malayalam Dance Collection](https://www.youtube.com/watch?v=l35zlb0upuk)
-- [മലയാളികളുടെ സ്വന്തം ചിത്രാമ്മ പാടിയ 10 സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ...| HITS OF KS CHITHRA](https://www.youtube.com/watch?v=Rqf86XMKYwA)
-- [കൂട്ടിൽ നിന്നും മേട്ടിൽ വന്ന | Malayalam Evergreen Film Song | താളവട്ടം | K. J. Yesudas | Mohanlal.](https://www.youtube.com/watch?v=jq6en3uke4U)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
