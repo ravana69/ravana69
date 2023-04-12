@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [PS2 - Shivoham - Lyrical - 1080P - DD5.1 + DTSHDMA5.1 &lpar;Lossless 24Bit FLAC Upmix&rpar;](https://www.1tamilmv.help/index.php?/forums/topic/172834-ps2-shivoham-lyrical-1080p-dd51-dtshdma51-lossless-24bit-flac-upmix/&do=findComment&comment=345389)
+- [Eega - Makkhi &lpar;2012&rpar; 1080P BluRay - x265 HEVC 10Bit - [ DDP.5.1 TELUGU + DDP.2.0 HINDI] - 5.6GB - ESub - [Direct + Drive]](https://www.1tamilmv.help/index.php?/forums/topic/172833-eega-makkhi-2012-1080p-bluray-x265-hevc-10bit-ddp51-telugu-ddp20-hindi-56gb-esub-direct-drive/&do=findComment&comment=345388)
 - [Sangamam &lpar;1999&rpar;.HQ.1080p.AHA.WEB-DL.AAC2.0.H264-HBN - 3.3GB](https://www.1tamilmv.help/index.php?/forums/topic/172832-sangamam-1999hq1080pahaweb-dlaac20h264-hbn-33gb/&do=findComment&comment=345387)
 - [BIGGEST_UNTOUCHED_BLU_RAY_COLLECTION_OF_INDIAN_CINEMA_INDUSTRY_ALL_Time &lpar;Gdrive&rpar;](https://www.1tamilmv.help/index.php?/forums/topic/170897-biggest_untouched_blu_ray_collection_of_indian_cinema_industry_all_time-gdrive/&do=findComment&comment=345386)
 - [Game Of Thrones Complete Merged [1080p 720p] 10Bit BluRay 6CH [&lpar;English - AAC5.1&rpar;] x265 - ESub [Google Drive]](https://www.1tamilmv.help/index.php?/forums/topic/172831-game-of-thrones-complete-merged-1080p-720p-10bit-bluray-6ch-english-aac51-x265-esub-google-drive/&do=findComment&comment=345385)
-- [THERI&lpar;2016&rpar;-Tamil-1440p-2K-QHD-5.1CH-HQ-HEVC--[2.4GB]  TAMILMV Xclusive Release](https://www.1tamilmv.help/index.php?/forums/topic/117607-theri2016-tamil-1440p-2k-qhd-51ch-hq-hevc-24gb-tamilmv-xclusive-release/&do=findComment&comment=345384)
-- [Muhammad: The Messenger of God &lpar;2015&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Persian&rpar; - 2.8GB &amp; 1.4GB | x264 - &lpar;Tam + Hin&rpar; - 500MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172830-muhammad-the-messenger-of-god-2015-hd-original-audios-1080p-720p-x264-tamil-hindi-persian-28gb-14gb-x264-tam-hin-500mb-esub/&do=findComment&comment=345383)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
