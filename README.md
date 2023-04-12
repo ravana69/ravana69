@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Viduthalai Part 1 &lpar;2023&rpar;.Tamil.1080p.Web-dl.x264.DD5.1 640Kbps UPMIX.HC-ESub - Cinema Surround Upmix - 3GB](https://www.1tamilmv.help/index.php?/forums/topic/172843-viduthalai-part-1-2023tamil1080pweb-dlx264dd51-640kbps-upmixhc-esub-cinema-surround-upmix-3gb/&do=findComment&comment=345409)
+- [Viduthalai Part 1 &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.6GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.help/index.php?/forums/topic/172841-viduthalai-part-1-2023-tamil-web-dl-1080p-720p-avc-aac-26gb-13gb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=345408)
+- [N4 &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 320Kbps&rpar; - 3.4GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172840-n4-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-320kbps-34gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=345407)
 - [Sangamam &lpar;1999&rpar;.HQ.1080p.AHA.WEB-DL.AAC2.0.H264-HBN - 3.3GB](https://www.1tamilmv.help/index.php?/forums/topic/172832-sangamam-1999hq1080pahaweb-dlaac20h264-hbn-33gb/&do=findComment&comment=345406)
 - [I Love You Idiot &lpar;2023&rpar; Telugu &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC  - 2.9GB &amp; 1.6GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172837-i-love-you-idiot-2023-telugu-original-version-true-web-dl-1080p-720p-avc-29gb-16gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=345405)
-- [N4 &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 320Kbps&rpar; - 3.4GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172840-n4-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-320kbps-34gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=345404)
-- [The Offering &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.9GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172842-the-offering-2022-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-29gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=345403)
-- [Viduthalai Part 1 &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.6GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.help/index.php?/forums/topic/172841-viduthalai-part-1-2023-tamil-web-dl-1080p-720p-avc-aac-26gb-13gb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=345402)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
