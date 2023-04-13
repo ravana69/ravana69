@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pathu Thala &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.6GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.help/index.php?/forums/topic/172859-pathu-thala-2023-tamil-web-dl-1080p-720p-avc-aac-26gb-13gb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=345453)
+- [Pathu Thala &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.6GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.help/index.php?/forums/topic/172859-pathu-thala-2023-tamil-web-dl-1080p-720p-avc-aac-26gb-13gb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=345452)
+- [Jubilee &lpar;2023&rpar; S01 EP&lpar;05-10&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tam + Tel + Hin + Mal + Kan] - 4GB - 1.8GB - 1GB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172856-jubilee-2023-s01-ep05-10-true-web-dl-1080p-720p-avc-dd51-192kbps-tam-tel-hin-mal-kan-4gb-18gb-1gb-esub/&do=findComment&comment=345451)
 - [📌 AAYIRATHIL ORUVAN &lpar;2010&rpar; &lpar;Music Video Album&rpar; - 1080P - BDREMUX - AVC - #TAM DTS-HD® MA 5.1 @ 2.5M /DD® 5.1 @ 448K - ESubs - 2.8GB〰️ [Avatar]](https://www.1tamilmv.help/index.php?/forums/topic/172858-%F0%9F%93%8C-aayirathil-oruvan-2010-music-video-album-1080p-bdremux-avc-tam-dts-hd%C2%AE-ma-51-25m-dd%C2%AE-51-448k-esubs-28gb%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=345450)
 - [Viduthalai: Part I – 2023 Movie Dual Audio Hindi &lpar;Studio Dub&rpar; + Tamil HDRip 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.help/index.php?/forums/topic/172857-viduthalai-part-i-%E2%80%93-2023-movie-dual-audio-hindi-studio-dub-tamil-hdrip-1080p-720p-480p-direct-download/&do=findComment&comment=345449)
-- [Plane &lpar;2023&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.5GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172853-plane-2023-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-25gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=345448)
-- [Jubilee &lpar;2023&rpar; S01 EP&lpar;05-10&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tam + Tel + Hin + Mal + Kan] - 4GB - 1.8GB - 1GB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172856-jubilee-2023-s01-ep05-10-true-web-dl-1080p-720p-avc-dd51-192kbps-tam-tel-hin-mal-kan-4gb-18gb-1gb-esub/&do=findComment&comment=345447)
-- [Rudhran – Jorthaale Lyrical - 1080P &amp; 4K - DD5.1 &lpar;YT Audio Upmix&rpar;](https://www.1tamilmv.help/index.php?/forums/topic/172855-rudhran-%E2%80%93-jorthaale-lyrical-1080p-4k-dd51-yt-audio-upmix/&do=findComment&comment=345446)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
