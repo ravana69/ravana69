@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രണ്ടാം വാരത്തിലും സംതൃപ്തിയോടെ ജനഹൃദയങ്ങളിലേക്ക് | Thodupuzha Aashirvad | Kallanum Bhagavathiyum](https://www.youtube.com/watch?v=wV8bYhcvP6k)
+- [Kanninmaniye Audio Song | Pailwaan Malayalam | Kichcha Sudeepa | Krishna | Arjun Janya](https://www.youtube.com/watch?v=oEN1B5o_jTo)
 - [#Thanaro feels 💥 | #Kasargold | #AsifAli #SunnyWayne #Vinayakan | #Shorts #YTshorts](https://www.youtube.com/watch?v=-KSwX2xgFCU)
 - [Karayunna Kaakaykkum | Fr. SeveriosThomas | Shorts](https://www.youtube.com/watch?v=x2M5-fB9RHk)
 - [Pithavillathorkkavan Nalloru Thathanum | Fr. SeveriosThomas | Shorts](https://www.youtube.com/watch?v=BYNY84ODc6Y)
 - [A #Thanaro JODI 👫 | #Kasargold | #AsifAli #SunnyWayne #Vinayakan | #Shorts #YTshorts](https://www.youtube.com/watch?v=57i8rmW8B9g)
-- [Kalyanasalayil Enne Vilichente | Fr. SeveriosThomas | Shorts](https://www.youtube.com/watch?v=rbcFT2VBHrw)
-- [Kodaakodi Golamellam Padachavan | Fr. SeveriosThomas | Shorts](https://www.youtube.com/watch?v=r9E5S7yrtds)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
