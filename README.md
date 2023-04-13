@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [യുവതലമുറ ആടിത്തിമിർത്ത  മലയാളസിനിമയിലെ ഹരം പകരുന്ന സൂപ്പർഹിറ്റ് ഡാൻസ് ഗാനങ്ങൾ |DANCE SONGS MALAYALAM](https://www.youtube.com/watch?v=x2nAh5pnAIY)
+- [ഒരു മനുഷ്യായുസ്സ് മുഴുവൻ നിഴൽ പോലെ കൂടെയുള്ള മലയാളസിനിമാഗാനങ്ങൾ  | NISARI CHITHRAGEETHAM](https://www.youtube.com/watch?v=ZtXMWoKoRL4)
+- [Mele Poomala - Madanolsavam  | KJ Yesudas | Sabitha Chowdhary | ONV Kurup | Salil Chowdhury](https://www.youtube.com/watch?v=JYJVu61nIlY)
 - [A #Thanaro - full performance | #Kasargold | #AsifAli #SunnyWayne #Vinayakan | #Shorts #YTshorts](https://www.youtube.com/watch?v=Tk4eKj7_Wtg)
 - [രണ്ടാം വാരത്തിലും സംതൃപ്തിയോടെ ജനഹൃദയങ്ങളിലേക്ക് | Thodupuzha Aashirvad | Kallanum Bhagavathiyum](https://www.youtube.com/watch?v=wV8bYhcvP6k)
 - [Kanninmaniye Audio Song | Pailwaan Malayalam | Kichcha Sudeepa | Krishna | Arjun Janya](https://www.youtube.com/watch?v=oEN1B5o_jTo)
-- [#Thanaro feels 💥 | #Kasargold | #AsifAli #SunnyWayne #Vinayakan | #Shorts #YTshorts](https://www.youtube.com/watch?v=-KSwX2xgFCU)
-- [Karayunna Kaakaykkum | Fr. SeveriosThomas | Shorts](https://www.youtube.com/watch?v=x2M5-fB9RHk)
-- [Pithavillathorkkavan Nalloru Thathanum | Fr. SeveriosThomas | Shorts](https://www.youtube.com/watch?v=BYNY84ODc6Y)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
