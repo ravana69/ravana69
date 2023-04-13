@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [മനുഷ്യന്റെ പ്രാർത്ഥനകൾക്ക് അർത്ഥവത്തായ ക്രിസ്തീയ ഗാനങ്ങൾ | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=NzdMm38-X4A)
-- [Mookambika Devotional song by Sankaran Namboothiri #shorts](https://www.youtube.com/watch?v=2yoY4oOyUv8)
-- [Ishtam Ishtam Enikkishtam | Amrutham | Jayaram | Padmapriya | Kaithapram | Chithra](https://www.youtube.com/watch?v=6rg4lPbi2Wg)
-- [12 April 2023](https://www.youtube.com/watch?v=4XGG1FTe_f0)
-- [മനസിന് ഇഷ്ടം കൂടുതൽ തോന്നി കേൾക്കുന്ന സൂപ്പർഹിറ്റ് സിനിമ ഗാനങ്ങൾ |Mammootty |Evergreen Film Songs](https://www.youtube.com/watch?v=SLMGZw6uN9s)
-- [Christian Melody Songs | M G Sreekumar | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=2borT7kcS_U)
+- [#Thanaro feels 💥 | #Kasargold | #AsifAli #SunnyWayne #Vinayakan | #Shorts #YTshorts](https://www.youtube.com/watch?v=-KSwX2xgFCU)
+- [Karayunna Kaakaykkum | Fr. SeveriosThomas | Shorts](https://www.youtube.com/watch?v=x2M5-fB9RHk)
+- [Pithavillathorkkavan Nalloru Thathanum | Fr. SeveriosThomas | Shorts](https://www.youtube.com/watch?v=BYNY84ODc6Y)
+- [A #Thanaro JODI 👫 | #Kasargold | #AsifAli #SunnyWayne #Vinayakan | #Shorts #YTshorts](https://www.youtube.com/watch?v=57i8rmW8B9g)
+- [Kalyanasalayil Enne Vilichente | Fr. SeveriosThomas | Shorts](https://www.youtube.com/watch?v=rbcFT2VBHrw)
+- [Kodaakodi Golamellam Padachavan | Fr. SeveriosThomas | Shorts](https://www.youtube.com/watch?v=r9E5S7yrtds)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
