@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Rudhran – Jorthaale Lyrical - 1080P &amp; 4K - DD5.1 &lpar;YT Audio Upmix&rpar;](https://www.1tamilmv.help/index.php?/forums/topic/172855-rudhran-%E2%80%93-jorthaale-lyrical-1080p-4k-dd51-yt-audio-upmix/&do=findComment&comment=345446)
+- [[ 🔞 18+] Obsession &lpar;2023&rpar; S01 EP&lpar;01-04&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 2.7GB - 1.2GB &amp; 550MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172852-%F0%9F%94%9E-18-obsession-2023-s01-ep01-04-true-web-dl-1080p-720p-avc-dd51-192kbps-tamil-telugu-hindi-eng-27gb-12gb-550mb-esub/&do=findComment&comment=345445)
 - [Billa &lpar;1980&rpar;.Tamil.480p.Amzn.x264.AAC2.0.ESub - 2.5GB](https://www.1tamilmv.help/index.php?/forums/topic/172854-billa-1980tamil480pamznx264aac20esub-25gb/&do=findComment&comment=345444)
 - [Plane &lpar;2023&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.5GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172853-plane-2023-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-25gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=345443)
 - [Plane &lpar;2023&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.5GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172853-plane-2023-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-25gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=345442)
-- [Skyfall &lpar;2012&rpar; IMAX Open Matte 1080p Multi Original Audios &lpar;DD5.1&rpar; - [ Telugu &lpar;640Kbps&rpar; +Tamil &lpar;640Kbps&rpar; + Hindi &lpar;640Kbps&rpar; + English &lpar;448Kbps&rpar;] - AC3 - 10GB -  ESub.mkv](https://www.1tamilmv.help/index.php?/forums/topic/172844-skyfall-2012-imax-open-matte-1080p-multi-original-audios-dd51-telugu-640kbps-tamil-640kbps-hindi-640kbps-english-448kbps-ac3-10gb-esubmkv/&do=findComment&comment=345441)
-- [Ninaivirukka &lpar;From &quot;Pathu Thala&quot;&rpar; Master Quality 24bit 96kHz - FLAC - A.R. Rahman Musical - 82 MB | 69 MB](https://www.1tamilmv.help/index.php?/forums/topic/172212-ninaivirukka-from-pathu-thala-master-quality-24bit-96khz-flac-ar-rahman-musical-82-mb-69-mb/&do=findComment&comment=345440)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
