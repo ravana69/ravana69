@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Visaranai &lpar;2015&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 3.7GB - ESub - [Direct + Drive]](https://www.1tamilmv.help/index.php?/forums/topic/172849-visaranai-2015-tamil-true-web-dl-1080p-avc-untouched-ddp51-37gb-esub-direct-drive/&do=findComment&comment=345431)
 - [Asalu &lpar;2023&rpar; Telugu Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172848-asalu-2023-telugu-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=345430)
 - [I Love You Idiot &lpar;2023&rpar; Telugu Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172847-i-love-you-idiot-2023-telugu-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=345429)
 - [Viduthalai Part 1 &lpar;2023&rpar; Tamil WEB-DL - 480p - AVC - UNTOUCHED - &lpar;AAC 2.0&rpar; - 1.3GB - HC-ESub - [Direct + Drive]](https://www.1tamilmv.help/index.php?/forums/topic/172846-viduthalai-part-1-2023-tamil-web-dl-480p-avc-untouched-aac-20-13gb-hc-esub-direct-drive/&do=findComment&comment=345428)
 - [N4 &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172845-n4-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=345427)
-- [The Offering &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.9GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172842-the-offering-2022-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-29gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=345426)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
