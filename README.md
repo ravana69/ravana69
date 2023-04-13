@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vattayila Panthalittu | Yathrakarude Sradhakku | P Jayachandran | KS Chithra |  Johnson | Kaithapram](https://www.youtube.com/watch?v=v491E-3r2eE)
+- [Kaanthaneshu Karaoke Track | Malayalam Christian Song Karaoke with Lyrics | Minus Tracks](https://www.youtube.com/watch?v=N1J42MlZIOM)
+- [Sruthiyamma Video Song | Biju Menon | Samyuktha Varma | KJ Yesudas | KS Chithra | Raveendran](https://www.youtube.com/watch?v=FPXsE9SSfRU)
+- [Njanum Neeyum Audio | Pailwaan Malayalam | Kichcha Sudeepa | Suniel Shetty | Krishna |Arjun Janya](https://www.youtube.com/watch?v=RaWuEBNOY7k)
 - [Poonthennal (Thailabhishekam) - Audio Song | Jaya-Vijaya | Vasudevan Panampalli | Saregama Malayalam](https://www.youtube.com/watch?v=l_2KNNGNkOM)
 - [Pinnayum Enakkuyil - Audio Song | Aalmaram | S. Janaki, K.J. Yesudas | Saregama Malaylam](https://www.youtube.com/watch?v=vcZwMwi8XrQ)
-- [Thaalam Kottedo Audio Song | Dear Comrade Malayalam| Vijay Deverakonda | Bharat Kamma](https://www.youtube.com/watch?v=smkwdaMIIHE)
-- [ഏതോ നിദ്രതൻ | Etho Nidrathan | Ayal Kadha Ezhuthukayanu | K.J. Yesudas| Mohan Lal| Nandini](https://www.youtube.com/watch?v=ApaJ83CT7_E)
-- [Sound Of Padavettu | Nivin Pauly, Aditi Balan | Liju Krishna | Govind Vasantha | Ranganaath Ravee](https://www.youtube.com/watch?v=jHT1PuPiBF8)
-- [യുവതലമുറ ആടിത്തിമിർത്ത  മലയാളസിനിമയിലെ ഹരം പകരുന്ന സൂപ്പർഹിറ്റ് ഡാൻസ് ഗാനങ്ങൾ |DANCE SONGS MALAYALAM](https://www.youtube.com/watch?v=x2nAh5pnAIY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
