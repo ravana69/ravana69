@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [📌 IDHARAMMAYILATHO &lpar;2013&rpar; &lpar;Music Video Album&rpar; - 1080P - BDREUMX - AVC - TEL DTS-HD® MA 5.1 @ 4.5M - ESubs - 5.6GB 〰️ [Avatar]](https://www.1tamilmv.help/index.php?/forums/topic/172851-%F0%9F%93%8C-idharammayilatho-2013-music-video-album-1080p-bdreumx-avc-tel-dts-hd%C2%AE-ma-51-45m-esubs-56gb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=345435)
+- [Viduthalai Part 1 &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.6GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.help/index.php?/forums/topic/172841-viduthalai-part-1-2023-tamil-web-dl-1080p-720p-avc-aac-26gb-13gb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=345434)
 - [I Love You Idiot &lpar;2023&rpar; Telugu &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC  - 2.9GB &amp; 1.6GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172837-i-love-you-idiot-2023-telugu-original-version-true-web-dl-1080p-720p-avc-29gb-16gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=345433)
 - [Varnajalam &lpar;2004&rpar;.Tamil.1080p.Amzn.10Bit.x265.AAC5.1.ESub - 2GB](https://www.1tamilmv.help/index.php?/forums/topic/172850-varnajalam-2004tamil1080pamzn10bitx265aac51esub-2gb/&do=findComment&comment=345432)
 - [Visaranai &lpar;2015&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 3.7GB - ESub - [Direct + Drive]](https://www.1tamilmv.help/index.php?/forums/topic/172849-visaranai-2015-tamil-true-web-dl-1080p-avc-untouched-ddp51-37gb-esub-direct-drive/&do=findComment&comment=345431)
-- [Asalu &lpar;2023&rpar; Telugu Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172848-asalu-2023-telugu-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=345430)
-- [I Love You Idiot &lpar;2023&rpar; Telugu Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172847-i-love-you-idiot-2023-telugu-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=345429)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
