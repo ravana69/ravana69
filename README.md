@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [14 April 2023](https://www.youtube.com/watch?v=ssohvkI0lk0)
+- [Gokulapala Balaka | Parthan Kanda Paralokam | Jassie Gift | M Jayachandran | Kaithapram](https://www.youtube.com/watch?v=q_mhyW9d3e0)
 - [Veerane Audio | Pailwaan Malayalam | Kichcha Sudeepa | Suniel Shetty | Krishna |Arjun Janya](https://www.youtube.com/watch?v=73xWPxMPAvI)
 - [Pinvili Kelkkuvan - Lyrical Video | Nizhal | G Venugopal | Sarayu](https://www.youtube.com/watch?v=YNNxOJnix8E)
 - [കേൾക്കുന്ന മാത്രയിൽ മനസിന് സന്തോഷം പ്രദാനം ചെയ്യുന്ന അസുലഭ ഗാനങ്ങൾ  | NISARI FILM SONGS](https://www.youtube.com/watch?v=QBte5wQxbHs)
 - [കേൾക്കാൻ മനസ്സ് കൊതിച്ച ആ പഴയ മനോഹരഗാനങ്ങൾ  | SUPERHIT SONGS OF SUPERHIT STARS](https://www.youtube.com/watch?v=a3tIHWErq7A)
-- [Pubukulla Machaney | Video Song | Point Range | Sainu Chavakkadan | Sarath Appani | Shiji Mohammed](https://www.youtube.com/watch?v=-lWlDvp4rrk)
-- [Va Va Pailwaan Audio | Pailwaan Malayalam | Kichcha Sudeepa | Suniel Shetty | Krishna |Arjun Janya](https://www.youtube.com/watch?v=6rz2HZmKObg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
