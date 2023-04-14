@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pranaya Vilasam &lpar;2023&rpar; Malayalam TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC 2.0&rpar; - 1.6GB - ESub - [Direct + Drive]](https://www.1tamilmv.help/index.php?/forums/topic/172878-pranaya-vilasam-2023-malayalam-true-web-dl-1080p-avc-untouched-aac-20-16gb-esub-direct-drive/&do=findComment&comment=345489)
+- [Vandicholai Chinnarasu &lpar;1994&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 2.2GB](https://www.1tamilmv.help/index.php?/forums/topic/172877-vandicholai-chinnarasu-1994tamil480phdtvx264aac20-22gb/&do=findComment&comment=345488)
+- [Pathu Thala &lpar;2023&rpar; Tamil WEB-DL - [1080p - 720p &amp; 480p - AVC - AAC - 2.7GB - 1.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.help/index.php?/forums/topic/172876-pathu-thala-2023-tamil-web-dl-1080p-720p-480p-avc-aac-27gb-16gb-14gb-800mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=345487)
 - [Jorthaale &lpar;From &quot;Rudhran&quot;&rpar; Master Quality 24bit - FLAC - Various Artists - 44 MB](https://www.1tamilmv.help/index.php?/forums/topic/172875-jorthaale-from-rudhran-master-quality-24bit-flac-various-artists-44-mb/&do=findComment&comment=345486)
 - [Kannai Nambathe &lpar;2023&rpar; NF WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 5 GB | 1.5 GB](https://www.1tamilmv.help/index.php?/forums/topic/172874-kannai-nambathe-2023-nf-web-dl-ddp51-esubs-x264-1080p-720p-5-gb-15-gb/&do=findComment&comment=345485)
-- [Kabzaa &lpar;2023&rpar; AMZN WEB-DL Multi DDP5.1 Esub - 2160p | 1080p | 720p - 16.2 GB | 9.5 GB | 4 GB](https://www.1tamilmv.help/index.php?/forums/topic/172873-kabzaa-2023-amzn-web-dl-multi-ddp51-esub-2160p-1080p-720p-162-gb-95-gb-4-gb/&do=findComment&comment=345484)
-- [Masooda &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172872-masooda-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=345483)
-- [Mrs Undercover &lpar;2023&rpar; Hindi Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172871-mrs-undercover-2023-hindi-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=345482)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
