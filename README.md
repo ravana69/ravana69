@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pathu Thala &lpar;2023&rpar; Tamil WEB-DL - 480p - AVC - UNTOUCHED - &lpar;AAC 2.0&rpar; - 1.4GB - HC-ESub - [Direct + Drive]](https://www.1tamilmv.help/index.php?/forums/topic/172880-pathu-thala-2023-tamil-web-dl-480p-avc-untouched-aac-20-14gb-hc-esub-direct-drive/&do=findComment&comment=345491)
+- [Kabzaa &lpar;2023&rpar; TRUE WEB-DL - 1080p HQ - HEVC x265- UNTOUCHED - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Malayalam + Kannada + Hindi] - 4.9GB - ESub - [Direct + Drive]](https://www.1tamilmv.help/index.php?/forums/topic/172879-kabzaa-2023-true-web-dl-1080p-hq-hevc-x265-untouched-dd51-640kbps-tamil-telugu-malayalam-kannada-hindi-49gb-esub-direct-drive/&do=findComment&comment=345490)
 - [Pranaya Vilasam &lpar;2023&rpar; Malayalam TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC 2.0&rpar; - 1.6GB - ESub - [Direct + Drive]](https://www.1tamilmv.help/index.php?/forums/topic/172878-pranaya-vilasam-2023-malayalam-true-web-dl-1080p-avc-untouched-aac-20-16gb-esub-direct-drive/&do=findComment&comment=345489)
 - [Vandicholai Chinnarasu &lpar;1994&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 2.2GB](https://www.1tamilmv.help/index.php?/forums/topic/172877-vandicholai-chinnarasu-1994tamil480phdtvx264aac20-22gb/&do=findComment&comment=345488)
 - [Pathu Thala &lpar;2023&rpar; Tamil WEB-DL - [1080p - 720p &amp; 480p - AVC - AAC - 2.7GB - 1.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.help/index.php?/forums/topic/172876-pathu-thala-2023-tamil-web-dl-1080p-720p-480p-avc-aac-27gb-16gb-14gb-800mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=345487)
-- [Jorthaale &lpar;From &quot;Rudhran&quot;&rpar; Master Quality 24bit - FLAC - Various Artists - 44 MB](https://www.1tamilmv.help/index.php?/forums/topic/172875-jorthaale-from-rudhran-master-quality-24bit-flac-various-artists-44-mb/&do=findComment&comment=345486)
-- [Kannai Nambathe &lpar;2023&rpar; NF WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 5 GB | 1.5 GB](https://www.1tamilmv.help/index.php?/forums/topic/172874-kannai-nambathe-2023-nf-web-dl-ddp51-esubs-x264-1080p-720p-5-gb-15-gb/&do=findComment&comment=345485)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
