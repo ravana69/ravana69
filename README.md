@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കേൾക്കുന്ന മാത്രയിൽ മനസിന് സന്തോഷം പ്രദാനം ചെയ്യുന്ന അസുലഭ ഗാനങ്ങൾ  | NISARI FILM SONGS](https://www.youtube.com/watch?v=QBte5wQxbHs)
+- [കേൾക്കാൻ മനസ്സ് കൊതിച്ച ആ പഴയ മനോഹരഗാനങ്ങൾ  | SUPERHIT SONGS OF SUPERHIT STARS](https://www.youtube.com/watch?v=a3tIHWErq7A)
+- [Pubukulla Machaney | Video Song | Point Range | Sainu Chavakkadan | Sarath Appani | Shiji Mohammed](https://www.youtube.com/watch?v=-lWlDvp4rrk)
 - [Va Va Pailwaan Audio | Pailwaan Malayalam | Kichcha Sudeepa | Suniel Shetty | Krishna |Arjun Janya](https://www.youtube.com/watch?v=6rz2HZmKObg)
 - [Making Video of RDX | Shane Nigam | Sam CS | Nahas Hidhayath | Saregama Malayalam](https://www.youtube.com/watch?v=SWZVjTYR-nI)
 - [Vrichka Krishnashtami - Audio Song | P. Jayachandran | Oduvil Unnikrishnan | Saregama Malayalam](https://www.youtube.com/watch?v=EGgihZyx1nQ)
-- [Songs Of The Week | Madhu Balakrishnan | KG Markose | Christian Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=xQG8Gxl7XSM)
-- [Pakaruka Nee | Pakal Nakshathrangal | Shahabaz Aman | Mohanlal | Anoop Menon | Hariharan | Renjith](https://www.youtube.com/watch?v=eNM3FDOyk5Y)
-- [Jeevante Jeevanaam |Christian Devotional Songs Malayalam | Sreya Jayadeep |  Joby Kavalam|Joji Johns](https://www.youtube.com/watch?v=hao_g9di54c)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
