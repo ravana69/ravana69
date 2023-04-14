@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ghosty &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - AAC - 2.4GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172881-ghosty-2023-tamil-true-web-dl-1080p-720p-avc-hevc-aac-24gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=345539)
 - [ManoramaMAX 225 Movies {A-Z} Collection - AMZN - [ 1080p  - 1500GB &amp; 720p 800GB ] - AVC - UNTOUCHED - AC-3/AAC - DD5. 1/2.0 - x264 - REVOLT](https://www.1tamilmv.help/index.php?/forums/topic/157704-manoramamax-225-movies-a-z-collection-amzn-1080p-1500gb-720p-800gb-avc-untouched-ac-3aac-dd5-120-x264-revolt/&do=findComment&comment=345538)
 - [📌 |4K| - KABZAA &lpar;2023&rpar; [Kan + Tel + Tam + Mal + Hin] &lpar;Music Video Album&rpar; - HQ 4K - AMZN - CBR WEBDL - H265 - MULTI DDP 5.1 @ 640K - SoftESubs - 3.2GB](https://www.1tamilmv.help/index.php?/forums/topic/172906-%F0%9F%93%8C-4k-kabzaa-2023-kan-tel-tam-mal-hin-music-video-album-hq-4k-amzn-cbr-webdl-h265-multi-ddp-51-640k-softesubs-32gb/&do=findComment&comment=345537)
 - [Crawl &lpar;2019&rpar; Open Matte WEBRip 1080p Multi Original Audios [Telugu+Tamil + Hindi &lpar;DD5.1 - 640Kbps&rpar; + English &lpar;DD5.1 - 448Kbps&rpar;] - AC3 - 4 4GB - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172870-crawl-2019-open-matte-webrip-1080p-multi-original-audios-telugutamil-hindi-dd51-640kbps-english-dd51-448kbps-ac3-4-4gb-esub/&do=findComment&comment=345536)
 - [Rudhran &lpar;2023&rpar; Telugu Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172905-rudhran-2023-telugu-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=345535)
-- [Soppana Sundari &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172904-soppana-sundari-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=345534)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
