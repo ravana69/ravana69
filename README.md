@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Rudhran &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.help/index.php?/forums/topic/172886-rudhran-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=345532)
 - [Thiruvin Kural &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172902-thiruvin-kural-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=345531)
 - [Rudhran &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.help/index.php?/forums/topic/172886-rudhran-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=345530)
 - [Thiruvin Kural &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.help/index.php?/forums/topic/172889-thiruvin-kural-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=345529)
 - [Shaakuntalam &lpar;2023&rpar; Telugu Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172901-shaakuntalam-2023-telugu-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=345528)
-- [Shaakuntalam &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172900-shaakuntalam-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=345527)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
