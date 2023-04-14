@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Jorthaale &lpar;From &quot;Rudhran&quot;&rpar; Master Quality 24bit - FLAC - Various Artists - 44 MB](https://www.1tamilmv.help/index.php?/forums/topic/172875-jorthaale-from-rudhran-master-quality-24bit-flac-various-artists-44-mb/&do=findComment&comment=345486)
+- [Kannai Nambathe &lpar;2023&rpar; NF WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 5 GB | 1.5 GB](https://www.1tamilmv.help/index.php?/forums/topic/172874-kannai-nambathe-2023-nf-web-dl-ddp51-esubs-x264-1080p-720p-5-gb-15-gb/&do=findComment&comment=345485)
+- [Kabzaa &lpar;2023&rpar; AMZN WEB-DL Multi DDP5.1 Esub - 2160p | 1080p | 720p - 16.2 GB | 9.5 GB | 4 GB](https://www.1tamilmv.help/index.php?/forums/topic/172873-kabzaa-2023-amzn-web-dl-multi-ddp51-esub-2160p-1080p-720p-162-gb-95-gb-4-gb/&do=findComment&comment=345484)
 - [Masooda &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172872-masooda-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=345483)
 - [Mrs Undercover &lpar;2023&rpar; Hindi Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172871-mrs-undercover-2023-hindi-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=345482)
-- [Kabzaa &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 8.4GB - 4.2GB - 2.4GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172863-kabzaa-2023-telugu-true-web-dl-4k-1080p-720p-hevc-avc-84gb-42gb-24gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=345481)
-- [Pathu Thala &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.6GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.help/index.php?/forums/topic/172859-pathu-thala-2023-tamil-web-dl-1080p-720p-avc-aac-26gb-13gb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=345480)
-- [Das Ka Dhamki &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 4GB - 2.7GB - 1.7GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172864-das-ka-dhamki-2023-telugu-true-web-dl-4k-1080p-720p-hevc-avc-4gb-27gb-17gb-14gb-950mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=345479)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
