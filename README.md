@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kannai Nambathey &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.2GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172861-kannai-nambathey-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-52gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=345475)
+- [Pathu Thala &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.6GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.help/index.php?/forums/topic/172859-pathu-thala-2023-tamil-web-dl-1080p-720p-avc-aac-26gb-13gb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=345474)
 - [Crawl &lpar;2019&rpar; Open Matte WEBRip 1080p Multi Original Audios [Telugu+Tamil + Hindi &lpar;DD5.1 - 640Kbps&rpar; + English &lpar;DD5.1 - 448Kbps&rpar;] - AC3 - 4 4GB - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172870-crawl-2019-open-matte-webrip-1080p-multi-original-audios-telugutamil-hindi-dd51-640kbps-english-dd51-448kbps-ac3-4-4gb-esub/&do=findComment&comment=345473)
 - [Masooda &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.4GB - 2.6GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172860-masooda-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-34gb-26gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=345472)
 - [Kannai Nambathey &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.2GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172861-kannai-nambathey-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-52gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=345471)
-- [Pathu Thala &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.6GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.help/index.php?/forums/topic/172859-pathu-thala-2023-tamil-web-dl-1080p-720p-avc-aac-26gb-13gb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=345470)
-- [Pathu Thala &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.6GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.help/index.php?/forums/topic/172859-pathu-thala-2023-tamil-web-dl-1080p-720p-avc-aac-26gb-13gb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=345469)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
