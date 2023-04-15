@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mangalyam Theme Audio | Pailwaan Malayalam | Kichcha Sudeepa | Suniel Shetty | Krishna](https://www.youtube.com/watch?v=uENa1dvCt28)
 - [Nachiyar Thirumozhi Music Video | Divya  Anand | Shravan Sridhar |Deepika Varadarajan |Mahesh Murali](https://www.youtube.com/watch?v=tUQPhooviVs)
 - [Dhoore Etho Cheruvil Studio Recording | Pulli Movie | Bijibal | Jiju Asokan](https://www.youtube.com/watch?v=DdS09hCoa80)
 - [#RDX shoot in progress | Shane Nigam | Sam CS | Nahas Hidhayath | Saregama Malayalam](https://www.youtube.com/watch?v=teOGxXD2rpc)
 - [Varika Parisudhathmave | Shorts | Reji Abraham | Elizabeth Raju](https://www.youtube.com/watch?v=Dvj_YRTDtfk)
 - [മലയാളികളായ എല്ലാവരും ഒരേ മനസോടെ ആസ്വദിക്കുന്ന പുതിയ സിനിമകളിലെ മതി മറക്കും ഗാനങ്ങൾ | EVERGREEN HITS](https://www.youtube.com/watch?v=wxrgC1A5oMg)
-- [കാലങ്ങൾ എത്ര മറഞ്ഞുപോയാലും ഓർമ്മകളെ തട്ടിയുണർത്തുന്ന പഴയ സുന്ദരഗാനങ്ങൾ | NISARI FILM SONGS MALAYALAM](https://www.youtube.com/watch?v=7Iwa3L6XFvg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
