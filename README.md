@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ജന ഹൃദയങ്ങളിലേറി മൂന്നാം വാരത്തിലേക്ക് | EVM Cherthala | Kallanum Bhagavathiyum](https://www.youtube.com/watch?v=--8ewVFpsQo)
+- [Happy Vishu | Kallanum Bhagavathiyum | Vishu Greetings | Vishu Status | Vishu 2023](https://www.youtube.com/watch?v=6GDLHTIBc1Q)
 - [Omakaram (Revival) - Audio Song | Kumarasambha Vam | K.J.Yesudas | G. Devarajan | Saregama Malayalam](https://www.youtube.com/watch?v=4z0yMIrmWiA)
 - [Konnapoove Kingini Poove | Ammaye Kanan | K Raghavan | P Bhaskaran | S Janaki | Ambika](https://www.youtube.com/watch?v=I3xXBk-PL8s)
 - [Christian Video Songs Malayalam |Rithuraj | Madhu Balakrishnan | Christian Superhit Songs|Joji Johns](https://www.youtube.com/watch?v=-mdYki_nJ3c)
 - [Medaponnaniyum | Devasuram | Mohanlal | Revathy | MG Sreekumar | MG Radhakrishnan | Innocent](https://www.youtube.com/watch?v=LDMeK_b5uTM)
-- [Kanneeral Thengiyille | KG Markose | Christian Songs Malayalam | Anil Paravoor | Joji Johns](https://www.youtube.com/watch?v=ccvfoVUNrB0)
-- [Dhruvataare Audio | Pailwaan Malayalam | Kichcha Sudeepa | Suniel Shetty | Krishna |Arjun Janya](https://www.youtube.com/watch?v=lFoW9yj_Bb0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
