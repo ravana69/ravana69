@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ashwathama &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 192Kbps&rpar; [Tamil + Malayalam + Kannada] - 2.8GB - 1.6GB &amp; 1GB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172915-ashwathama-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-malayalam-kannada-28gb-16gb-1gb-x264-750mb-450mb-esub/&do=findComment&comment=345570)
 - [Nalla Samayam &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 1.9GB &amp; 1.1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172918-nalla-samayam-2022-malayalam-true-web-dl-1080p-720p-avc-aac-19gb-11gb-x264-700mb-400mb-esub/&do=findComment&comment=345569)
+- [Kannai Nambathey &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB - 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172916-kannai-nambathey-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-25gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=345567)
 - [Ashwathama &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 192Kbps&rpar; [Tamil + Malayalam + Kannada] - 2.8GB - 1.6GB &amp; 1GB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172915-ashwathama-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-malayalam-kannada-28gb-16gb-1gb-x264-750mb-450mb-esub/&do=findComment&comment=345566)
 - [📌 |4K|- KANCHANA - 3 &lpar;2019&rpar; &lpar;Music Video Album&rpar; - 2160P - HDR10+DV - SNXT - WEBDL - H265 - TAM DDP 5.1 ATMOS @ 448K - ESUBS - 2.4GB〰️ [Avatar]](https://www.1tamilmv.help/index.php?/forums/topic/172914-%F0%9F%93%8C-4k-kanchana-3-2019-music-video-album-2160p-hdr10dv-snxt-webdl-h265-tam-ddp-51-atmos-448k-esubs-24gb%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=345565)
-- [Ravi Bopanna &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+2.0 - 224Kbps&rpar; - 2.6GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172913-ravi-bopanna-2022-kannada-true-web-dl-1080p-720p-avc-dd20-224kbps-26gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=345564)
-- [Dungeons.And.Dragons.2000 AAC 2.0 Tamil + AAC 2.0 Hindi + AAC 5.1 English 1080p.BluRay.H264.AAC [Go-file]](https://www.1tamilmv.help/index.php?/forums/topic/156126-dungeonsanddragons2000-aac-20-tamil-aac-20-hindi-aac-51-english-1080pblurayh264aac-go-file/&do=findComment&comment=345563)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
