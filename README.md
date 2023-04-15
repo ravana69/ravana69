@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളികളായ എല്ലാവരും ഒരേ മനസോടെ ആസ്വദിക്കുന്ന പുതിയ സിനിമകളിലെ മതി മറക്കും ഗാനങ്ങൾ | EVERGREEN HITS](https://www.youtube.com/watch?v=wxrgC1A5oMg)
+- [കാലങ്ങൾ എത്ര മറഞ്ഞുപോയാലും ഓർമ്മകളെ തട്ടിയുണർത്തുന്ന പഴയ സുന്ദരഗാനങ്ങൾ | NISARI FILM SONGS MALAYALAM](https://www.youtube.com/watch?v=7Iwa3L6XFvg)
 - [Vanne Vanne Pailwaan - Theme Audio Song | Pailwaan Malayalam | Kichcha Sudeepa | Krishna](https://www.youtube.com/watch?v=gUvmoiEC_Yk)
 - [Pranapriya Yeshunadha | Shorts | Seline Jose](https://www.youtube.com/watch?v=w-AiDss_blM)
 - [Thallapetta Enne Ninte | Shorts | Seline Jose](https://www.youtube.com/watch?v=qjrlRQOg7tw)
 - [Ente Sneham Ninakku Mathram | Pranapriya | Shorts | Seline Jose](https://www.youtube.com/watch?v=OAl_luESLnA)
-- [Ente Dhanavum Maanamellam | Pranapriya | Seline Jose](https://www.youtube.com/watch?v=Pv3vknXjliA)
-- [ജന ഹൃദയങ്ങളിലേറി മൂന്നാം വാരത്തിലേക്ക് | EVM Cherthala | Kallanum Bhagavathiyum](https://www.youtube.com/watch?v=--8ewVFpsQo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
