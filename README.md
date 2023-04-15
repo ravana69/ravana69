@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Christian Superhit Songs | Rajkumar Radhakrishnan | Christian Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=uLy0p7lZDL8)
+- [Mahavaidyanam Eeshoye | Christian Video Song | Rithuraj | Joji Johns | Roy Kanichar |Christian Song](https://www.youtube.com/watch?v=5_VolySWndU)
 - [Kani kaanum neram | Vishu | Krishapriya](https://www.youtube.com/watch?v=dDQBlnAcR0o)
 - [Poovenam Poopada Venam | Oru Minnaminunginte Nurunguvettam | Nedumudi Venu | Sharada | Parvathi](https://www.youtube.com/watch?v=KL5DhiRnlgc)
 - [Kannipenne En Munnil Video Song | Manikuttan | Bhama | MG Sreekumar | Gayathri Varma| Berny Ignatius](https://www.youtube.com/watch?v=hHTdd_OuCRY)
 - [ശ്രീ മഹാദേവ ക്ഷേത്ര സന്നിധിയിൽ  അന്നദാനത്തിന് ഭഗവതി എത്തിയപ്പോൾ  | Mokksha | Kallanum Bhagavathiyum](https://www.youtube.com/watch?v=iOKNyeVqfGM)
-- [Mangalyam Theme Audio | Pailwaan Malayalam | Kichcha Sudeepa | Suniel Shetty | Krishna](https://www.youtube.com/watch?v=uENa1dvCt28)
-- [Nachiyar Thirumozhi Music Video | Divya  Anand | Shravan Sridhar |Deepika Varadarajan |Mahesh Murali](https://www.youtube.com/watch?v=tUQPhooviVs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
