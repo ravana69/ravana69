@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Dungeons.and.Dragons.The.Book.of.Vile.Darkness.2012 Tamil + Telugu + Hindi + English &lpar;AAC2.0 320kbps&rpar; 1080p.Blu-Ray.H264.AAC](https://www.1tamilmv.help/index.php?/forums/topic/156108-dungeonsanddragonsthebookofviledarkness2012-tamil-telugu-hindi-english-aac20-320kbps-1080pblu-rayh264aac/&do=findComment&comment=345608)
+- [Jorthaale &lpar;From &quot;Rudhran&quot;&rpar; Master Quality 24bit - FLAC - Various Artists - 44 MB](https://www.1tamilmv.help/index.php?/forums/topic/172875-jorthaale-from-rudhran-master-quality-24bit-flac-various-artists-44-mb/&do=findComment&comment=345607)
 - [Thennavan &lpar;2003&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 2GB](https://www.1tamilmv.help/index.php?/forums/topic/172932-thennavan-2003tamil480phdtvx264aac20-2gb/&do=findComment&comment=345606)
 - [The Ghost And The Darkness 1996 AAC 2.0 Tamil-Hindi-DTS 5.1 English-Russian  1080p Blu-Ray Msubs 6 GB  [G-Drive]](https://www.1tamilmv.help/index.php?/forums/topic/172931-the-ghost-and-the-darkness-1996-aac-20-tamil-hindi-dts-51-english-russian-1080p-blu-ray-msubs-6-gb-g-drive/&do=findComment&comment=345605)
 - [The MarksMan &lpar;2021&rpar; Open Matte 1080p WEBRip Multi Original Audios [ English + &lpar; Telugu+Tamil+Hindi&rpar; &lpar;DD5.1 - 448bps&rpar; ] - AC3 - x264 - 4GB -  ESubs](https://www.1tamilmv.help/index.php?/forums/topic/172930-the-marksman-2021-open-matte-1080p-webrip-multi-original-audios-english-telugutamilhindi-dd51-448bps-ac3-x264-%C2%A04gb-esubs/&do=findComment&comment=345604)
-- [Drama &lpar;2022&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC / HEVC - AAC - 2.8GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB]](https://www.1tamilmv.help/index.php?/forums/topic/172929-drama-2022-tamil-web-dl-1080p-720p-avc-hevc-aac-28gb-13gb-800mb-x264-700mb-400mb/&do=findComment&comment=345603)
-- [Drama &lpar;2022&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC / HEVC - AAC - 2.8GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB]](https://www.1tamilmv.help/index.php?/forums/topic/172929-drama-2022-tamil-web-dl-1080p-720p-avc-hevc-aac-28gb-13gb-800mb-x264-700mb-400mb/&do=findComment&comment=345602)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
