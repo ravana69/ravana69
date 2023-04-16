@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Indhu pushpam choodi nilkum rathri | Freestyle | Aparna](https://www.youtube.com/watch?v=6YSjSQdBbu0)
+- [Kadavath Thoni Aduthapol-Murapennu(1965) | S Janaki | P Bhaskaran | ‎B.A Chidambaranath | Film Songs](https://www.youtube.com/watch?v=M4_TUCzE8B4)
+- [Nadodi Theyyavum #shortsyoutube #youtubeshorts #bestmelodysongs #babyshalini #dileep](https://www.youtube.com/watch?v=QYDOTibbWnQ)
 - [പാട്ടുപെട്ടി  Vol 3 | Malayalam Film Songs](https://www.youtube.com/watch?v=RN8JWQ7b19Q)
 - [തിരഞ്ഞെടുത്ത അനശ്വര ക്രിസ്തീയ ഗാനങ്ങൾ  | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=1rJbpuRZIAQ)
 - [Kaahalam Vaanil Muzhangidumbol | Worship Songs | Reji Abraham | Elizabeth Raju](https://www.youtube.com/watch?v=RhUPU2NmxmI)
-- [Sathruvin Kotta Thakartheeduvan | Worship Songs | Reji Abraham | Elizabeth Raju](https://www.youtube.com/watch?v=5Cj1IgDDqZk)
-- [Kannare Kannare | Rakshasarajavu | Mammootty | Dileep | Meena | KS Chithra | MG Sreekumar](https://www.youtube.com/watch?v=pWYj4DX9gmo)
-- [Daivathin Jeevajalanadhiyil | Worship Songs | Reji Abraham | Elizabeth Raju](https://www.youtube.com/watch?v=xinqCKEBxVI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
