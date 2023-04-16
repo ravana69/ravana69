@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Last Kingdom: Seven Kings Must Die &lpar;2023&rpar; NF WEB-DL MULTI DDP5.1 Esubs x264 - 1080p | 720p - 6.1 GB | 3.1 GB](https://www.1tamilmv.help/index.php?/forums/topic/172922-the-last-kingdom-seven-kings-must-die-2023-nf-web-dl-multi-ddp51-esubs-x264-1080p-720p-61-gb-31-gb/&do=findComment&comment=345576)
 - [Nalla Samayam &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 1.9GB &amp; 1.1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172918-nalla-samayam-2022-malayalam-true-web-dl-1080p-720p-avc-aac-19gb-11gb-x264-700mb-400mb-esub/&do=findComment&comment=345575)
 - [Ashwathama &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 192Kbps&rpar; [Tamil + Malayalam + Kannada] - 2.8GB - 1.6GB &amp; 1GB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172915-ashwathama-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-malayalam-kannada-28gb-16gb-1gb-x264-750mb-450mb-esub/&do=findComment&comment=345574)
 - [Game Of Thrones Complete S06 Merged - 1080p - 720p 10Bit BluRay 6CH [&lpar;English - AAC5.1&rpar;] x265 - ESub [Google Drive]](https://www.1tamilmv.help/index.php?/forums/topic/172921-game-of-thrones-complete-s06-merged-1080p-720p-10bit-bluray-6ch-english-aac51-x265-esub-google-drive/&do=findComment&comment=345573)
 - [Red &lpar;2010&rpar; Open Matte WEBRip 1080p Multi Original Audios [ English + &lpar; Telugu+Tamil+Hindi&rpar; &lpar;DD5.1 - 224Kbps&rpar; ] - AC3 - x264 - 4.8GB - ESubs.mkv](https://www.1tamilmv.help/index.php?/forums/topic/172920-red-2010-open-matte-webrip-1080p-multi-original-audios-english-telugutamilhindi-dd51-224kbps-ac3-x264-48gb-esubsmkv/&do=findComment&comment=345572)
-- [Khosty &lpar;2023&rpar; Telugu &lpar;HD + HQ Line Audio&rpar; - [1080p &amp; 720p - x264 - 2.3GB - 1.4GB | x264 - 700MB &amp; 400MB]](https://www.1tamilmv.help/index.php?/forums/topic/172919-khosty-2023-telugu-hd-hq-line-audio-1080p-720p-x264-23gb-14gb-x264-700mb-400mb/&do=findComment&comment=345571)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
