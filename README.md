@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pathu Thala &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.6GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.help/index.php?/forums/topic/172859-pathu-thala-2023-tamil-web-dl-1080p-720p-avc-aac-26gb-13gb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=345614)
 - [John Wick Trilogy &lpar;2014 - 2019&rpar; &lpar;BluRay + v2 Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Kannada + Eng&rpar; - 20GB - 10GB &amp; 4.1GB | x264 - &lpar;Tam + Tel + Hin + Kan&rpar; - 1.5GB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172459-john-wick-trilogy-2014-2019-bluray-v2-original-audios-4k-1080p-720p-x264-tamil-telugu-hindi-kannada-%C2%A0eng-20gb-10gb-41gb-x264-tam-tel-hin-kan-15gb-esub/&do=findComment&comment=345613)
 - [Iron Man Trilogy &lpar;2008 - 2013&rpar;  UDH BluRay HDR 2160p 4K - HEVC 10bits MULTI ORIGINAL AUDIOS [ ENGLISH + TELUGU &lpar;448Kbps&rpar; + TAMIL &lpar;448Kbps&rpar; + Hindi &lpar;448Kbps/640Kbps&rpar;] - AC3 - x265 - 25GB - ESub](https://www.1tamilmv.help/index.php?/forums/topic/171763-iron-man-trilogy-2008-2013-udh-bluray-hdr-2160p-4k-hevc-10bits-multi-original-audios-english-telugu-448kbps-tamil-448kbps-hindi-448kbps640kbps-ac3-x265-25gb-esub/&do=findComment&comment=345612)
 - [Ashwathama &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 192Kbps&rpar; [Tamil + Malayalam + Kannada] - 2.8GB - 1.6GB &amp; 1GB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172915-ashwathama-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-malayalam-kannada-28gb-16gb-1gb-x264-750mb-450mb-esub/&do=findComment&comment=345611)
 - [Drama &lpar;2022&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC / HEVC - AAC - 2.8GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB]](https://www.1tamilmv.help/index.php?/forums/topic/172929-drama-2022-tamil-web-dl-1080p-720p-avc-hevc-aac-28gb-13gb-800mb-x264-700mb-400mb/&do=findComment&comment=345610)
-- [Ashwathama &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 192Kbps&rpar; [Tamil + Malayalam + Kannada] - 2.8GB - 1.6GB &amp; 1GB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172915-ashwathama-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-malayalam-kannada-28gb-16gb-1gb-x264-750mb-450mb-esub/&do=findComment&comment=345609)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
