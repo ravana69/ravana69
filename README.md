@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Nalla Samayam &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 1.9GB &amp; 1.1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172918-nalla-samayam-2022-malayalam-true-web-dl-1080p-720p-avc-aac-19gb-11gb-x264-700mb-400mb-esub/&do=findComment&comment=345632)
+- [Viduthalai Part 1 &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.6GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.help/index.php?/forums/topic/172841-viduthalai-part-1-2023-tamil-web-dl-1080p-720p-avc-aac-26gb-13gb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=345631)
+- [Pathu Thala &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.6GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.help/index.php?/forums/topic/172859-pathu-thala-2023-tamil-web-dl-1080p-720p-avc-aac-26gb-13gb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=345630)
+- [Vedikkettu &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172927-vedikkettu-2023-malayalam-true-web-dl-1080p-720p-avc-aac-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=345629)
 - [Drama &lpar;2022&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC / HEVC - AAC - 2.8GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB]](https://www.1tamilmv.help/index.php?/forums/topic/172929-drama-2022-tamil-web-dl-1080p-720p-avc-hevc-aac-28gb-13gb-800mb-x264-700mb-400mb/&do=findComment&comment=345628)
-- [Nigoodam &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.help/index.php?/forums/topic/172933-nigoodam-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-384kbps-29gb-14gb-x264-700mb-400mb/&do=findComment&comment=345627)
-- [65 &lpar;2023&rpar; HQ HDRip - x264 - Tam - 3D Virtual Surround Sound 5.1 - 553MB &lpar;ForMobile Viewing with Normal Headphones&rpar;](https://www.1tamilmv.help/index.php?/forums/topic/172934-65-2023-hq-hdrip-x264-tam-3d-virtual-surround-sound-51-553mb-formobile-viewing-with-normal-headphones/&do=findComment&comment=345626)
-- [The Ghost And The Darkness 1996 AAC 2.0 Tamil-Hindi-DTS 5.1 English-Russian  1080p Blu-Ray Msubs 6 GB  [G-Drive]](https://www.1tamilmv.help/index.php?/forums/topic/172931-the-ghost-and-the-darkness-1996-aac-20-tamil-hindi-dts-51-english-russian-1080p-blu-ray-msubs-6-gb-g-drive/&do=findComment&comment=345625)
-- [Thennavan &lpar;2003&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 2GB](https://www.1tamilmv.help/index.php?/forums/topic/172932-thennavan-2003tamil480phdtvx264aac20-2gb/&do=findComment&comment=345624)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
