@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Teaser | 𝔸𝕍𝔸𝕃 - ℝ𝕠𝕞𝕒𝕟𝕥𝕚𝕔 𝕄𝕒𝕝𝕒𝕪𝕒𝕝𝕒𝕞 𝔸𝕝𝕓𝕦𝕞 | 𝔹𝕚𝕛𝕦 ℕ𝕒𝕣𝕒𝕪𝕒𝕟𝕒𝕟 | ℝ𝕒𝕕𝕙𝕚𝕜𝕒 𝔸𝕤𝕙𝕠𝕜](https://www.youtube.com/watch?v=MMg2hdZThVo)
+- [Nilavinte | Agnidevan | Mohanlal | Revathy |  Gireesh Puthanchery | MG Radakrishnan |](https://www.youtube.com/watch?v=px1lLila0Ks)
 - [17 April 2023](https://www.youtube.com/watch?v=Xtt9elOYSOY)
 - [Chandhanathennalaay |Vaidooryam |Re Mastered Fim Songs |Vidyasagar |K  S Chitra |Bichu Thirumala](https://www.youtube.com/watch?v=QwnxizT1O_I)
 - [Christian Superhit Songs | Manoj Christy | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=PnIpboVD4Ao)
 - [തലമുറകൾ പലതു വന്നിട്ടും  ഇന്നും പുതുമ നശിക്കാത്ത  സിനിമ ഗാനങ്ങൾ |Evergreen Malayalam Film Songs |](https://www.youtube.com/watch?v=BEm2eeB_Xnc)
-- [Kanne Unaroo Nee | Kunjikkoonnan | Sujatha Mohan | Mohan Sithara | Yusufali Kechery](https://www.youtube.com/watch?v=gBWjZ_y1feM)
-- [💔കാത്തിരിക്കുകയാണ് വീണ്ടുമൊരു മഴക്കായ്💔](https://www.youtube.com/watch?v=23vGxEMhNP8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
