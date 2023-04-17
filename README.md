@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Shahzam.Fury.Of.The.God.[2023] DDP5.1 Tamil-Telugu-Hindi-English 1080p.10bit.[60FPS].WEBRIP.x265.HEVC Msubs 8GB [G-Drive]](https://www.1tamilmv.help/index.php?/forums/topic/172938-shahzamfuryofthegod2023-ddp51-tamil-telugu-hindi-english-1080p10bit60fpswebripx265hevc-msubs-8gb-g-drive/&do=findComment&comment=345637)
+- [4K LIVE🔴 | RCB vs CSK | IPL MATCH 24 | ENG HIN TAM TEL KAN MAL | 〰️ [Avatar]](https://www.1tamilmv.help/index.php?/forums/topic/172937-4k-live%F0%9F%94%B4-rcb-vs-csk-ipl-match-24-eng-hin-tam-tel-kan-mal-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=345636)
+- [📌 SURA &lpar;2010&rpar; &amp;nbsp;[#UC] &lpar;Music Video Album&rpar; - 1080P - WEBDL - H264 - #KAN AAC 2.0 @ 192 Kbps / #TAM* DD® 5.1 @ 448 Kbps - #DVD Sync - ESubs - 1.6GB](https://www.1tamilmv.help/index.php?/forums/topic/172935-%F0%9F%93%8C-sura-2010-nbspuc-music-video-album-1080p-webdl-h264-kan-aac-20-192-kbps-tam-dd%C2%AE-51-448-kbps-dvd-sync-esubs-16gb/&do=findComment&comment=345634)
 - [Dungeons.and.Dragons.The.Book.of.Vile.Darkness.2012 Tamil + Telugu + Hindi + English &lpar;AAC2.0 320kbps&rpar; 1080p.Blu-Ray.H264.AAC](https://www.1tamilmv.help/index.php?/forums/topic/156108-dungeonsanddragonsthebookofviledarkness2012-tamil-telugu-hindi-english-aac20-320kbps-1080pblu-rayh264aac/&do=findComment&comment=345633)
 - [Nalla Samayam &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 1.9GB &amp; 1.1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172918-nalla-samayam-2022-malayalam-true-web-dl-1080p-720p-avc-aac-19gb-11gb-x264-700mb-400mb-esub/&do=findComment&comment=345632)
-- [Viduthalai Part 1 &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.6GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.help/index.php?/forums/topic/172841-viduthalai-part-1-2023-tamil-web-dl-1080p-720p-avc-aac-26gb-13gb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=345631)
-- [Pathu Thala &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.6GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.help/index.php?/forums/topic/172859-pathu-thala-2023-tamil-web-dl-1080p-720p-avc-aac-26gb-13gb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=345630)
-- [Vedikkettu &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172927-vedikkettu-2023-malayalam-true-web-dl-1080p-720p-avc-aac-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=345629)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
