@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kanne Unaroo Nee | Kunjikkoonnan | Sujatha Mohan | Mohan Sithara | Yusufali Kechery](https://www.youtube.com/watch?v=gBWjZ_y1feM)
+- [💔കാത്തിരിക്കുകയാണ് വീണ്ടുമൊരു മഴക്കായ്💔](https://www.youtube.com/watch?v=23vGxEMhNP8)
 - [Jinga Jinga - Making Video | Jawanum Mullapoovum | Sumesh, Sshivada | Mathai Sunil](https://www.youtube.com/watch?v=92Ry8Zo_im0)
 - [Onnu Thodanullil | Yathrakarude Sradhakku | Jyotsna | Johnson | Kaithapram](https://www.youtube.com/watch?v=Dg9qoa2zFKI)
 - [The Canteen Audio Song - Dear Comrade Malayalam | Vijay Deverakonda, Rashmika | Bharat Kamma](https://www.youtube.com/watch?v=v5ltp4J3shQ)
 - [Kadha Paranjurangiya Song | Biju Menon | Samyuktha Varma | KJ Yesudas | Vidyasagar| Yusufali Kecheri](https://www.youtube.com/watch?v=vqcdX6KmPGA)
-- [അമ്മുമ്മക്കിളി വായാടി | Evergreen Hits | Mohanlal , Pooja Batra , Sukanya | Chandralekha](https://www.youtube.com/watch?v=lISXyCd59DA)
-- [ചോറ്റാനിക്കര ദേവീ സന്നിധിയിൽ കുറെ നിമിഷങ്ങൾ | Mokksha | East Coast Vijayan | Kallanum Bhagavathiyum](https://www.youtube.com/watch?v=z31dFSNKrOk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
