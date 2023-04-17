@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Jinga Jinga - Making Video | Jawanum Mullapoovum | Sumesh, Sshivada | Mathai Sunil](https://www.youtube.com/watch?v=92Ry8Zo_im0)
+- [Onnu Thodanullil | Yathrakarude Sradhakku | Jyotsna | Johnson | Kaithapram](https://www.youtube.com/watch?v=Dg9qoa2zFKI)
+- [The Canteen Audio Song - Dear Comrade Malayalam | Vijay Deverakonda, Rashmika | Bharat Kamma](https://www.youtube.com/watch?v=v5ltp4J3shQ)
+- [Kadha Paranjurangiya Song | Biju Menon | Samyuktha Varma | KJ Yesudas | Vidyasagar| Yusufali Kecheri](https://www.youtube.com/watch?v=vqcdX6KmPGA)
 - [അമ്മുമ്മക്കിളി വായാടി | Evergreen Hits | Mohanlal , Pooja Batra , Sukanya | Chandralekha](https://www.youtube.com/watch?v=lISXyCd59DA)
 - [ചോറ്റാനിക്കര ദേവീ സന്നിധിയിൽ കുറെ നിമിഷങ്ങൾ | Mokksha | East Coast Vijayan | Kallanum Bhagavathiyum](https://www.youtube.com/watch?v=z31dFSNKrOk)
-- [ആദ്യമായി കേട്ടനാൾ തൊട്ട് ഹൃദയത്തിന്റെ വടക്ക് കിഴക്ക്  അറ്റത്ത് സൂക്ഷിച്ചുവെച്ച മധുരമുള്ള ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=8UrxCOv4wuI)
-- [Manya Mahajanangale  | Karaoke Video | Malarvaadi Arts Club | Vineeth Sreenivasan | Shaan Rahman](https://www.youtube.com/watch?v=VLloDbcdkLg)
-- [ദൂരെ ദൂരെ സാഗരം തേടി HD  |  Varavelpu Malayalam Film Song | Mohanlal | Revathi](https://www.youtube.com/watch?v=WICBFbdIRd0)
-- [Anupama Sneham Karaoke | Rev.Dr. Berchmans Kodackal | Adv. Subal Paul | Christian Minus Tracks](https://www.youtube.com/watch?v=6qkvO11tvaQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
