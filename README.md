@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ravi Bopanna &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+2.0 - 224Kbps&rpar; - 2.6GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172913-ravi-bopanna-2022-kannada-true-web-dl-1080p-720p-avc-dd20-224kbps-26gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=345622)
 - [Nigoodam &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.help/index.php?/forums/topic/172933-nigoodam-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-384kbps-29gb-14gb-x264-700mb-400mb/&do=findComment&comment=345621)
 - [Thankam &lpar;2023&rpar; AMZN WEB-DL DDP5.1 Esubs - 2160p | 1080p | 720p - 8.4 GB | 8.1 GB | 1.7 GB](https://www.1tamilmv.help/index.php?/forums/topic/171857-thankam-2023-amzn-web-dl-ddp51-esubs-2160p-1080p-720p-84-gb-81-gb-17-gb/&do=findComment&comment=345620)
 - [Aarkkariyam &lpar;2021&rpar; Malayalam TRUE WEB-DL - High Quality - [ 720p AVC - 900MB ] - [Direct Link] - AAC - [Major]](https://www.1tamilmv.help/index.php?/forums/topic/128890-aarkkariyam-2021-malayalam-true-web-dl%C2%A0-high-quality-720p-avc-900mb%C2%A0-direct-link-aac-major/&do=findComment&comment=345619)
 - [Al Mallu &lpar;2020&rpar; Malayalam 1080p x264 AMZN WeB-DL DDP 2.0 5.5GB](https://www.1tamilmv.help/index.php?/forums/topic/105658-al-mallu-2020-malayalam-1080p-x264-amzn-web-dl-ddp-20-55gb/&do=findComment&comment=345618)
-- [Nigoodam &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.help/index.php?/forums/topic/172933-nigoodam-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-384kbps-29gb-14gb-x264-700mb-400mb/&do=findComment&comment=345617)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
