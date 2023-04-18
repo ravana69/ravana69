@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Periyar &lpar;2007&rpar;.Tamil.480p.SS.x264.AAC2.0.ESub - 1.3GB](https://www.1tamilmv.help/index.php?/forums/topic/172943-periyar-2007tamil480pssx264aac20esub-13gb/&do=findComment&comment=345664)
+- [45 Tamil Movies - SUN NXT /JC / TK / SS / ZEE5 WEB DL - H264/H265 - DDP5.1 / AAC2.0 - Esub - 300GB [GDRIVE]](https://www.1tamilmv.help/index.php?/forums/topic/167726-45-tamil-movies-sun-nxt-jc-tk-ss-zee5-web-dl-h264h265-ddp51-aac20-esub-300gb-gdrive/&do=findComment&comment=345662)
 - [Pathu Thala &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.6GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.help/index.php?/forums/topic/172859-pathu-thala-2023-tamil-web-dl-1080p-720p-avc-aac-26gb-13gb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=345660)
 - [Dom &lpar;2023&rpar; S02 EP06 TRUE WEB-DL - [1080p, 720p - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 1.4GB - 450MB &amp; 300MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172804-dom-2023-s02-ep06-true-web-dl-1080p-720p-tamil-telugu-hindi-eng-dd51-192kbps-14gb-450mb-300mb-esub/&do=findComment&comment=345659)
 - [Game Of Thrones Complete S06 Merged - 1080p - 720p 10Bit BluRay 6CH [&lpar;English - AAC5.1&rpar;] x265 - ESub [Google Drive]](https://www.1tamilmv.help/index.php?/forums/topic/172921-game-of-thrones-complete-s06-merged-1080p-720p-10bit-bluray-6ch-english-aac51-x265-esub-google-drive/&do=findComment&comment=345658)
-- [Shazam! Fury of the Gods &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [4K ,1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 7GB - 2.9GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172936-shazam-fury-of-the-gods-2023-hd-original-audios-4k-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-7gb-29gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=345655)
-- [Shazam 2 &lpar;2023&rpar; HQ HDRip.x264.Tam 3D Virtual 5.1 + AAC2.0 - 657MB](https://www.1tamilmv.help/index.php?/forums/topic/172940-shazam-2-2023-hq-hdripx264tam-3d-virtual-51-aac20-657mb/&do=findComment&comment=345654)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
