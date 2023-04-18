@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [🤍പാലക്കാട്‌ 🤍](https://www.youtube.com/watch?v=6UmRIxDFm5c)
 - [അഭിജിത് കൊല്ലം ഹിറ്റ്സ് | Abhijith Kollam Hits| Christian Devotional Songs|OWN MEDIA MUSIC](https://www.youtube.com/watch?v=C7E3DgQBYIs)
 - [#PalaPalaaMinnerunne blues all over | #Dasara | #KeerthySuresh #Nani | #Shorts #YTshorts](https://www.youtube.com/watch?v=Y87fTCqklng)
 - [മലയാളസിനിമയിലെ വിനോദചിത്രങ്ങൾക്ക് കരുത്തേകിയ മോഹൻലാൽ എം ജി ശ്രീകുമാർ കൂട്ടുകെട്ടിലെ ഗാനങ്ങൾ](https://www.youtube.com/watch?v=RuP2jyXgT6M)
 - [Manennum Vilikilla | Neelakuyil 1954   Mehboob   P  Bhaskaran   K  Raghavan   Everlasting Songs](https://www.youtube.com/watch?v=DT6iXcVCo2w)
 - [മനസിനും ശരീരത്തിനും കുളിരും ഉന്മേഷവുമേകും   സുന്ദര ഗാനങ്ങൾ  | Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=Er8aPs6Q_zI)
-- [ആ വഴിയോരത്ത് | Etho Nidrathan | Ayal Kadha Ezhuthukayanu | K.J. Yesudas| Mohan Lal| Nandini](https://www.youtube.com/watch?v=I0h8sizjZ_I)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
