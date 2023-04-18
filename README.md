@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [അഭിജിത് കൊല്ലം ഹിറ്റ്സ് | Abhijith Kollam Hits| Christian Devotional Songs|OWN MEDIA MUSIC](https://www.youtube.com/watch?v=C7E3DgQBYIs)
+- [#PalaPalaaMinnerunne blues all over | #Dasara | #KeerthySuresh #Nani | #Shorts #YTshorts](https://www.youtube.com/watch?v=Y87fTCqklng)
+- [മലയാളസിനിമയിലെ വിനോദചിത്രങ്ങൾക്ക് കരുത്തേകിയ മോഹൻലാൽ എം ജി ശ്രീകുമാർ കൂട്ടുകെട്ടിലെ ഗാനങ്ങൾ](https://www.youtube.com/watch?v=RuP2jyXgT6M)
+- [Manennum Vilikilla | Neelakuyil 1954   Mehboob   P  Bhaskaran   K  Raghavan   Everlasting Songs](https://www.youtube.com/watch?v=DT6iXcVCo2w)
+- [മനസിനും ശരീരത്തിനും കുളിരും ഉന്മേഷവുമേകും   സുന്ദര ഗാനങ്ങൾ  | Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=Er8aPs6Q_zI)
 - [ആ വഴിയോരത്ത് | Etho Nidrathan | Ayal Kadha Ezhuthukayanu | K.J. Yesudas| Mohan Lal| Nandini](https://www.youtube.com/watch?v=I0h8sizjZ_I)
-- [അമ്മുമ്മക്കിളി വായാടി HD | Evergreen Hits | Mohanlal , Pooja Batra , Sukanya | Chandralekha](https://www.youtube.com/watch?v=8CLPwU_kjlw)
-- [മലയാള സിനിമയ്ക്ക് ലഭിച്ച വരദാനം ഈ ഭഗവതി | Kallanum Bhagavathiyum Heroine Mokksha](https://www.youtube.com/watch?v=3AXEfPbRswQ)
-- [Singer Of The Week | P Jayachandran | Christian Songs Malayalam | Joji Johns |Christian Melody Songs](https://www.youtube.com/watch?v=ddSm_nEcWlQ)
-- [Teaser | 𝔸𝕍𝔸𝕃 - ℝ𝕠𝕞𝕒𝕟𝕥𝕚𝕔 𝕄𝕒𝕝𝕒𝕪𝕒𝕝𝕒𝕞 𝔸𝕝𝕓𝕦𝕞 | 𝔹𝕚𝕛𝕦 ℕ𝕒𝕣𝕒𝕪𝕒𝕟𝕒𝕟 | ℝ𝕒𝕕𝕙𝕚𝕜𝕒 𝔸𝕤𝕙𝕠𝕜](https://www.youtube.com/watch?v=MMg2hdZThVo)
-- [Nilavinte | Agnidevan | Mohanlal | Revathy |  Gireesh Puthanchery | MG Radakrishnan |](https://www.youtube.com/watch?v=px1lLila0Ks)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
