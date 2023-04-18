@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Dear Comrade Malayalam - Thiri Thiri Audio Song | Vijay Deverakonda | Rashmika | Bharat Kamma](https://www.youtube.com/watch?v=giicnnCpkJg)
-- [🤍പാലക്കാട്‌ 🤍](https://www.youtube.com/watch?v=6UmRIxDFm5c)
-- [അഭിജിത് കൊല്ലം ഹിറ്റ്സ് | Abhijith Kollam Hits| Christian Devotional Songs|OWN MEDIA MUSIC](https://www.youtube.com/watch?v=C7E3DgQBYIs)
-- [#PalaPalaaMinnerunne blues all over | #Dasara | #KeerthySuresh #Nani | #Shorts #YTshorts](https://www.youtube.com/watch?v=Y87fTCqklng)
-- [മലയാളസിനിമയിലെ വിനോദചിത്രങ്ങൾക്ക് കരുത്തേകിയ മോഹൻലാൽ എം ജി ശ്രീകുമാർ കൂട്ടുകെട്ടിലെ ഗാനങ്ങൾ](https://www.youtube.com/watch?v=RuP2jyXgT6M)
-- [Manennum Vilikilla | Neelakuyil 1954   Mehboob   P  Bhaskaran   K  Raghavan   Everlasting Songs](https://www.youtube.com/watch?v=DT6iXcVCo2w)
+- [Vaadunnuvo - Video Song | Pookkaalam | KS Chithra | Vinayak Sasikumar | Sachin Warrier](https://www.youtube.com/watch?v=xL5UfwWkD3E)
+- [Sindhooraaruna - Video Song | Kallanum Bhagavathiyum | Vishnu Unnikrishnan | East Coast Vijayan](https://www.youtube.com/watch?v=4I35Rb9nRr0)
+- [Nombara Koottile | Yathrakarude Sradhakku | Madhu Balakrishnan | Johnson | Kaithapram](https://www.youtube.com/watch?v=qfGTh5i-HOI)
+- [Mylanji Enthinnee | Malayalam Super Hit Mappila Song | Nandini Oppol | Sudeesh | Nedumudi Venu](https://www.youtube.com/watch?v=Lj2i8wDJv50)
+- [#Hrudayamithaake #banaras #zaidkhan #sonalmonteiro #jayathirtha #bajaneeshloknath #Karthik #KSChitra](https://www.youtube.com/watch?v=vI0QJzP1VAI)
+- [Thalachaykkanoru Video Song | Mammootty | Kavya Madhavan | Johnson | Kaithapram | Bhoothakannaadi](https://www.youtube.com/watch?v=5KlLpeRK5G4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
