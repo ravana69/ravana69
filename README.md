@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ente Ishantangal Onnume | Ezhuvilakkin Naduvil | Shorts](https://www.youtube.com/watch?v=VFR9Cp40PtI)
+- [Ninte Roopavum bhavavum | Ezhuvilakkin Naduvil](https://www.youtube.com/watch?v=Yz-H-i63RSo)
+- [ഏഴുവിളക്കിൻ നടുവിൽ | Ezhuvilakkin Naduvil | Shorts](https://www.youtube.com/watch?v=55VQC4pJHFQ)
 - [Daivam Nallavan | M. E. Cherian | Celin Jose | Shorts](https://www.youtube.com/watch?v=SosqiglNXJ0)
 - [മണ്ണിലെ താരമല്ലേ നീ മിന്നി നിന്നിടണ്ടേ | Evergreen Malayalam Film Song | Kilukkampetti | Jayaram](https://www.youtube.com/watch?v=3COeMEj1LxA)
 - [എന്തുമെന്‍റെ ജീവിതത്തിൽ സംഭവിച്ചാലും | M. E. Cherian | Celin Jose | Shorts](https://www.youtube.com/watch?v=wDme1KEWFs0)
-- [Kashtathakal Shodhanakal Neridumbozhum | M. E. Cherian | Celin Jose | Shorts](https://www.youtube.com/watch?v=ecVOUoAC9NE)
-- [വിണ്ഡലം ഭൂമണ്ഡലം നിർമ്മിക്കും മുന്നേ | M. E. Cherian | Celin Jose | Shorts](https://www.youtube.com/watch?v=gytXVFZrKPM)
-- [Avankalekku Nokkiyor Prashobitharayi | M. E. Cherian | Celin Jose | Shorts](https://www.youtube.com/watch?v=HB1U5WgwjtE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
