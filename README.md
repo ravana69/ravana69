@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Shazam!: Fury of the Gods &lpar;2023&rpar; AMZN WEB-DL MULTI DDP5.1 Esubs - 2160p | 1080p | 720p - 11 GB | 10 GB | 5.3 GB](https://www.1tamilmv.help/index.php?/forums/topic/172951-shazam-fury-of-the-gods-2023-amzn-web-dl-multi-ddp51-esubs-2160p-1080p-720p-11-gb-10-gb-53-gb/&do=findComment&comment=345687)
+- [Thenali &lpar;2000&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DD+5.1&rpar; - 11.9GB - ESub - GDFlix](https://www.1tamilmv.help/index.php?/forums/topic/172950-thenali-2000-tamil-true-web-dl-1080p-avc-untouched-dd51-119gb-esub-gdflix/&do=findComment&comment=345686)
 - [Mugavaree &lpar;2000&rpar;.480p.SS.Wreb-dl.x264.AAC2.0.ESub - 1.2GB](https://www.1tamilmv.help/index.php?/forums/topic/172949-mugavaree-2000480psswreb-dlx264aac20esub-12gb/&do=findComment&comment=345685)
 - [Organic Mama Hybrid Alludu &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172948-organic-mama-hybrid-alludu-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=345684)
 - [Organic Mama Hybrid Alludu &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172948-organic-mama-hybrid-alludu-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=345683)
-- [Shazam! Fury of the Gods &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [4K ,1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 7GB - 2.9GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172936-shazam-fury-of-the-gods-2023-hd-original-audios-4k-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-7gb-29gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=345682)
-- [Thunikaram &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 2GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.help/index.php?/forums/topic/172947-thunikaram-2023-tamil-true-web-dl-1080p-720p-avc-hevc-2gb-13gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=345681)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
