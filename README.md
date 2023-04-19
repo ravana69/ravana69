@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [#mehabooba (Malayalam) #kgfchapter2 #rockingstaryash #prashanthneel #ravibasrur #shorts #status](https://www.youtube.com/watch?v=lzqEedPBfNs)
+- [Manavaatti Penninte Video Song | Dileep | Shalini | MG Sreekumar | Ilayaraja |  Kaithapram](https://www.youtube.com/watch?v=ej7C_i0qFa8)
+- [Omane Padoo Nee | Snehithan | P Jayachandran | Mohan Sithara | Yusufali Kechery](https://www.youtube.com/watch?v=4t-1hjJqZt4)
 - [Ennu Varum Nee | Kannaki | K S Chithra | Kaithapram Vishwanathan |  Kaithapram](https://www.youtube.com/watch?v=rVSKugL435w)
 - [Nizhalukalum - Lyrical Video | Nizhal | Musthafa | Sarayu](https://www.youtube.com/watch?v=09gBdDUdjx0)
 - [Ente Ishantangal Onnume | Ezhuvilakkin Naduvil | Shorts](https://www.youtube.com/watch?v=VFR9Cp40PtI)
-- [Ninte Roopavum bhavavum | Ezhuvilakkin Naduvil](https://www.youtube.com/watch?v=Yz-H-i63RSo)
-- [ഏഴുവിളക്കിൻ നടുവിൽ | Ezhuvilakkin Naduvil | Shorts](https://www.youtube.com/watch?v=55VQC4pJHFQ)
-- [Daivam Nallavan | M. E. Cherian | Celin Jose | Shorts](https://www.youtube.com/watch?v=SosqiglNXJ0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
