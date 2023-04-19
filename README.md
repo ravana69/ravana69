@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Sorcerer and the White Snake 2011 DD5.1 Russian+DD5.1 Chinese +DD2.0 Hindi +DD2.0 Tamil+DD2.0 Telugu 1080p Blu-Ray Remux Esub 19GB First on net [G-Drive]](https://www.1tamilmv.help/index.php?/forums/topic/164463-the-sorcerer-and-the-white-snake-2011-dd51-russiandd51-chinese-dd20-hindi-dd20-tamildd20-telugu-1080p-blu-ray-remux-esub-19gb-first-on-net-g-drive/&do=findComment&comment=345718)
 - [🔰Ayya &lpar;2005&rpar; Tamil 1080p SUN-NXT WEB-DL x264 AAC 2.0 - 4.6GB](https://www.1tamilmv.help/index.php?/forums/topic/154704-%F0%9F%94%B0ayya-2005-tamil-1080p-sun-nxt-web-dl-x264-aac-20-46gb/&do=findComment&comment=345717)
 - [Engeyum Kadhal &lpar;2011&rpar; Tamil - BluRay - 1080p &amp; 720p - x264 - &lpar;DTS &lpar;2514Kbps&rpar; + AAC 2.0&rpar; - 9GB - 2.7GB - 1.4GB - 700MB &amp; 400MB - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172956-engeyum-kadhal-2011-tamil-bluray-1080p-720p-x264-dts-2514kbps-aac-20-9gb-27gb-14gb-700mb-400mb-esub/&do=findComment&comment=345716)
 - [Engeyum Kadhal &lpar;2011&rpar; Tamil - BluRay - 1080p &amp; 720p - x264 - &lpar;DTS &lpar;2514Kbps&rpar; + AAC 2.0&rpar; - 9GB - 2.7GB - 1.4GB - 700MB &amp; 400MB - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172956-engeyum-kadhal-2011-tamil-bluray-1080p-720p-x264-dts-2514kbps-aac-20-9gb-27gb-14gb-700mb-400mb-esub/&do=findComment&comment=345715)
 - [Engeyum Kadhal &lpar;2011&rpar; Tamil - BluRay - 1080p &amp; 720p - x264 - &lpar;DTS &lpar;2514Kbps&rpar; + AAC 2.0&rpar; - 9GB - 2.7GB - 1.4GB - 700MB &amp; 400MB - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172956-engeyum-kadhal-2011-tamil-bluray-1080p-720p-x264-dts-2514kbps-aac-20-9gb-27gb-14gb-700mb-400mb-esub/&do=findComment&comment=345714)
-- [Jersey &lpar;2019&rpar; Telugu TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DD+5.1 &amp; AAC 2.0&rpar; - 5.6GB - ESub - GDFlix](https://www.1tamilmv.help/index.php?/forums/topic/172957-jersey-2019-telugu-true-web-dl-1080p-avc-untouched-dd51-aac-20-56gb-esub-gdflix/&do=findComment&comment=345713)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
