@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Shazam!: Fury of the Gods &lpar;2023&rpar; AMZN WEB-DL MULTI DDP5.1 Esubs - 2160p | 1080p | 720p - 11 GB | 10 GB | 5.3 GB](https://www.1tamilmv.help/index.php?/forums/topic/172951-shazam-fury-of-the-gods-2023-amzn-web-dl-multi-ddp51-esubs-2160p-1080p-720p-11-gb-10-gb-53-gb/&do=findComment&comment=345690)
+- [Kannai Nambathey &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Malayalam + Kannada] &lpar;DD+5.1 - 640Kbps&rpar; - 5.2GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172952-kannai-nambathey-2023-true-web-dl-1080p-720p-avc-hevc-malayalam-kannada-dd51-640kbps-52gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=345689)
+- [Monsters.Inc 2001 BluRay  [ 4K, 1080p &amp; 720p - &lpar;DDP5.1 - 192Kbps&rpar; - Multi Aud [ Tamil + Telugu + Hindi + Eng ] - 7.3GB - 4.8GB - 1.8GB &amp; 1GB  ~ Jacksparrow063  - ESub](https://www.1tamilmv.help/index.php?/forums/topic/136354-monstersinc-2001-bluray-4k-1080p-720p-ddp51-192kbps-multi-aud-tamil-telugu-hindi-eng-73gb-48gb-18gb-1gb-~-jacksparrow063-esub/&do=findComment&comment=345688)
 - [Shazam!: Fury of the Gods &lpar;2023&rpar; AMZN WEB-DL MULTI DDP5.1 Esubs - 2160p | 1080p | 720p - 11 GB | 10 GB | 5.3 GB](https://www.1tamilmv.help/index.php?/forums/topic/172951-shazam-fury-of-the-gods-2023-amzn-web-dl-multi-ddp51-esubs-2160p-1080p-720p-11-gb-10-gb-53-gb/&do=findComment&comment=345687)
 - [Thenali &lpar;2000&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DD+5.1&rpar; - 11.9GB - ESub - GDFlix](https://www.1tamilmv.help/index.php?/forums/topic/172950-thenali-2000-tamil-true-web-dl-1080p-avc-untouched-dd51-119gb-esub-gdflix/&do=findComment&comment=345686)
-- [Mugavaree &lpar;2000&rpar;.480p.SS.Wreb-dl.x264.AAC2.0.ESub - 1.2GB](https://www.1tamilmv.help/index.php?/forums/topic/172949-mugavaree-2000480psswreb-dlx264aac20esub-12gb/&do=findComment&comment=345685)
-- [Organic Mama Hybrid Alludu &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172948-organic-mama-hybrid-alludu-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=345684)
-- [Organic Mama Hybrid Alludu &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172948-organic-mama-hybrid-alludu-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=345683)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
