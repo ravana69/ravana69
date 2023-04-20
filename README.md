@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [#PalaPalaaMinnerunne 👩‍❤️‍👨 | #Dasara | #KeerthySuresh #Nani | #Shorts #YTshorts](https://www.youtube.com/watch?v=zCiI1lpdZuE)
+- [Traditional vibes with #PalaPalaaMinnerunne | #Dasara | #KeerthySuresh #Nani | #Shorts #YTshorts](https://www.youtube.com/watch?v=5fDMp3MfnEg)
 - [മനസിന് സമാധാനമേകുന്ന ഈസ്റ്ററും നല്ല പ്രഭാത ഗീതങ്ങൾ | Christian Devotional Songs Malayalam| Kester](https://www.youtube.com/watch?v=KnN_luiQOIg)
 - [Kilukkampetti | Mark Antony | Suresh Gopi | NF Varghese | KJ Yesudas | Berny Ignatius](https://www.youtube.com/watch?v=RTr-S8IqTB0)
 - [ഏവരുടെയും പ്രിയ ഗായകൻ ശ്രീക്കുട്ടൻ പാടിയ ഇഷ്ടഗാനങ്ങൾ   | HITS OF MG SREEKUMAR | MALAYALAM HITS](https://www.youtube.com/watch?v=f1k3W8mLuUc)
 - [ഈ ചൂടുനേരത്ത്  ആശ്വാസം പകരുന്ന സുഖനിദ്രയേകുന്ന മലയാളസിനിമാഗാനങ്ങൾ | NISARI MUSIC](https://www.youtube.com/watch?v=doq7CHvmh_8)
-- [Yadhuvamsa Yamini | Dubai | Vidyasagar | KS Chithra | Malayalam Movie Songs |](https://www.youtube.com/watch?v=kGNZ_9RW-Qc)
-- [Christian Melody Songs | Fr.Joshy Kannukaden | Christian Devotional Songs Malayalam | Kester](https://www.youtube.com/watch?v=aoL6sIWC3HI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
