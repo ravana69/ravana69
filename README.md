@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Mighty Morphin Power Rangers: Once and Always &lpar;2023&rpar; NF WEB-DL DDP5.1 Atmos Esubs x264 - 1080p | 720p - 2.3 GB | 1.4 GB](https://www.1tamilmv.help/index.php?/forums/topic/172960-mighty-morphin-power-rangers-once-and-always-2023-nf-web-dl-ddp51-atmos-esubs-x264-1080p-720p-23-gb-14-gb/&do=findComment&comment=345759)
-- [Mighty Morphin Power Rangers: Once and Always &lpar;2023&rpar; NF WEB-DL DDP5.1 Atmos Esubs x264 - 1080p | 720p - 2.3 GB | 1.4 GB](https://www.1tamilmv.help/index.php?/forums/topic/172960-mighty-morphin-power-rangers-once-and-always-2023-nf-web-dl-ddp51-atmos-esubs-x264-1080p-720p-23-gb-14-gb/&do=findComment&comment=345758)
-- [FAST X &lpar;2023&rpar; - Official [Tamil + Telugu + Hindi + English] Trailer 2 | Universal Studios | Vin Diesel](https://www.1tamilmv.help/index.php?/forums/topic/172961-fast-x-2023-official-tamil-telugu-hindi-english-trailer-2-universal-studios-vin-diesel/&do=findComment&comment=345757)
-- [FAST X &lpar;2023&rpar; - Official [Tamil + Telugu + Hindi + English] Trailer 2 | Universal Studios | Vin Diesel](https://www.1tamilmv.help/index.php?/forums/topic/172961-fast-x-2023-official-tamil-telugu-hindi-english-trailer-2-universal-studios-vin-diesel/&do=findComment&comment=345756)
-- [FAST X &lpar;2023&rpar; - Official [Tamil + Telugu + Hindi + English] Trailer 2 | Universal Studios | Vin Diesel](https://www.1tamilmv.help/index.php?/forums/topic/172961-fast-x-2023-official-tamil-telugu-hindi-english-trailer-2-universal-studios-vin-diesel/&do=findComment&comment=345755)
+- [Tooth Pari: When Love Bites &lpar;2023&rpar; S01 EP&lpar;01-08&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi] - 5GB - 2GB &amp; 850MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172966-tooth-pari-when-love-bites-2023-s01-ep01-08-true-web-dl-1080p-720p-avc-dd51-192kbps-tamil-telugu-hindi-5gb-2gb-850mb-esub/&do=findComment&comment=345770)
+- [24 &lpar;2016&rpar;.720p &amp; 1080p.SS.WEB-DL.DD5.1.H264 - 2.4GB &amp; 4.6GB](https://www.1tamilmv.help/index.php?/forums/topic/172978-24-2016720p-1080pssweb-dldd51h264-24gb-46gb/&do=findComment&comment=345769)
+- [Game Of Thrones Complete S06 Merged - 1080p - 720p 10Bit BluRay 6CH [&lpar;English - AAC5.1&rpar;] x265 - ESub [Google Drive]](https://www.1tamilmv.help/index.php?/forums/topic/172921-game-of-thrones-complete-s06-merged-1080p-720p-10bit-bluray-6ch-english-aac51-x265-esub-google-drive/&do=findComment&comment=345768)
+- [24 &lpar;2016&rpar;.720p &amp; 1080p.SS.WEB-DL.DD5.1.H264 - 2.4GB &amp; 4.6GB](https://www.1tamilmv.help/index.php?/forums/topic/172978-24-2016720p-1080pssweb-dldd51h264-24gb-46gb/&do=findComment&comment=345767)
+- [🔰Ayya &lpar;2005&rpar; Tamil 1080p SUN-NXT WEB-DL x264 AAC 2.0 - 4.6GB](https://www.1tamilmv.help/index.php?/forums/topic/154704-%F0%9F%94%B0ayya-2005-tamil-1080p-sun-nxt-web-dl-x264-aac-20-46gb/&do=findComment&comment=345766)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
