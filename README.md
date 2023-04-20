@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kadhayile Rajakumariyum | Kalyanaraman | KJ Yesudas  | Gayathri | Berny Ignatius | Kaithapram](https://www.youtube.com/watch?v=HnqSepjM0PI)
+- [#toofan (Malayalam) | #kgfchapter2 #rockingstaryash #prashanthneel #ravibasrur #shorts](https://www.youtube.com/watch?v=gZVpmMbkvLk)
+- [Thankatheril Sharatkaalam Song | Jayaram | Nadhiya | KJ Yesudas | KS Chithra | Gireesh Puthenchery](https://www.youtube.com/watch?v=86uUiMk2H1A)
 - [നിന്നുള്ളിലെ മോഹം സ്വന്തമാക്കി ഞാനും | പൂങ്കാറ്റിനോടും കിളികളോടും | Evergreen Malayalam Film Song](https://www.youtube.com/watch?v=oFIupKCjjzw)
 - [തുമ്പീ നിൻ മോഹം | Thumbi Nin Moham | Neelagiri | Malayalam Film Song | Mammootty](https://www.youtube.com/watch?v=KcyGozLkdR4)
 - [Rajakkanmarude Rajave - Audio Song | Christian Devotional | K.J. Yesudas | Kottayam Joy](https://www.youtube.com/watch?v=2ArFzcJNW40)
-- [Paaril Parkkum Alpayussil | Anna Baby | Rev. O.M. Rajukutty | Super Hit Malayalam Christian Songs](https://www.youtube.com/watch?v=8CjQ6NRQK50)
-- [അന്നും ഇന്നും  മലയാളസിനിമയിലെ നർമ്മരസം തുളുമ്പുന്ന സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ  | SONGS OF FUN & JOY](https://www.youtube.com/watch?v=ehF37KeNy4Q)
-- [Ozhinja Veedin - Vaadakakoru Hridhayam(1978) | K J Yesudas | Kavalam Narayana Panicker | G Devarajan](https://www.youtube.com/watch?v=Iff1iZYbJfk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
