@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Mighty Morphin Power Rangers: Once and Always &lpar;2023&rpar; NF WEB-DL DDP5.1 Atmos Esubs x264 - 1080p | 720p - 2.3 GB | 1.4 GB](https://www.1tamilmv.help/index.php?/forums/topic/172960-mighty-morphin-power-rangers-once-and-always-2023-nf-web-dl-ddp51-atmos-esubs-x264-1080p-720p-23-gb-14-gb/&do=findComment&comment=345723)
+- [Oh My Darling &lpar;2023&rpar; AMZN WEB-DL Multi DDP5.1 Esubs x264 - 1080p | 720p - 7.5 GB | 2.7 GB](https://www.1tamilmv.help/index.php?/forums/topic/172959-oh-my-darling-2023-amzn-web-dl-multi-ddp51-esubs-x264-1080p-720p-75-gb-27-gb/&do=findComment&comment=345722)
 - [Oh My Darling &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 640Kbps&rpar; [Tamil + Telugu + Malayalam] - 3.5GB - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 750MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172958-oh-my-darling-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-malayalam-35gb-26gb-14gb-800mb-x264-750mb-450mb-250mb-esub/&do=findComment&comment=345721)
 - [Oh My Darling &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 640Kbps&rpar; [Tamil + Telugu + Malayalam] - 3.5GB - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 750MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172958-oh-my-darling-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-malayalam-35gb-26gb-14gb-800mb-x264-750mb-450mb-250mb-esub/&do=findComment&comment=345720)
 - [The Sorcerer and the White Snake 2011 DD5.1 Russian+DD5.1 Chinese +DD2.0 Hindi +DD2.0 Tamil+DD2.0 Telugu 1080p Blu-Ray Remux Esub 19GB First on net [G-Drive]](https://www.1tamilmv.help/index.php?/forums/topic/164463-the-sorcerer-and-the-white-snake-2011-dd51-russiandd51-chinese-dd20-hindi-dd20-tamildd20-telugu-1080p-blu-ray-remux-esub-19gb-first-on-net-g-drive/&do=findComment&comment=345718)
-- [🔰Ayya &lpar;2005&rpar; Tamil 1080p SUN-NXT WEB-DL x264 AAC 2.0 - 4.6GB](https://www.1tamilmv.help/index.php?/forums/topic/154704-%F0%9F%94%B0ayya-2005-tamil-1080p-sun-nxt-web-dl-x264-aac-20-46gb/&do=findComment&comment=345717)
-- [Jersey &lpar;2019&rpar; Telugu TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DD+5.1 &amp; AAC 2.0&rpar; - 5.6GB - ESub - GDFlix](https://www.1tamilmv.help/index.php?/forums/topic/172957-jersey-2019-telugu-true-web-dl-1080p-avc-untouched-dd51-aac-20-56gb-esub-gdflix/&do=findComment&comment=345713)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
