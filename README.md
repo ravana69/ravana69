@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Karineelakkannazhaki Kannaki | Kannaki | M G Sreekumar | Kaithapram Vishwanathan | Kaithapram](https://www.youtube.com/watch?v=3exkIJkl9cI)
+- [Chik Chik - Video Song | Good Luck Sakhi | Keerthy Suresh | Aadhi Pinisetty | DSP](https://www.youtube.com/watch?v=t2d70pFESfI)
+- [Thirikaiyilum - Audio Song | Devotional | Lord Krishna | P. Jayachandran](https://www.youtube.com/watch?v=-OWGJeKTsug)
 - [Kadhayile Rajakumariyum | Kalyanaraman | KJ Yesudas  | Gayathri | Berny Ignatius | Kaithapram](https://www.youtube.com/watch?v=HnqSepjM0PI)
 - [#toofan (Malayalam) | #kgfchapter2 #rockingstaryash #prashanthneel #ravibasrur #shorts](https://www.youtube.com/watch?v=gZVpmMbkvLk)
 - [Thankatheril Sharatkaalam Song | Jayaram | Nadhiya | KJ Yesudas | KS Chithra | Gireesh Puthenchery](https://www.youtube.com/watch?v=86uUiMk2H1A)
-- [നിന്നുള്ളിലെ മോഹം സ്വന്തമാക്കി ഞാനും | പൂങ്കാറ്റിനോടും കിളികളോടും | Evergreen Malayalam Film Song](https://www.youtube.com/watch?v=oFIupKCjjzw)
-- [തുമ്പീ നിൻ മോഹം | Thumbi Nin Moham | Neelagiri | Malayalam Film Song | Mammootty](https://www.youtube.com/watch?v=KcyGozLkdR4)
-- [Rajakkanmarude Rajave - Audio Song | Christian Devotional | K.J. Yesudas | Kottayam Joy](https://www.youtube.com/watch?v=2ArFzcJNW40)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
