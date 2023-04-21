@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Vellari Pattanam &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172983-vellari-pattanam-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=345807)
-- [Garmi &lpar;2023&rpar; S01 EP &lpar;01-09&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu + Hindi + Malayalam + Kannada + Marathi + Bengali&rpar; - 11.8GB &amp; 3.6GB] - [x264 - 1.8GB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172979-garmi-2023-s01-ep-01-09-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-marathi-bengali-118gb-36gb-x264-18gb-esub/&do=findComment&comment=345806)
-- [Mighty Morphin Power Rangers: Once &amp; Always &lpar;2023&rpar; English TRUE WEB-DL - 1080p HQ - AVC - &lpar;AAC 5.1&rpar; - 1.1GB - ESub - GDFlix](https://www.1tamilmv.help/index.php?/forums/topic/172993-mighty-morphin-power-rangers-once-always-2023-english-true-web-dl-1080p-hq-avc-aac-51%C2%A0-11gb-esub-gdflix/&do=findComment&comment=345805)
-- [Oru Kodai Murder Mystery &lpar;2023&rpar; S01 EP&lpar;01-09&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu] - 2.8GB - 1.6GB &amp; 1GB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172992-oru-kodai-murder-mystery-2023-s01-ep01-09-true-web-dl-1080p-720p-avc-dd51-192kbps-tamil-telugu-28gb-16gb-1gb-esub/&do=findComment&comment=345804)
-- [Dancing on the Grave &lpar;2023&rpar; S01 EP &lpar;01-04&rpar; Hindi TRUE WEB-DL - 1080p HQ - HEVC x265 - UNTOUCHED - &lpar;DDP.5.1&rpar; - 4GB - ESub - GDFlix](https://www.1tamilmv.help/index.php?/forums/topic/172991-dancing-on-the-grave-2023-s01-ep-01-04-hindi-true-web-dl-1080p-hq-hevc-x265-untouched-ddp51-4gb-esub-gdflix/&do=findComment&comment=345803)
+- [Selfiee &lpar;2023&rpar; Hindi Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172998-selfiee-2023-hindi-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=345813)
+- [Virgin Story &lpar;2023&rpar; Telugu Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172997-virgin-story-2023-telugu-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=345812)
+- [Vellari Pattanam &lpar;2023&rpar; Malayalam Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172996-vellari-pattanam-2023-malayalam-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=345811)
+- [Colour Photo &lpar;2023&rpar; Tamil Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/172995-colour-photo-2023-tamil-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=345810)
+- [Oru Kodai Murder Mystery &lpar;2023&rpar; S01 EP&lpar;01-09&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu] - 2.8GB - 1.6GB &amp; 1GB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172992-oru-kodai-murder-mystery-2023-s01-ep01-09-true-web-dl-1080p-720p-avc-dd51-192kbps-tamil-telugu-28gb-16gb-1gb-esub/&do=findComment&comment=345809)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
