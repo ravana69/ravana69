@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [#KombaNinnKaada (Malayalam) #RRR #NTR #RamCharan #Maragadhamani #SSRajamouli #shorts #ytshorts](https://www.youtube.com/watch?v=Z6vClwn1AeA)
 - [വ്രതശുദ്ധിയോടെ പുണ്യറമളാൻ ആഘോഷിക്കുന്ന എല്ലാവർക്കും റംസാൻ സ്പെഷ്യൽ ഗാനങ്ങൾ | RAMSAN SPECIAL SONGS](https://www.youtube.com/watch?v=sBdXfmAmhfs)
 - [Vellaram Kannukalil | Kattuchembakam | Mohan Sithara | Vinayan | Sujatha Mohan | Radhika Thilak](https://www.youtube.com/watch?v=bfICSxJcrYY)
 - [മലയാളസിനിമ അഭിമാനത്തോടെ  പ്രേക്ഷകർക്ക് മുമ്പിൽ സമർപ്പിച്ച സൂപ്പർഹിറ്റ് ചിത്രങ്ങളിലെ നല്ല ഗാനങ്ങൾ](https://www.youtube.com/watch?v=3mfoDM0GCho)
 - [Beauty 💃 | #PalaPalaaMinnerunne | #Dasara | #KeerthySuresh #Nani | #Shorts #YTshorts](https://www.youtube.com/watch?v=BKt3X-5Fn1Q)
 - [Thathamma Pattinte Chelu | | Nizam | Naiga Sonu | Praveen M Kumar | Shrijith Menon | Ramzan Songs](https://www.youtube.com/watch?v=f6yVxv6CC0A)
-- [Songs Of The Week | Rithuraj | Christian Devotional Songs Malayalam | Joji Johns | Kester](https://www.youtube.com/watch?v=9hNWdqk9JNw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
