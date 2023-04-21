@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Muthumani Thooval Tharam | Kauravar | Mammootty | Rudra | Durga - SP Venkitesh Super Hit Song](https://www.youtube.com/watch?v=6b18qy8UMqY)
+- [Saanthwanam Video Song | Mammootty | Urvashi | KJ Yesudas | Johnson | Kaithapram | Kanalkkaattu](https://www.youtube.com/watch?v=w9MkqJ4Jpf8)
+- [പ്രിയനു മാത്രം - Priyanu Mathram | Karaoke With Lyrics | M Jaychandran | Kaithapram | Prithviraj](https://www.youtube.com/watch?v=XEDKKMK0e04)
 - [Mangalangalarulum | Freestyle cover | Ashitha Anand](https://www.youtube.com/watch?v=lJsep5rq6Vo)
 - [Karimizhiyaale| Snehithan | Sujatha Mohan | Mohan Sithara | Yusufali Kechery](https://www.youtube.com/watch?v=ujf9lvANIoQ)
 - [#KombaNinnKaada (Malayalam) #RRR #NTR #RamCharan #Maragadhamani #SSRajamouli #shorts #ytshorts](https://www.youtube.com/watch?v=Z6vClwn1AeA)
-- [വ്രതശുദ്ധിയോടെ പുണ്യറമളാൻ ആഘോഷിക്കുന്ന എല്ലാവർക്കും റംസാൻ സ്പെഷ്യൽ ഗാനങ്ങൾ | RAMSAN SPECIAL SONGS](https://www.youtube.com/watch?v=sBdXfmAmhfs)
-- [Vellaram Kannukalil | Kattuchembakam | Mohan Sithara | Vinayan | Sujatha Mohan | Radhika Thilak](https://www.youtube.com/watch?v=bfICSxJcrYY)
-- [മലയാളസിനിമ അഭിമാനത്തോടെ  പ്രേക്ഷകർക്ക് മുമ്പിൽ സമർപ്പിച്ച സൂപ്പർഹിറ്റ് ചിത്രങ്ങളിലെ നല്ല ഗാനങ്ങൾ](https://www.youtube.com/watch?v=3mfoDM0GCho)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
