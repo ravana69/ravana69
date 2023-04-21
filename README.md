@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thathamma Pattinte Chelu | | Nizam | Naiga Sonu | Praveen M Kumar | Shrijith Menon | Ramzan Songs](https://www.youtube.com/watch?v=f6yVxv6CC0A)
 - [Songs Of The Week | Rithuraj | Christian Devotional Songs Malayalam | Joji Johns | Kester](https://www.youtube.com/watch?v=9hNWdqk9JNw)
 - [Anthipoomanam | Aayushman Bhava | Jayaram | Divya Unni | Yesudas | Johnson](https://www.youtube.com/watch?v=ODl4bjLnflY)
 - [Ellaam Kshmikkan | Christian Songs Malayalam | Midhila Michael | Br.Anil Malappuram | Joji Johns](https://www.youtube.com/watch?v=SBbHyZJ4j8s)
 - [Karineelakkannazhaki Kannaki | Kannaki | M G Sreekumar | Kaithapram Vishwanathan | Kaithapram](https://www.youtube.com/watch?v=3exkIJkl9cI)
 - [Chik Chik - Video Song | Good Luck Sakhi | Keerthy Suresh | Aadhi Pinisetty | DSP](https://www.youtube.com/watch?v=t2d70pFESfI)
-- [Thirikaiyilum - Audio Song | Devotional | Lord Krishna | P. Jayachandran](https://www.youtube.com/watch?v=-OWGJeKTsug)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
