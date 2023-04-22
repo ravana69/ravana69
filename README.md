@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thinkale Poomthinkale | Kalyanaraman | MG Sreekumar | Afsal | Berny Ignatius | Kaithapram](https://www.youtube.com/watch?v=h1H1fzN8vkk)
+- [People of Maloor | Padavettu | Nivin Pauly, Aditi Balan | Liju Krishna | Govind Vasantha](https://www.youtube.com/watch?v=9GGwNFeiMBc)
 - [22 April 2023](https://www.youtube.com/watch?v=c249WolIt7g)
 - [ആകാശമാകെ കണിമലർ കതിരുമായി | Aakashamake Kanimalar - Namukku Parkkan Munthiri Thoppukal | Mohanlal](https://www.youtube.com/watch?v=jrxUMiDa5pw)
 - [മാപ്പിള പാട്ടിന്റെ ശീലിൽ വിരിഞ്ഞ റംസാൻ നിലാവൊത്ത മലയാളസിനിമാഗാനങ്ങൾ | RAMZAN SPECIAL SONGS](https://www.youtube.com/watch?v=docKI4ECNo0)
 - [Ramsanile Chandrikayo| Alibabayum 41 kallanamarum |Vayalar | G Devarajan |Prem Naseer | Jayabharathi](https://www.youtube.com/watch?v=q1JTSXRfPcc)
-- [പ്രേക്ഷകമനസിൽ ഉൾപുളകം സൃഷ്‌ടിച്ച പ്രണയാർദ്രമായ സൂപ്പർഹിറ്റ് യുഗ്മഗാനങ്ങൾ | DUET SONGS MALAYALAM](https://www.youtube.com/watch?v=86DGUn32Sjw)
-- [Where is your cooling glass at? | #PalaPalaaMinnerunne | #Dasara | #KeerthySuresh #Nani | #Shorts](https://www.youtube.com/watch?v=httdflHSr-0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
