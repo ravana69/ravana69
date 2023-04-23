@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Request your movies as a comment to this topic](https://www.1tamilmv.help/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=345947)
-- [Ayudha Poojai &lpar;1995&rpar; Tamil TRUE WEB-DL - 544p - AVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 2.3GB - ESub - GDFlix](https://www.1tamilmv.help/index.php?/forums/topic/173026-ayudha-poojai-1995-tamil-true-web-dl-544p-avc-untouched-ddp20-23gb-esub-gdflix/&do=findComment&comment=345946)
-- [Boomerang &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 1.8GB &amp; 1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173019-boomerang-2023-malayalam-true-web-dl-1080p-720p-avc-aac-18gb-1gb-x264-700mb-400mb-esub/&do=findComment&comment=345945)
-- [Ayudha Poojai &lpar;1995&rpar; Tamil TRUE WEB-DL - 544p - AVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 2.3GB - ESub - GDFlix](https://www.1tamilmv.help/index.php?/forums/topic/173026-ayudha-poojai-1995-tamil-true-web-dl-544p-avc-untouched-ddp20-23gb-esub-gdflix/&do=findComment&comment=345944)
-- [Kaalamellam Kadhal Vaazhga &lpar;1997&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 8.11GB - ESub - GDFlix](https://www.1tamilmv.help/index.php?/forums/topic/173025-kaalamellam-kadhal-vaazhga-1997-tamil-true-web-dl-1080p-avc-untouched-ddp20-811gb-esub-gdflix/&do=findComment&comment=345943)
+- [Kadhal Kappal &lpar;Trending Version&rpar; Master Quality 24bit - FLAC - Santhosh Narayanan - 19 MB](https://www.1tamilmv.help/index.php?/forums/topic/173023-kadhal-kappal-trending-version-master-quality-24bit-flac-santhosh-narayanan-19-mb/&do=findComment&comment=345952)
+- [Request your movies as a comment to this topic](https://www.1tamilmv.help/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=345951)
+- [Request your movies as a comment to this topic](https://www.1tamilmv.help/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=345950)
+- [Request your movies as a comment to this topic](https://www.1tamilmv.help/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=345949)
+- [Request your movies as a comment to this topic](https://www.1tamilmv.help/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=345948)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
