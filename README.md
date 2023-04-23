@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kadhal Kappal &lpar;Trending Version&rpar; Master Quality 24bit - FLAC - Santhosh Narayanan - 19 MB](https://www.1tamilmv.help/index.php?/forums/topic/173023-kadhal-kappal-trending-version-master-quality-24bit-flac-santhosh-narayanan-19-mb/&do=findComment&comment=345954)
+- [Ponniyin Selvan : Part 2 &lpar;2023&rpar; Tamil Audio launch TRUE HQ HDTV - [1080p &amp; 720p - AVC - 2.8GB - 1.3GB &amp; 500MB]](https://www.1tamilmv.help/index.php?/forums/topic/173029-ponniyin-selvan-part-2-2023-tamil-audio-launch-true-hq-hdtv-1080p-720p-avc-28gb-13gb-500mb/&do=findComment&comment=345953)
 - [Kadhal Kappal &lpar;Trending Version&rpar; Master Quality 24bit - FLAC - Santhosh Narayanan - 19 MB](https://www.1tamilmv.help/index.php?/forums/topic/173023-kadhal-kappal-trending-version-master-quality-24bit-flac-santhosh-narayanan-19-mb/&do=findComment&comment=345952)
 - [Request your movies as a comment to this topic](https://www.1tamilmv.help/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=345951)
 - [Request your movies as a comment to this topic](https://www.1tamilmv.help/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=345950)
-- [Request your movies as a comment to this topic](https://www.1tamilmv.help/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=345949)
-- [Request your movies as a comment to this topic](https://www.1tamilmv.help/index.php?/forums/topic/79-request-your-movies-as-a-comment-to-this-topic/&do=findComment&comment=345948)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
