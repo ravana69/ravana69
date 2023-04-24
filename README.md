@@ -24,10 +24,10 @@
 
 <!-- BLOG-POST-LIST:START -->
 - [Vettaiyaadu Vilaiyaadu &lpar;2006&rpar; DOLBY-DIDITAL [WAV -1411 kbps] Harris Jayaraj -Musical](https://www.1tamilmv.help/index.php?/forums/topic/68362-vettaiyaadu-vilaiyaadu-2006-dolby-didital-wav-1411-kbps-harris-jayaraj-musical/&do=findComment&comment=345975)
+- [The Power &lpar;2023&rpar; S01 EP&lpar;01-06&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tam + Tel + Hin + Mal + Kan + Eng] - 6.5GB - 2GB - 650MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173032-the-power-2023-s01-ep01-06-true-web-dl-1080p-720p-avc-dd51-640kbps-tam-tel-hin-mal-kan-eng-65gb-2gb-650mb-esub/&do=findComment&comment=345974)
 - [Ponniyin Selvan : Part 2 &lpar;2023&rpar; Tamil Audio launch TRUE HQ HDTV - [1080p &amp; 720p - AVC - 2.8GB - 1.3GB &amp; 500MB]](https://www.1tamilmv.help/index.php?/forums/topic/173029-ponniyin-selvan-part-2-2023-tamil-audio-launch-true-hq-hdtv-1080p-720p-avc-28gb-13gb-500mb/&do=findComment&comment=345973)
 - [Ponniyin Selvan : Part 2 &lpar;2023&rpar; Tamil Audio launch TRUE HQ HDTV - [1080p &amp; 720p - AVC - 2.8GB - 1.3GB &amp; 500MB]](https://www.1tamilmv.help/index.php?/forums/topic/173029-ponniyin-selvan-part-2-2023-tamil-audio-launch-true-hq-hdtv-1080p-720p-avc-28gb-13gb-500mb/&do=findComment&comment=345972)
 - [Boomerang &lpar;2023&rpar;,Malayalam.1080p.Web-dl.x264.DD5.1 640Kbps Upmixed.ESub - 2.4GB](https://www.1tamilmv.help/index.php?/forums/topic/173031-boomerang-2023malayalam1080pweb-dlx264dd51-640kbps-upmixedesub-24gb/&do=findComment&comment=345971)
-- [Boomerang &lpar;2023&rpar;,Malayalam.1080p.Web-dl.x264.DD5.1 640Kbps Upmixed.ESub - 2.4GB](https://www.1tamilmv.help/index.php?/forums/topic/173031-boomerang-2023malayalam1080pweb-dlx264dd51-640kbps-upmixedesub-24gb/&do=findComment&comment=345970)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
