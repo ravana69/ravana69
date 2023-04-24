@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Mr. King &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.7GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173037-mr-king-2023-tamil-true-web-dl-1080p-720p-avc-dd51-640kbps-27gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=346011)
+- [The Mummy &lpar;1999&rpar; AAC 2.0 Tamil-Telugu-DD5.1 Hindi- DTS  7.1 English-Russian  1080p &amp; 2160p UHD BD REMUX HDR10+ - AC3 - HEVC - Dolby Vision MSub 73GB &amp; 5GB [G-Drive]](https://www.1tamilmv.help/index.php?/forums/topic/173028-the-mummy-1999-aac-20-tamil-telugu-dd51-hindi-dts-71-english-russian-1080p-2160p-uhd-bd-remux-hdr10-ac3-hevc-dolby-vision-msub-73gb-5gb-g-drive/&do=findComment&comment=346010)
 - [Kadhal Kan Kattudhe &lpar;2017&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 7.2GB - ESub - GDFlix](https://www.1tamilmv.help/index.php?/forums/topic/173033-kadhal-kan-kattudhe-2017-tamil-true-web-dl-1080p-avc-untouched-ddp51-72gb-esub-gdflix/&do=findComment&comment=346009)
 - [The Power &lpar;2023&rpar; S01 EP&lpar;01-06&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tam + Tel + Hin + Mal + Kan + Eng] - 6.5GB - 1.3GB - 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173032-the-power-2023-s01-ep01-06-true-web-dl-1080p-720p-avc-dd51-640kbps-tam-tel-hin-mal-kan-eng-65gb-13gb-450mb-esub/&do=findComment&comment=346008)
 - [The Power &lpar;2023&rpar; S01 EP&lpar;01-06&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tam + Tel + Hin + Mal + Kan + Eng] - 6.5GB - 1.3GB - 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173032-the-power-2023-s01-ep01-06-true-web-dl-1080p-720p-avc-dd51-640kbps-tam-tel-hin-mal-kan-eng-65gb-13gb-450mb-esub/&do=findComment&comment=346007)
-- [Kaathal Athu Ragasiyamanathu &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 4.8GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173036-kaathal-athu-ragasiyamanathu-2022-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-48gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=346006)
-- [Kadhal Kan Kattudhe &lpar;2017&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 7.2GB - ESub - GDFlix](https://www.1tamilmv.help/index.php?/forums/topic/173033-kadhal-kan-kattudhe-2017-tamil-true-web-dl-1080p-avc-untouched-ddp51-72gb-esub-gdflix/&do=findComment&comment=346005)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
