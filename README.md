@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Poonilavithal - Lyrical Video | Nizhal | Madhu Balakrishnan | Sarayu](https://www.youtube.com/watch?v=U7T1C_9VNIw)
+- [വീണ്ടും വീണ്ടും കേൾക്കാൻ മനസ്സ് കൊതി തുള്ളുന്ന മലയാളസിനിമയിലെ സൂപ്പർഹിറ്റ് ചിത്രങ്ങളിലെ ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=b6RGrvLd_R8)
+- [മധുരസ്മരണകളുണർത്തുന്ന മലയാളസിനിമയിലെ മനോഹരഗാനങ്ങൾ  | NISARI MUISC | SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=Roe2XDXh6jg)
 - [Himalayan Love Story | Romantic Album](https://www.youtube.com/watch?v=OwvBVoe2WJw)
 - [Christian Morning Prayer Songs | Wilson Piravom | Prabhatha Geethangal |Joji Johns | Christian Songs](https://www.youtube.com/watch?v=ZADels_pgUk)
 - [23 April 2023](https://www.youtube.com/watch?v=0J9tTH0Ffeg)
-- [Thankathinkal Tharoliye | Lanka | Suresh Gopi | Mamta Mohandas | Sreenivas | Beeyar Prasad](https://www.youtube.com/watch?v=MCN_OejYrjQ)
-- [Christian Melody Songs | Manoj Christy | Sujatha | Christian Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=mTKP1zVgY3Q)
-- [Oru Yugam 💔 | Sita Ramam | Ashitha Anand | #sitaramam #dulquersalmaan #vishalchandrasekhar](https://www.youtube.com/watch?v=C2FvlX7gzOk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
