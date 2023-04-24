@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [📌 |4K| VIKRAMARKUDU &lpar;2006&rpar; &lpar;Music Video Album&rpar; - 2160P - ULTRA - WEBDL - VP9 - TEL DD® 5.1 @ 448 Kbps - DVD SYNC - 2.6GB 〰️ [Avatar]](https://www.1tamilmv.help/index.php?/forums/topic/173047-%F0%9F%93%8C-4k-vikramarkudu-2006-music-video-album-2160p-ultra-webdl-vp9-tel-dd%C2%AE-51-448-kbps-dvd-sync-26gb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=346028)
+- [📌 |4K| MAHANUBHAVUDU &lpar;2017&rpar; &lpar;Music Video Album&rpar; - HQ 2160P - UV - WEBDL - VP9 - TEL DDP 5.1 @ 192 Kbps - 2.2GB 〰️ [Avatar]](https://www.1tamilmv.help/index.php?/forums/topic/173046-%F0%9F%93%8C-4k-mahanubhavudu-2017-music-video-album-hq-2160p-uv-webdl-vp9-tel-ddp-51-192-kbps-22gb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=346027)
 - [Project E.1337: ALPHA &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.8GB &amp; 800MB | x264 - &lpar;Tam + Hin&rpar; - 350MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173038-project-e1337-alpha-2022-hd-original-audios-1080p-720p-x264-tamil-hindi-eng-18gb-800mb-x264-tam-hin-350mb-esub/&do=findComment&comment=346026)
 - [Mr. King &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.7GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173037-mr-king-2023-tamil-true-web-dl-1080p-720p-avc-dd51-640kbps-27gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=346025)
 - [Mr. King &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.7GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173037-mr-king-2023-tamil-true-web-dl-1080p-720p-avc-dd51-640kbps-27gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=346024)
-- [Hero &lpar;2022&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [Telugu DD+5.1 ATMOS &lpar;768Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.help/index.php?/forums/topic/173042-hero-2022-telugu-music-video-album-1080p-web-hd-untouched-avc-telugu-dd51-atmos-768kbps-e-sub-by-beast-uk/&do=findComment&comment=346023)
-- [Hero &lpar;2022&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [Telugu DD+5.1 ATMOS &lpar;768Kbps&rpar;] E-Sub By-Beast UK](https://www.1tamilmv.help/index.php?/forums/topic/173042-hero-2022-telugu-music-video-album-1080p-web-hd-untouched-avc-telugu-dd51-atmos-768kbps-e-sub-by-beast-uk/&do=findComment&comment=346022)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
