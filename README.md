@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kuruvi &lpar;2009&rpar; Tamil - BluRay - 1080p &amp; 720p - x264 - &lpar;DTS &lpar;1510Kbps&rpar; + AAC 2.0&rpar; - 8GB - 3GB - 1.4GB - 700MB &amp; 400MB - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173050-kuruvi-2009-tamil-bluray-1080p-720p-x264-dts-1510kbps-aac-20-8gb-3gb-14gb-700mb-400mb-esub/&do=findComment&comment=346060)
+- [Scream VI &lpar;2023&rpar; HQ HDRip - 720p - x264 - [Hindi + Eng] - &lpar;DD5.1 - 192Kbps&rpar; - 950MB - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173049-scream-vi-2023-hq-hdrip-720p-x264-hindi-eng-dd51-192kbps-950mb-esub/&do=findComment&comment=346059)
+- [Kuruvi &lpar;2009&rpar; Tamil - BluRay - 1080p &amp; 720p - x264 - &lpar;DTS &lpar;1510Kbps&rpar; + AAC 2.0&rpar; - 8GB - 3GB - 1.4GB - 700MB &amp; 400MB - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173050-kuruvi-2009-tamil-bluray-1080p-720p-x264-dts-1510kbps-aac-20-8gb-3gb-14gb-700mb-400mb-esub/&do=findComment&comment=346058)
 - [Kuruvi &lpar;2009&rpar; Tamil - BluRay - 1080p &amp; 720p - x264 - &lpar;DTS &lpar;1510Kbps&rpar; + AAC 2.0&rpar; - 8GB - 3GB - 1.4GB - 700MB &amp; 400MB - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173050-kuruvi-2009-tamil-bluray-1080p-720p-x264-dts-1510kbps-aac-20-8gb-3gb-14gb-700mb-400mb-esub/&do=findComment&comment=346057)
 - [Kuruvi &lpar;2009&rpar; Tamil - BluRay - 1080p &amp; 720p - x264 - &lpar;DTS &lpar;1510Kbps&rpar; + AAC 2.0&rpar; - 8GB - 3GB - 1.4GB - 700MB &amp; 400MB - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173050-kuruvi-2009-tamil-bluray-1080p-720p-x264-dts-1510kbps-aac-20-8gb-3gb-14gb-700mb-400mb-esub/&do=findComment&comment=346056)
-- [Kuruvi &lpar;2009&rpar; Tamil - BluRay - 1080p &amp; 720p - x264 - &lpar;DTS &lpar;1510Kbps&rpar; + AAC 2.0&rpar; - 8GB - 3GB - 1.4GB - 700MB &amp; 400MB - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173050-kuruvi-2009-tamil-bluray-1080p-720p-x264-dts-1510kbps-aac-20-8gb-3gb-14gb-700mb-400mb-esub/&do=findComment&comment=346055)
-- [Scream VI &lpar;2023&rpar; HQ HDRip - 720p - x264 - [Hindi + Eng] - &lpar;DD5.1 - 192Kbps&rpar; - 950MB - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173049-scream-vi-2023-hq-hdrip-720p-x264-hindi-eng-dd51-192kbps-950mb-esub/&do=findComment&comment=346054)
-- [Kuruvi &lpar;2009&rpar; Tamil - BluRay - 1080p &amp; 720p - x264 - &lpar;DTS &lpar;1510Kbps&rpar; + AAC 2.0&rpar; - 8GB - 3GB - 1.4GB - 700MB &amp; 400MB - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173050-kuruvi-2009-tamil-bluray-1080p-720p-x264-dts-1510kbps-aac-20-8gb-3gb-14gb-700mb-400mb-esub/&do=findComment&comment=346053)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
