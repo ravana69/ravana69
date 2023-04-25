@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഏത് വേഷത്തിലും ഒരുപോലെ തിളങ്ങുന്ന മലയാളികളുടെ ഇഷ്ടനടൻ ജയറാം ചിത്രങ്ങളിലെ വിനോദഗാനങ്ങൾ | JAYARAM HITS](https://www.youtube.com/watch?v=EBWPJKxSDE0)
+- [Oru Kili Paattu Moolave  | Mohanlal, Padmapriya | Gireesh Puthenchery - Vadakumnadhan](https://www.youtube.com/watch?v=KwQHiG9qcX4)
+- [പ്രണയത്തിന് ചാരുതയും ചേലുമേകി പ്രമുഖ ഹിറ്റ് ചിത്രങ്ങളിൽ വന്ന സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ  | HIT LOVE SONGS](https://www.youtube.com/watch?v=9230HnEcyLQ)
 - [ദീപം മണിദീപം പൊൻദീപം | Deepam Mani Deepam |  Avidathepole Ivideyum | Malayalam Film Song](https://www.youtube.com/watch?v=pIzfu8etThA)
 - [𝔸𝕍𝔸𝕃 - ℝ𝕠𝕞𝕒𝕟𝕥𝕚𝕔 𝕄𝕒𝕝𝕒𝕪𝕒𝕝𝕒𝕞 𝔸𝕝𝕓𝕦𝕞 | Shorts](https://www.youtube.com/watch?v=JG-yX5CuKKw)
 - [Kannalla Kannalla | Uschool | Shorts](https://www.youtube.com/watch?v=VqxXVyup1XI)
-- [Kannalla Kannalla | Uschool | Shorts | Ore Mukham](https://www.youtube.com/watch?v=m-sRP9WN7Uo)
-- [Chaakkaala | Shorts | Kanmaranjonu | Jassie Gift | |Shorts](https://www.youtube.com/watch?v=4qUDAcoWXP8)
-- [Kanmaranjonu | Chakkala | Jassie Gift | |Shorts](https://www.youtube.com/watch?v=UTdVbC6Uu1U)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
