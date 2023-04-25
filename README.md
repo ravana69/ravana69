@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kuruvi &lpar;2009&rpar; Tamil - BluRay - 1080p &amp; 720p - x264 - &lpar;DTS &lpar;1510Kbps&rpar; + AAC 2.0&rpar; - 8GB - 3GB - 1.4GB - 700MB &amp; 400MB - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173050-kuruvi-2009-tamil-bluray-1080p-720p-x264-dts-1510kbps-aac-20-8gb-3gb-14gb-700mb-400mb-esub/&do=findComment&comment=346055)
+- [Scream VI &lpar;2023&rpar; HQ HDRip - 720p - x264 - [Hindi + Eng] - &lpar;DD5.1 - 192Kbps&rpar; - 950MB - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173049-scream-vi-2023-hq-hdrip-720p-x264-hindi-eng-dd51-192kbps-950mb-esub/&do=findComment&comment=346054)
+- [Kuruvi &lpar;2009&rpar; Tamil - BluRay - 1080p &amp; 720p - x264 - &lpar;DTS &lpar;1510Kbps&rpar; + AAC 2.0&rpar; - 8GB - 3GB - 1.4GB - 700MB &amp; 400MB - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173050-kuruvi-2009-tamil-bluray-1080p-720p-x264-dts-1510kbps-aac-20-8gb-3gb-14gb-700mb-400mb-esub/&do=findComment&comment=346053)
 - [Scream VI &lpar;2023&rpar; HQ HDRip - 720p - x264 - [Hindi + Eng] - &lpar;DD5.1 - 192Kbps&rpar; - 950MB - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173049-scream-vi-2023-hq-hdrip-720p-x264-hindi-eng-dd51-192kbps-950mb-esub/&do=findComment&comment=346052)
 - [The Mummy Collection &lpar;1999 - 2008&rpar; 1080p BluRay [Hindi + English &lpar;DD 5.1&rpar; + Tamil + Telugu &lpar;MP3&rpar;] Esubs 15GB [Gdrive]](https://www.1tamilmv.help/index.php?/forums/topic/165285-the-mummy-collection-1999-2008-1080p-bluray-hindi-english-dd-51-tamil-telugu-mp3-esubs-15gb-gdrive/&do=findComment&comment=346051)
-- [Tooth Pari: When Love Bites &lpar;2023&rpar; S01 EP&lpar;01-08&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi] - 5GB - 2GB &amp; 850MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172966-tooth-pari-when-love-bites-2023-s01-ep01-08-true-web-dl-1080p-720p-avc-dd51-192kbps-tamil-telugu-hindi-5gb-2gb-850mb-esub/&do=findComment&comment=346050)
-- [Kaathal Athu Ragasiyamanathu &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 4.8GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173036-kaathal-athu-ragasiyamanathu-2022-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-48gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=346049)
-- [Mr. King &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.7GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173037-mr-king-2023-tamil-true-web-dl-1080p-720p-avc-dd51-640kbps-27gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=346048)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
