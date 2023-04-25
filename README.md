@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Singer Of The Week | Biju Narayanan | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=3lHOkS2VhHw)
-- [Vinnile Gandharva | Rajavinte Makan | Mohanlal | Ambika | Shibu Chakravarthy | Unni Menon](https://www.youtube.com/watch?v=EY85ZNp494E)
-- [Christian Superhit Songs | KG Markose | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=A1HfZW6KxHY)
-- [Ramzan Nilavotha | Video Song | K J Yesudas | Boy Friend | Vinayan | M Jayachandran | Kaithapram](https://www.youtube.com/watch?v=aN6VxmL8frU)
-- [Onnam Malakeri | Kalyanaraman | Dileep |  Lal |  Lalu Alex |  Innocent | Berny Ignatius | Kaithapram](https://www.youtube.com/watch?v=WLhh_815izw)
-- [24 April 2023](https://www.youtube.com/watch?v=rw8vHaoa7k4)
+- [𝔸𝕍𝔸𝕃 - ℝ𝕠𝕞𝕒𝕟𝕥𝕚𝕔 𝕄𝕒𝕝𝕒𝕪𝕒𝕝𝕒𝕞 𝔸𝕝𝕓𝕦𝕞 | Shorts](https://www.youtube.com/watch?v=JG-yX5CuKKw)
+- [Kannalla Kannalla | Uschool | Shorts](https://www.youtube.com/watch?v=VqxXVyup1XI)
+- [Kannalla Kannalla | Uschool | Shorts | Ore Mukham](https://www.youtube.com/watch?v=m-sRP9WN7Uo)
+- [Chaakkaala | Shorts | Kanmaranjonu | Jassie Gift | |Shorts](https://www.youtube.com/watch?v=4qUDAcoWXP8)
+- [Kanmaranjonu | Chakkala | Jassie Gift | |Shorts](https://www.youtube.com/watch?v=UTdVbC6Uu1U)
+- [Chakkala | Shorts | Kanmaranjonu | Jassie Gift](https://www.youtube.com/watch?v=JnUUhPrWshc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
