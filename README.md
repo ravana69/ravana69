@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Memu  &lpar;2016&rpar; Telugu - WEB-HD - 1080p - Hx264 - AVC - AAC - 2.5GB](https://www.1tamilmv.help/index.php?/forums/topic/75-memu-2016-telugu-web-hd-1080p-hx264-avc-aac-25gb/&do=findComment&comment=346107)
+- [Janatha Garage &lpar;2016&rpar; Malayalam - HDRip - 400MB - x264 - MP3](https://www.1tamilmv.help/index.php?/forums/topic/488-janatha-garage-2016-malayalam-hdrip-400mb-x264-mp3/&do=findComment&comment=346106)
+- [Fall &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.4GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172013-fall-2022-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-34gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=346105)
 - [Enrum Anbudan &lpar;1992&rpar;,Tamil.480p.HDTV.x264.AAC2.0 - 2GB](https://www.1tamilmv.help/index.php?/forums/topic/169764-enrum-anbudan-1992tamil480phdtvx264aac20-2gb/&do=findComment&comment=346104)
 - [Oh My Darling &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 640Kbps&rpar; [Tamil + Telugu + Malayalam] - 3.5GB - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 750MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172958-oh-my-darling-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-malayalam-35gb-26gb-14gb-800mb-x264-750mb-450mb-250mb-esub/&do=findComment&comment=346103)
-- [FAST X &lpar;2023&rpar; - Official [Tamil + Telugu + Hindi + English] Trailer 2 | Universal Studios | Vin Diesel](https://www.1tamilmv.help/index.php?/forums/topic/172961-fast-x-2023-official-tamil-telugu-hindi-english-trailer-2-universal-studios-vin-diesel/&do=findComment&comment=346102)
-- [Jallikattu &lpar;2023&rpar; Telugu S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - 5.6GB - 1.8GB | x264 - 850MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/172344-jallikattu-2023-telugu-s01-ep-01-08-true-web-dl-1080p-720p-avc-56gb-18gb-x264-850mb-esub/&do=findComment&comment=346101)
-- [Ponniyin Selvan 1 &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Malayalam + Kannada] - 13.2GB - 4.1GB - 2.8GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/169992-ponniyin-selvan-1-2022-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-malayalam-kannada-132gb-41gb-28gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=346100)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
