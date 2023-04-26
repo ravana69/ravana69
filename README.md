@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Pala Palaa Minnerunne - Video Song | Dasara (Malayalam)| Nani, Keerthy Suresh | Santhosh Narayanan](https://www.youtube.com/watch?v=ENkCqfI2bfY)
 - [26 April 2023](https://www.youtube.com/watch?v=5-bjTFbaBDY)
 - [Ore Swaram | Ivar | Sreenivas | Karthik | Sreelekha Parthasaradhi | Beeyar prasad](https://www.youtube.com/watch?v=z9e86nkdR7k)
 - [Vaathil Pazuthilooden Video Song | Vineeth | Karthika | KJ Yesudas | ONV Kurup | V Dakshinamoorthy](https://www.youtube.com/watch?v=oUemKg6pfJA)
 - [Ee Elavathoor Kayalinte | Meesamadhavan | P Madhuri | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=7txyJiOE86g)
 - [മാമുക്കോയയുടെ ഹിറ്റ് സോങ്ങ് |  Karakaanaa Kadalala Mele    Mohanlal, Sreenivasan  | Naadodikkaattu](https://www.youtube.com/watch?v=e2kWHBHNU4I)
-- [Kannu Nattu | Kathavasheshan | Vidhyadharan | P Jayachandran | M Jayachandran | Gireesh Puthenchery](https://www.youtube.com/watch?v=pIlgQAav6uE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
