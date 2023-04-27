@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Gange Thudiyil  | Vadakkumnadhan |  Gireesh puthanchery  | Mohanlal | Padmapriya | Kavya Madhavan](https://www.youtube.com/watch?v=mgwaXnSLay0)
+- [താരനിബിഢമായ സൂപ്പർഹിറ്റ് ചിത്രങ്ങളിലെ ആരും കൊതിക്കും അസുലഭ ഗാനങ്ങൾ | SUPERHIT MOVIE SONGS](https://www.youtube.com/watch?v=iQE1rg3xarA)
+- [അത്യുഗ്രൻ സംഗീതം കൊണ്ട് മലയാളികളെ അതിശയിപ്പിച്ച മലയാളസിനിമയുടെ ജനപ്രിയഗാനങ്ങൾ | NISARI MUSIC](https://www.youtube.com/watch?v=Alqrr4kWmTY)
 - [The crazy #ShunakaYuvarajan is here! 🥳 | #Neymar | #Shorts](https://www.youtube.com/watch?v=Eoah3OcxylY)
 - [#ShunakaYuvarajan - Out NOW! | #Neymar | #Shorts](https://www.youtube.com/watch?v=CRY1ZH_xIgM)
 - [നൊമ്പരങ്ങളിൽ സാന്ത്വനമായെത്തിയ ആശ്വാസ ഗീതങ്ങൾ | Christian Devotional Songs Malayalam| Kester](https://www.youtube.com/watch?v=iplOF64gQgY)
-- [Theeyilurukki | Ponmuttayidunna Thaaravu | Sreenivasan | Urvashi | Sathyan Anthikkad](https://www.youtube.com/watch?v=7o8-PTKl3Is)
-- [Christian Melody Songs | Kester |Joji Johns | Christian Devotional Songs Malayalam | Christian Songs](https://www.youtube.com/watch?v=Fbe4XS_4zIQ)
-- [Pala Palaa Minnerunne - Video Song | Dasara (Malayalam)| Nani, Keerthy Suresh | Santhosh Narayanan](https://www.youtube.com/watch?v=ENkCqfI2bfY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
