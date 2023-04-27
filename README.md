@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pathu Thala &lpar;2023&rpar;.720p &amp; 1080p.SS.WEB-DL.DDP5.1.Atmos.H.264.ESub - 4.2GB](https://www.1tamilmv.help/index.php?/forums/topic/173072-pathu-thala-2023720p-1080pssweb-dlddp51atmosh264esub-42gb/&do=findComment&comment=346157)
+- [Dasara &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 12GB - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173065-dasara-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-12gb-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=346156)
+- [Dasara &lpar;2023&rpar; TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD+5.1&rpar; [Tamil + Telugu + Malayalam + Kannada] - 8GB - ESub - GDFlix](https://www.1tamilmv.help/index.php?/forums/topic/173078-dasara-2023-true-web-dl-1080p-hq-avc-untouched-dd51-tamil-telugu-malayalam-kannada-8gb-esub-gdflix/&do=findComment&comment=346155)
 - [Pathu Thala &lpar;2023&rpar; TRUE WEB-DL - 1080p HQ - HEVC x265 - UNTOUCHED - &lpar;DD+5.1&rpar; [Tamil + Telugu + Malayalam + Kannada] - 6.7GB - ESub - GDFlix](https://www.1tamilmv.help/index.php?/forums/topic/173077-pathu-thala-2023-true-web-dl-1080p-hq-hevc-x265-untouched-dd51-tamil-telugu-malayalam-kannada-67gb-esub-gdflix/&do=findComment&comment=346154)
 - [Save The Tigers &lpar;2023&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;Tam + Tel + Hin + Mal + Kan&rpar; - 2.8GB &amp; 1.2GB | x264 - &lpar;Tam + Tel&rpar; - 500MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173069-save-the-tigers-2023-s01-ep-01-06-true-web-dl-1080p-720p-x264-tam-tel-hin-mal-kan-28gb-12gb-x264-tam-tel-500mb-esub/&do=findComment&comment=346153)
-- [Chithiram Pesuthadi &lpar;2006&rpar; Tamil REMASTERED TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 10.9GB - ESub - GDFlix](https://www.1tamilmv.help/index.php?/forums/topic/173060-chithiram-pesuthadi-2006-tamil-remastered-true-web-dl-1080p-avc-untouched-ddp20-109gb-esub-gdflix/&do=findComment&comment=346152)
-- [Gurudev Hoysala &lpar;2023&rpar; Kannada Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/173076-gurudev-hoysala-2023-kannada-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=346151)
-- [Pathu Thala &lpar;2023&rpar; TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Malayalam + Kannada] - 11.89GB - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173075-pathu-thala-2023-true-web-dl-1080p-hq-avc-untouched-dd51-640kbps-tamil-telugu-malayalam-kannada-1189gb-esub/&do=findComment&comment=346150)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
