@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Pathu Thala &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 640Kbps&rpar; - 12GB - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.help/index.php?/forums/topic/173063-pathu-thala-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-atmos-640kbps-12gb-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=346143)
-- [Pathu Thala &lpar;2023&rpar; AMZN WEB-DL MULTI DDP5.1 Esubs - 2160p [SDR] | 1080p | 720p - 18.5 GB | 11.9 GB | 6.4 GB](https://www.1tamilmv.help/index.php?/forums/topic/173074-pathu-thala-2023-amzn-web-dl-multi-ddp51-esubs-2160p-sdr-1080p-720p-185-gb-119-gb-64-gb/&do=findComment&comment=346142)
-- [Dasara 2023 NF WEB DL - [Telugu + Tamil + Malayalam] - 1080p - H264 - DDP5.1&lpar;640kbps&rpar; - 6GB [GDRIVE]](https://www.1tamilmv.help/index.php?/forums/topic/164966-dasara-2023-nf-web-dl-telugu-tamil-malayalam-1080p-h264-ddp51640kbps-6gb-gdrive/&do=findComment&comment=346141)
-- [Dasara &lpar;2023&rpar; NF WEB-DL Multi DDP5.1 Esubs x264 - 1080p | 720p - 8 GB | 5.8 GB](https://www.1tamilmv.help/index.php?/forums/topic/173073-dasara-2023-nf-web-dl-multi-ddp51-esubs-x264-1080p-720p-8-gb-58-gb/&do=findComment&comment=346140)
-- [Pathu Thala &lpar;2023&rpar;.1080p.SS.WEB-DL.DDP5.1.Atmos.H.264.ESub - 4.2GB](https://www.1tamilmv.help/index.php?/forums/topic/173072-pathu-thala-20231080pssweb-dlddp51atmosh264esub-42gb/&do=findComment&comment=346139)
+- [Chithiram Pesuthadi &lpar;2006&rpar; Tamil REMASTERED TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 10.9GB - ESub - GDFlix](https://www.1tamilmv.help/index.php?/forums/topic/173060-chithiram-pesuthadi-2006-tamil-remastered-true-web-dl-1080p-avc-untouched-ddp20-109gb-esub-gdflix/&do=findComment&comment=346152)
+- [Gurudev Hoysala &lpar;2023&rpar; Kannada Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/173076-gurudev-hoysala-2023-kannada-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=346151)
+- [Pathu Thala &lpar;2023&rpar; TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Malayalam + Kannada] - 11.89GB - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173075-pathu-thala-2023-true-web-dl-1080p-hq-avc-untouched-dd51-640kbps-tamil-telugu-malayalam-kannada-1189gb-esub/&do=findComment&comment=346150)
+- [Dasara &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 12GB - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173065-dasara-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-12gb-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=346149)
+- [Dasara &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 6.2GB - 4.2GB - 2.9GB - 1.7GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173064-dasara-2023-telugu-true-web-dl-1080p-720p-avc-hevc-62gb-42gb-29gb-17gb-14gb-950mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=346148)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
