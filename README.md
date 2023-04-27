@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Poster &lpar;2021&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - 4.3GB - 2.8GB - 1.43GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173104-poster-2021-telugu-true-web-dl-4k-1080p-720p-hevc-avc-43gb-28gb-143gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=346220)
+- [Rudhran &lpar;2023&rpar;.Tamil.480p.Web-dl.x264.DD5.1 640Kbps Upmixed.HC-ESub - 1.9GB](https://www.1tamilmv.help/index.php?/forums/topic/173100-rudhran-2023tamil480pweb-dlx264dd51-640kbps-upmixedhc-esub-19gb/&do=findComment&comment=346219)
+- [Rudhrudu &lpar;2023&rpar; Telugu WEB-DL - [1080p &amp; 720p - AVC - 2.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB] - HQ Clean Audio](https://www.1tamilmv.help/index.php?/forums/topic/173103-rudhrudu-2023-telugu-web-dl-1080p-720p-avc-26gb-14gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=346218)
 - [Ved &lpar;2022&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - 4GB - 1.3GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.help/index.php?/forums/topic/173102-ved-2022-hindi-true-web-dl-1080p-720p-avc-4gb-13gb-900mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=346217)
 - [Thuramukham &lpar;2023&rpar;.Tamil.1080p.Web-dl.x264.DD+5.1 256Kbps Upmixed.ESub - 4.3GB](https://www.1tamilmv.help/index.php?/forums/topic/173101-thuramukham-2023tamil1080pweb-dlx264dd51-256kbps-upmixedesub-43gb/&do=findComment&comment=346216)
-- [Rudhran &lpar;2023&rpar;.Tamil.480p.Web-dl.x264.DD5.1 640Kbps Upmixed.HC-ESub - 1.9GB](https://www.1tamilmv.help/index.php?/forums/topic/173100-rudhran-2023tamil480pweb-dlx264dd51-640kbps-upmixedhc-esub-19gb/&do=findComment&comment=346215)
-- [Thuramukham &lpar;2023&rpar;.Tamil.1080p.Web-dl.x264.DD+5.1 256Kbps Upmixed.ESub - 4.3GB](https://www.1tamilmv.help/index.php?/forums/topic/173101-thuramukham-2023tamil1080pweb-dlx264dd51-256kbps-upmixedesub-43gb/&do=findComment&comment=346214)
-- [Rudhran &lpar;2023&rpar;.Tamil.480p.Web-dl.x264.DD5.1 640Kbps Upmixed.HC-ESub - 1.9GB](https://www.1tamilmv.help/index.php?/forums/topic/173100-rudhran-2023tamil480pweb-dlx264dd51-640kbps-upmixedhc-esub-19gb/&do=findComment&comment=346213)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
