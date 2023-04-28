@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [1 Nenokkadine &lpar;2014&rpar; Telugu Bluray – [1080p, 720p, 576p, 480p] – AVC/HEVC – [DTS-HDMA + DTS + DD_5.1 – 448kbps] – Esubs](https://www.1tamilmv.help/index.php?/forums/topic/173134-1-nenokkadine-2014-telugu-bluray-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avchevc-%E2%80%93-dts-hdma-dts-dd_51-%E2%80%93-448kbps-%E2%80%93-esubs/&do=findComment&comment=346296)
+- [Rudhran &lpar;2023&rpar; Tamil TRUE WEB DL - x264 AVC - AAC - [1080p &amp; 720p - 2.5GB - 1.5GB] - ESub [GDrive]](https://www.1tamilmv.help/index.php?/forums/topic/132452-rudhran-2023-tamil-true-web-dl-x264-avc-aac-1080p-720p-25gb-15gb-esub-gdrive/&do=findComment&comment=346295)
+- [Dhammu &lpar;2012&rpar; Telugu Bluray – [1080p, 720p, 576p, 480p] – AVC/HEVC – [PCM + DD_5.1 – 448kbps] – Esubs](https://www.1tamilmv.help/index.php?/forums/topic/173133-dhammu-2012-telugu-bluray-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avchevc-%E2%80%93-pcm-dd_51-%E2%80%93-448kbps-%E2%80%93-esubs/&do=findComment&comment=346294)
+- [Sarocharu &lpar;2013&rpar; Telugu Bluray – [1080p, 720p, 576p, 480p] – AVC/HEVC – [DTS-HDMA + DTS + DD_5.1 – 448kbps] – Esubs](https://www.1tamilmv.help/index.php?/forums/topic/173132-sarocharu-2013-telugu-bluray-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avchevc-%E2%80%93-dts-hdma-dts-dd_51-%E2%80%93-448kbps-%E2%80%93-esubs/&do=findComment&comment=346293)
 - [Dasara &lpar;2023&rpar; - TAMIL &amp; TELUGU - 480P - 3D Virtual Surround Sound 5.1 - 1GB](https://www.1tamilmv.help/index.php?/forums/topic/173131-dasara-2023-tamil-telugu-480p-3d-virtual-surround-sound-51-1gb/&do=findComment&comment=346292)
-- [Ponniyin Selvan 2 &lpar;2023&rpar; Malayalam Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/173130-ponniyin-selvan-2-2023-malayalam-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=346291)
-- [Agent &lpar;2023&rpar; Malayalam Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.help/index.php?/forums/topic/173115-agent-2023-malayalam-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=346290)
-- [Viduthalai Part 1 &lpar;2023&rpar; Tamil ZEE5 WEB DL - H264/H265 - DDP5.1 - [2160p &amp; 1080p - 4.8GB - 2.5GB - 2GB] [GDrive]](https://www.1tamilmv.help/index.php?/forums/topic/132118-viduthalai-part-1-2023-tamil-zee5-web-dl-h264h265-ddp51-2160p-1080p-48gb-25gb-2gb-gdrive/&do=findComment&comment=346289)
-- [Ravanasura 2023 AMZN WEB DL - [Telugu + Tamil] - H264/H265 - DD5.1 &lpar;640kbps&rpar; - [1080p &amp; 720p - 9GB - 4.3GB - 2.8GB - 1.1GB] [GDRIVE]](https://www.1tamilmv.help/index.php?/forums/topic/165002-ravanasura-2023-amzn-web-dl-telugu-tamil-h264h265-dd51-640kbps-1080p-720p-9gb-43gb-28gb-11gb-gdrive/&do=findComment&comment=346288)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
