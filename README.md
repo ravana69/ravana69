@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Kotthu Movie - Audio Jukebox | Asif Ali, Nikhila Vimal, Roshan | Kailas | K S Chithra,K S Harisankar](https://www.youtube.com/watch?v=sN1dzr_M5gc)
-- [Neelathadakangalo | Balram v/s Tharadas | Jassie Gift | Kaithapram | KJ Yesudas | Mammootty](https://www.youtube.com/watch?v=iNQHHkKR2lM)
-- [Aariraaro Raariraaro - Video Song | Dasara (Malayalam)| Nani, Keerthy Suresh | Santhosh Narayanan](https://www.youtube.com/watch?v=phvzfUsUYrI)
-- [Master Thoughts #ShunakaYuvarajan | #Neymar | #Shorts](https://www.youtube.com/watch?v=urgN2ZL87Es)
-- [The Mass #ShunakaYuvarajan - Song Out NOW! | #Neymar | #Shorts](https://www.youtube.com/watch?v=pjOSOmgOAxA)
-- [Our Quick Help #ShunakaYuvarajan is here! | #Neymar | #Shorts](https://www.youtube.com/watch?v=LNUtN5pwxcg)
+- [Pathiri Chuttu Vilambi | Meesamadhavan | Machattu Vasanthi | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=ob5zMYvxRWE)
+- [Kadalinakkare Ponore - Rendition | Chemmeen | Sanah Moidutty | Prasanna Suresh](https://www.youtube.com/watch?v=tgxF27guIRU)
+- [Kaliparayum Ninavukalil | Ishtam | Sunil Sithara | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=i9oZILljyEU)
+- [പ്രണയമെന്ന വികാരത്തിന് ചന്തം ചാർത്തിയ മലയാളസിനിമയിലെ മനോഹരഗാനങ്ങൾ | EVERGREEN ROMANTIC SONGS](https://www.youtube.com/watch?v=TfbH4gIh4zQ)
+- [Kaananazhakulla Video Song | Parvathi | Devan | G Venugopal | Durga Raju | MK Arjunan | ONV Kurup](https://www.youtube.com/watch?v=8YonEKgM2u0)
+- [Doorangal Video Song | Enthada Saji | Jayasurya | Nivetha Thomas | Anne Amie | William Francis](https://www.youtube.com/watch?v=VrjzruQXxvE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
