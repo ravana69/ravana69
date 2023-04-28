@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Master Thoughts #ShunakaYuvarajan | #Neymar | #Shorts](https://www.youtube.com/watch?v=urgN2ZL87Es)
 - [The Mass #ShunakaYuvarajan - Song Out NOW! | #Neymar | #Shorts](https://www.youtube.com/watch?v=pjOSOmgOAxA)
 - [Our Quick Help #ShunakaYuvarajan is here! | #Neymar | #Shorts](https://www.youtube.com/watch?v=LNUtN5pwxcg)
 - [#ShunakaYuvarajan - Video Song Out NOW! | #Neymar | #Shorts](https://www.youtube.com/watch?v=Qfv6l0Ys4Kw)
 - [The Perfect TV Buddy #ShunakaYuvarajan is here! 🐕 | #Neymar | #Shorts](https://www.youtube.com/watch?v=eAJKuaBxBWo)
 - [അതിമനോഹരമായ പഴയകാല ഗാനങ്ങൾ old christian songs malayalam with lyrics ! daily worship songs malayalam](https://www.youtube.com/watch?v=TtcRkBGsDI0)
-- [Songs Of The Week | Sujatha | Abhijith Kollam | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=SLvwWb8hVrM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
