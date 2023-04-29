@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാമഴക്കാടേ | Maamazhakkaade Song | Adiverukal malayalam Movie Song | Mohanlal | Karthika | Mukesh](https://www.youtube.com/watch?v=GB1-ekMp-UQ)
+- [Thathaka Thathaka  | Vadakkumnadhan | Gireesh Puthenchery | Mohanlal, Padmapriya, Kavya Madhavan -](https://www.youtube.com/watch?v=DxsFrpK19XE)
+- [പുതുതലമുറയുടെ ശ്രദ്ധേയനായ സംഗീതസംവിധായകൻ എം ജയചന്ദ്രന്റെ കേൾക്കാൻ കൊതിക്കുന്ന സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=tweiI3lOA3g)
 - [രാത്രിയുടെ യാമങ്ങളിൽ പോലും മനസിനെ തഴുകി തലോടുന്ന മലയാളസിനിമയിലെ മനോഹര ഗാനങ്ങൾ | NISARI SONGS](https://www.youtube.com/watch?v=cBL6efuE2AA)
+- [Thalakirukku Making Video Song | Corona Javan | Anthony Daasan | Sreenath Bhasi | Lukman Avaran | CC](https://www.youtube.com/watch?v=8P4cMBZKJ0s)
 - [Junile Nilamazhayil | Karaoke Video | Nammal Thammil | K J Yesudas | Sujatha | Girish Puthencherry](https://www.youtube.com/watch?v=Jn0JAkXBNdo)
-- [Christian Video Songs Malayalam | Sanoop Kumar | Mariyan Ganangal | Sujatha Mohan | Joji Johns](https://www.youtube.com/watch?v=76K_ALEfl64)
-- [Kathala Kathala | Malayaali Maamanu Vanakkam | Jayaram | Roja | Suresh Peters](https://www.youtube.com/watch?v=CODxN4B2MY4)
-- [Good morning](https://www.youtube.com/watch?v=5ShasUb3MrU)
-- [Pucham Parihasam - Video Song | Pookkaalam | Sreeraj Rajan | Sachin Warrier](https://www.youtube.com/watch?v=7E6r_6VRf_o)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
