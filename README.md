@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [29 April 2023](https://www.youtube.com/watch?v=jL4ZQV0CnU8)
+- [Karineela Kannazhaki | Kannaki | Nandita Das | Lal | KS Chithra | Kaithapram | Siddique](https://www.youtube.com/watch?v=DnXucLvNW7o)
 - [Akatharil En Snehame | Kripasagaram | Christian Video Song |Midhila Michael| Fr.Phinil Ezharath CMI](https://www.youtube.com/watch?v=4JtkSo13-D0)
 - [Bhikshakaaran 2 - Official Trailer | Vijay Antony, Kavya Thapar | Fatima Vijay Antony](https://www.youtube.com/watch?v=jhVFWyFuTq0)
 - [Meesakkaran Madhavinu Dosa Thinnan Aasha | Meesamadhavan | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=7NaMA1DSQYE)
 - [Vattathil Vellithinkal | Ishtam | Sunil Sithra | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=UuY1_GITwWA)
-- [Peeli Kannezhuthi Video Song | Manoj K Jayan | Sunitha| KS Chithra| G Venugopal| Johnson| Kaithapram](https://www.youtube.com/watch?v=EGAmuoxt8oc)
-- [മാമഴക്കാടേ | Maamazhakkaade Song | Adiverukal malayalam Movie Song | Mohanlal | Karthika | Mukesh](https://www.youtube.com/watch?v=GB1-ekMp-UQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
