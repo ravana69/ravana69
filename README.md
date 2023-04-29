@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Meesakkaran Madhavinu Dosa Thinnan Aasha | Meesamadhavan | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=7NaMA1DSQYE)
+- [Vattathil Vellithinkal | Ishtam | Sunil Sithra | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=UuY1_GITwWA)
+- [Peeli Kannezhuthi Video Song | Manoj K Jayan | Sunitha| KS Chithra| G Venugopal| Johnson| Kaithapram](https://www.youtube.com/watch?v=EGAmuoxt8oc)
 - [മാമഴക്കാടേ | Maamazhakkaade Song | Adiverukal malayalam Movie Song | Mohanlal | Karthika | Mukesh](https://www.youtube.com/watch?v=GB1-ekMp-UQ)
 - [Thathaka Thathaka  | Vadakkumnadhan | Gireesh Puthenchery | Mohanlal, Padmapriya, Kavya Madhavan -](https://www.youtube.com/watch?v=DxsFrpK19XE)
 - [പുതുതലമുറയുടെ ശ്രദ്ധേയനായ സംഗീതസംവിധായകൻ എം ജയചന്ദ്രന്റെ കേൾക്കാൻ കൊതിക്കുന്ന സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=tweiI3lOA3g)
-- [രാത്രിയുടെ യാമങ്ങളിൽ പോലും മനസിനെ തഴുകി തലോടുന്ന മലയാളസിനിമയിലെ മനോഹര ഗാനങ്ങൾ | NISARI SONGS](https://www.youtube.com/watch?v=cBL6efuE2AA)
-- [Thalakirukku Making Video Song | Corona Javan | Anthony Daasan | Sreenath Bhasi | Lukman Avaran | CC](https://www.youtube.com/watch?v=8P4cMBZKJ0s)
-- [Junile Nilamazhayil | Karaoke Video | Nammal Thammil | K J Yesudas | Sujatha | Girish Puthencherry](https://www.youtube.com/watch?v=Jn0JAkXBNdo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
