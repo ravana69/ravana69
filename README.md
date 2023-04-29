@@ -35,9 +35,9 @@
 - [Christian Video Songs Malayalam | Sanoop Kumar | Mariyan Ganangal | Sujatha Mohan | Joji Johns](https://www.youtube.com/watch?v=76K_ALEfl64)
 - [Kathala Kathala | Malayaali Maamanu Vanakkam | Jayaram | Roja | Suresh Peters](https://www.youtube.com/watch?v=CODxN4B2MY4)
 - [Good morning](https://www.youtube.com/watch?v=5ShasUb3MrU)
+- [Pucham Parihasam - Video Song | Pookkaalam | Sreeraj Rajan | Sachin Warrier](https://www.youtube.com/watch?v=7E6r_6VRf_o)
 - [മലയാളികളുടെ അഭിരുചിക്കനുസരിച്ച് പാട്ടുകൾ ഒരുക്കിയ മോഹൻസിത്താരയുടെ ജനപ്രിയഗാനങ്ങൾ |HITS MOHAN SITHARA](https://www.youtube.com/watch?v=_5TbDcdvxHg)
 - [Kurishil Moonanikalil | Christian Devotional Songs Malayalam | Sebu George |  Joby Kavalam](https://www.youtube.com/watch?v=5Hfm372FKoE)
-- [Pathiri Chuttu Vilambi | Meesamadhavan | Machattu Vasanthi | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=ob5zMYvxRWE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
