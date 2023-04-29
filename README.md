@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Raghavendra Stores &lpar;2023&rpar; Kannada Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/173139-raghavendra-stores-2023-kannada-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=346304)
-- [Pachuvum Athbutha Vilakkum &lpar;2023&rpar; Malayalam Full Movie Watch Now in HD For Free](https://www.1tamilmv.help/index.php?/forums/topic/173138-pachuvum-athbutha-vilakkum-2023-malayalam-full-movie-watch-now-in-hd-for-free/&do=findComment&comment=346303)
-- [1 Nenokkadine &lpar;2014&rpar; Telugu Bluray – [1080p, 720p, 576p, 480p] – AVC/HEVC – [DTS-HDMA + DTS + DD_5.1 – 448kbps] – Esubs](https://www.1tamilmv.help/index.php?/forums/topic/173134-1-nenokkadine-2014-telugu-bluray-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avchevc-%E2%80%93-dts-hdma-dts-dd_51-%E2%80%93-448kbps-%E2%80%93-esubs/&do=findComment&comment=346302)
-- [Dasara &lpar;2023&rpar; - TAMIL &amp; TELUGU - 480P - 3D Virtual Surround Sound 5.1 - 1GB](https://www.1tamilmv.help/index.php?/forums/topic/173131-dasara-2023-tamil-telugu-480p-3d-virtual-surround-sound-51-1gb/&do=findComment&comment=346301)
-- [📌 |4K| RAVANASURA &lpar;2023&rpar; [Telugu + Tamil] &lpar;Music Video Album&rpar; - HQ 4K - AMZN - CBR WEBDL - DUAL DDP 5.1 @ 640 Kbps - ESubs - 2.4GB - FirstonNET](https://www.1tamilmv.help/index.php?/forums/topic/173137-%F0%9F%93%8C-4k-ravanasura-2023-telugu-tamil-music-video-album-hq-4k-amzn-cbr-webdl-dual-ddp-51-640-kbps-esubs-24gb-firstonnet/&do=findComment&comment=346299)
+- [Viduthalai: Part I 2023 Tamil Movie ZEE5 WEB-DL 2160p 4K 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.help/index.php?/forums/topic/173144-viduthalai-part-i-2023-tamil-movie-zee5-web-dl-2160p-4k-1080p-720p-480p-direct-download/&do=findComment&comment=346309)
+- [Dasara 2023 Movie Multi Audio NF WEB-DL 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.help/index.php?/forums/topic/173143-dasara-2023-movie-multi-audio-nf-web-dl-1080p-720p-480p-direct-download/&do=findComment&comment=346308)
+- [Viduthalai &lpar;2023&rpar; Fan made Tamil Movie DTS-MA 5.1 &lpar;Exclusive for cinematic experience&rpar; Direct download $DeathNote$ 8.7GB](https://www.1tamilmv.help/index.php?/forums/topic/173142-viduthalai-2023-fan-made-tamil-movie-dts-ma-51-exclusive-for-cinematic-experience-direct-download-deathnote-87gb/&do=findComment&comment=346307)
+- [Pathu Thala 2023 Movie Multi Audio AMZN WEB-DL 1080p 720p 480p &lpar;Direct Download&rpar;](https://www.1tamilmv.help/index.php?/forums/topic/173141-pathu-thala-2023-movie-multi-audio-amzn-web-dl-1080p-720p-480p-direct-download/&do=findComment&comment=346306)
+- [📌 DASARA &lpar;2023&rpar; V2 MULTI &lpar;Tel + Tam + Mal + Kan + Hin&rpar; &lpar;Music Video Album&rpar; - HQ 1080P - NF - WEBDL - AVC - DDP 5.1 / 640Kbps - SoftESubs - 2GB 〰️ [Avatar]](https://www.1tamilmv.help/index.php?/forums/topic/173140-%F0%9F%93%8C-dasara-2023-v2-multi-tel-tam-mal-kan-hin-music-video-album-hq-1080p-nf-webdl-avc-ddp-51-640kbps-softesubs-2gb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=346305)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
