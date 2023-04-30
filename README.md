@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [st. Joseph status](https://www.youtube.com/watch?v=sX9it7BwV_I)
+- [Gaanamaanu Njaan | Iruvattam Manavatti | Kunchakko Boban | Kavya Madhavan | Alphonse Joseph](https://www.youtube.com/watch?v=vJqHY9Zs_EQ)
 - [വണക്കമാസ ഗാനങ്ങൾ |Mariyan Songs Malayalam | Kester | Christian Songs | Joji Johns | Mary Matha Songs](https://www.youtube.com/watch?v=mRPTKkmk2IY)
 - [Chambakamettile | Malayalam Super Hit Song | Valayam | Ft.Murali | Suvarna Mathew- SP Venkitesh Hits](https://www.youtube.com/watch?v=EgSouxpHI3c)
 - [Ponnum Thingal Video Song | Dileep | Suvalakshmi | Ilayaraja | KJ Yesudas | Kaithapram](https://www.youtube.com/watch?v=104cOt-cJ5o)
 - [Kalabham Tharam Video Song | Gireesh Puthenchery | Raveendran | KS Chithra | Biju Narayanan](https://www.youtube.com/watch?v=uzewFIFk0F8)
-- [എന്റെ തീരമോഹമൊന്നും ഒരു രാവിൽ തീരില്ല #shorts #shortsyoutube #sallapam #dileep #manjuwarrier](https://www.youtube.com/watch?v=rzc7fpAVf7Y)
-- [Yadukula Murali Full Video Song | HD | Puthiya Mukham Movie Song | REMASTERED |](https://www.youtube.com/watch?v=nyQ6qM6B06M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
