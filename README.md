@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vachanamaya Daivame | Christian Video Song | Babu Chalakkudy | Joji Johns | Manoj Illavunakl](https://www.youtube.com/watch?v=a8FdZmALlWI)
+- [Chembakavallikalil | Karaoke Video | Oru Marubhoomi Kadha | Mohanlal | Priyadarshan | M G Sreekumar](https://www.youtube.com/watch?v=mnkEFpTY31s)
 - [2 May 2023](https://www.youtube.com/watch?v=uv78GuCJHuo)
 - [Priyane Urangiyille | Nammal Thammil | Prithviraj | Geethu Mohandas | Yesudas | Sujatha](https://www.youtube.com/watch?v=PuDDcF-g2uE)
 - [Kurishinte Vazhiyil |Christian Devotional Songs Malayalam |Richukuttan |Joji Johns](https://www.youtube.com/watch?v=pe0ykVgJuvE)
 - [Uyartheedum Njan Ente Kankal | Nithya Mammen | Evergreen Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=pcprfU3oNw4)
-- [Prabhavathi-Video Song | Kallanum Bhagavathiyum | Vishnu Unnikrishnan | East Coast Vijayan | Mokksha](https://www.youtube.com/watch?v=T3lE_MGRY8E)
-- [The Great Escape - Motion Poster | Babu Antony | Sandeep JL| Sampath Ram| Arthur Antony|Caren Damer](https://www.youtube.com/watch?v=PjkQ5n80L5M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
