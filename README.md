@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [MERY MATHA GOOD MORNING STATUS](https://www.youtube.com/watch?v=VdVNVTYWJbs)
 - [Pathinalaam Ravinte | Sharjah To Sharjah | Jayaram | Aishwarya | Mohan Sithara | MG Sreekumar](https://www.youtube.com/watch?v=s9lwVdAqo_c)
 - [എല്ലാവരും ഒരുമയോടെ കേൾക്കുന്ന ക്രിസ്തീയ ഭക്തി ഗാനങ്ങൾ Christian Devotional Songs Malayalam |](https://www.youtube.com/watch?v=Ops7XjA8hCw)
 - [Elated to be on board 🥳 | #Kushi moment 😍 | #VijayDevarakonda #Samantha❤️‍🔥 | #HeshamAbdulWahab🎵](https://www.youtube.com/watch?v=KJ760pzsu_I)
 - [Song Single Promo | Tea Kadai Veettile Ponnu | Oda Vittu Sudalama| Vineeth Mohan| Prakash Velayudhan](https://www.youtube.com/watch?v=p1ilt8UxPcg)
 - [Oru Poomazha | Gramaphone | K J Yesudas | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=wEc0x07bZAw)
-- [Prabhathathile Nizhalupole | Video Song | Biju Menon | Samyuktha Varmma | KJ Yesudas | KS Chithra](https://www.youtube.com/watch?v=mGxGFF86MGU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
