@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mass Dog Entry in #ShunakaYuvarajan | #Neymar | #Shorts | #saregamamalayalam](https://www.youtube.com/watch?v=OpKXXDzY47A)
+- [Thei Oru Thenavayal  | Chandranudikkunnadhikkil | SP Balasubramanyam | MG Sreekumar | Sujatha Mohan](https://www.youtube.com/watch?v=jZ2Ij8yNb8s)
 - [അലകളിലെ പരൽ മീൻ പോലെ | Athirathram Malayalam Movie Song | Mohanlal](https://www.youtube.com/watch?v=cvL-Ukbf-jQ)
 - [Njanoru Tharakamayirunnenkil | Animation Videos | Shorts](https://www.youtube.com/watch?v=tgRyduRC5PQ)
 - [ഒരു വട്ടം കൂടി കേട്ടെങ്കിലോയെന്ന് മനസ് ആഗ്രഹിക്കുന്ന മലയാളസിനിമാഗാനങ്ങൾ | NISARI MUSIC | SUPERHITS](https://www.youtube.com/watch?v=sHwWiek3mfQ)
 - [Viral Thottaal Viriyunna | Phantom | P Jayachandran | K S Chithra | Deva | Gireesh Puthanchery](https://www.youtube.com/watch?v=DxAfz_NDYPs)
-- [ഒരു വലിയ ഇടവേളക്ക് ശേഷം കേൾക്കുമ്പോൾ മനസ്സ് കോരിതരിക്കുന്ന എൺപതുകളിലെ സൂപ്പർഹിറ്റ്ഗാനങ്ങൾ |80's HITS](https://www.youtube.com/watch?v=7rNh6hh6DC0)
-- [Balavanam Karthavil | Heidel & Irin | Children Christian Songs Malayalam | David & Goliath](https://www.youtube.com/watch?v=zaZ9u0HjFp8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
