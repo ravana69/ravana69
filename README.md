@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Viral Thottaal Viriyunna | Phantom | P Jayachandran | K S Chithra | Deva | Gireesh Puthanchery](https://www.youtube.com/watch?v=jO7OwpommZI)
 - [Intro of #MathewThomas  | #Neymar | #Shorts | #saregamamalayalam](https://www.youtube.com/watch?v=dUHZh9zYY70)
 - [ദൈവം കൈവിടില്ല എന്നുറപ്പേകുന്ന ക്രിസ്തീയ ഗാനങ്ങൾ | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=Jr1eWykoCic)
 - [MERY MATHA GOOD MORNING STATUS](https://www.youtube.com/watch?v=VdVNVTYWJbs)
 - [Pathinalaam Ravinte | Sharjah To Sharjah | Jayaram | Aishwarya | Mohan Sithara | MG Sreekumar](https://www.youtube.com/watch?v=s9lwVdAqo_c)
 - [എല്ലാവരും ഒരുമയോടെ കേൾക്കുന്ന ക്രിസ്തീയ ഭക്തി ഗാനങ്ങൾ Christian Devotional Songs Malayalam |](https://www.youtube.com/watch?v=Ops7XjA8hCw)
-- [Elated to be on board 🥳 | #Kushi moment 😍 | #VijayDevarakonda #Samantha❤️‍🔥 | #HeshamAbdulWahab🎵](https://www.youtube.com/watch?v=KJ760pzsu_I)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
