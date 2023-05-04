@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മന്ദമാരുതനായി മനസിനെ മൃദുലമാകുന്ന മലയാളസിനിമയിലെ ശാന്തസുന്ദരഗാനങ്ങൾ | NISARI MUSIC](https://www.youtube.com/watch?v=e4YWm6bace8)
+- [Priyane Uyir Neeye  Video Song | Pin Nilavu | Soman | Mucherla Aruna | KJ Yesudas | S Janaki](https://www.youtube.com/watch?v=Lk64xwPL3lo)
+- [തൂമഞ്ഞിൽ മുങ്ങിപ്പൊങ്ങി | Thoomanjil Mungipongi | Sangharsham (1981) | K J Yesudas](https://www.youtube.com/watch?v=6KPyl6RVTIs)
 - [Viral Thottaal Viriyunna | Phantom | P Jayachandran | K S Chithra | Deva | Gireesh Puthanchery](https://www.youtube.com/watch?v=jO7OwpommZI)
+- [Tea Kadai Veettile Ponnu Song | Oda Vittu Sudalama | Haricharan | Vineeth Mohan | Prakash Velayudhan](https://www.youtube.com/watch?v=H5wKKkVTHUE)
 - [Intro of #MathewThomas  | #Neymar | #Shorts | #saregamamalayalam](https://www.youtube.com/watch?v=dUHZh9zYY70)
-- [ദൈവം കൈവിടില്ല എന്നുറപ്പേകുന്ന ക്രിസ്തീയ ഗാനങ്ങൾ | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=Jr1eWykoCic)
-- [MERY MATHA GOOD MORNING STATUS](https://www.youtube.com/watch?v=VdVNVTYWJbs)
-- [Pathinalaam Ravinte | Sharjah To Sharjah | Jayaram | Aishwarya | Mohan Sithara | MG Sreekumar](https://www.youtube.com/watch?v=s9lwVdAqo_c)
-- [എല്ലാവരും ഒരുമയോടെ കേൾക്കുന്ന ക്രിസ്തീയ ഭക്തി ഗാനങ്ങൾ Christian Devotional Songs Malayalam |](https://www.youtube.com/watch?v=Ops7XjA8hCw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
