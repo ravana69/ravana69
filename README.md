@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [മന്ദമാരുതനായി മനസിനെ മൃദുലമാകുന്ന മലയാളസിനിമയിലെ ശാന്തസുന്ദരഗാനങ്ങൾ | NISARI MUSIC](https://www.youtube.com/watch?v=e4YWm6bace8)
-- [Priyane Uyir Neeye  Video Song | Pin Nilavu | Soman | Mucherla Aruna | KJ Yesudas | S Janaki](https://www.youtube.com/watch?v=Lk64xwPL3lo)
-- [തൂമഞ്ഞിൽ മുങ്ങിപ്പൊങ്ങി | Thoomanjil Mungipongi | Sangharsham (1981) | K J Yesudas](https://www.youtube.com/watch?v=6KPyl6RVTIs)
-- [Viral Thottaal Viriyunna | Phantom | P Jayachandran | K S Chithra | Deva | Gireesh Puthanchery](https://www.youtube.com/watch?v=jO7OwpommZI)
-- [Tea Kadai Veettile Ponnu Song | Oda Vittu Sudalama | Haricharan | Vineeth Mohan | Prakash Velayudhan](https://www.youtube.com/watch?v=H5wKKkVTHUE)
-- [YA DEVI - Video Song | Kallanum Bhagavathiyum | Vishnu Unnikrishnan | East Coast Vijayan | Mokksha](https://www.youtube.com/watch?v=yzT8E918yEc)
+- [Engu Poye - Video Song | Dasara (Malayalam) | Nani, Keerthy Suresh | Santhosh Narayanan](https://www.youtube.com/watch?v=Vonk00BdtDM)
+- [Viral Thottaal Viriyunna | Phantom | K S Chithra | Gireesh Puthanchery | Deva](https://www.youtube.com/watch?v=u5GfbGNgkkc)
+- [Old Malayalam Superhit Christian Songs | Non Stop Malayalam Christian Songs | Kristheeya Ganangal](https://www.youtube.com/watch?v=w6m7uGIXsWo)
+- [Ishtam Ishtam | Ishtam | Theme Song | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=ACc1zWag9HE)
+- [തിരിച്ചറിവ്  | Thiricharivu | Short Film Trailer](https://www.youtube.com/watch?v=_W78UjYXFh8)
+- [Paadi Paaloottum - Lyrical Video | 3 Chaar Sou Bees | Jassie Gift | Anil Panachooran](https://www.youtube.com/watch?v=bdmas6qF_jU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
