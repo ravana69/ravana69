@@ -34,10 +34,10 @@
 <!-- BLOGPOSTS:START -->
 - [കന്നിമണ്ണിന്റെ ഗന്ധമുയർന്നൂതെന്നൽ മദിച്ചു പാടുന്നൂ| Panjagni Malayalam Movie Song | Mohanlal| Geetha](https://www.youtube.com/watch?v=87XEjw2nMe0)
 - [Intro of #NaslenKGafoor | #Neymar | #Shorts | #saregamamalayalam](https://www.youtube.com/watch?v=SM1B4s4_UkQ)
+- [The Parable of the Sower | Bible Stories | Vithu Vithakkaran | Malayalam Bible Animation Stories](https://www.youtube.com/watch?v=BTytyba6oOg)
 - [Songs Of The Week | Jojo Alappatt | Wilson Piravom | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=xQmKqegC7Tw)
 - [Paal Ninavilum | Kakakum Poochakum Kalyanam | Dileep | Indrans | Pappu | Raveendran | Biju Narayanan](https://www.youtube.com/watch?v=GqTGKcfP6w8)
 - [4 May 2023](https://www.youtube.com/watch?v=iFvBETFAtlg)
-- [Intro of #NaslenKGafoor | #Neymar | #Shorts | #saregamamalayalam](https://www.youtube.com/watch?v=eM5bpuG5qrQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
