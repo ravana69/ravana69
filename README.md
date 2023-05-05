@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nillu Nillu Ente Neelakuyile | Rain Rain Come Again | Evergreen Malayalam Fast Song | Jassie Gift](https://www.youtube.com/watch?v=OdKDPZIM8oo)
+- [Kallu Pattu - Video Song | Boomerang |  | Shine Tom Chacko | Samyuktha](https://www.youtube.com/watch?v=t3Npj3x-Xcw)
+- [Ormayiloru Sisiram Video Song | Mohanlal | Karthika | Unni Menon | Shyam | Bichu Thirumala](https://www.youtube.com/watch?v=qXWSEOvSIXQ)
+- [Kasthoori Kattoothi - Video Song | Within Seconds | Indrans, Alencier | Renjin Raj](https://www.youtube.com/watch?v=J_8xMISGgkk)
 - [Nilaavinte Neelabhasma Song | Agnidevan | Mohanlal | MG Sreekumar | Gireesh Puthenchery #shorts](https://www.youtube.com/watch?v=M88KrDbL9JQ)
 - [സംഗീതം ആസ്വദിക്കാത്തവർക്കുപോലും ഇഷ്ടം തോന്നുന്ന മലയാളസിനിമാഗാനങ്ങൾ | MALAYALAM FILM SONGS | NISARI](https://www.youtube.com/watch?v=zj_v6DwP_zg)
-- [Mattuponkal | Phantom | S P Balasubramanyam | K S Chithra | Deva | Gireesh Puthanchery](https://www.youtube.com/watch?v=UVAVauqetMU)
-- [കന്നിമണ്ണിന്റെ ഗന്ധമുയർന്നൂതെന്നൽ മദിച്ചു പാടുന്നൂ| Panjagni Malayalam Movie Song | Mohanlal| Geetha](https://www.youtube.com/watch?v=87XEjw2nMe0)
-- [Intro of #NaslenKGafoor | #Neymar | #Shorts | #saregamamalayalam](https://www.youtube.com/watch?v=SM1B4s4_UkQ)
-- [The Parable of the Sower | Bible Stories | Vithu Vithakkaran | Malayalam Bible Animation Stories](https://www.youtube.com/watch?v=BTytyba6oOg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
