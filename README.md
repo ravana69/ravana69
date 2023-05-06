@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [6 May 2023](https://www.youtube.com/watch?v=Pw9RbEGNVAw)
+- [Neeyente Pattil | Nakshathratharattu | Kunchacko Boban | Shalini | Yesudas | Mohan Sithara](https://www.youtube.com/watch?v=OgEsR_t8sDA)
 - [Christian Melody Songs | Manoj Christy | Joji Johns | Christian Songs Malayalam | Wilson Piravom](https://www.youtube.com/watch?v=DpNtEZjZDBs)
 - [Malayude Mukalil | Vaanku | Video Song | വാങ്ക് | Kavya Prakash | 7J Films | Ouseppachan | Anaswara](https://www.youtube.com/watch?v=94JlPHpPyTs)
 - [Alapanam Video Song | Live | Mamta Mohandas | Shine Tom | Priya Prakash Varrier | Alphons Joseph](https://www.youtube.com/watch?v=m76wh6uoGaQ)
 - [Saamagaanasaarame Video Song | Agnidevan | Mohanlal | MG Sreekumar | Gireesh Puthenchery |KS Chithra](https://www.youtube.com/watch?v=4C0dtUewRl4)
-- [Paadi Paaloottum - Lyrical Video | 3 Chaar Sou Bees | Jassie Gift | Anil Panachooran](https://www.youtube.com/watch?v=HdwIKnRw4V0)
-- [https://youtu.be/Fr410rCFuygFirst song from the movie Janaki Jaane](https://www.youtube.com/watch?v=2U7N83tuhRs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
