@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Paadi Paaloottum - Lyrical Video | 3 Chaar Sou Bees | Jassie Gift | Anil Panachooran](https://www.youtube.com/watch?v=HdwIKnRw4V0)
+- [https://youtu.be/Fr410rCFuygFirst song from the movie Janaki Jaane](https://www.youtube.com/watch?v=2U7N83tuhRs)
 - [Varmukile Vaanil nee | Lakshmysree | #malayalamsong #cover #freestyle](https://www.youtube.com/watch?v=3KT3_uFJpbc)
 - [മായാമഞ്ചലില്‍ | Mayamanchalil | Ottayal Pattalam Malayalam Movie Song | Mukesh | Madhoo](https://www.youtube.com/watch?v=Z2k049uwslc)
 - [മോഹം മൂത്ത് മൂത്ത് കേട്ട് കേട്ട് മത്തുപിടിച്ച മലയാളത്തിലെ പ്രശസ്തഗാനങ്ങൾ | SUPERHIT SONGS | NISARI](https://www.youtube.com/watch?v=wu9vmop-EVs)
 - [Kannu Nattu | Kathavasheshan | Vidhyadharan | P Jayachandran | M Jayachandran | Gireesh Puthenchery](https://www.youtube.com/watch?v=oRLnbLd6p-I)
-- [ക്യാപ്ഷൻ പോലെ തന്നെ മനസിൽ പൂത്തുലയുന്ന മലയാളസിനിമയിലെ മിന്നൽ ഗാനങ്ങൾ | SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=NshHwQAgf_Y)
-- [Allippove Mallippoove | Lyrical Video | Bhagyadevatha | Vayalar Sarathchandra Varma | Ilaiyaraaja](https://www.youtube.com/watch?v=xaOMmbhClyg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
