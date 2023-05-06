@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മായാമഞ്ചലില്‍ | Mayamanchalil | Ottayal Pattalam Malayalam Movie Song | Mukesh | Madhoo](https://www.youtube.com/watch?v=Z2k049uwslc)
+- [മോഹം മൂത്ത് മൂത്ത് കേട്ട് കേട്ട് മത്തുപിടിച്ച മലയാളത്തിലെ പ്രശസ്തഗാനങ്ങൾ | SUPERHIT SONGS | NISARI](https://www.youtube.com/watch?v=wu9vmop-EVs)
+- [Kannu Nattu | Kathavasheshan | Vidhyadharan | P Jayachandran | M Jayachandran | Gireesh Puthenchery](https://www.youtube.com/watch?v=oRLnbLd6p-I)
+- [ക്യാപ്ഷൻ പോലെ തന്നെ മനസിൽ പൂത്തുലയുന്ന മലയാളസിനിമയിലെ മിന്നൽ ഗാനങ്ങൾ | SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=NshHwQAgf_Y)
 - [Allippove Mallippoove | Lyrical Video | Bhagyadevatha | Vayalar Sarathchandra Varma | Ilaiyaraaja](https://www.youtube.com/watch?v=xaOMmbhClyg)
 - [പാരിൽ പാർക്കും അല്പായുസ്സിൽ ഭാരങ്ങളധികം വേണ്ടിനി.| Anna Baby | Rev. O.M. Rajukutty](https://www.youtube.com/watch?v=aUEOPYAHom4)
-- [Christian Video Songs Malayalam | KG Markose | Abhijith Kollam | Christian Songs | Joji Johns](https://www.youtube.com/watch?v=bB4NkCFQu_k)
-- [Chembarathi Poo | Janaki Jaane | Video Song | Kailas |Engandiyoor Chandrasekharan|Maduvanthi Narayan](https://www.youtube.com/watch?v=Fr410rCFuyg)
-- [6 May 2023](https://www.youtube.com/watch?v=hemPo10X7Bs)
-- [Chandra Hridayam video Song | Kunchacko Boban | Aswathy Menon | KJ Yesudas | Vidyasagar | Kaithapram](https://www.youtube.com/watch?v=KCwdOAhSReY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
