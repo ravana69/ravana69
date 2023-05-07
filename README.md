@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പാട്ടുപെട്ടി  Vol 6 | Malayalam Film Songs](https://www.youtube.com/watch?v=WLvCSJeoJvU)
+- [En Rojaa Neeye - Song Promo| Kushi (Malayalam) | Vijay Deverakonda, Samantha | Hesham Abdul Wahab](https://www.youtube.com/watch?v=ub9Wz869x18)
 - [Janaki Jaane | Official Trailer | Saiju Kurup | Navya Nair | Aniesh Upaasana | S Cube Films](https://www.youtube.com/watch?v=PgrUXbOf2Sc)
 - [ഈ ഗാനങ്ങൾ കേട്ടാൽ ദൈവകൃപ തീർച്ചയായും ലഭിക്കും | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=mIFZBmaIFhc)
 - [6 May 2023](https://www.youtube.com/watch?v=Pw9RbEGNVAw)
 - [Neeyente Pattil | Nakshathratharattu | Kunchacko Boban | Shalini | Yesudas | Mohan Sithara](https://www.youtube.com/watch?v=OgEsR_t8sDA)
-- [Christian Melody Songs | Manoj Christy | Joji Johns | Christian Songs Malayalam | Wilson Piravom](https://www.youtube.com/watch?v=DpNtEZjZDBs)
-- [Malayude Mukalil | Vaanku | Video Song | വാങ്ക് | Kavya Prakash | 7J Films | Ouseppachan | Anaswara](https://www.youtube.com/watch?v=94JlPHpPyTs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
