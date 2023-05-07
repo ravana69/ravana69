@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Malpriya | 1956 Madhya Thiruvithamkoor | Don Palathara | Kocheeppan Tharakan | Basil CJ | Vijeeshlal](https://www.youtube.com/watch?v=PP_Y3PHTqqg)
+- [Vasantham Varnapookkuda Choodi Video Song | Asin | KS Chithra | Johnson | Mullanezhi](https://www.youtube.com/watch?v=QnceTEcO5ls)
+- [Oru thulli pala thulli Video Song | Sreekrishnapurathu Nakshathrathilakkam | KJ Yesudas | Daleema](https://www.youtube.com/watch?v=FDtFpyEGelY)
 - [നിന്റെ വനമാലയായ് നല്ല മയിൽ പീലിയായ് ♥︎ #youtubeshorts #bestmelodysongs #kavyamadhavan](https://www.youtube.com/watch?v=dvbO1x991vo)
 - [Mattuponkal | Phantom | S P Balasubramanyam | K S Chithra | Deva | Gireesh Puthanchery](https://www.youtube.com/watch?v=VzeRDJJZNqk)
 - [പാട്ടുപെട്ടി  Vol 6 | Malayalam Film Songs](https://www.youtube.com/watch?v=WLvCSJeoJvU)
-- [En Rojaa Neeye - Song Promo| Kushi (Malayalam) | Vijay Deverakonda, Samantha | Hesham Abdul Wahab](https://www.youtube.com/watch?v=ub9Wz869x18)
-- [Janaki Jaane | Official Trailer | Saiju Kurup | Navya Nair | Aniesh Upaasana | S Cube Films](https://www.youtube.com/watch?v=PgrUXbOf2Sc)
-- [ഈ ഗാനങ്ങൾ കേട്ടാൽ ദൈവകൃപ തീർച്ചയായും ലഭിക്കും | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=mIFZBmaIFhc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
