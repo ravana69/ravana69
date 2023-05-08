@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Anthimaanam Poothapolen | Chukkan | Sureshgopi | Gowthami | Yesudas | Chithra | ONV Kuruppu](https://www.youtube.com/watch?v=NeeIEM2LYOM)
+- [kanivin uravayam nadhe... Good morning status](https://www.youtube.com/watch?v=PD2ZNqvj5ec)
 - [ഭക്ത്യാദരപൂർവ്വം എന്നും കേൾക്കുന്ന  ക്രിസ്തീയ ഗാനങ്ങൾ |Malayalam Christian Devotional Songs | Wilson](https://www.youtube.com/watch?v=Z5Cewv6u5kA)
 - [മധുരസ്മരണകൾ മനസിനേകുന്ന മലയാളസിനിമയിലെ മറക്കാനാവാത്ത ഗാനങ്ങൾ | SUPERHIT SONGS MALAYALAM | NISARI](https://www.youtube.com/watch?v=20XK_Su1ZzM)
 - [Kootti Muttiya | Pullipulikalum Attinkuttiyum  | Najim Arshad , Sujatha Mohan | Kunchacko Boban](https://www.youtube.com/watch?v=CEuVjA8TJwk)
 - [Paaril Parkkum Alpayussil Karaoke | Rev. O.M. Rajukutty | Christian Songs Karaoke](https://www.youtube.com/watch?v=zXmlTnUhsMA)
-- [Akasham Thottu - Video Song | Within Seconds | Indrans, Alencier | Renjin Raj](https://www.youtube.com/watch?v=b7LUcxyZvQ4)
-- [Aromal Nee Video Song | Mammootty | Shobana | KJ Yesudas | Shyam | Poovachal Khader](https://www.youtube.com/watch?v=v1Gs0mKxEB8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
