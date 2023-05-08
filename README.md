@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [എന്നെനിക്കെൻ ദുഃഖം തീരുമോ | Elizabeth Raju | Shorts](https://www.youtube.com/watch?v=oVD9WuTy0lk)
+- [Mathapoove | Balram vs Tharadas | Gireesh Puthenchery | Jassie gift | Mammootty | Katrina Kaif](https://www.youtube.com/watch?v=wsiMKP8VIs0)
 - [Waves Ulaykkum Shippil - Audio Song | Hai Malayalam Movie | Riyaz Khan | Vidhu Prathap](https://www.youtube.com/watch?v=d7xxoWg0e-M)
 - [Poovam Kurunnukale - Audio Song | Hai Malayalam Movie | Riyaz Khan | Beeyar Prasad | BJ Prakash](https://www.youtube.com/watch?v=iVPfdG2Of2E)
 - [Oru Poovaniyile - Audio Song | Hai Malayalam Movie | Riyaz Khan | Beeyar Prasad | BJ Prakash](https://www.youtube.com/watch?v=6hSU5pjq0SA)
 - [Ninavukalaal [M] - Audio Song | Hai Malayalam Movie | Riyaz Khan | Beeyar Prasad | Vijesh Gopal](https://www.youtube.com/watch?v=QyiSS8VOtFQ)
-- [Ninavukalaal [F] - Audio Song | Hai Malayalam Movie | Riyaz Khan | Beeyar Prasad | Dr Rashmi Madhu](https://www.youtube.com/watch?v=LylUoUiU8kk)
-- [Kookkoo Kookkoo - Audio Song | Hai Malayalam Movie | Riyaz Khan | Beeyar Prasad](https://www.youtube.com/watch?v=RpMRbVrzjhA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
