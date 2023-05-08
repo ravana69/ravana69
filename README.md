@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഏതോ ഹരിത നികുഞ്ജത്തിൽപല്ലവിയായതു നീയല്ലോ | Adhipan | Mohanlal](https://www.youtube.com/watch?v=BCydsN_ubC0)
+- [മലയാളി പ്രേക്ഷകർക്കേറെ ഇഷ്ടപെട്ട മെലഡി ഗാനങ്ങൾ കൊണ്ട് തയ്യാറാക്കിയ സിനിമാഗാനസമ്മേളനം | MELODY SONGS](https://www.youtube.com/watch?v=3Kogek3P7VI)
 - [എന്നെനിക്കെൻ ദുഃഖം തീരുമോ | Elizabeth Raju | Shorts](https://www.youtube.com/watch?v=oVD9WuTy0lk)
 - [Mathapoove | Balram vs Tharadas | Gireesh Puthenchery | Jassie gift | Mammootty | Katrina Kaif](https://www.youtube.com/watch?v=wsiMKP8VIs0)
 - [Waves Ulaykkum Shippil - Audio Song | Hai Malayalam Movie | Riyaz Khan | Vidhu Prathap](https://www.youtube.com/watch?v=d7xxoWg0e-M)
 - [Poovam Kurunnukale - Audio Song | Hai Malayalam Movie | Riyaz Khan | Beeyar Prasad | BJ Prakash](https://www.youtube.com/watch?v=iVPfdG2Of2E)
-- [Oru Poovaniyile - Audio Song | Hai Malayalam Movie | Riyaz Khan | Beeyar Prasad | BJ Prakash](https://www.youtube.com/watch?v=6hSU5pjq0SA)
-- [Ninavukalaal [M] - Audio Song | Hai Malayalam Movie | Riyaz Khan | Beeyar Prasad | Vijesh Gopal](https://www.youtube.com/watch?v=QyiSS8VOtFQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
