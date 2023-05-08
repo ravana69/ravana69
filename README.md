@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [ഒളിച്ചിരിക്കാന്‍ | Olichirikkan | Aranyakam Malayalam Film Songs | K S Chithra](https://www.youtube.com/watch?v=9uF0FZ_8GZY)
-- [Christian Morning Prayer Songs | Unni Menon | Prabhatha Geethangal | Christian Songs](https://www.youtube.com/watch?v=Q7qIAQH7MrA)
-- [7 May 2023](https://www.youtube.com/watch?v=7mVQVr2d0Kw)
-- [Kashithumba Kavaay | Mookilla Rajyathu | Mukesh | Jagathy | Thilakan | Siddique | MG Sreekumar](https://www.youtube.com/watch?v=0V35bzGSwKI)
-- [Enne Thazhukunna Kattanu | Christian Video Song | Rajesh Athikayam |  Liya Ray Isen | Joji Johns](https://www.youtube.com/watch?v=XHu8hLgbDzM)
-- [Malpriya | 1956 Madhya Thiruvithamkoor | Don Palathara | Kocheeppan Tharakan | Basil CJ | Vijeeshlal](https://www.youtube.com/watch?v=PP_Y3PHTqqg)
+- [Waves Ulaykkum Shippil - Audio Song | Hai Malayalam Movie | Riyaz Khan | Vidhu Prathap](https://www.youtube.com/watch?v=d7xxoWg0e-M)
+- [Poovam Kurunnukale - Audio Song | Hai Malayalam Movie | Riyaz Khan | Beeyar Prasad | BJ Prakash](https://www.youtube.com/watch?v=iVPfdG2Of2E)
+- [Oru Poovaniyile - Audio Song | Hai Malayalam Movie | Riyaz Khan | Beeyar Prasad | BJ Prakash](https://www.youtube.com/watch?v=6hSU5pjq0SA)
+- [Ninavukalaal [M] - Audio Song | Hai Malayalam Movie | Riyaz Khan | Beeyar Prasad | Vijesh Gopal](https://www.youtube.com/watch?v=QyiSS8VOtFQ)
+- [Ninavukalaal [F] - Audio Song | Hai Malayalam Movie | Riyaz Khan | Beeyar Prasad | Dr Rashmi Madhu](https://www.youtube.com/watch?v=LylUoUiU8kk)
+- [Kookkoo Kookkoo - Audio Song | Hai Malayalam Movie | Riyaz Khan | Beeyar Prasad](https://www.youtube.com/watch?v=RpMRbVrzjhA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
