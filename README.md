@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പിരിയുന്ന കൈവഴികള്‍ | Piriyunna Kaivazhikal | Aniyaatha Valakal | Evergreen Film Song |  KJ Yesudas](https://www.youtube.com/watch?v=imZ9-4imDyE)
+- [Mukilazham | Chakkala | Pandalam Balan | Jain Christopher | Sudheesh Koshy | Malayalam Film Songs](https://www.youtube.com/watch?v=efJXtWPje18)
 - [Ammathanal | Sudhan Vachakkal | Siju Sivan | Sebi Nayarambalam | Album Songs](https://www.youtube.com/watch?v=Vfro8qYNEpU)
 - [En Roja Neeye | Kushi | Vijay Deverakonda | Samantha Ruth Prabhu | Hesham Abdul Wahab | Lyrical](https://www.youtube.com/watch?v=XmwH3_8iUYY)
 - [ഇരുളേറുന്നു പാരിടത്തില്‍ ഇല്ലിനി നാളധികം](https://www.youtube.com/watch?v=ecibMFXPiMg)
 - [ലോകമെമ്പാടുമുള്ള മലയാളികൾ എന്നും കേൾക്കുന്ന ക്രിസ്തീയ ഗാനങ്ങൾ |Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=Z9Lq9yplMPs)
-- [Anthimaanam Poothapolen | Chukkan | Sureshgopi | Gowthami | Yesudas | Chithra | ONV Kuruppu](https://www.youtube.com/watch?v=NeeIEM2LYOM)
-- [kanivin uravayam nadhe... Good morning status](https://www.youtube.com/watch?v=PD2ZNqvj5ec)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
