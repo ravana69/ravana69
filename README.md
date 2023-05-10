@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Sooryane Ponthoovalaal | Nammal | MG Sreekumar | Rajesh Vijay | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=cXNrmYHdxFc)
-- [Kanachiraku Tharu | Achayans | Najim Arshad | Rimi Tomy | Jayaram | Unni Mukundan | Ratheesh Vega](https://www.youtube.com/watch?v=cXopN8fH8u4)
-- [പാര്‍വണേന്ദുമുഖി HD | Parvanendu Mukhi | Parinayam | Malayalam Film Song](https://www.youtube.com/watch?v=47_3E9XCPHs)
-- [തിളക്കം ഒട്ടും കുറവില്ലാത്ത മലയാളചലച്ചിത്ര ഗാനസംഗമം | MALAYALA CHALACHITHRAGANANGAL](https://www.youtube.com/watch?v=xYyIGU9DqmY)
-- [ആരുകേട്ടാലും ഇഷ്ടപെടുമെന്ന് നിസംശയം പറയാവുന്ന മലയാളസിനിമയിലെ മികവുള്ള ഗാനങ്ങൾ | SUPERHITS](https://www.youtube.com/watch?v=4mykSwlUuL8)
-- [Mazhamekha Chelin | Karaoke Video | Kadha Thudarunnu  | Ilayaraja |Vayalar Sarath| Sathyan Anthikkad](https://www.youtube.com/watch?v=DnSnB2dbIZg)
+- [10 May 2023](https://www.youtube.com/watch?v=zLXCk6kQ7XQ)
+- [Christian Melody Songs | S Janaki | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=TjWV6dkZ4W0)
+- [Chenthaamaraye Vaa | 1080p | Thaskaraveeran | Mammootty | Nayanthara - Ouseppachan Hits](https://www.youtube.com/watch?v=5qTSi0LN6X4)
+- [താളമയഞ്ഞൂ ഗാനമപൂർണ്ണംതരളലയം താഴും രാഗധാര...✨️🦋❤️ Pavithram | Mohanlal | Shobana | Sreevidhya](https://www.youtube.com/watch?v=5VMi8NWBuXQ)
+- [Poyakaalam Pooviricha Video Song | Mammootty | Urvashi | Ambika | S Janaki | Shyam| Poovachal Khader](https://www.youtube.com/watch?v=Qit_g6o4wnk)
+- [Neeyarinjo | Sadanandante Samayam | K J Yesudas |  Mohan Sithara  | Yusufali Kechery](https://www.youtube.com/watch?v=3xwLdd9aj9A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
