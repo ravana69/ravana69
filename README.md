@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [തിളക്കം ഒട്ടും കുറവില്ലാത്ത മലയാളചലച്ചിത്ര ഗാനസംഗമം | MALAYALA CHALACHITHRAGANANGAL](https://www.youtube.com/watch?v=xYyIGU9DqmY)
+- [ആരുകേട്ടാലും ഇഷ്ടപെടുമെന്ന് നിസംശയം പറയാവുന്ന മലയാളസിനിമയിലെ മികവുള്ള ഗാനങ്ങൾ | SUPERHITS](https://www.youtube.com/watch?v=4mykSwlUuL8)
 - [Mazhamekha Chelin | Karaoke Video | Kadha Thudarunnu  | Ilayaraja |Vayalar Sarath| Sathyan Anthikkad](https://www.youtube.com/watch?v=DnSnB2dbIZg)
 - [Karimizhi Niraye | Janaki Jaane  |Video| K.S Harisankar | Sithara Krishnakumar |Manu Manjith| Kailas](https://www.youtube.com/watch?v=z1YNwjZ4Bsw)
 - [Njanunarumbozhum | New Chiristian Video Song | Baby John Kalayanthani | Joji Johns | Liya](https://www.youtube.com/watch?v=VLVcdzjUK9k)
 - [9 May 2023](https://www.youtube.com/watch?v=3VVYbwxjXRw)
-- [Konchi Konchi | Vismayathumbathu | Mohanlal | Nayanthara | Yesudas | Ouseppachan](https://www.youtube.com/watch?v=n_pxPKbINfs)
-- [കേൾക്കുന്നവരെല്ലാം ആവേശത്തോടെ ആഘോഷിച്ച മലയാളസിനിമയിലെ മിന്നി തിളങ്ങും ഗാനങ്ങൾ | EVERGREEN SUPERHITS](https://www.youtube.com/watch?v=xJqkBh4n22E)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
