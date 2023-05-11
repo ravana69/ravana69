@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Divyakarunyame | Fr. Vipin Kurishuthara CMI | Fr. Vinil Kurishuthara CMF | Malayalam Christian Songs](https://www.youtube.com/watch?v=QJzfYQoG9lM)
+- [ഒരുപാട് ആരാധകരെ സൃഷ്‌ടിച്ച മലയാളസിനിമയിലെ മനോഹരഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=ipoMCl-cMSE)
 - [Doore Oru | Ente Veedu Appuvinteyum | Thankam Premprakash | Ouseppachan | Gireesh Puthanchery](https://www.youtube.com/watch?v=XjIezItgxXE)
 - [Kolamayil Penkodi | Kearalahouse Udan Vilapanakku | Jayasurya | Ouseppachan | Gireesh Puthanchery](https://www.youtube.com/watch?v=twN0gykDbuM)
 - [Savaalpett - Lyrical | Neymar | Mathew Thomas, Naslen | Shaan Rahman | Sudhi Maddison](https://www.youtube.com/watch?v=vZ84-Yu5OTk)
 - [Thirithazhum Sooryan | Aayiram Meni | K J Yesudas | S P Venkitesh | Gireesh Puthanchery](https://www.youtube.com/watch?v=J6WEPC_6oTs)
-- [Karimizhi Niraye Song from Janaki Jaane https://youtu.be/z1YNwjZ4Bsw #shorts](https://www.youtube.com/watch?v=O91CaVervA8)
-- [Promise (Malayalam) | RRR OST Vol -3 | MM Keeravaani | NTR, Ram Charan | SS Rajamouli](https://www.youtube.com/watch?v=3bGhXNfgw7c)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
