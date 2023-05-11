@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ആരെ ഞാന്‍ അയയ്ക്കേണ്ടൂ? ആരിനി പോയീടും?](https://www.youtube.com/watch?v=aEY8yoShf4M)
+- [തകർന്ന മനസുകൾക്ക് ആശ്വാസമായി സാന്ത്വന ഗീതങ്ങൾ | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=oQ5CI3lBf90)
 - [Kaduvaye Kiduva | Thachiledath Chundan | Mammootty | Nandhini | Yesudas | Raveendran](https://www.youtube.com/watch?v=z0pJpmQLrE0)
 - [10 May 2023](https://www.youtube.com/watch?v=zLXCk6kQ7XQ)
 - [Christian Melody Songs | S Janaki | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=TjWV6dkZ4W0)
 - [Chenthaamaraye Vaa | 1080p | Thaskaraveeran | Mammootty | Nayanthara - Ouseppachan Hits](https://www.youtube.com/watch?v=5qTSi0LN6X4)
-- [താളമയഞ്ഞൂ ഗാനമപൂർണ്ണംതരളലയം താഴും രാഗധാര...✨️🦋❤️ Pavithram | Mohanlal | Shobana | Sreevidhya](https://www.youtube.com/watch?v=5VMi8NWBuXQ)
-- [Poyakaalam Pooviricha Video Song | Mammootty | Urvashi | Ambika | S Janaki | Shyam| Poovachal Khader](https://www.youtube.com/watch?v=Qit_g6o4wnk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
