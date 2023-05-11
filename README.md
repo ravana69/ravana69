@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kolamayil Penkodi | Kearalahouse Udan Vilapanakku | Jayasurya | Ouseppachan | Gireesh Puthanchery](https://www.youtube.com/watch?v=twN0gykDbuM)
+- [Savaalpett - Lyrical | Neymar | Mathew Thomas, Naslen | Shaan Rahman | Sudhi Maddison](https://www.youtube.com/watch?v=vZ84-Yu5OTk)
+- [Thirithazhum Sooryan | Aayiram Meni | K J Yesudas | S P Venkitesh | Gireesh Puthanchery](https://www.youtube.com/watch?v=J6WEPC_6oTs)
 - [Karimizhi Niraye Song from Janaki Jaane https://youtu.be/z1YNwjZ4Bsw #shorts](https://www.youtube.com/watch?v=O91CaVervA8)
 - [Promise (Malayalam) | RRR OST Vol -3 | MM Keeravaani | NTR, Ram Charan | SS Rajamouli](https://www.youtube.com/watch?v=3bGhXNfgw7c)
 - [Divyakarunyame | Fr. Vipin Kurishuthara CMI | Fr. Vinil Kurishuthara CMF | Malayalam Christian Songs](https://www.youtube.com/watch?v=7wgMHUJva7M)
-- [Sun Mithware | Phantom | K J Yesudas | Gireesh Puthanchery | Deva | Mammootty | Innocent](https://www.youtube.com/watch?v=BI6ghz2wHGk)
-- [Oru Thulli Pala Thulli Song | Sreekrishnapurathu Nakshathrathilakkam | KJ Yesudas | #shorts](https://www.youtube.com/watch?v=YhJFzZvufE4)
-- [#MizhigalChimmi 😍💕 #Majnu #Nani #AnuImmanuel #GopiSunder #shorts #shortsvideo](https://www.youtube.com/watch?v=D_ZNORI5h_Q)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
