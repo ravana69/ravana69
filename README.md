@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Promise (Malayalam) | RRR OST Vol -3 | MM Keeravaani | NTR, Ram Charan | SS Rajamouli](https://www.youtube.com/watch?v=3bGhXNfgw7c)
+- [Sun Mithware | Phantom | K J Yesudas | Gireesh Puthanchery | Deva | Mammootty | Innocent](https://www.youtube.com/watch?v=BI6ghz2wHGk)
 - [Oru Thulli Pala Thulli Song | Sreekrishnapurathu Nakshathrathilakkam | KJ Yesudas | #shorts](https://www.youtube.com/watch?v=YhJFzZvufE4)
 - [#MizhigalChimmi 😍💕 #Majnu #Nani #AnuImmanuel #GopiSunder #shorts #shortsvideo](https://www.youtube.com/watch?v=D_ZNORI5h_Q)
 - [വിണ്ണിൽ നിന്നും.....Enthino Pookkunna Pookkal Movie | Malayalam Film Songs | Vani Jayaram | Mohanlal](https://www.youtube.com/watch?v=h4XA9nJG9rY)
 - [ആരെ ഞാന്‍ അയയ്ക്കേണ്ടൂ? ആരിനി പോയീടും?](https://www.youtube.com/watch?v=aEY8yoShf4M)
-- [തകർന്ന മനസുകൾക്ക് ആശ്വാസമായി സാന്ത്വന ഗീതങ്ങൾ | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=oQ5CI3lBf90)
-- [Kaduvaye Kiduva | Thachiledath Chundan | Mammootty | Nandhini | Yesudas | Raveendran](https://www.youtube.com/watch?v=z0pJpmQLrE0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
