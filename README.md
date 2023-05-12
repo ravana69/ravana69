@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Omalaale Ente | Sadanandante Samayam | K J Yesudas | Mohan Sithara |Yusufali Kechery](https://www.youtube.com/watch?v=eNPqZ9vFy3k)
 - [എത്രകേട്ടാലും മനം മടുക്കാത്ത മലയാളസിനിമയിലെ രസികൻ ഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=OGBunrMjadE)
+- [Shiva Sakthya-Video Song | Kallanum Bhagavathiyum |Vishnu Unnikrishnan | East Coast Vijayan |Mokksha](https://www.youtube.com/watch?v=UyHuI-5lxYY)
 - [#VijayDeverakonda admiring his Roja 🌹❤️ #EnRojaNeeye  #Kushi  #SamanthaRuthPrabhu](https://www.youtube.com/watch?v=Jyq5Gm9Wt5s)
 - [ആദ്യം കേട്ടനാൾ മുതൽ ഇത്രയും നാളായിട്ടും മനസിൽ നിന്നും വിട്ടുമാറാത്ത ഗാനങ്ങൾ | EVERGREEN HIT SONGS](https://www.youtube.com/watch?v=RzUeeuMTgss)
 - [Sun Mithvare 1080p Remastered Song | Phantom | Mammootty | Innocent | Malayalam Film Song](https://www.youtube.com/watch?v=zq8wh2sbTis)
-- [Ambilippoomarano Song | Sreekrishnapurathu Nakshathrathilakkam | KS Chithra | MG Sreekumar #shorts](https://www.youtube.com/watch?v=lHd95VwcCPs)
-- [Top Malayalam Superhits Of K.J.Yesudas Audio Songs Jukebox | K.J.Yesudas Audio Song | Malayalam Hits](https://www.youtube.com/watch?v=QWmHiWsUSlc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
