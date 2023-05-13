@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chenkurinji Poo | Swastham Grihabharanam | KS Chithra | Kester | Berny Ignatius | Chittoor Gopi](https://www.youtube.com/watch?v=kI7TPM5A16U)
+- [Mangaladeepavumaay | Kaikudunna Nilavu | MG Sreekumar | Kaithapram | Gireesh Puthanchery](https://www.youtube.com/watch?v=qhrk88e2J_E)
 - [ജോലിത്തിരക്കെല്ലാം കഴിഞ്ഞു ശാന്തമായി ഉറങ്ങാൻ കൊതിക്കുന്നവർ കേൾക്കുന്ന മനോഹരഗാനങ്ങൾ | NISARI SONGS](https://www.youtube.com/watch?v=wdcFGql8mIs)
 - [Mathapoove | Balram v/s Tharadas | Gireesh Puthenchery | Jassie gift | Afsal | Mammootty](https://www.youtube.com/watch?v=Qfmyac7eBLE)
 - [Kulirillam Vazhum | Jalolsavam | BR Prasad | Alphonse Joseph | KJ Yesudas | KS chithra](https://www.youtube.com/watch?v=IvwLQ4G5I7Q)
 - [Together We Rock (Malayalam) | RRR OST Vol -7 | MM Keeravaani | NTR, Ram Charan | SS Rajamouli](https://www.youtube.com/watch?v=Ejr8BHMbeeA)
-- [Thaaram Thaaram Song | Sreekrishnapurathu Nakshathrathilakkam | KJ Yesudas](https://www.youtube.com/watch?v=vtVCfyVQ15s)
-- [Chembakavallikalil | Lyrical Video | Oru Marubhoomi Kadha | Mohanlal | Priyadarshan | M G Sreekumar](https://www.youtube.com/watch?v=a2Hu7qTsC-0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
