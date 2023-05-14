@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Penthakosthu Songs Malayalam | KG Markose | Wilson Piravom | Christian Melody Songs | Joji Johns](https://www.youtube.com/watch?v=XPrr1bGzxSM)
 - [മലയാളികളെ മയക്കിയ അനശ്വരഗാനങ്ങൾ!!!|Evergreen Hits of SP Venkitesh | SP Venkitesh Hits |Video Jukebox](https://www.youtube.com/watch?v=eb5XY64ezrU)
 - [Ambilippoomarano Song | Sreekrishnapurathu Nakshathrathilakkam | KS Chithra | MG Sreekumar #shorts](https://www.youtube.com/watch?v=MwPW6bkNQBU)
 - [Kanne Kanmaniye | Music Mug | 4 Musics | Tessy Thomas | Biby Mathew | Eldhose Alias](https://www.youtube.com/watch?v=ebOAShvVN3I)
 - [Kiliye Kiliye | Nokkethadoorathu Kannumnattu | Bichu Thirumala | Jerry Amaldev | KS Chithra Hits](https://www.youtube.com/watch?v=eLxXZid29cw)
 - [Keranirakaladum | Jalolsavam | BR Prasad | Alphonse Joseph | P Jayachandran | Nedumudivenu](https://www.youtube.com/watch?v=giIp-gCY2zw)
-- [പാട്ടുപെട്ടി  Vol 7 | Malayalam Film Songs](https://www.youtube.com/watch?v=MeKHiSGG1ZQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
