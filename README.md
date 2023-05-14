@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kanne Kanmaniye | Music Mug | 4 Musics | Tessy Thomas | Biby Mathew | Eldhose Alias](https://www.youtube.com/watch?v=ebOAShvVN3I)
 - [Kiliye Kiliye | Nokkethadoorathu Kannumnattu | Bichu Thirumala | Jerry Amaldev | KS Chithra Hits](https://www.youtube.com/watch?v=eLxXZid29cw)
 - [Keranirakaladum | Jalolsavam | BR Prasad | Alphonse Joseph | P Jayachandran | Nedumudivenu](https://www.youtube.com/watch?v=giIp-gCY2zw)
 - [പാട്ടുപെട്ടി  Vol 7 | Malayalam Film Songs](https://www.youtube.com/watch?v=MeKHiSGG1ZQ)
 - [Pulariyiloru Poonthennnal |Freestyle cover | Arathy](https://www.youtube.com/watch?v=AsnPzt1c85E)
 - [പോകട്ടെ നിനക്കായ് ഞാൻ | Wilson Piravom | Charles John | Shorts](https://www.youtube.com/watch?v=CJKZ-xwzOJM)
-- [വിങ്ങിപ്പൊട്ടിയ ഹൃദയങ്ങളെ ഈ ഗാനങ്ങളിൽ നിങ്ങൾ ആശ്വാസം കണ്ടെത്തട്ടെ  | Christian Songs Malayalam](https://www.youtube.com/watch?v=pmu78dOlcfo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
