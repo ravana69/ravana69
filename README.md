@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പാട്ടുപെട്ടി  Vol 7 | Malayalam Film Songs](https://www.youtube.com/watch?v=MeKHiSGG1ZQ)
+- [Pulariyiloru Poonthennnal |Freestyle cover | Arathy](https://www.youtube.com/watch?v=AsnPzt1c85E)
 - [പോകട്ടെ നിനക്കായ് ഞാൻ | Wilson Piravom | Charles John | Shorts](https://www.youtube.com/watch?v=CJKZ-xwzOJM)
 - [വിങ്ങിപ്പൊട്ടിയ ഹൃദയങ്ങളെ ഈ ഗാനങ്ങളിൽ നിങ്ങൾ ആശ്വാസം കണ്ടെത്തട്ടെ  | Christian Songs Malayalam](https://www.youtube.com/watch?v=pmu78dOlcfo)
+- [Thaarake | Janaki Jaane | Lyrical Video | Vineeth Sreenivasan | Vinayak Sasikumar | Sibi Mathew Alex](https://www.youtube.com/watch?v=CI4kOJhL200)
 - [Chandana Thennalay | Sharja To Sharja | Jayaram | Mohan Sithara | KJ Yesudas](https://www.youtube.com/watch?v=Udtqnqd1-Sw)
-- [13 May 2023](https://www.youtube.com/watch?v=qxzqW1Thmx8)
-- [Kannuneer Maari | Wilson Piravom | Malayalam Christian Devotional Songs | Shorts](https://www.youtube.com/watch?v=x3uN8-wQjcs)
-- [Jeevan Pakuthavan Thannu | Christian Video Song | Holy Communion Song | Jeslin Ratheesh |Joji Johns](https://www.youtube.com/watch?v=akJwPOl2TsY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
