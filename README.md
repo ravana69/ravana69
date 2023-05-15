@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Vellikkinnam Thullum Vinnil | Swastham Grihabharanam | KS Chithra | Berny Ignatius | Chittoor Gopi](https://www.youtube.com/watch?v=GHA8B0awDuk)
-- [Ponkinakkal | Mark Antony | K S Chithra | Biju Narayanan | Berny Ignatius | Bharanikavu Sivakumar](https://www.youtube.com/watch?v=mlMQJhO3rU0)
-- [വെള്ളിനിലാ.. തുള്ളികളോ.. HD | Varnappakittu | Mohanlal | Meena | M.G. sreekumar | K.S.Chithra](https://www.youtube.com/watch?v=KxctVz30pMk)
-- [Mayum Kaalangal - Lyrical | Pendulum | Vijay Babu | Indrans | Anumol | Jean P Johnson | Rejin S Babu](https://www.youtube.com/watch?v=x1KQ5ID1r3E)
-- [https://youtu.be/CI4kOJhL200    Tharake Song Sung by Vineeth Sreenivasan from Janaki jaane](https://www.youtube.com/watch?v=IsNSsqF3Uhw)
-- [Allimalarkaavile Video Song | Kannappanunni | KJ Yesudas | Prem Nazir | Sheela | K P Ummer](https://www.youtube.com/watch?v=EV_MLO0adRc)
+- [Johnson, Swarnalatha - Madhuchandrike (Version, 2) (Lyric Video)](https://www.youtube.com/watch?v=ycZ58mfo31A)
+- [Johnson, K.J. Yesudas - Madhuchandrike (Version, 1) (Lyric Video)](https://www.youtube.com/watch?v=s3dmw4pSrzo)
+- [Johnson, K.J. Yesudas, Sujatha - Sharathkaala Sandhye (Lyric Video)](https://www.youtube.com/watch?v=UWim_gcHcfY)
+- [Johnson, K.J. Yesudas - Paadasmarana Sukham (Lyric Video)](https://www.youtube.com/watch?v=pBJiiIgL6Mc)
+- [Johnson, K.S. Chithra, Natesan - Panjavarna Painkili Penne (Lyric Video)](https://www.youtube.com/watch?v=Z2hrmIt7glw)
+- [Johnson, K.J. Yesudas, K.S. Chithra - Ponnill Kulichu Ninnu (Version, 2) (Lyric Video)](https://www.youtube.com/watch?v=LJnT2LkOLT0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
