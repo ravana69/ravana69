@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mashe Edo Mashe | Keralahouse Udan Vilpanakku | Jayasurya | Cochin Haneefa | Jyotsna | MG Sreekumar](https://www.youtube.com/watch?v=yf-KMNc43lk)
+- [Neelathadakangalo | Balram v/s Tharadas | Jassie Gift | Kaithapram | KJ Yesudas | Mammootty](https://www.youtube.com/watch?v=r7XVzU_MGjY)
+- [Comrade Anthem Audio Song | Dear Comrade Malayalam | Vijay Deverakonda | Rashmika | Bharat Kamma](https://www.youtube.com/watch?v=TnZHhxRNAYk)
 - [പറക്കശീലം വരുത്താൻ മക്കളെ | Elizabeth Raju | Evergreen Christian Songs](https://www.youtube.com/watch?v=bcjrmB_2NSw)
 - [14 May 2023](https://www.youtube.com/watch?v=WQ39-rECZc4)
 - [Varthinkalaayi | Pallavur Devanarayanan | Mammootty | Sangeetha | Yesudas | Raveendran | V.M.Vinu](https://www.youtube.com/watch?v=LnNhWBhMJGU)
-- [Penthakosthu Songs Malayalam | KG Markose | Wilson Piravom | Christian Melody Songs | Joji Johns](https://www.youtube.com/watch?v=XPrr1bGzxSM)
-- [മലയാളികളെ മയക്കിയ അനശ്വരഗാനങ്ങൾ!!!|Evergreen Hits of SP Venkitesh | SP Venkitesh Hits |Video Jukebox](https://www.youtube.com/watch?v=eb5XY64ezrU)
-- [Ambilippoomarano Song | Sreekrishnapurathu Nakshathrathilakkam | KS Chithra | MG Sreekumar #shorts](https://www.youtube.com/watch?v=MwPW6bkNQBU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
