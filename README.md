@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Karunai Daivame-Video Song |Kallanum Bhagavathiyum |Vishnu Unnikrishnan |East Coast Vijayan |Mokksha](https://www.youtube.com/watch?v=ChI6y3Wgp2E)
 - [Mashe Edo Mashe | Keralahouse Udan Vilpanakku | Jayasurya | Cochin Haneefa | Jyotsna | MG Sreekumar](https://www.youtube.com/watch?v=yf-KMNc43lk)
 - [Neelathadakangalo | Balram v/s Tharadas | Jassie Gift | Kaithapram | KJ Yesudas | Mammootty](https://www.youtube.com/watch?v=r7XVzU_MGjY)
 - [Comrade Anthem Audio Song | Dear Comrade Malayalam | Vijay Deverakonda | Rashmika | Bharat Kamma](https://www.youtube.com/watch?v=TnZHhxRNAYk)
 - [പറക്കശീലം വരുത്താൻ മക്കളെ | Elizabeth Raju | Evergreen Christian Songs](https://www.youtube.com/watch?v=bcjrmB_2NSw)
 - [14 May 2023](https://www.youtube.com/watch?v=WQ39-rECZc4)
-- [Varthinkalaayi | Pallavur Devanarayanan | Mammootty | Sangeetha | Yesudas | Raveendran | V.M.Vinu](https://www.youtube.com/watch?v=LnNhWBhMJGU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
