@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Iniyum Paribhavamaruthe | Kaikudunna Nilavu | KS Chithra | Kaithapram | Gireesh Puthanchery](https://www.youtube.com/watch?v=xuZHXCRSyLs)
+- [നിൻ മനസ് വിളക്കുവെച്ചത് മിന്നലായി വിരിഞ്ഞില്ലേ 💖😇 Jayaram](https://www.youtube.com/watch?v=2X14gvwHC0o)
+- [കാരുണ്യം  തൂകുന്ന  മാതാവേ](https://www.youtube.com/watch?v=OEtbdg-Ji5o)
 - [Thekkum Kollam Song | 3Moorthy Movie | Sarathlal Nemibhuvan | Vinu Rav | Vikraman Swamy](https://www.youtube.com/watch?v=CGJ7guc6boI)
 - [Kannamthumbi | Kaakkothikavile Apooppanthaadikal | Bichu Thirumala | Ouseppachan | KS Chithra](https://www.youtube.com/watch?v=6SZPO0V-Glo)
 - [Kannalla Kannalla | Uschool | Shorts | Ore Mukham](https://www.youtube.com/watch?v=Fio7s0WaH-I)
-- [Vibe❤‍🔥 with #PalaPalaaMinnerunne | #Dasara | #KeerthySuresh #Nani | #Shorts #YTshorts](https://www.youtube.com/watch?v=kaiNwyG1i_U)
-- [മലയാളികളുടെ മനസ് തൊട്ടറിഞ്ഞ മലയാളത്തിലെ സൂപ്പര്ഹിറ്റ് ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=hATUniJKUiU)
-- [Aayiram Phanamezhum Video Song | Kannappanunni | KJ Yesudas | Prem Nazir | Sheela | K P Ummer](https://www.youtube.com/watch?v=rYO9BemGWh4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
