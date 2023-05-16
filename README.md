@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഇടറുന്ന മനസ്സുകളുടെ ഹൃദയത്തിൽ തൊട്ട ഗാനങ്ങൾ idari veezhuvan idatharalle nee | prajapathi yagam songs](https://www.youtube.com/watch?v=7O32hmwgFRE)
+- [SInger Of The Week | Shibu Antony | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=6uyCjzbFPRk)
 - [15 May 2023](https://www.youtube.com/watch?v=9uTjJP5jo8A)
 - [Aalilakanna Ninte | Vasanthiyum Lakshmiyum Pinne Njanum | Kalabhavan Mani | KJ Yesudas](https://www.youtube.com/watch?v=iNfSlrCtl6I)
 - [Johnson, K.S. Chithra - Ponnill Kulichu Ninnu (Version, 3) (Lyric Video)](https://www.youtube.com/watch?v=KzBZPa7u9Z8)
 - [M.G. Radhakrishnan, K.S. Chithra - Vaikaashi Thennalo (Version, 2) (Lyric Video)](https://www.youtube.com/watch?v=Qh-kyyrYZys)
-- [M.G. Radhakrishnan, K.J. Yesudas - Balikudeerangal (Lyric Video)](https://www.youtube.com/watch?v=ESTuiGiqfWY)
-- [Johnson, M.G. Sreekumar - Ambalakkombante (Lyric Video)](https://www.youtube.com/watch?v=77mVnz-xPeE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
