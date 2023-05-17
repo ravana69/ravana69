@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളികളുടെ മനസിൽ ഗൃഹാതുരുത്വമുണർത്തുന്ന നാടിൻറെ നന്മയുള്ള ഗാനങ്ങൾ  | EVERGREEN FILM SONGS](https://www.youtube.com/watch?v=NvJgo0bEkcU)
 - [ദൈവത്തിന്റെ കരുതൽ എന്നും കൂടെ ഉണ്ടെന്ന ഉറപ്പേകും ക്രിസ്തീയ ഗാനങ്ങൾ |Christian Devoyional Songs](https://www.youtube.com/watch?v=HlAgsYkAjEo)
 - [Manjil Melle - Lyrical Video | Makaramanju | KJ Yesudas | Ramesh Narayan | Lenin rajendran](https://www.youtube.com/watch?v=HM106ELCosE)
 - [Aajanu Bahu Lyrical Song | Kurukshethra Malayalam Movie | Darshan | Munirathna | V Harikrishna](https://www.youtube.com/watch?v=UxItbukA9CU)
 - [Chiriyoonjaal | Chandamama | KS Chithra | Ouseppachan | Kaithapram](https://www.youtube.com/watch?v=1L1O3ArcFB4)
 - [Raakkilikal Chekkeri Varum | Suvarna Simhaasanam | KJ Yesudas | Ouseppachan | Kaithapram](https://www.youtube.com/watch?v=gQHTRodLgu4)
-- [Inni Ravil Video Song | KS Harishankar | Sreekanth S Narayan| Anoop G| Aromalinte Aadhyathe Pranayam](https://www.youtube.com/watch?v=92gnFsTBcnk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
