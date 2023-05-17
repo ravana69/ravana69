@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളസിനിമയിലെ ചന്ദനം മണക്കുന്ന സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ  | EVERGREEN MALAYALAM HITS](https://www.youtube.com/watch?v=j9jIE6GHdnA)
+- [Best Of Malayalam Romantic Songs Audio Jukebox | Most Popular Romantic Hits | Malayalam Hits](https://www.youtube.com/watch?v=F6uLN34G8z0)
 - [Neervanjikal Poothu Video Song | Kannappanunni | B Vasantha | Prem Nazir | Sheela | K P Ummer](https://www.youtube.com/watch?v=RoFa66hjhwA)
 - [Minnadi Minnadi | Karaoke Video | Naran | Mohanlal | Kaithapram | K S Chitra | Deepak Dev](https://www.youtube.com/watch?v=WWClnV_O8Tg)
 - [Maliniyude Theerangal Lyrical Video | Gandharvam Malayalam Movie | Mohanlal,Kanchan | S.P. Venkatesh](https://www.youtube.com/watch?v=phi0NL3B5Ik)
 - [Kunju Pavakkinnallo | Nadodi | Mohanlal | SP Venkatesh | Mohini | Jagathy | Babu Antony](https://www.youtube.com/watch?v=6ojmw990PPw)
-- [Kallyanakacheri | Maayajalam | Bichu Thirumala | SP Venkitesh | KJ Yesudas | Mukesh | Film Songs](https://www.youtube.com/watch?v=ad6cmzxeBNg)
-- [Kaathil Thenmazhayaay | Thumboli Kadappuram | KS Chithra | Salil Chowdhary | O N V Kurup](https://www.youtube.com/watch?v=sLMkG893E3M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
