@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manjil Melle - Lyrical Video | Makaramanju | KJ Yesudas | Ramesh Narayan | Lenin rajendran](https://www.youtube.com/watch?v=HM106ELCosE)
+- [Aajanu Bahu Lyrical Song | Kurukshethra Malayalam Movie | Darshan | Munirathna | V Harikrishna](https://www.youtube.com/watch?v=UxItbukA9CU)
+- [Chiriyoonjaal | Chandamama | KS Chithra | Ouseppachan | Kaithapram](https://www.youtube.com/watch?v=1L1O3ArcFB4)
 - [Raakkilikal Chekkeri Varum | Suvarna Simhaasanam | KJ Yesudas | Ouseppachan | Kaithapram](https://www.youtube.com/watch?v=gQHTRodLgu4)
 - [Inni Ravil Video Song | KS Harishankar | Sreekanth S Narayan| Anoop G| Aromalinte Aadhyathe Pranayam](https://www.youtube.com/watch?v=92gnFsTBcnk)
 - [Aayiram Ponpanam |Mayajaalam | K J Yesudas | S P Venkitesh | Thirumala | Mukesh | Jagathy Sreekumar](https://www.youtube.com/watch?v=a6v95TkrdGE)
-- [മലയാളസിനിമയിലെ ചന്ദനം മണക്കുന്ന സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ  | EVERGREEN MALAYALAM HITS](https://www.youtube.com/watch?v=j9jIE6GHdnA)
-- [Best Of Malayalam Romantic Songs Audio Jukebox | Most Popular Romantic Hits | Malayalam Hits](https://www.youtube.com/watch?v=F6uLN34G8z0)
-- [Neervanjikal Poothu Video Song | Kannappanunni | B Vasantha | Prem Nazir | Sheela | K P Ummer](https://www.youtube.com/watch?v=RoFa66hjhwA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
