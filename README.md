@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Hype up for #LaamaLaama - Promo Song | #BhagavanDasanteRamarajyam | #SoorajSanthosh | #shorts](https://www.youtube.com/watch?v=_JQd3V_1_Io)
+- [Vibe with #LaamaLaama - Promo Song | #BhagavanDasanteRamarajyam | #SoorajSanthosh | #shorts](https://www.youtube.com/watch?v=166bvaZ6lOE)
+- [പൂർണ്ണ ഹൃദയത്തോടെ ഞാൻ സ്തുതിക്കും | Wilson Piravom | Shorts](https://www.youtube.com/watch?v=xJ06sK0OyTU)
+- [Ponnin Kattayanennalum Video Song | Kannappanunni | KJ Yesudas | P Jayachandran |Prem Nazir |Sheela](https://www.youtube.com/watch?v=YO0ZY1lPK1E)
 - [ആരോ ആരോ ആരാരോ | Poovinu Puthiya Poonthennal | Heart Touching Melody HD Video Song | K.J Yesudas](https://www.youtube.com/watch?v=gX60zmmoq9Y)
 - [കെസ്റ്റർ പാടിയ സൂപ്പർഹിറ്റ് ക്രിസ്തീയ ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Kester](https://www.youtube.com/watch?v=tJvO_SVOvwk)
-- [17 May 2023](https://www.youtube.com/watch?v=FWt1bz6noaw)
-- [Kunnimanicheppu | Ponmattyidunna Tharavu | Sreenivasan | Urvashi | Sathyan Anthikkadu | Chithra](https://www.youtube.com/watch?v=Q6fc_3dlPuM)
-- [മലയാളികളുടെ മനസിൽ ഗൃഹാതുരുത്വമുണർത്തുന്ന നാടിൻറെ നന്മയുള്ള ഗാനങ്ങൾ  | EVERGREEN FILM SONGS](https://www.youtube.com/watch?v=NvJgo0bEkcU)
-- [ദൈവത്തിന്റെ കരുതൽ എന്നും കൂടെ ഉണ്ടെന്ന ഉറപ്പേകും ക്രിസ്തീയ ഗാനങ്ങൾ |Christian Devoyional Songs](https://www.youtube.com/watch?v=HlAgsYkAjEo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
