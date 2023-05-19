@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Goosebumps #LaamaLaama - Promo Song | #BhagavanDasanteRamarajyam | #SoorajSanthosh | #shorts](https://www.youtube.com/watch?v=4wGIH790ad4)
 - [Fiery #LaamaLaama - Promo Song | #BhagavanDasanteRamarajyam | #SoorajSanthosh | #shorts #ytshorts](https://www.youtube.com/watch?v=sMOpFux1QVc)
 - [മനം അറിയാതെ എപ്പോഴും ഏറ്റുപാടുന്ന സ്തുതിഗീതങ്ങൾ kashtangal saramilla | Kester | christian songs](https://www.youtube.com/watch?v=Z2gYOOBkxLI)
 - [Songs Of The Week | Sujatha | MG Sreekumar | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=4RjQfhZF_SQ)
 - [VIDHU PRADHAP HITS |MALAYALAM CHRISTIAN SONGS |OWN MEDIA MUSIC |](https://www.youtube.com/watch?v=t7i0SKYn1Rg)
 - [Pularoli Than | Punyam | KJ Yesudas | Lakshmi Gopalaswamy | Boban Alumoodan | M Jayachandran](https://www.youtube.com/watch?v=eqa6K5nXYbs)
-- [18 May 2023](https://www.youtube.com/watch?v=RNVuvHYwlwE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
