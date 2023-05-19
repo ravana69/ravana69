@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മനം അറിയാതെ എപ്പോഴും ഏറ്റുപാടുന്ന സ്തുതിഗീതങ്ങൾ kashtangal saramilla | Kester | christian songs](https://www.youtube.com/watch?v=Z2gYOOBkxLI)
+- [Songs Of The Week | Sujatha | MG Sreekumar | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=4RjQfhZF_SQ)
 - [VIDHU PRADHAP HITS |MALAYALAM CHRISTIAN SONGS |OWN MEDIA MUSIC |](https://www.youtube.com/watch?v=t7i0SKYn1Rg)
 - [Pularoli Than | Punyam | KJ Yesudas | Lakshmi Gopalaswamy | Boban Alumoodan | M Jayachandran](https://www.youtube.com/watch?v=eqa6K5nXYbs)
 - [18 May 2023](https://www.youtube.com/watch?v=RNVuvHYwlwE)
 - [മലയാളി പ്രേക്ഷകരെ മോഹിപ്പിച്ച ചിന്തിപ്പിച്ച എൺപതുകളിലെ മനോഹരഗാനങ്ങൾ | NISARI MUSIC | FILM SONGS](https://www.youtube.com/watch?v=v3WYBptGP7g)
-- [Manasinullile Nombaram | Christian Video Song | Babu Chalakkudy | Manoj illavunkal | Joji Johns](https://www.youtube.com/watch?v=adrACyJYgI8)
-- [Ponkinakkal | Mark Antony | K S Chithra | Berny Ignatius | Bharanikavu Sivakumar](https://www.youtube.com/watch?v=OW2g7EQojqI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
