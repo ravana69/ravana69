@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kuttanadan Kayalil | Suvarna Simhaasanam | M G Sreekumar | Sujatha Mohan | Ouseppachan | Kaithapram](https://www.youtube.com/watch?v=1nAgRWnYe-8)
+- [The Great Escape - Official Trailer | Babu Antony, Arthur Antony, Caren Damer | Sandeep JL](https://www.youtube.com/watch?v=KWerSkd8Kck)
+- [Anpu Kanmanikku Music Video | Nithin Raj | Indrajith K Ravi|Jaffer Illath |Athira Patel |Akshara Raj](https://www.youtube.com/watch?v=fwas6Gom4UE)
+- [Olangale Odangale | Thumboli Kadappuram | KS Chithra | Salil Chowdhary | ONV Kurup](https://www.youtube.com/watch?v=X6tQGdbgFnA)
 - [Patha Thedunnu - Song Making | AT - Welcome to The Dark Side | Shaju, Akash, Rachel | DonMax](https://www.youtube.com/watch?v=2XhSACKhSA0)
 - [മാഘമാസം മല്ലികപ്പൂ | Magha Masam Mallikappoo | ENTE PONNU THAMPURAN | Malayalam Evergreen Hit Song](https://www.youtube.com/watch?v=gQ38Bz6mHSw)
-- [Thotturummi Irikkan | Rasikan | V Devanand | Sujatha Mohan | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=MICm_VhuVWg)
-- [#MadhuPole Vertical Lyrical Video #DearComrade Malayalam #sidsriram #VijayDeverakonda #Rashmika](https://www.youtube.com/watch?v=5_cAY-wn644)
-- [ഒരു ഹംസദൂതുപോൽ മനസിലേക്ക് പറന്നെത്തുന്ന കേൾക്കാൻ കൊതിക്കും സിനിമാഗാനങ്ങൾ | EVERGREEN HITS | NISARI](https://www.youtube.com/watch?v=G13HSLX_Qjg)
-- [Mesmerizing #LaamaLaama - Promo Song | #BhagavanDasanteRamarajyam | #SoorajSanthosh | #shorts](https://www.youtube.com/watch?v=-0teKHFO3DM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
