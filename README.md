@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Puthooram Veetile | NKRAR  | Prithwiraj | Rajasenan | Kalabhavan Mani | Nishad](https://www.youtube.com/watch?v=7WbfR6voyKg)
 - [19 May 2023](https://www.youtube.com/watch?v=DidOXDsxngE)
 - [Kiliye Kiliye | Nokkethadoorathu Kannumnattu | Bichu Thirumala | Jerry Amaldev | KS Chithra Hits](https://www.youtube.com/watch?v=VuR-bFB2YfU)
 - [Vinmazha | Christian Video Song |Sojan Parakkal | Holy Spirit Song | Fr. Vipin Kurishutha |Fr.Vvinil](https://www.youtube.com/watch?v=7tHFvtLQxJk)
 - [Kuttanadan Kayalil | Suvarna Simhaasanam | M G Sreekumar | Sujatha Mohan | Ouseppachan | Kaithapram](https://www.youtube.com/watch?v=1nAgRWnYe-8)
 - [The Great Escape - Official Trailer | Babu Antony, Arthur Antony, Caren Damer | Sandeep JL](https://www.youtube.com/watch?v=KWerSkd8Kck)
-- [Anpu Kanmanikku Music Video | Nithin Raj | Indrajith K Ravi|Jaffer Illath |Athira Patel |Akshara Raj](https://www.youtube.com/watch?v=fwas6Gom4UE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
