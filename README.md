@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Pulari Nilaavu | Pallavur Devanarayanan | Mammootty | KJ Yesudas | Sangeetha | Gireesh Puthanchery](https://www.youtube.com/watch?v=0QQ7kIMwV4g)
+- [20 May 2023](https://www.youtube.com/watch?v=rElmIdIS9i4)
 - [പീഡിതനു അഭയസ്ഥാനം | Shorts](https://www.youtube.com/watch?v=tPMdg5KcmqQ)
 - [Chankinathoru Novunde | Christian Video Song | Joby Kavalam | Surya Narayanan | Joji Johns](https://www.youtube.com/watch?v=PArbxtCcuIM)
 - [Senthamizhin Naadaane - Video Song | Neymar | Mathew,Naslen| Shaan Rahman| Sudhi Maddison| V Cinemas](https://www.youtube.com/watch?v=rDwgJvuao70)
 - [Avanavan Kurukkunna | Malayalam Super Hit Song | Ramji Rao Speaking | Ft.Mukesh | Innocent| Saikumar](https://www.youtube.com/watch?v=s5v_KGdhOJg)
-- [സ്നേഹപൂര്‍വ്വം മോഹന്‍ലാലിന് | Non-Stop Video Jukebox | Mohanlal  Hits | Ravanaprabu | Geethanjali](https://www.youtube.com/watch?v=8W9Y83AuJZE)
-- [Athmave Poo - Video Song | Romancham | Sushin Shyam | Johnpaul George Productions | Jithu Madhavan](https://www.youtube.com/watch?v=eysNkSGQH_I)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
