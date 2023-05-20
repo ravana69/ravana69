@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Eden Shalabhame | Don't | Jithin Suresh T | Arjun V Akshaya | Divya S Menon | Sandeep Sudha](https://www.youtube.com/watch?v=J2uBXAbiwAE)
 - [Vida Parayukayaano | Big B | Shreya Ghoshal | Alphons Joseph | Santhosh Varma | Mammootty](https://www.youtube.com/watch?v=oCXd2rM4EO4)
 - [സ്വപ്നങ്ങൾക്ക് നിറം പകർന്ന മലയാളസിനിമയിലെ മനോഹരഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=Iqg1bzC0H9E)
 - [താളക്കൊഴുപ്പും മേളക്കൊഴുപ്പും കൊണ്ട് മലയാളികളുടെ ഹൃദയം കവർന്ന സൂപ്പർഹിറ്റ് സിനിമാഗാനങ്ങൾ | SUPERHITS](https://www.youtube.com/watch?v=82p1FyK2I7g)
 - [Oru Naru Pushpamai | Arathy | Meghamalhar |](https://www.youtube.com/watch?v=h5dQfy0GuGI)
 - [Chandhanamani sandhyakalude | Mridul](https://www.youtube.com/watch?v=yBGBz7jRjjA)
-- [നെറ്റിയിൽ പൂവുള്ള സ്വർണ്ണ ചിറകുള്ള പക്ഷീ| Manivathoorile Aayiram Sivarathrikal Movie Song| Mammootty](https://www.youtube.com/watch?v=GLZVF7pUI8Q)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
