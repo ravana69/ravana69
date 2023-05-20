@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oru Naru Pushpamai | Arathy | Meghamalhar |](https://www.youtube.com/watch?v=h5dQfy0GuGI)
+- [Chandhanamani sandhyakalude | Mridul](https://www.youtube.com/watch?v=yBGBz7jRjjA)
 - [നെറ്റിയിൽ പൂവുള്ള സ്വർണ്ണ ചിറകുള്ള പക്ഷീ| Manivathoorile Aayiram Sivarathrikal Movie Song| Mammootty](https://www.youtube.com/watch?v=GLZVF7pUI8Q)
 - [Mangalam Koodan | Lyrical Video | Malarvadi Arts Club  | Vineeth Sreenivasan | Shaan Rahman |Sujatha](https://www.youtube.com/watch?v=4EBR8rLPS9Y)
 - [Christian Video Songs Malayalam | Kester | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=z5zaUgLTfdg)
 - [Puthooram Veetile | NKRAR  | Prithwiraj | Rajasenan | Kalabhavan Mani | Nishad](https://www.youtube.com/watch?v=7WbfR6voyKg)
-- [19 May 2023](https://www.youtube.com/watch?v=DidOXDsxngE)
-- [Kiliye Kiliye | Nokkethadoorathu Kannumnattu | Bichu Thirumala | Jerry Amaldev | KS Chithra Hits](https://www.youtube.com/watch?v=VuR-bFB2YfU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
