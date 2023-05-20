@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Senthamizhin Naadaane - Video Song | Neymar | Mathew,Naslen| Shaan Rahman| Sudhi Maddison| V Cinemas](https://www.youtube.com/watch?v=rDwgJvuao70)
+- [Avanavan Kurukkunna | Malayalam Super Hit Song | Ramji Rao Speaking | Ft.Mukesh | Innocent| Saikumar](https://www.youtube.com/watch?v=s5v_KGdhOJg)
+- [സ്നേഹപൂര്‍വ്വം മോഹന്‍ലാലിന് | Non-Stop Video Jukebox | Mohanlal  Hits | Ravanaprabu | Geethanjali](https://www.youtube.com/watch?v=8W9Y83AuJZE)
+- [Athmave Poo - Video Song | Romancham | Sushin Shyam | Johnpaul George Productions | Jithu Madhavan](https://www.youtube.com/watch?v=eysNkSGQH_I)
 - [Eden Shalabhame | Don't | Jithin Suresh T | Arjun V Akshaya | Divya S Menon | Sandeep Sudha](https://www.youtube.com/watch?v=J2uBXAbiwAE)
 - [Vida Parayukayaano | Big B | Shreya Ghoshal | Alphons Joseph | Santhosh Varma | Mammootty](https://www.youtube.com/watch?v=oCXd2rM4EO4)
-- [സ്വപ്നങ്ങൾക്ക് നിറം പകർന്ന മലയാളസിനിമയിലെ മനോഹരഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=Iqg1bzC0H9E)
-- [താളക്കൊഴുപ്പും മേളക്കൊഴുപ്പും കൊണ്ട് മലയാളികളുടെ ഹൃദയം കവർന്ന സൂപ്പർഹിറ്റ് സിനിമാഗാനങ്ങൾ | SUPERHITS](https://www.youtube.com/watch?v=82p1FyK2I7g)
-- [Oru Naru Pushpamai | Arathy | Meghamalhar |](https://www.youtube.com/watch?v=h5dQfy0GuGI)
-- [Chandhanamani sandhyakalude | Mridul](https://www.youtube.com/watch?v=yBGBz7jRjjA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
