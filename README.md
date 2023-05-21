@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chenthaamaraye Vaa  | Thaskaraveeran | Mammootty | Nayanthara - Ouseppachan Hits](https://www.youtube.com/watch?v=g9xmGlL-pgA)
+- [Hara Hara Shankara | Rasikan | Dileep | Samvrutha | Vidyasagar | Dinesh | Laljose - HD Video Song](https://www.youtube.com/watch?v=b_tzNRV79QQ)
 - [Lokamam Gambheera Varidhiyil | Shorts | K S Chithra](https://www.youtube.com/watch?v=NE1iSZ_E_f0)
 - [പാട്ടുപെട്ടി  Vol 8 | Malayalam Film Songs](https://www.youtube.com/watch?v=AiYxeg5IWiY)
 - [പാപിയായ് ഇരുന്നൊരു കാലത്തും... | Shorts | Elizabeth Raju](https://www.youtube.com/watch?v=EEYjQR5DH40)
 - [ഏത് ഹൃദയവും ശാന്തമാകും ഈ ഗാനങ്ങൾ കേൾക്കുമ്പോൾ | Christian Devotional Songs Malayalam | Kester](https://www.youtube.com/watch?v=DTRc4pb_xhI)
-- [Pulari Nilaavu | Pallavur Devanarayanan | Mammootty | KJ Yesudas | Sangeetha | Gireesh Puthanchery](https://www.youtube.com/watch?v=0QQ7kIMwV4g)
-- [20 May 2023](https://www.youtube.com/watch?v=rElmIdIS9i4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
