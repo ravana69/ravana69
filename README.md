@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പാപിയായ് ഇരുന്നൊരു കാലത്തും... | Shorts | Elizabeth Raju](https://www.youtube.com/watch?v=EEYjQR5DH40)
+- [ഏത് ഹൃദയവും ശാന്തമാകും ഈ ഗാനങ്ങൾ കേൾക്കുമ്പോൾ | Christian Devotional Songs Malayalam | Kester](https://www.youtube.com/watch?v=DTRc4pb_xhI)
 - [Pulari Nilaavu | Pallavur Devanarayanan | Mammootty | KJ Yesudas | Sangeetha | Gireesh Puthanchery](https://www.youtube.com/watch?v=0QQ7kIMwV4g)
 - [20 May 2023](https://www.youtube.com/watch?v=rElmIdIS9i4)
 - [പീഡിതനു അഭയസ്ഥാനം | Shorts](https://www.youtube.com/watch?v=tPMdg5KcmqQ)
 - [Chankinathoru Novunde | Christian Video Song | Joby Kavalam | Surya Narayanan | Joji Johns](https://www.youtube.com/watch?v=PArbxtCcuIM)
-- [Senthamizhin Naadaane - Video Song | Neymar | Mathew,Naslen| Shaan Rahman| Sudhi Maddison| V Cinemas](https://www.youtube.com/watch?v=rDwgJvuao70)
-- [Avanavan Kurukkunna | Malayalam Super Hit Song | Ramji Rao Speaking | Ft.Mukesh | Innocent| Saikumar](https://www.youtube.com/watch?v=s5v_KGdhOJg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
