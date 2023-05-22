@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മഞ്ഞിൻ ചിറകുള്ള വെള്ളരിപ്രാവേ | Malayalam melody song | Swagatham | Manjin Chirakulla](https://www.youtube.com/watch?v=HB8Issvcb4Q)
 - [രക്ഷയിൻ പദവിയാൽ വീണ്ടെന്നെ...| Elizabeth Raju | Shorts](https://www.youtube.com/watch?v=osLl_Dpeoa4)
 - [Parbhatha Geethangal | Kester | Christian Songs | Christian Morning Prayer Songs | Joji Johns](https://www.youtube.com/watch?v=80sjyfLM1Tg)
 - [വന്നാലും എന്റെ ഉള്ളിൽ...](https://www.youtube.com/watch?v=LmCcyXOMnhI)
 - [kunjurangum Koottinullil | Ponnuchami | Sureshgopi | Chithra | Mohan Sithara](https://www.youtube.com/watch?v=LT3jSmbfBzQ)
 - [Christian Melody Songs | Kalesh Karunakaran | Christian Songs | Joji Johns | Sanoop Kumar](https://www.youtube.com/watch?v=xhhy-Gyu0Fg)
-- [Chenthaamaraye Vaa  | Thaskaraveeran | Mammootty | Nayanthara - Ouseppachan Hits](https://www.youtube.com/watch?v=g9xmGlL-pgA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
