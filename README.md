@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Love Blossoms from #EnRojaNeeye song | #Kushi | #VijayDeverakonda | #SamanthaRuthPrabhu | #shorts](https://www.youtube.com/watch?v=bIMzf1PhkCs)
+- [Vaalittu Kannezhuthum | Kaikudunna Nilavu | KJ Yesudas | Kaithapram | Gireesh Puthanchery](https://www.youtube.com/watch?v=qpCFzZR-eAc)
 - [ViswasaJeevitha Padakil Karaoke | George Peter | Malayalam Christian Songs Karaoke with Lyrics](https://www.youtube.com/watch?v=JWnOacDAkEI)
 - [Bharath Sankar, Anthony Daasan - Aala Aala (From "Yaanai Mugathaan")](https://www.youtube.com/watch?v=rphV6A4RQvM)
 - [Bharath Sankar, Sathyaprakash - Dhoora Vaaney (From "Yaanai Mugathaan")](https://www.youtube.com/watch?v=_QjiMCoyQos)
 - [Unaroo | Chandamama | MG Sreekumar | Ouseppachan | Kaithapram](https://www.youtube.com/watch?v=cRMu532r0TE)
-- [Kaanan Enthoru Chelaanu Song | Janaki | Vidhyadharan Master | Arjun V Akshaya | Jinesh Sadanandan](https://www.youtube.com/watch?v=B32Oi98jzRM)
-- [മേഘം പൂത്തുതുടങ്ങി 🎶😍 Megham Poothu Thudangi | Video Song | Pranaya Vilasam | Arjun Ashokan](https://www.youtube.com/watch?v=k1ruUP0DTu0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
