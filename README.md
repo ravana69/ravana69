@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kaanuvan Ere - Lyrical Video | Makaramanju | Sujatha Mohan, Hariharan | Ramesh Narayan](https://www.youtube.com/watch?v=3ILhHA-KFVk)
 - [ഇന്ത്യൻ സിനിമ കണ്ട മഹാനടൻ മലയാളികളുടെ അഭിമാനം മമ്മൂട്ടിയുടെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | MAMMOOTTY HITS](https://www.youtube.com/watch?v=MlYrrb-9rXI)
 - [കൊച്ചു കുട്ടികൾക്ക് പോലും മനഃപാഠമായിട്ടുള്ള മലയാളസിനിമയിലെ പ്രശസ്തഗാനങ്ങൾ | SUPERHIT SONGS | NISARI](https://www.youtube.com/watch?v=fPIPtUAduAM)
 - [Mammamamma Maarimazhaye | Rasikan | Karthik | Veena Haridas | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=KBf6GVotoCk)
 - [മഞ്ഞിൻ ചിറകുള്ള വെള്ളരിപ്രാവേ | Malayalam melody song | Swagatham | Manjin Chirakulla](https://www.youtube.com/watch?v=HB8Issvcb4Q)
 - [രക്ഷയിൻ പദവിയാൽ വീണ്ടെന്നെ...| Elizabeth Raju | Shorts](https://www.youtube.com/watch?v=osLl_Dpeoa4)
-- [Parbhatha Geethangal | Kester | Christian Songs | Christian Morning Prayer Songs | Joji Johns](https://www.youtube.com/watch?v=80sjyfLM1Tg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
