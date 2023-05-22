@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ViswasaJeevitha Padakil Karaoke | George Peter | Malayalam Christian Songs Karaoke with Lyrics](https://www.youtube.com/watch?v=JWnOacDAkEI)
+- [Bharath Sankar, Anthony Daasan - Aala Aala (From "Yaanai Mugathaan")](https://www.youtube.com/watch?v=rphV6A4RQvM)
+- [Bharath Sankar, Sathyaprakash - Dhoora Vaaney (From "Yaanai Mugathaan")](https://www.youtube.com/watch?v=_QjiMCoyQos)
+- [Unaroo | Chandamama | MG Sreekumar | Ouseppachan | Kaithapram](https://www.youtube.com/watch?v=cRMu532r0TE)
+- [Kaanan Enthoru Chelaanu Song | Janaki | Vidhyadharan Master | Arjun V Akshaya | Jinesh Sadanandan](https://www.youtube.com/watch?v=B32Oi98jzRM)
 - [മേഘം പൂത്തുതുടങ്ങി 🎶😍 Megham Poothu Thudangi | Video Song | Pranaya Vilasam | Arjun Ashokan](https://www.youtube.com/watch?v=k1ruUP0DTu0)
-- [The Metamorphosis | Making of Padavettu | Nivin Pauly, Aditi Balan | Liju Krishna | Subhaash Karun](https://www.youtube.com/watch?v=DJBWaqSRdi0)
-- [Kaanuvan Ere - Lyrical Video | Makaramanju | Sujatha Mohan, Hariharan | Ramesh Narayan](https://www.youtube.com/watch?v=3ILhHA-KFVk)
-- [ഇന്ത്യൻ സിനിമ കണ്ട മഹാനടൻ മലയാളികളുടെ അഭിമാനം മമ്മൂട്ടിയുടെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | MAMMOOTTY HITS](https://www.youtube.com/watch?v=MlYrrb-9rXI)
-- [കൊച്ചു കുട്ടികൾക്ക് പോലും മനഃപാഠമായിട്ടുള്ള മലയാളസിനിമയിലെ പ്രശസ്തഗാനങ്ങൾ | SUPERHIT SONGS | NISARI](https://www.youtube.com/watch?v=fPIPtUAduAM)
-- [Mammamamma Maarimazhaye | Rasikan | Karthik | Veena Haridas | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=KBf6GVotoCk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
