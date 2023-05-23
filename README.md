@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഇന്നലേ.... ഇന്നലെ എന്റെ നെഞ്ചിലെ കുഞ്ഞു മണ്‍ വിളക്കൂതിയില്ലേ... ✨️🦋❤️ Mohanlal](https://www.youtube.com/watch?v=wNy8vYp_9kI)
 - [മനസിന്റെ കോണിൽ ഒത്തിരി നൊമ്പരം പകർന്നെകിയ ദുഃഖ ഗാനങ്ങൾ | SAD SONGS | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=P8Q970AE11E)
 - [Mohan Sithara, G. Venugopal - Ponnumthingal Pottum (Lyric Video)](https://www.youtube.com/watch?v=Nb39mdCKSVw)
 - [M.G. Radhakrishnan, M.G. Sreekumar, K.S. Chithra - Nammalu Koyyum (Lyric Video)](https://www.youtube.com/watch?v=2rL_8rM9QTE)
 - [Uttam Singh, K.S. Chithra - Maanthalirin Pattu Chuttiya (Version, 2) (Lyric Video)](https://www.youtube.com/watch?v=c4DCc49ChgU)
 - [Ayiram Kannumayi | Nokkethadhoorathu Kannumnattu | Jerry Amaldev | Bichu thirumala | KS chithra](https://www.youtube.com/watch?v=TTAjQWvWYLM)
-- [Dhalava Theruvile | Rasikan | Gireesh Puthenchery | Vidyasagar | Sankar Mahadevan | Dileep](https://www.youtube.com/watch?v=ZF3kElkHIdE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
