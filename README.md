@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Singers Of The Week | Jayachandran | MG Sreekumar | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=zzBRu6BeAD4)
 - [Chithramani Kattil | Symphony | Deepak Dev | P Jayachandran | KS Chithra | Kaithapram | IV Sasi](https://www.youtube.com/watch?v=r1cSdN4RAb4)
 - [ദൈവസ്നേഹം മാറുകില്ല...!](https://www.youtube.com/watch?v=ItCksrk0mVw)
 - [Christian Melody Songs | Narayanan Krishna | Healing Songs | Christian Songs Malayalam](https://www.youtube.com/watch?v=Aia1RSyBPFY)
 - [Love Blossoms from #EnRojaNeeye song | #Kushi | #VijayDeverakonda | #SamanthaRuthPrabhu | #shorts](https://www.youtube.com/watch?v=bIMzf1PhkCs)
 - [Vaalittu Kannezhuthum | Kaikudunna Nilavu | KJ Yesudas | Kaithapram | Gireesh Puthanchery](https://www.youtube.com/watch?v=qpCFzZR-eAc)
-- [ViswasaJeevitha Padakil Karaoke | George Peter | Malayalam Christian Songs Karaoke with Lyrics](https://www.youtube.com/watch?v=JWnOacDAkEI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
