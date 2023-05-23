@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Mesmerising #EnRojaNeeye song | #Kushi | #VijayDeverakonda | #SamanthaRuthPrabhu |#HeshamAbdulWahab](https://www.youtube.com/watch?v=MsMipPTu79g)
-- [Njerukkathin Appan Njan | Shorts | K S Chithra](https://www.youtube.com/watch?v=afIw5Fuotno)
-- [Singers Of The Week | Jayachandran | MG Sreekumar | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=zzBRu6BeAD4)
-- [Chithramani Kattil | Symphony | Deepak Dev | P Jayachandran | KS Chithra | Kaithapram | IV Sasi](https://www.youtube.com/watch?v=r1cSdN4RAb4)
-- [ദൈവസ്നേഹം മാറുകില്ല...!](https://www.youtube.com/watch?v=ItCksrk0mVw)
-- [Christian Melody Songs | Narayanan Krishna | Healing Songs | Christian Songs Malayalam](https://www.youtube.com/watch?v=Aia1RSyBPFY)
+- [മനസിന്റെ കോണിൽ ഒത്തിരി നൊമ്പരം പകർന്നെകിയ ദുഃഖ ഗാനങ്ങൾ | SAD SONGS | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=P8Q970AE11E)
+- [Mohan Sithara, G. Venugopal - Ponnumthingal Pottum (Lyric Video)](https://www.youtube.com/watch?v=Nb39mdCKSVw)
+- [M.G. Radhakrishnan, M.G. Sreekumar, K.S. Chithra - Nammalu Koyyum (Lyric Video)](https://www.youtube.com/watch?v=2rL_8rM9QTE)
+- [Uttam Singh, K.S. Chithra - Maanthalirin Pattu Chuttiya (Version, 2) (Lyric Video)](https://www.youtube.com/watch?v=c4DCc49ChgU)
+- [Ayiram Kannumayi | Nokkethadhoorathu Kannumnattu | Jerry Amaldev | Bichu thirumala | KS chithra](https://www.youtube.com/watch?v=TTAjQWvWYLM)
+- [Dhalava Theruvile | Rasikan | Gireesh Puthenchery | Vidyasagar | Sankar Mahadevan | Dileep](https://www.youtube.com/watch?v=ZF3kElkHIdE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
