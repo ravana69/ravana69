@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Raakkilikal Chekkeri Varum | Suvarna Simhaasanam | KS Chithra | Ouseppachan | Kaithapram](https://www.youtube.com/watch?v=3YU1CZoexKM)
 - [വാഴ്ത്തുന്നു ഞാൻ | Vazhthunnu Njan | K.S. Chithra | Shorts](https://www.youtube.com/watch?v=dlMtzs3drec)
 - [Poomarakombil - Lyrical Video | Boomerang  | Shine Tom Chacko | Samyuktha | Vaikom Vijayalakshmi](https://www.youtube.com/watch?v=MEFRYtGi5_E)
 - [ആര് കേട്ടാലും കൂടെ പാടാൻ തോന്നുന്ന മലയാളസിനിമയിലെ അതിമനോഹര ഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=qLGNM97erG8)
 - [മനസ്സിലെങ്കിലും ഒരു വട്ടം പ്രണയിച്ചവർ അറിയാതെ ഓർത്തുപോകുന്ന പ്രണയഗാനങ്ങൾ | LOVE SONGS | NISARI](https://www.youtube.com/watch?v=w7EhxsP9q40)
 - [Vavavo Vave HD 1080p | Ente Veedu Appoontem | Gireesh Puthenchery | Jyothirmayi | Jayaram | Kalidas](https://www.youtube.com/watch?v=iY66nxcuOBw)
-- [ശ്യാമാംബരം | Shyamambaram | Artham Movie Song | K.J.Yesudas | Mammootty | Saranya | Parvathi](https://www.youtube.com/watch?v=boAnj3vBX4s)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
