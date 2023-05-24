@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manassil Midhunamazha | Nandanam | Navya Nair |  Prithviraj | Aravind | Raveendran | MG Sreekumar](https://www.youtube.com/watch?v=uyJtEZexnxQ)
+- [24 May 2023](https://www.youtube.com/watch?v=7UWJ7jaViCo)
 - [Parisudhanam Thathane Lyrical Video | Malayalam Christian Lyrics Video | Nithya Mammen](https://www.youtube.com/watch?v=soYeRz7bBw8)
 - [Christian Melody Songs | Manoj Christy | Christian Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=ZReyYsnKYjk)
 - [Melle Melle | Evergreen Movie Song | Oru Minnaaminunginte Nurungu Vettam | Nedumudi Venu | Sharada](https://www.youtube.com/watch?v=uQaHAo45nnM)
 - [Raveendran, K.J. Yesudas - Dhoore Puzhayude Paattaai (Lyric Video)](https://www.youtube.com/watch?v=AT0UYMUcYGQ)
-- [Panchami Thinkal Punchirikkunnu | Friends | MG Sreekumar | Ilayaraja | RK Damodaran](https://www.youtube.com/watch?v=qK0PyorBE1A)
-- [Mele Mele - Lyrical Video | Makaramanju | Ramesh Narayan | Kavalam Narayana Panicker](https://www.youtube.com/watch?v=ehp7RTSvah0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
