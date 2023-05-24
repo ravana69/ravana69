@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Melle Melle | Evergreen Movie Song | Oru Minnaaminunginte Nurungu Vettam | Nedumudi Venu | Sharada](https://www.youtube.com/watch?v=uQaHAo45nnM)
+- [Raveendran, K.J. Yesudas - Dhoore Puzhayude Paattaai (Lyric Video)](https://www.youtube.com/watch?v=AT0UYMUcYGQ)
+- [Panchami Thinkal Punchirikkunnu | Friends | MG Sreekumar | Ilayaraja | RK Damodaran](https://www.youtube.com/watch?v=qK0PyorBE1A)
+- [Mele Mele - Lyrical Video | Makaramanju | Ramesh Narayan | Kavalam Narayana Panicker](https://www.youtube.com/watch?v=ehp7RTSvah0)
 - [Raakkilikal Chekkeri Varum | Suvarna Simhaasanam | KS Chithra | Ouseppachan | Kaithapram](https://www.youtube.com/watch?v=3YU1CZoexKM)
 - [വാഴ്ത്തുന്നു ഞാൻ | Vazhthunnu Njan | K.S. Chithra | Shorts](https://www.youtube.com/watch?v=dlMtzs3drec)
-- [Poomarakombil - Lyrical Video | Boomerang  | Shine Tom Chacko | Samyuktha | Vaikom Vijayalakshmi](https://www.youtube.com/watch?v=MEFRYtGi5_E)
-- [ആര് കേട്ടാലും കൂടെ പാടാൻ തോന്നുന്ന മലയാളസിനിമയിലെ അതിമനോഹര ഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=qLGNM97erG8)
-- [മനസ്സിലെങ്കിലും ഒരു വട്ടം പ്രണയിച്ചവർ അറിയാതെ ഓർത്തുപോകുന്ന പ്രണയഗാനങ്ങൾ | LOVE SONGS | NISARI](https://www.youtube.com/watch?v=w7EhxsP9q40)
-- [Vavavo Vave HD 1080p | Ente Veedu Appoontem | Gireesh Puthenchery | Jyothirmayi | Jayaram | Kalidas](https://www.youtube.com/watch?v=iY66nxcuOBw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
