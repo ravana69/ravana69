@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ponnitta Pettakam | Pranayanilavu | Dileep | Mohini | Bearny Ignatius | Vinayan](https://www.youtube.com/watch?v=QrSCFo8N8Es)
 - [Ente Hrudayathinullile | Christian Video Song | Prem Raj | Joby Kavalam | Joji Johns](https://www.youtube.com/watch?v=Ki9KVcOcYvs)
 - [23 May 2023](https://www.youtube.com/watch?v=fGg9sWR_WDI)
 - [Thanka Kasavaniyum | Thiruthalvaadi | Siddique | Urvashi | Yesudas | Chithra | S.P.Venkitesh](https://www.youtube.com/watch?v=jZsImwtHfz4)
 - [Muttathe Mulla - Song Making | Jawanum Mullappoovum | Sumesh,Sshivada | K S Chithra | 4 MUSICS](https://www.youtube.com/watch?v=pFhZIl_d6ko)
 - [Evide Nin Daivamsham | Arjunan Pillayum Anchu Makkalum | KJ Yesudas | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=aZeiPlXk5e4)
-- [Pranayardra Mohajathikal | Suvarna Simhaasanam | Biju Narayanan | Ouseppachan | Kaithapram](https://www.youtube.com/watch?v=mqs7q-lye0s)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
