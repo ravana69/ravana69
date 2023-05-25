@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Enniyenni Chakkakkuru | Vamanapuram Bus Route | Super Hit Song | Mohanlal |Jagathi- HBD MG Sreekumar](https://www.youtube.com/watch?v=nDUsC3251BI)
+- [Beautiful song from the Movie Naran sung by K J Yesudas & Gayathri](https://www.youtube.com/watch?v=nUb-QeewCr4)
+- [തൊട്ട് തൊട്ട് - Thotte Thotte | Karaoke With lyrics | Vidyasagar | Rafeeq Ahammed | Fahad Fasil](https://www.youtube.com/watch?v=LpMhntfJ3Bs)
 - [എത്രകേട്ടാലും മനം മടുക്കാത്ത അത്രമേൽ സുന്ദരങ്ങളായ മലയാളസിനിമാഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=tFH7sj3Yj2U)
 - [Tiger Nageswara Rao - First Look Glimpse (Malayalam) | Ravi Teja | Dulquer Salmaan | Vamsee](https://www.youtube.com/watch?v=OSXZ3dwqTnM)
 - [Muthumazha Konchal Pole | Big B | Vineeth Sreenivasan | Jyotsna | Alphons Joseph | Jophi Tharakan](https://www.youtube.com/watch?v=pyqwBjPbD58)
-- [Hey Vada Themmadi | Rasikan | Gireesh Puthenchery | Vidyasagar | Biju Narayanan | Vidhu Prathab](https://www.youtube.com/watch?v=XdxMxGhuPkg)
-- [TEASER | QUBO - SHORT FILM | RAZI ROZARIO | JEEVAN SUKUMARAN](https://www.youtube.com/watch?v=Mf805mrkvyw)
-- [കുഞ്ഞാടുകൾക്കെന്നും കൂട്ടായിരുന്നിടും.... 🤍🎵 Mohanlal](https://www.youtube.com/watch?v=1TFBxQPlibg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
