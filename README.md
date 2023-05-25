@@ -36,8 +36,8 @@
 - [Tiger Nageswara Rao - First Look Glimpse (Malayalam) | Ravi Teja | Dulquer Salmaan | Vamsee](https://www.youtube.com/watch?v=OSXZ3dwqTnM)
 - [Muthumazha Konchal Pole | Big B | Vineeth Sreenivasan | Jyotsna | Alphons Joseph | Jophi Tharakan](https://www.youtube.com/watch?v=pyqwBjPbD58)
 - [Hey Vada Themmadi | Rasikan | Gireesh Puthenchery | Vidyasagar | Biju Narayanan | Vidhu Prathab](https://www.youtube.com/watch?v=XdxMxGhuPkg)
+- [TEASER | QUBO - SHORT FILM | RAZI ROZARIO | JEEVAN SUKUMARAN](https://www.youtube.com/watch?v=Mf805mrkvyw)
 - [കുഞ്ഞാടുകൾക്കെന്നും കൂട്ടായിരുന്നിടും.... 🤍🎵 Mohanlal](https://www.youtube.com/watch?v=1TFBxQPlibg)
-- [എന്റെ ഇഷ്ടഗാനങ്ങള്‍ | Hits of M G Sreekumar | M G Sreekumar Hit Songs | Video Jukebox | HD |](https://www.youtube.com/watch?v=Kk5uApIMueU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
