@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നീറുമെൻ പ്രാണനിൽ നീ ആശതൻ തേനൊഴുക്കി🎶❤️](https://www.youtube.com/watch?v=1FBIJzDgObk)
 - [തേൻ കിണ്ണം പൂം കിണ്ണം | Thenkinnam Pookinnam | Yakshaganam Movie Song | K J Yesudas,P Susheela](https://www.youtube.com/watch?v=bcirneCS8fA)
 - [എൺപതുകളിലെ സിനിമാസംഗീത ചക്രവർത്തി ശ്യാം ഈണമിട്ട മലയാളത്തിലെ അതി പ്രശസ്‌ത ഗാനങ്ങൾ |80s HITS MALAYALAM](https://www.youtube.com/watch?v=dhYX2oQE8qc)
 - [Masam Masam | Aparichithan | Gireesh Puthenchery | Suresh Peters | Jyotsna Radhakrishnan | Kavya](https://www.youtube.com/watch?v=OqIJ5gNSOwI)
 - [ഓർമ്മകളെ സുഗന്ധപൂരിതമാക്കുന്ന എത്രകേട്ടാലും മതിവരാത്ത മലയാളചലച്ചിത്രഗാനങ്ങൾ | SUPERHITS](https://www.youtube.com/watch?v=uh8E07_vU74)
 - [Haalaake Maarunne Song | Sulaikha Manzil |Lukman, Anarkali |Vishnu Vijay |Ashraf Hamza| Mu.Ri](https://www.youtube.com/watch?v=3T_NMYU-M-o)
-- [Cute video of #EnRojaNeeye song | #Kushi | #VijayDeverakonda | #SamanthaRuthPrabhu | #shorts](https://www.youtube.com/watch?v=VBFE_g6VGYs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
