@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mayunnuvo Song sung by Sooraj Santhosh from Janaki Jaane   https://youtu.be/nAE3R9Y6BUg](https://www.youtube.com/watch?v=j9eL-fzEZMo)
+- [Maane Malaramban | Ayal Kadha Ezhuthukayanu | Mohanlal | Nandhini | Raveendran | Yesudas](https://www.youtube.com/watch?v=a4c3oqOEgGY)
 - [കാരുണ്യം  തൂകുന്ന  മാതാവേ../OWN MEDIA MUSIC /Bastin Augustin, Joy Cheruvathoor, Soniya Chris /](https://www.youtube.com/watch?v=7dhYQN4arsY)
 - [Songs Of The Week | Madhu Balakrishnan | Christian Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=6kSNhsq7wqQ)
 - [25 May 2023](https://www.youtube.com/watch?v=SIHpiaIP0lM)
 - [Ennai Thalatta  | Kadhalukku Mariadhai | Vijay | Shalini | Hariharan | Ilayaraja | Thursday Special](https://www.youtube.com/watch?v=kq7k2bTPvIY)
-- [https://youtu.be/nAE3R9Y6BUg   Mayunnuvo Song sung by Sooraj Santhosh from Janaki Jaane](https://www.youtube.com/watch?v=Eklmj_aGYhg)
-- [Enniyenni Chakkakkuru | Vamanapuram Bus Route | Super Hit Song | Mohanlal |Jagathi- HBD MG Sreekumar](https://www.youtube.com/watch?v=nDUsC3251BI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
