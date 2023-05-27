@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Pada Nooru Pala Ooru - Lyrical | Neymar | Mathew,Naslen | Deepak Blue | Shaan Rahman| Sudhi Maddison](https://www.youtube.com/watch?v=o0YNN-G1h00)
+- [Moham Manassilittu | Arjunan Pillayum Anchu Makkalum | Pradeep Somasundaram | Mohan Sithara](https://www.youtube.com/watch?v=mRYsUJr_3Z4)
+- [https://youtu.be/nAE3R9Y6BUg   Mayunnuvo Song sung by Sooraj Santhosh from Janaki Jaane](https://www.youtube.com/watch?v=HkiOlpLdIk4)
+- [Aah ko Chaahiye - Lyrical Video | Makaramanju | Ramesh Narayan | Sujatha Mohan, Hariharan](https://www.youtube.com/watch?v=5Bs7hH0oOvA)
 - [യുവതയുടെ തുടിപ്പും ആവേശവും നിറഞ്ഞു നിൽക്കുന്ന മലയാള സിനിമയിലെ താളക്കൊഴുപ്പുള്ള ഗാനങ്ങൾ | SUPERHITS](https://www.youtube.com/watch?v=X4HUGmCfUVE)
 - [Kolamayil Penkodi | Kearalahouse Udan Vilapanakku | Jayasurya | Ouseppachan | Gireesh Puthanchery](https://www.youtube.com/watch?v=Ot2_zC1Dmzs)
-- [വിനോദയാത്രയിലും ആഘോഷവേളയിലും ആനന്ദം പകരുന്ന സൂപ്പർഹിറ്റ് സിനിമാഗാനങ്ങൾ | FILM SONGS MALAYALAM](https://www.youtube.com/watch?v=KZEeLqvZWiQ)
-- [Purame Video Song | Choodu | Ramgopal Harikrishnan | Anwar Ali | Karthik Narayanan | Verite Kishore](https://www.youtube.com/watch?v=rngVqh-qCwk)
-- [Heart touching song #EnRojaNeeye | #Kushi | #VijayDeverakonda | #SamanthaRuthPrabhu | #shorts](https://www.youtube.com/watch?v=KO0R21jdhxQ)
-- [Thunayenikkeshuve | Shorts | Sujatha](https://www.youtube.com/watch?v=1r1DNX8n6NI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
