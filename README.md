@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Maarivillinmel | Meenathil Thalikettu | MG Sreekumar | Ouseppachan | Gireesh Puthanchery](https://www.youtube.com/watch?v=jIrlLoiUrGs)
 - [Pada Nooru Pala Ooru - Lyrical | Neymar | Mathew,Naslen | Deepak Blue | Shaan Rahman| Sudhi Maddison](https://www.youtube.com/watch?v=o0YNN-G1h00)
 - [Moham Manassilittu | Arjunan Pillayum Anchu Makkalum | Pradeep Somasundaram | Mohan Sithara](https://www.youtube.com/watch?v=mRYsUJr_3Z4)
 - [https://youtu.be/nAE3R9Y6BUg   Mayunnuvo Song sung by Sooraj Santhosh from Janaki Jaane](https://www.youtube.com/watch?v=HkiOlpLdIk4)
 - [Aah ko Chaahiye - Lyrical Video | Makaramanju | Ramesh Narayan | Sujatha Mohan, Hariharan](https://www.youtube.com/watch?v=5Bs7hH0oOvA)
 - [യുവതയുടെ തുടിപ്പും ആവേശവും നിറഞ്ഞു നിൽക്കുന്ന മലയാള സിനിമയിലെ താളക്കൊഴുപ്പുള്ള ഗാനങ്ങൾ | SUPERHITS](https://www.youtube.com/watch?v=X4HUGmCfUVE)
-- [Kolamayil Penkodi | Kearalahouse Udan Vilapanakku | Jayasurya | Ouseppachan | Gireesh Puthanchery](https://www.youtube.com/watch?v=Ot2_zC1Dmzs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
