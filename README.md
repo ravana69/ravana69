@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [യുവതയുടെ തുടിപ്പും ആവേശവും നിറഞ്ഞു നിൽക്കുന്ന മലയാള സിനിമയിലെ താളക്കൊഴുപ്പുള്ള ഗാനങ്ങൾ | SUPERHITS](https://www.youtube.com/watch?v=X4HUGmCfUVE)
+- [Kolamayil Penkodi | Kearalahouse Udan Vilapanakku | Jayasurya | Ouseppachan | Gireesh Puthanchery](https://www.youtube.com/watch?v=Ot2_zC1Dmzs)
+- [വിനോദയാത്രയിലും ആഘോഷവേളയിലും ആനന്ദം പകരുന്ന സൂപ്പർഹിറ്റ് സിനിമാഗാനങ്ങൾ | FILM SONGS MALAYALAM](https://www.youtube.com/watch?v=KZEeLqvZWiQ)
 - [Heart touching song #EnRojaNeeye | #Kushi | #VijayDeverakonda | #SamanthaRuthPrabhu | #shorts](https://www.youtube.com/watch?v=KO0R21jdhxQ)
 - [Thunayenikkeshuve | Shorts | Sujatha](https://www.youtube.com/watch?v=1r1DNX8n6NI)
 - [Christian Video Songs Malayalam | Sreya Jayadeep | Christian Songs | Jayachandran | Joji Johns](https://www.youtube.com/watch?v=ePrJ-7umQQs)
-- [26 May 2023](https://www.youtube.com/watch?v=hmSB4yUQ24g)
-- [Chandana Theril Vannirangunne | The Don | Dileep | Gopika | Mohan Sithara | Lal | MG Sreekumar](https://www.youtube.com/watch?v=8hnDeG-q_7k)
-- [ഇന്ദ്രനീലങ്ങളോ | Indraneelangalo Video Song | Sringaravelan | Dileep | Vedhika | Berny Ignatius](https://www.youtube.com/watch?v=GMJ6lF7T_so)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
