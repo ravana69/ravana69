@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Peeli Kannezhuthi | SnehasagarAm | KS Chithra | G Venugopal | Manoj K Jayan | Sunitha |](https://www.youtube.com/watch?v=LJ4MD3FDe3M)
+- [കാരുണ്യം  തൂകുന്ന  മാതാവേ...](https://www.youtube.com/watch?v=9MC67scUfIQ)
+- [Nin Kaikal En Kanneer | Shorts | K S Chithra](https://www.youtube.com/watch?v=b-rZn6ThziA)
 - [Christian Melody Songs | Kalesh Karunakaran | Christian Songs |Joji Johns | Christian Superhit Songs](https://www.youtube.com/watch?v=TYEkRTnrrEI)
 - [Kanakinte Pushtakam|Bhoomiyile Manohara Swakaryam|Shyju Anthikkad| Rajeev Kumar |Sachin Balu](https://www.youtube.com/watch?v=yV6djEuhSn0)
 - [കാക്കയാൽ ആഹാരം നൽകിയവൻ | Shorts | K S Chithra](https://www.youtube.com/watch?v=zsbmO33V0yI)
-- [പൂന്തെന്നലേ നിന്നിലെ ശ്രീ സുഗന്ധം #shortsyoutube #bestmelodysongs #manjuwarrier #dileep](https://www.youtube.com/watch?v=Ga43fSQS5WE)
-- [Pavakali | Makalkku | Kaithapram | Ramesh Narayan | Jassie Gift | Madhusree Narayan | Sureshgopi](https://www.youtube.com/watch?v=-MQI6DeYWlw)
-- [പാട്ടുപെട്ടി - Pattupetti Vol 9 | Malayalam Film Songs](https://www.youtube.com/watch?v=eqQ_YgbOgaI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
