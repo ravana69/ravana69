@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oh January En Mizhiyil | Big B | Sayanora Philip | Alphons Joseph | Jophi Tharakan | Mammootty](https://www.youtube.com/watch?v=qYvHg1C9nFY)
+- [മലയാളികളുടെ സ്വന്തം എം ജി അണ്ണനും വാനമ്പാടിയും ചേർന്നാലപിച്ച സൂപ്പർഹിറ്റ് യുഗ്മഗാനങ്ങൾ | DUET SONGS](https://www.youtube.com/watch?v=ARhE5njyvcI)
+- [Kuyilpaatil Oonjaladam | Aparichithan | Gireesh Puthenchery | Suresh Peters | Sujatha Mohan](https://www.youtube.com/watch?v=6fNGb_loiVQ)
 - [Avanente Sankethavum | Thunayenikkeshuve Shorts | Sujatha](https://www.youtube.com/watch?v=Da1T7OvfaWI)
 - [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 29th May 2023 # Vanakkamasam Prayer May 29 # Japamala](https://www.youtube.com/watch?v=dRUdqnwHd6c)
 - [Christian Morning Prayer Songs | Biju Narayanan | Vani Jairam | Prabhatha geethangal | Joji Johns](https://www.youtube.com/watch?v=__3pwBtEH08)
-- [പ്രഭാത പ്രാര്‍ത്ഥന May 29 # Athiravile Prarthana 29th of May 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=hiB2MXv8Lfw)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 29th of May 2023](https://www.youtube.com/watch?v=etUNHks7UW4)
-- [Peeli Kannezhuthi | SnehasagarAm | KS Chithra | G Venugopal | Manoj K Jayan | Sunitha |](https://www.youtube.com/watch?v=LJ4MD3FDe3M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
