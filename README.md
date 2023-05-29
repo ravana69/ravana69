@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 29th of May 2023](https://www.youtube.com/watch?v=EnnKbgB7Y0E)
+- [Manjaadi Chundathum | Arjunan Pillayum Anchu Makkalum | KS Chithra | Mohan Sithara | Bichu Thirumala](https://www.youtube.com/watch?v=y9lvH6vr7uY)
+- [അയലപൊരിച്ചതുണ്ട് 🎣🐟😃🎶 #VenalilOruMazha | #Madhu](https://www.youtube.com/watch?v=UxhKZGqfsvU)
 - [Kannoru Kannidayum | Cousins Movie Song | Kunchacko Boban , Vedhika | M Jayachandran](https://www.youtube.com/watch?v=3Z4EzECRUnU)
 - [Aathmeeya Virunn | M.G.Sreekumar,Vidhu Prathap Ennivar Paadiya Kristheeya Bhakthigaanangal](https://www.youtube.com/watch?v=oHoIrAdzjqM)
 - [കുടുകുടുത്തിര കുമ്മി | Kudukuduthira Kummi | Love In Kerala | Malayalam Film Song](https://www.youtube.com/watch?v=y5xFJZimLPo)
-- [Oh January En Mizhiyil | Big B | Sayanora Philip | Alphons Joseph | Jophi Tharakan | Mammootty](https://www.youtube.com/watch?v=qYvHg1C9nFY)
-- [മലയാളികളുടെ സ്വന്തം എം ജി അണ്ണനും വാനമ്പാടിയും ചേർന്നാലപിച്ച സൂപ്പർഹിറ്റ് യുഗ്മഗാനങ്ങൾ | DUET SONGS](https://www.youtube.com/watch?v=ARhE5njyvcI)
-- [Kuyilpaatil Oonjaladam | Aparichithan | Gireesh Puthenchery | Suresh Peters | Sujatha Mohan](https://www.youtube.com/watch?v=6fNGb_loiVQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
