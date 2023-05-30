@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 31st of May 2023](https://www.youtube.com/watch?v=X8Vy8OxZqYI)
 - [Athisayan | Master Devadas | Alphonse Joseph | Jayasurya | Kavya Madhavan | Pakru | Indrans](https://www.youtube.com/watch?v=KgYF04G7dNE)
 - [30 May 2023](https://www.youtube.com/watch?v=t8mp-TMdXiQ)
 - [Vavavo vave|Ente Veedu Appuntem|Jayaram|Jyothirmayi|Kalidas Jayaram|](https://www.youtube.com/watch?v=4zwuDwSrwKc)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 30th of May 2023](https://www.youtube.com/watch?v=znvVe1eOyu8)
 - [Mazha Nananja | Padmini | Sreevalsan J Menon | Aswathi Sanju | Susmesh Chandroth | Manoj Kurur](https://www.youtube.com/watch?v=W0tZSHfXh98)
-- [Doore Maanjhu Poyi Full Video Song | Majnu Malayalam | Nani, Anu Immanuel | Gopi Sunder | Haricharan](https://www.youtube.com/watch?v=UGqgUJnhoaU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
