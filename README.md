@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vavavo vave|Ente Veedu Appuntem|Jayaram|Jyothirmayi|Kalidas Jayaram|](https://www.youtube.com/watch?v=4zwuDwSrwKc)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 30th of May 2023](https://www.youtube.com/watch?v=znvVe1eOyu8)
+- [Mazha Nananja | Padmini | Sreevalsan J Menon | Aswathi Sanju | Susmesh Chandroth | Manoj Kurur](https://www.youtube.com/watch?v=W0tZSHfXh98)
+- [Doore Maanjhu Poyi Full Video Song | Majnu Malayalam | Nani, Anu Immanuel | Gopi Sunder | Haricharan](https://www.youtube.com/watch?v=UGqgUJnhoaU)
+- [Kottarakettile | Friends | MG Sreekumar | Ilayaraja | RK Damodaran](https://www.youtube.com/watch?v=-Nb3Dv58cXg)
 - [Koodaram | P.Jayachandran,Madhu Balakrishnan,Sujatha Thudangiyavar Padiya Kristheeya Bhakthiganangal](https://www.youtube.com/watch?v=YgJmzrWeWhk)
-- [ഒരായിരം കിനാക്കളാൽ കുരുന്നു കൂടു മേഞ്ഞിരുന്നു മോഹം | റാംജി റാവ് സ്പീക്കിംഗ്](https://www.youtube.com/watch?v=GrSLn7a7gyA)
-- [Keranirakaladum Oru Harithacharutheeram | HD | Jalolsavam | P Jayachandran | Alphonse Joseph](https://www.youtube.com/watch?v=iAfUvEJIlE0)
-- [കൊഞ്ചി കൊഞ്ചി കുറുകും പൂങ്കുയിൽ പോൽ മനസ് തരളിതമാക്കും സുന്ദരഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=2n-fMbCIa_k)
-- [Ottamuri Vakkumayi - Video Song | Romancham | Sushin Shyam | Johnpaul George Productions](https://www.youtube.com/watch?v=ZFD2AfD3_gg)
-- [Sridevi - Waltair Veerayya (Hindi) | Devi Sri Prasad |Vimal Kashyap|Neha Rajpal](https://www.youtube.com/watch?v=0hpFdQNi-M8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
