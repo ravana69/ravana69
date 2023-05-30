@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 30th May 2023 # Vanakkamasam Prayer May 30 # Japamala](https://www.youtube.com/watch?v=GBRmCbqyI_U)
+- [Singer Of The Week | Kester | Praise and Worship Songs | Christian Songs | Joji Johns](https://www.youtube.com/watch?v=H_zat04-cbo)
 - [രാവിലെ പ്രാര്‍ത്ഥന May 30 # Athiravile Prarthana 30th of May 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=_U6yeQqsEDk)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 30th of May 2023](https://www.youtube.com/watch?v=N5ZtMW1quZo)
 - [Ilaya Manmadha | Lanka | Suresh Gopi | Mamta Mohandas | Sreenivas | Beeyar Prasad](https://www.youtube.com/watch?v=QrrX7pPjOEI)
 - [Pandetho Rajyathe Rajakumarikk 🥰| Sayyave Sayyave | Christian Brothers |](https://www.youtube.com/watch?v=P21Oo-eu-l8)
-- [Boss Party (From "Waltair Veerayya (Hindi)")](https://www.youtube.com/watch?v=1gMjkkUbiA4)
-- [Christian Superhit Songs | Biju Narayanan | Christian Devotional Songs Malayalam |Joji Johns](https://www.youtube.com/watch?v=_TpY4Un3FxU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
