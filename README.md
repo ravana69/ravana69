@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Koodaram | P.Jayachandran,Madhu Balakrishnan,Sujatha Thudangiyavar Padiya Kristheeya Bhakthiganangal](https://www.youtube.com/watch?v=YgJmzrWeWhk)
+- [ഒരായിരം കിനാക്കളാൽ കുരുന്നു കൂടു മേഞ്ഞിരുന്നു മോഹം | റാംജി റാവ് സ്പീക്കിംഗ്](https://www.youtube.com/watch?v=GrSLn7a7gyA)
+- [Keranirakaladum Oru Harithacharutheeram | HD | Jalolsavam | P Jayachandran | Alphonse Joseph](https://www.youtube.com/watch?v=iAfUvEJIlE0)
+- [കൊഞ്ചി കൊഞ്ചി കുറുകും പൂങ്കുയിൽ പോൽ മനസ് തരളിതമാക്കും സുന്ദരഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=2n-fMbCIa_k)
 - [Sridevi - Waltair Veerayya (Hindi) | Devi Sri Prasad |Vimal Kashyap|Neha Rajpal](https://www.youtube.com/watch?v=0hpFdQNi-M8)
 - [മാന്‍ മാന്‍ മാന്‍ നല്ല കലമാന്‍ | Malayalam Film Song | Maan maan maan nalla | Aavesham | S Janaki](https://www.youtube.com/watch?v=w88YS4N0CHo)
-- [Hridayageethamaayi | Ammakilikoodu | Prithviraj | Sukumari | Raveendran | P.Susheela](https://www.youtube.com/watch?v=5Ex0oSgh6fQ)
-- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 30th May 2023 # Vanakkamasam Prayer May 30 # Japamala](https://www.youtube.com/watch?v=GBRmCbqyI_U)
-- [Singer Of The Week | Kester | Praise and Worship Songs | Christian Songs | Joji Johns](https://www.youtube.com/watch?v=H_zat04-cbo)
-- [രാവിലെ പ്രാര്‍ത്ഥന May 30 # Athiravile Prarthana 30th of May 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=_U6yeQqsEDk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
