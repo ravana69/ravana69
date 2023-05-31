@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Tharakapodi | Jalolsavam | BR Prasad | Alphonse Joseph | MG Sreekumar | Nedumudivenu](https://www.youtube.com/watch?v=k7HY-qBJi_Y)
+- [പ്രഥമരാവിന്‍ HD | Malayalam Romantic Song | Changatham Malayalam Movie | Madhavi | Mammootty |Janaki](https://www.youtube.com/watch?v=I7WpPORe9ek)
+- [മലയാളി പ്രേക്ഷകർ നെഞ്ചോട് ചേർത്തുവെച്ച അതിമനോഹര സംഗീതമേള | OLD IS GOLD | NISARI MUSIC](https://www.youtube.com/watch?v=-diV2uu2XVA)
 - [Aathmavil Althara | Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=0mBo6-DpHf8)
 - [Doore Oru Kurunnilam  | Ente Veed Appoontem | Gireesh Puthenchery | Ouseppachan | KJ Yesudas](https://www.youtube.com/watch?v=Tzgq6l3btyE)
 - [Feel the vibe for #IlamaiKadhal | #Neymar | #MathewThomas, #Naslen | #ShaanRahman | #SudhiMaddison](https://www.youtube.com/watch?v=yK7xv5wPPNI)
-- [Thumbikal - Praveshanolsava Ganam 2023 | Soumya Nithesh | Manu Ithal | Ajeesh Dasan | Jijeesh Vaikom](https://www.youtube.com/watch?v=xAhMXNpHaVo)
-- [Madhavettanennum | Karaoke  Video | Oru Marubhoomi Kadha | Mohanlal | Priyadarshan | M G Sreekumar](https://www.youtube.com/watch?v=I4imhoeP-F0)
-- [Aakasham Keezhe | Yesu Eka Rakshakan | Christian Video Song | Francis Roy | Christian Song](https://www.youtube.com/watch?v=ROhuPHmBvn4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
