@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aathmavil Althara | Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=0mBo6-DpHf8)
+- [Doore Oru Kurunnilam  | Ente Veed Appoontem | Gireesh Puthenchery | Ouseppachan | KJ Yesudas](https://www.youtube.com/watch?v=Tzgq6l3btyE)
 - [Feel the vibe for #IlamaiKadhal | #Neymar | #MathewThomas, #Naslen | #ShaanRahman | #SudhiMaddison](https://www.youtube.com/watch?v=yK7xv5wPPNI)
 - [Thumbikal - Praveshanolsava Ganam 2023 | Soumya Nithesh | Manu Ithal | Ajeesh Dasan | Jijeesh Vaikom](https://www.youtube.com/watch?v=xAhMXNpHaVo)
 - [Madhavettanennum | Karaoke  Video | Oru Marubhoomi Kadha | Mohanlal | Priyadarshan | M G Sreekumar](https://www.youtube.com/watch?v=I4imhoeP-F0)
 - [Aakasham Keezhe | Yesu Eka Rakshakan | Christian Video Song | Francis Roy | Christian Song](https://www.youtube.com/watch?v=ROhuPHmBvn4)
-- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 31st May 2023 # Vanakkamasam Prayer 2023 May 31 Japamala](https://www.youtube.com/watch?v=-lB8g97a5Ew)
-- [പ്രഭാത പ്രാര്‍ത്ഥന May 31 # Athiravile Prarthana 31st of May 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=w2m9t_4m6eY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
