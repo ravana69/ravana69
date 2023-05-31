@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Punyam Pularnna Ponnin | Kalyanappittannu | KJ Yesudas | Raveendran | S Ramesan Nair](https://www.youtube.com/watch?v=x6p87dcxPgQ)
-- [#IlamaiKadhal Dance Video | #Neymar | #MathewThomas, #Naslen | #ShaanRahman | #SudhiMaddison](https://www.youtube.com/watch?v=rHNnqFvhIBM)
-- [Tharakapodi | Jalolsavam | BR Prasad | Alphonse Joseph | MG Sreekumar | Nedumudivenu](https://www.youtube.com/watch?v=k7HY-qBJi_Y)
-- [പ്രഥമരാവിന്‍ HD | Malayalam Romantic Song | Changatham Malayalam Movie | Madhavi | Mammootty |Janaki](https://www.youtube.com/watch?v=I7WpPORe9ek)
-- [മലയാളി പ്രേക്ഷകർ നെഞ്ചോട് ചേർത്തുവെച്ച അതിമനോഹര സംഗീതമേള | OLD IS GOLD | NISARI MUSIC](https://www.youtube.com/watch?v=-diV2uu2XVA)
-- [Aathmavil Althara | Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=0mBo6-DpHf8)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 31st of May 2023](https://www.youtube.com/watch?v=c6kVdGFAfGg)
+- [Konji Konji Mozhinjathum | David David Mr David | Balachandra Menon | Sumalatha - Raveendran Hits](https://www.youtube.com/watch?v=Y903i11J8D0)
+- [Anthyakala Abhishekam | Thee pole | അന്ത്യകാല അഭിഷേകം | തീ പോലെ | Shorts](https://www.youtube.com/watch?v=kcbEOEW_XJM)
+- [Oru Chandamulla | Ingane Oru Nilapakshi | KJ Yesudas | KS Chithra|Sanjay Choudhury|Andhara Choudhury](https://www.youtube.com/watch?v=fUioEYjSrQ4)
+- [Nombarakoodu | Official Trailer | Joshy Mathew | Somu Mathew | K Mathew Joseph | Navyug Films](https://www.youtube.com/watch?v=21sgP5r1gvc)
+- [Then Thennale - Lyrical Video | Makaramanju | Ramesh Narayan | Sreenivas, Sunita Menon](https://www.youtube.com/watch?v=KJr9PZMMYTU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
