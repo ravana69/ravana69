@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Japamala 1st of June 2023 # Mathavinte Japamala # Prakashathinte Rahasyangal 1st of June 2023](https://www.youtube.com/watch?v=QyvyEtBUv40)
 - [പ്രഭാത പ്രാര്‍ത്ഥന June 1 # Athiravile Prarthana 1st of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=etkdCjvGhVA)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 1st June 2023](https://www.youtube.com/watch?v=eGV8nx0Ozpw)
 - [Bolo Bolayya | CI Mahadevan 5 Adi 4 Inchu | Berny Ignatious | Kochin Haneefa | MG Sreekumar](https://www.youtube.com/watch?v=9HBNeAmkZQQ)
 - [GOOD MORNING /OWN MEDIA /](https://www.youtube.com/watch?v=P0e_Ieqpr-k)
 - [Christian Melody Songs | Shibu Antony | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=4jA2XefiQCk)
-- [Pappa - Official Trailer | Anil Anto, Sharol Sunny, Nyga Sanu | Jayesh Stephen | Vinosh Kumar](https://www.youtube.com/watch?v=3qhOctqsj1A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
