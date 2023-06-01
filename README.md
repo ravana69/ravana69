@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nandiyarodu Njan Chollendu | Aham | Mohanlal | Urvashi | Remya Krishnan | Raveendran | KJ Yesudas](https://www.youtube.com/watch?v=OaFsQ1TsYe0)
 - [OWN MEDIA MUSIC |GOOD MORNING |](https://www.youtube.com/watch?v=CTxq42238fM)
 - [Chillala maala |Aayiram Meni |S P Venkitesh |K S Chithra |Evergreen Mlayalam Film Songs](https://www.youtube.com/watch?v=oampwnwPRNM)
 - [Ilathallum Thaalathil|Winter |Jayram |Remastered Video Song |Bhavana |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=O2ZncMmBPrw)
 - [ആരും കൂടെ പാടും ഈ ഗാനങ്ങൾ കേട്ടാൽ | Christian Superhit Songs | KG Markose | Narayanan Krishna](https://www.youtube.com/watch?v=LKQCtOnQM1g)
 - [Shivaranjini | Ingane Oru Nilapakshi | KS Chithra | Sanjay Choudhury | Andhara Choudhury](https://www.youtube.com/watch?v=FoUhLid2M6I)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 1st of June 2023](https://www.youtube.com/watch?v=caybgI5zoUM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
