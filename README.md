@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [OWN MEDIA MUSIC |GOOD MORNING |](https://www.youtube.com/watch?v=CTxq42238fM)
+- [Chillala maala |Aayiram Meni |S P Venkitesh |K S Chithra |Evergreen Mlayalam Film Songs](https://www.youtube.com/watch?v=oampwnwPRNM)
+- [Ilathallum Thaalathil|Winter |Jayram |Remastered Video Song |Bhavana |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=O2ZncMmBPrw)
+- [ആരും കൂടെ പാടും ഈ ഗാനങ്ങൾ കേട്ടാൽ | Christian Superhit Songs | KG Markose | Narayanan Krishna](https://www.youtube.com/watch?v=LKQCtOnQM1g)
 - [Shivaranjini | Ingane Oru Nilapakshi | KS Chithra | Sanjay Choudhury | Andhara Choudhury](https://www.youtube.com/watch?v=FoUhLid2M6I)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 1st of June 2023](https://www.youtube.com/watch?v=caybgI5zoUM)
-- [Chinnukkutty Urangeele|Oru nokku kaanan|Mammotty|Ambika|](https://www.youtube.com/watch?v=fHzebth18Fc)
-- [Thakathathom | Malayali Mamanu Vanakkam | MG Sreekumar | Mano | Reshma | Suresh Peters](https://www.youtube.com/watch?v=NhfWDNFnyfs)
-- [A Pure Love Hits Malayalam Audio Songs Jukebox | Selected Top 10 Malayalam Love Songs|Malayalam Hits](https://www.youtube.com/watch?v=6qOv3u4GByE)
-- [ഗായികയും നായികയും പൊളിച്ചടുക്കിയ പാട്ട്💃😍 മയിലാട്ടം](https://www.youtube.com/watch?v=6LVCTfn5OBM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
