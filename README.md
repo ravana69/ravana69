@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [A Pure Love Hits Malayalam Audio Songs Jukebox | Selected Top 10 Malayalam Love Songs|Malayalam Hits](https://www.youtube.com/watch?v=6qOv3u4GByE)
+- [ഗായികയും നായികയും പൊളിച്ചടുക്കിയ പാട്ട്💃😍 മയിലാട്ടം](https://www.youtube.com/watch?v=6LVCTfn5OBM)
+- [Dance for #IlamaiKadhal | #Neymar | #MathewThomas, #Naslen | #ShaanRahman | #SudhiMaddison](https://www.youtube.com/watch?v=XZyeupukOpA)
 - [കേൾക്കുന്നവരിൽ എന്തെന്നില്ലാത്ത സന്തോഷമേകും മലയാള സിനിമയിലെ മനോഹര ഗാനങ്ങൾ |Evergreen Malayalam Songs](https://www.youtube.com/watch?v=rhbBYYGb83Y)
 - [Malakha | Madhu Balakrishnanum Shreya jayadeepum Paadiya Kristheeya Bhakthigaanangal](https://www.youtube.com/watch?v=hMdZQfuYfJs)
 - [Ithratholam Enne Dhanyanay | Shorts | Kester](https://www.youtube.com/watch?v=OpMe3saqIbw)
-- [Dance with #IlamaiKadhal Song | #Neymar | #MathewThomas, #Naslen | #ShaanRahman | #SudhiMaddison](https://www.youtube.com/watch?v=apdZxKMp2Og)
-- [Aapathuvelakalil | Thomas Mathew Karunagapally | Faithcity Church Choir | Christian Devotional Songs](https://www.youtube.com/watch?v=3tAXVK67nuc)
-- [Swargaminnente | Sagaram Sakshi | Mammootty | Sukanya | Lohithadas | Sibi Malayil | Sharreth](https://www.youtube.com/watch?v=5CCt0hduf78)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
