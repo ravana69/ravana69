@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കേൾക്കുന്നവരിൽ എന്തെന്നില്ലാത്ത സന്തോഷമേകും മലയാള സിനിമയിലെ മനോഹര ഗാനങ്ങൾ |Evergreen Malayalam Songs](https://www.youtube.com/watch?v=rhbBYYGb83Y)
+- [Malakha | Madhu Balakrishnanum Shreya jayadeepum Paadiya Kristheeya Bhakthigaanangal](https://www.youtube.com/watch?v=hMdZQfuYfJs)
 - [Ithratholam Enne Dhanyanay | Shorts | Kester](https://www.youtube.com/watch?v=OpMe3saqIbw)
 - [Dance with #IlamaiKadhal Song | #Neymar | #MathewThomas, #Naslen | #ShaanRahman | #SudhiMaddison](https://www.youtube.com/watch?v=apdZxKMp2Og)
+- [Aapathuvelakalil | Thomas Mathew Karunagapally | Faithcity Church Choir | Christian Devotional Songs](https://www.youtube.com/watch?v=3tAXVK67nuc)
 - [Swargaminnente | Sagaram Sakshi | Mammootty | Sukanya | Lohithadas | Sibi Malayil | Sharreth](https://www.youtube.com/watch?v=5CCt0hduf78)
-- [അനശ്വര ക്രിസ്തീയ ഭക്തി ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Christian Songs](https://www.youtube.com/watch?v=X0_kl2qGdAo)
-- [രാവിലെ കേൾക്കാൻ ഏറ്റവും നല്ല ഗാനങ്ങൾ daily worship songs | christian devotional songs malayalam](https://www.youtube.com/watch?v=8xuIHw03AhU)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 1st June 2023 # Novena to the Sacred Heart of Jesus 1st June 2023](https://www.youtube.com/watch?v=ODgTZQPfop8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
