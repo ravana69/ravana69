@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Swargaminnente | Sagaram Sakshi | Mammootty | Sukanya | Lohithadas | Sibi Malayil | Sharreth](https://www.youtube.com/watch?v=5CCt0hduf78)
 - [അനശ്വര ക്രിസ്തീയ ഭക്തി ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Christian Songs](https://www.youtube.com/watch?v=X0_kl2qGdAo)
 - [രാവിലെ കേൾക്കാൻ ഏറ്റവും നല്ല ഗാനങ്ങൾ daily worship songs | christian devotional songs malayalam](https://www.youtube.com/watch?v=8xuIHw03AhU)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 1st June 2023 # Novena to the Sacred Heart of Jesus 1st June 2023](https://www.youtube.com/watch?v=ODgTZQPfop8)
 - [Japamala 1st of June 2023 # Mathavinte Japamala # Prakashathinte Rahasyangal 1st of June 2023](https://www.youtube.com/watch?v=QyvyEtBUv40)
 - [പ്രഭാത പ്രാര്‍ത്ഥന June 1 # Athiravile Prarthana 1st of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=etkdCjvGhVA)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 1st June 2023](https://www.youtube.com/watch?v=eGV8nx0Ozpw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
