@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thirithazhum Sooryan | Aayiram Meni | K J Yesudas | KS Chithra | S P Venkitesh | Gireesh Puthanchery](https://www.youtube.com/watch?v=z6c-EogwhQE)
+- [കണ്ണടച്ച് കേട്ടാൽ മനമറിയാതെ തുളുമ്പിപ്പോകുന്ന മലയാളസിനിമയിലെ മനോഹര ഗാനങ്ങൾ |SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=JDspGhIyDdY)
+- [Oru Ponkinavileatho | Georgekutty c/o Georgekutty | Mohan Sithara | Gireesh puthenchery | KJ Yesudas](https://www.youtube.com/watch?v=2HYWfv0o71Q)
 - [#DooreMaanjhuPoyi #majnu #Nani #AnuImmanuel  #gopisunder #haricharan #shorts #ytshorts](https://www.youtube.com/watch?v=HJ5SZkExr6Q)
 - [QUBO - SHORT FILM | RAZI ROZARIO | JEEVAN SUKUMARAN | SAJITH THOPPIL | SUMI SEN | DOG MOVIE](https://www.youtube.com/watch?v=iOPOKWwBQaQ)
 - [Trending steps of #IlamaiKadhal Song | #Neymar | #MathewThomas, #Naslen | #ShaanRahman](https://www.youtube.com/watch?v=DM_gesGRRcs)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 2nd June 2023 # Novena to the Sacred Heart of Jesus 2nd June 2023](https://www.youtube.com/watch?v=MhdgZ1fV8tQ)
-- [Songs Of The Week | Chithra Arun | KG Markose | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=aDJ7R_q8K1Q)
-- [Japamala 2nd of June 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 2nd of June  2023](https://www.youtube.com/watch?v=0pQTjThk8K8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
