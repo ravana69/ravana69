@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 2nd of June 2023](https://www.youtube.com/watch?v=sNwDYq1TAL0)
+- [Paathiraavum Poonilaavum | Ingane Oru Nilapakshi | KJ Yesudas | Sanjay Choudhury | Andhara Choudhury](https://www.youtube.com/watch?v=_FE3DAjJkAk)
 - [Sheri Enna Music Video | Ananthu Mahesh | Sreejith SJ | Meenakshi Anil | BhagyaRaj](https://www.youtube.com/watch?v=kT3aXnwbC2I)
 - [Pirannoree Mannum | Sayamees Irattakal | Biju Narayanan | SP Venkitesh | Bichu Thirumala](https://www.youtube.com/watch?v=goAst-FkFEU)
 - [Krushithane Udhithane | Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=TBLtD_MHwKs)
 - [ബുൾ ബുൾ മൈനേ | Evergreen Malayalam Film Video Song | Sandhyakku Virinja Poovu |  K. J. Yesudas](https://www.youtube.com/watch?v=R-QrcUzOPoE)
-- [Thirithazhum Sooryan | Aayiram Meni | K J Yesudas | KS Chithra | S P Venkitesh | Gireesh Puthanchery](https://www.youtube.com/watch?v=z6c-EogwhQE)
-- [കണ്ണടച്ച് കേട്ടാൽ മനമറിയാതെ തുളുമ്പിപ്പോകുന്ന മലയാളസിനിമയിലെ മനോഹര ഗാനങ്ങൾ |SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=JDspGhIyDdY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
