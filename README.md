@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [#DooreMaanjhuPoyi #majnu #Nani #AnuImmanuel  #gopisunder #haricharan #shorts #ytshorts](https://www.youtube.com/watch?v=HJ5SZkExr6Q)
+- [QUBO - SHORT FILM | RAZI ROZARIO | JEEVAN SUKUMARAN | SAJITH THOPPIL | SUMI SEN | DOG MOVIE](https://www.youtube.com/watch?v=iOPOKWwBQaQ)
 - [Trending steps of #IlamaiKadhal Song | #Neymar | #MathewThomas, #Naslen | #ShaanRahman](https://www.youtube.com/watch?v=DM_gesGRRcs)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 2nd June 2023 # Novena to the Sacred Heart of Jesus 2nd June 2023](https://www.youtube.com/watch?v=MhdgZ1fV8tQ)
 - [Songs Of The Week | Chithra Arun | KG Markose | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=aDJ7R_q8K1Q)
 - [Japamala 2nd of June 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 2nd of June  2023](https://www.youtube.com/watch?v=0pQTjThk8K8)
-- [രാവിലെ പ്രാര്‍ത്ഥന June 2 # Athiravile Prarthana 2nd of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=CInQAk4ak2g)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 2nd June 2023](https://www.youtube.com/watch?v=EsZpWr3Rtak)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
