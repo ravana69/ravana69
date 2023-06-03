@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ആർപ്പുവിളിയും ആഘോഷവും നിറഞ്ഞ മലയാളസിനിമയിലെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | EVERGREEN SONGS](https://www.youtube.com/watch?v=5wo6IdLPYOQ)
+- [കുടുംബാംഗങ്ങളെപോൽ മലയാളികൾ സ്നേഹിച്ച ദിലീപിന്റെയും ജയറാമിന്റെയും സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | SUPERHITS](https://www.youtube.com/watch?v=J2DgVuMT1eA)
+- [Kuyilpattil | Aparichithan | Mammootty |  Gireesh Puthanchery | Suresh Peters - HD Video Song](https://www.youtube.com/watch?v=EC14TcQ9iP0)
 - [Pulari Pon Praave|Lyrical Video| Flash | Mohanlal |PARVATHY|GOPI Sundar|Jakes Bejoy|Rafeeque Ahammed](https://www.youtube.com/watch?v=7Oz5HG6-ub8)
 - [Vibing for #IlamaiKadhal Song | #Neymar | #MathewThomas, #Naslen | #ShaanRahman | #SudhiMaddison](https://www.youtube.com/watch?v=IeoLGYrL6vI)
 - [Madhumasam Viriyanu | Meghasandesham | Sureshgopi | Abhirami | MG Sreekumar | Rajasenan](https://www.youtube.com/watch?v=TnEBo-B-OYI)
-- [Christian Video Songs Malayalam |Alenia Mol | Christian Devotional Songs | Sreya Jayadeep |RIthuraj](https://www.youtube.com/watch?v=LojyAq9YnGc)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 3rd June 2023 # Novena to the Sacred Heart of Jesus 3rd June 2023](https://www.youtube.com/watch?v=MfrzheqCqpQ)
-- [Japamala  3rd of June  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 3rd of June  2023](https://www.youtube.com/watch?v=h8_gwGNVgAk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
