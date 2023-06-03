@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Thenozhukum Desham | Madhu Balakrishnan Paadiya Kristheeya Bhakthigaanangal | Audio JukeBox](https://www.youtube.com/watch?v=75ufQ4CxgsY)
-- [November Music Video | Shanoob Karuvath | Aby Tom Cyriac | Thaha Kolpad](https://www.youtube.com/watch?v=DSUNNHokxjA)
-- [ആർപ്പുവിളിയും ആഘോഷവും നിറഞ്ഞ മലയാളസിനിമയിലെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | EVERGREEN SONGS](https://www.youtube.com/watch?v=5wo6IdLPYOQ)
-- [കുടുംബാംഗങ്ങളെപോൽ മലയാളികൾ സ്നേഹിച്ച ദിലീപിന്റെയും ജയറാമിന്റെയും സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | SUPERHITS](https://www.youtube.com/watch?v=J2DgVuMT1eA)
-- [Kuyilpattil | Aparichithan | Mammootty |  Gireesh Puthanchery | Suresh Peters - HD Video Song](https://www.youtube.com/watch?v=EC14TcQ9iP0)
-- [Pulari Pon Praave|Lyrical Video| Flash | Mohanlal |PARVATHY|GOPI Sundar|Jakes Bejoy|Rafeeque Ahammed](https://www.youtube.com/watch?v=7Oz5HG6-ub8)
+- [Chella Katte | Ingane Oru Nilapakshi | MG Sreekumar | Sanjay Choudhury | Andhara Choudhury](https://www.youtube.com/watch?v=GmG7VecFor8)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 3rd of June 2023](https://www.youtube.com/watch?v=HVkG5avUvMg)
+- [Mangala Deepavumay | Super Hit Movie Song | Kaikudanna Nilavu |Jayaram | Dileep |Shalini | Ranjitha](https://www.youtube.com/watch?v=0LQoN-aqTzk)
+- [Kanakamulla | കനകമുല്ല | Vishnu Unnikrishnan | Ranjin Raj | Nithyaharitha Nayakan Movie Song](https://www.youtube.com/watch?v=EwWm9XvRBN8)
+- [Kanmaniye | Malayali Mamanu Vanakkam | Sujatha Mohan | Suresh Peters | S Ramesan Nair](https://www.youtube.com/watch?v=dStGjqdEAz4)
+- [Pappa Pappa - Video Song | Pappa | Nyga Sanu | Jayesh Stephen | Vinosh Kumar | Shibu Andrews](https://www.youtube.com/watch?v=Nm_j0W7CJ1Q)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
