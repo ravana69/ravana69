@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kannare kannare|Rakshasa Rajavu|Mammotty|Meena|Dileep|Sukumari|Indrans|Harisree Ashokan|](https://www.youtube.com/watch?v=CHzBRfNubXk)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 4th of June 2023](https://www.youtube.com/watch?v=2rx0hSwzC-M)
 - [എന്തു മധുരം നൽകണം ഞാൻ അവനെന്നെ പുണരുമ്പോൾ #dileep #manjuwarrier #eepuzhayumkdannu #shortsyoutube](https://www.youtube.com/watch?v=F3rumtFthlc)
 - [Mamma Mamma Marimazhaye | Rasikan | Dileep | Haripriya | Vidyasagar | Karthik | Laljose](https://www.youtube.com/watch?v=6bgVO2sXRrE)
 - [പാട്ടുപെട്ടി - Pattupetti Vol 10 | Malayalam Film Songs](https://www.youtube.com/watch?v=zkJsqIRyWNQ)
 - [Enjoy the song #IlamaiKadhal | #Neymar | #MathewThomas, #Naslen | #ShaanRahman | #SudhiMaddison](https://www.youtube.com/watch?v=xh2tVkq9I6k)
-- [Thaduthaalum Vandhu Nipenda - Video Song | Neymar | Mathew, Naslen | Shaan Rahman | Sudhi Maddison](https://www.youtube.com/watch?v=n1nKDUj_Gaw)
-- [Valamidamaayirangal | Thunayenikkeshuve | Shorts | Sujatha](https://www.youtube.com/watch?v=94qIxehtwjI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
