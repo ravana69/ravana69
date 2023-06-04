@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Valamidamaayirangal | Thunayenikkeshuve | Shorts | Sujatha](https://www.youtube.com/watch?v=94qIxehtwjI)
+- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 4th June 2023 # Novena to the Sacred Heart of Jesus 4th June 2023](https://www.youtube.com/watch?v=kyeRbf0G8uI)
+- [ചങ്ക് തകരുന്ന നേരത്തു നെഞ്ചോട് ചേർത്തുവെക്കുന്ന ഗാനങ്ങൾ | Christian Melody Songs](https://www.youtube.com/watch?v=32XgC285QGg)
+- [Japamala 4th of June 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 4th of June  2023](https://www.youtube.com/watch?v=gWAeIjKlgSA)
 - [രാവിലെ പ്രാര്‍ത്ഥന June 4 # Athiravile Prarthana 4th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=sQMqcr-r13w)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 4th June 2023](https://www.youtube.com/watch?v=RgLIBYYEx9U)
-- [Naanam Chalicha | Vellaripravinte Changathi | Dileep | Kavya Madhavan | Mohan Sithara](https://www.youtube.com/watch?v=m2jxiEV_sBI)
-- [Good morning](https://www.youtube.com/watch?v=58HR5trtxag)
-- [Christian Superhit Songs | Jessy Raju | Kester | Christian Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=JQyj4Etvas8)
-- [Chella Katte | Ingane Oru Nilapakshi | MG Sreekumar | Sanjay Choudhury | Andhara Choudhury](https://www.youtube.com/watch?v=GmG7VecFor8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
