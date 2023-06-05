@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manassu Mayakki | Karaoke  Video | Oru Marubhoomi Kadha | Mohanlal | Priyadarshan | M G Sreekumar](https://www.youtube.com/watch?v=uqqvuQMKGoI)
 - [Love for #IlamaiKadhal Song | #Neymar | #MathewThomas, #Naslen | #ShaanRahman |#SudhiMaddison](https://www.youtube.com/watch?v=Omlkxzld6ZI)
 - [Sreeragamo | Pavithram | Mohanalal | Sobhana | Yesudas | Sharreth | O.N.V](https://www.youtube.com/watch?v=4MxRDjeUe0k)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 5th June 2023 # Novena to the Sacred Heart of Jesus 5th June 2023](https://www.youtube.com/watch?v=gDPF_LXaBes)
 - [Prabhatha Geethangal |  Madhu Balakrishnan | Christian Songs | Morning Prayer Songs | Joji Johns](https://www.youtube.com/watch?v=DUhJk2bBWLU)
 - [Japamala  5th of June  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 5th of June  2023](https://www.youtube.com/watch?v=ejg3vCGSHwk)
-- [പ്രഭാത പ്രാര്‍ത്ഥന June 5 # Athiravile Prarthana 5th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=JIPuJYb65gc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
