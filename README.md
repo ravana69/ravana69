@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Pirannoree Mannum | Sayamees Irattakal | KS Chithra | SP Venkitesh | Bichu Thirumala](https://www.youtube.com/watch?v=MdGT-Zdp2fo)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 5th of June 2023](https://www.youtube.com/watch?v=_pJCouE5Onk)
 - [Vaaniludikkum | Malayali Mamanu Vanakkam | KJ Yesudas | Suresh Peters | S Ramesan Nair](https://www.youtube.com/watch?v=aeJMmGeitgU)
 - [Christian Superhit Songs | Wilson Piravom | Kester | Christian Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=Xx__f3KYrU8)
 - [Mose Batiyaan Banao - Lyrical Video | Makaramanju | Ramesh Narayan | Manjari](https://www.youtube.com/watch?v=Yz6VhQwdTNc)
 - [തുമ്പപ്പൂ കാറ്റിൽ HD | Thumbapoo kattil thane Oonjaladi | Nishttam Enishttam  | Mohanlal](https://www.youtube.com/watch?v=vAyZhPDnqJM)
-- [Marivillin Chirakode | Cheppu | Poovachal Khader  | KJ Yesudas | Sujatha Mohan | Mohanlal | Lissy](https://www.youtube.com/watch?v=VljeeYBSKTw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
