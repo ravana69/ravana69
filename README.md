@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 5th June 2023 # Novena to the Sacred Heart of Jesus 5th June 2023](https://www.youtube.com/watch?v=gDPF_LXaBes)
+- [Prabhatha Geethangal |  Madhu Balakrishnan | Christian Songs | Morning Prayer Songs | Joji Johns](https://www.youtube.com/watch?v=DUhJk2bBWLU)
+- [Japamala  5th of June  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 5th of June  2023](https://www.youtube.com/watch?v=ejg3vCGSHwk)
 - [പ്രഭാത പ്രാര്‍ത്ഥന June 5 # Athiravile Prarthana 5th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=JIPuJYb65gc)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 5th June 2023](https://www.youtube.com/watch?v=sj7AaqYdIrI)
 - [OWN MEDIA - GOO MORNING](https://www.youtube.com/watch?v=ViRulF_HnJo)
-- [Kurbanayayi Koodashayayi | Christian Video Song | Shibu Antony | Holy Communion Song | Joji Johns](https://www.youtube.com/watch?v=4Dyy8unNiW0)
-- [Kannare kannare|Rakshasa Rajavu|Mammotty|Meena|Dileep|Sukumari|Indrans|Harisree Ashokan|](https://www.youtube.com/watch?v=CHzBRfNubXk)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 4th of June 2023](https://www.youtube.com/watch?v=2rx0hSwzC-M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
