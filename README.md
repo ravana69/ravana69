@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 5th of June 2023](https://www.youtube.com/watch?v=_pJCouE5Onk)
+- [Vaaniludikkum | Malayali Mamanu Vanakkam | KJ Yesudas | Suresh Peters | S Ramesan Nair](https://www.youtube.com/watch?v=aeJMmGeitgU)
+- [Christian Superhit Songs | Wilson Piravom | Kester | Christian Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=Xx__f3KYrU8)
+- [Mose Batiyaan Banao - Lyrical Video | Makaramanju | Ramesh Narayan | Manjari](https://www.youtube.com/watch?v=Yz6VhQwdTNc)
 - [തുമ്പപ്പൂ കാറ്റിൽ HD | Thumbapoo kattil thane Oonjaladi | Nishttam Enishttam  | Mohanlal](https://www.youtube.com/watch?v=vAyZhPDnqJM)
 - [Marivillin Chirakode | Cheppu | Poovachal Khader  | KJ Yesudas | Sujatha Mohan | Mohanlal | Lissy](https://www.youtube.com/watch?v=VljeeYBSKTw)
-- [ആനന്ദത്താൽ ഹൃദയം സന്തോഷിക്കുന്ന മലയാളസിനിമയിലെ സുപ്രസിദ്ധ ഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=CgwmCrloKHw)
-- [ആഘോഷവേളകൾ ഉല്ലാസഭരിതമാക്കും ആരും കൊതിക്കും അടിപൊളി വിസ്മയഗാനങ്ങൾ | CHALACHITHRAGANANGAL](https://www.youtube.com/watch?v=-BnZZjDh7GE)
-- [Manassu Mayakki | Karaoke  Video | Oru Marubhoomi Kadha | Mohanlal | Priyadarshan | M G Sreekumar](https://www.youtube.com/watch?v=uqqvuQMKGoI)
-- [Love for #IlamaiKadhal Song | #Neymar | #MathewThomas, #Naslen | #ShaanRahman |#SudhiMaddison](https://www.youtube.com/watch?v=Omlkxzld6ZI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
