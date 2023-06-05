@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന June 6 # Athiravile Prarthana 6th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=GcwbbaZn3O0)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 6th June 2023](https://www.youtube.com/watch?v=1VyO1OCIEeo)
 - [Nenjudukkinte | Karumadikuttan | Kalabhavan Mani | KJ Yesudas | Vinayan | Mohan Sithara](https://www.youtube.com/watch?v=BqCgP9WroF4)
 - [GOOD MORNING -OWN MEDIA MUSIC -](https://www.youtube.com/watch?v=-gyI7_3F4N8)
 - [Pirannoree Mannum | Sayamees Irattakal | KS Chithra | SP Venkitesh | Bichu Thirumala](https://www.youtube.com/watch?v=MdGT-Zdp2fo)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 5th of June 2023](https://www.youtube.com/watch?v=_pJCouE5Onk)
-- [Vaaniludikkum | Malayali Mamanu Vanakkam | KJ Yesudas | Suresh Peters | S Ramesan Nair](https://www.youtube.com/watch?v=aeJMmGeitgU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
