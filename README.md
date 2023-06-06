@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 6th of June 2023](https://www.youtube.com/watch?v=fEiCBW2zlHM)
+- [Broohi Krishna | Ingane Oru Nilapakshi | KS Chithra | Sanjay Choudhury | Andhara Choudhury](https://www.youtube.com/watch?v=QnWP0nHshlk)
+- [Nadhante Thirumunpil | Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=k9EqRdw0xL0)
 - [Super Hit Christian Songs by Shweta Mohan | Shweta Nonstop Christian Songs | Popular Christian Songs](https://www.youtube.com/watch?v=A935r3s2b1k)
 - [Aaraanu Naam Video Song | Kolla | Shaan Rahman | Vinayak Sasikumar | Rajisha Vijayan | Priya Varrier](https://www.youtube.com/watch?v=bDoPhFFEQgM)
 - [Lathiri Poothiri Punchiri Cheppo | Nokketha Doorathu Kannum Nattu | Nadiya Moidu-Jerry Amal Dev Hits](https://www.youtube.com/watch?v=Zhk4Sh769Xw)
-- [ഏത് നേരത്തുകേട്ടാലും ആരും ഒന്ന് വിതുമ്പി പോകുന്ന മലയാളത്തിലെ ശോകാർദ്ര ഗാനങ്ങൾ | SAD SONGS MALAYALAM](https://www.youtube.com/watch?v=kEz8b99dr-k)
-- [Enikkanu Nee | Hridayathil Sookshikkan | Kunchacko Boban | Bhavana | Mohan Sithara - HD Video Song](https://www.youtube.com/watch?v=1p6nIXPb-G8)
-- [Pranayame - Video Song | Pappa | Naresh Iyer | Jayesh Stephen | Vinosh Kumar | Shibu Andrews](https://www.youtube.com/watch?v=DCPjVeahqSQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
