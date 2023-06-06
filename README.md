@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Lathiri Poothiri Punchiri Cheppo | Nokketha Doorathu Kannum Nattu | Nadiya Moidu-Jerry Amal Dev Hits](https://www.youtube.com/watch?v=Zhk4Sh769Xw)
+- [ഏത് നേരത്തുകേട്ടാലും ആരും ഒന്ന് വിതുമ്പി പോകുന്ന മലയാളത്തിലെ ശോകാർദ്ര ഗാനങ്ങൾ | SAD SONGS MALAYALAM](https://www.youtube.com/watch?v=kEz8b99dr-k)
+- [Enikkanu Nee | Hridayathil Sookshikkan | Kunchacko Boban | Bhavana | Mohan Sithara - HD Video Song](https://www.youtube.com/watch?v=1p6nIXPb-G8)
 - [ഏഴുതിരി വിളക്കിന്റെ മുമ്പില്‍ചിരി തൂകി മലര്‍‌ത്താലം കൊണ്ടുവന്നതാര് |Mayamanchalil | Ottayal Pattalam](https://www.youtube.com/watch?v=CSnDQ-anfGw)
 - [Vibe for the song #IlamaiKadhal | #Neymar | #MathewThomas, #Naslen | #ShaanRahman | #SudhiMaddison](https://www.youtube.com/watch?v=vm34rsgVp6s)
 - [Aakulavelakalil Aapathu Nalukalil | Thunayenikkeshuve | Shorts | Sujatha](https://www.youtube.com/watch?v=yqe66eO8xDE)
-- [Singer Of The Week | KG Markose |Christian Devotional Songs Malayalam | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=Rh44nF5e2aA)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 6th June 2023 # Novena to the Sacred Heart of Jesus 6th June 2023](https://www.youtube.com/watch?v=JqTvrHSNz9s)
-- [Japamala 6th of June 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 6th of June  2023](https://www.youtube.com/watch?v=mtGjup_IJVM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
