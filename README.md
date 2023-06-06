@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vaaniludikkum | Malayali Mamanu Vanakkam | KS Chithra | Suresh Peters | S Ramesan Nair](https://www.youtube.com/watch?v=RDE3_SUXDhU)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 6th of June 2023](https://www.youtube.com/watch?v=fEiCBW2zlHM)
 - [Broohi Krishna | Ingane Oru Nilapakshi | KS Chithra | Sanjay Choudhury | Andhara Choudhury](https://www.youtube.com/watch?v=QnWP0nHshlk)
 - [Nadhante Thirumunpil | Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=k9EqRdw0xL0)
 - [Super Hit Christian Songs by Shweta Mohan | Shweta Nonstop Christian Songs | Popular Christian Songs](https://www.youtube.com/watch?v=A935r3s2b1k)
 - [Aaraanu Naam Video Song | Kolla | Shaan Rahman | Vinayak Sasikumar | Rajisha Vijayan | Priya Varrier](https://www.youtube.com/watch?v=bDoPhFFEQgM)
-- [Lathiri Poothiri Punchiri Cheppo | Nokketha Doorathu Kannum Nattu | Nadiya Moidu-Jerry Amal Dev Hits](https://www.youtube.com/watch?v=Zhk4Sh769Xw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
