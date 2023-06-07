@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Shyama Meghame|Adhipan|Parvathy Jayaram|](https://www.youtube.com/watch?v=kDzT9_5KKVM)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 7th of June 2023](https://www.youtube.com/watch?v=uY6u-QDbh1g)
 - [Madatha Kili | Vajram | KJ Yesudas | Ouseppachan | Vyloppilli Sreedhara Menon](https://www.youtube.com/watch?v=ogxGmVtzd7k)
 - [Enne Karuthunna Sneham | Kester Paadiya Kristheeya Bhakthigaanangal | Audio JukeBox](https://www.youtube.com/watch?v=bchHxosNa0w)
 - [Azhake Annoraavaniyil | Vazhunnor | MG Sreekumar | Ouseppachan | Gireesh Puthenchery](https://www.youtube.com/watch?v=f798hvnO5vA)
 - [Aaraanu Naam Studio Version | Kolla | Shaan Rahman | Vinayak Sasikumar | Rajisha | Priya Varrier](https://www.youtube.com/watch?v=tILt2Jyyllo)
-- [Gathikettoru Neram -Video Song | Boomerang | Shine Tom Chacko | Samyuktha | Gold Devaraj | KP](https://www.youtube.com/watch?v=5vN2-Ajbguo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
