@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന June 8 # Athiravile Prarthana 8th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=4f2KyLDL7qk)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 8th June 2023](https://www.youtube.com/watch?v=pX710HSdPe8)
 - [7 June 2023](https://www.youtube.com/watch?v=k3UpdbKYDoQ)
 - [Christian Superhit Songs | Narayana Krishna | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=yaKMbTOiIHw)
 - [Shyama Meghame|Adhipan|Parvathy Jayaram|](https://www.youtube.com/watch?v=kDzT9_5KKVM)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 7th of June 2023](https://www.youtube.com/watch?v=uY6u-QDbh1g)
-- [Madatha Kili | Vajram | KJ Yesudas | Ouseppachan | Vyloppilli Sreedhara Menon](https://www.youtube.com/watch?v=ogxGmVtzd7k)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
