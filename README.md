@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മനസ്സ് നീറി പുകയുമ്പോൾ തെല്ലാശ്വാസമേകുന്ന മലയാളസിനിമയിലെ ശാന്തസുന്ദര ഗാനങ്ങൾ | SUPERHITS](https://www.youtube.com/watch?v=s2ACsIW7KLo)
+- [ആദ്യഗാനം മുതൽ അവസാനം വരെ ഒറ്റയിരുപ്പിൽ കേട്ടുതീർക്കും മനോഹരഗാനങ്ങൾ | EVERGREEN SUPERHITS](https://www.youtube.com/watch?v=rm5VwCFpGk0)
 - [Aaradhyan Yeshupara | Christian Shorts Video | K S Chithra](https://www.youtube.com/watch?v=3yplGqUpkiQ)
 - [സുരഭീയാമങ്ങളേ... | Surabi Yaamangalle | Sreedharante Onnam Thirumurivu Movie Song | Mammootty](https://www.youtube.com/watch?v=vzYY_dF0pJE)
 - [Karmelile Prarthanayil | Thee pole | Persis John | Shorts](https://www.youtube.com/watch?v=xiYdHCeztOQ)
 - [Steps for #IlamaiKadhal | #Neymar | #MathewThomas, #Naslen | #ShaanRahman | #SudhiMaddison |#shorts](https://www.youtube.com/watch?v=3qZUXI0HalA)
-- [Mazhanilavinte Chirakukalil | Meghasandesham | Sureshgopi | Rajasree| Chithra | Rajasenan](https://www.youtube.com/watch?v=939Hizb2E84)
-- [Nizhal Pole Dinangal | Christian Video Song | Joji Johns | Kalabhavan Sabu | Christian Melody Song](https://www.youtube.com/watch?v=hUPPjyWiqgI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
