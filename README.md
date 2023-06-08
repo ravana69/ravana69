@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 8th of June 2023](https://www.youtube.com/watch?v=mud__cwRp9A)
+- [Pakal Mayave - Video Song | Pappa | Sithara Krishnakumar | Jayesh Stephen | Vinosh Kumar](https://www.youtube.com/watch?v=KRjDQD-Tse8)
+- [Mathimukhi Malathi | Vazhunnor | KS Chithra | Sreenivas | Ouseppachan | Gireesh Puthenchery](https://www.youtube.com/watch?v=VQLWyf0r0S8)
+- [Aathira Full Video Song | Majnu Malayalam Movie Songs | Nani, Anu Immanuel | Gopi Sunder](https://www.youtube.com/watch?v=ulGC-AqJNUU)
+- [Pranayanila Full Video Song | HD | Teja Bhai and Family Movie Song | REMASTERED |](https://www.youtube.com/watch?v=V-wgbst6VZ4)
 - [Swarggeeya Rajakumaran | P.Jayachandran Paadiya Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=10KSal-WprU)
-- [ബാഗീ ജീൻസും ഷൂസുമണിഞ്ഞ്ടൗണിൽ ചെത്തി നടക്കാം 🎶🕺](https://www.youtube.com/watch?v=j-kN-jrKLnk)
-- [Aayiram Ponpanam |Mayajaalam | K J Yesudas | S P Venkitesh | Thirumala | Mukesh | Jagathy Sreekumar](https://www.youtube.com/watch?v=zEGFrizqsjY)
-- [പുതിയ തലമുറയിലെ പ്രമുഖർ മലയാള സിനിമയ്ക്കു നൽകിയ കരുത്തുറ്റ ഗാനങ്ങൾ |Remastered Video Songs |Alphonse](https://www.youtube.com/watch?v=nfFFWFuUQbg)
-- [പ്രേക്ഷകർ ഒന്നടങ്കം മനസ്സ് തുറന്നാസ്വദിച്ച മലയാളസിനിമയിലെ അത്യുഗ്രൻ ഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=7i0T6Qva1f4)
-- [Musical vibes for #IlamaiKadhal | #Neymar | #MathewThomas, #Naslen | #ShaanRahman | #SudhiMaddison](https://www.youtube.com/watch?v=S1x__K1Ojzs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
