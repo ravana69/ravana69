@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ബാഗീ ജീൻസും ഷൂസുമണിഞ്ഞ്ടൗണിൽ ചെത്തി നടക്കാം 🎶🕺](https://www.youtube.com/watch?v=j-kN-jrKLnk)
+- [Aayiram Ponpanam |Mayajaalam | K J Yesudas | S P Venkitesh | Thirumala | Mukesh | Jagathy Sreekumar](https://www.youtube.com/watch?v=zEGFrizqsjY)
+- [പുതിയ തലമുറയിലെ പ്രമുഖർ മലയാള സിനിമയ്ക്കു നൽകിയ കരുത്തുറ്റ ഗാനങ്ങൾ |Remastered Video Songs |Alphonse](https://www.youtube.com/watch?v=nfFFWFuUQbg)
+- [പ്രേക്ഷകർ ഒന്നടങ്കം മനസ്സ് തുറന്നാസ്വദിച്ച മലയാളസിനിമയിലെ അത്യുഗ്രൻ ഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=7i0T6Qva1f4)
 - [Musical vibes for #IlamaiKadhal | #Neymar | #MathewThomas, #Naslen | #ShaanRahman | #SudhiMaddison](https://www.youtube.com/watch?v=S1x__K1Ojzs)
 - [ക്രൈസ്തവർക്ക് പ്രത്യാശയും ഉണർവും ഏകിയ ദൈവീക ഗാനങ്ങൾ powerful praise & worship songs malayalam](https://www.youtube.com/watch?v=YRno4ZyCI3g)
-- [ഈ ഗാനങ്ങളോടൊപ്പം നിങ്ങളുടെ മക്കളെ സമർപ്പിച്ചു പ്രാർത്ഥിക്കാം |  Christian Melody Songs](https://www.youtube.com/watch?v=Vp2LYG8AVbc)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 8th June 2023 # Novena to the Sacred Heart of Jesus 8th June 2023](https://www.youtube.com/watch?v=MMYaForx4_k)
-- [Japamala 8th of June 2023 # Mathavinte Japamala # Prakashathinte Rahasyangal 8th of June 2023](https://www.youtube.com/watch?v=iED2qigOcyI)
-- [രാവിലെ പ്രാര്‍ത്ഥന June 8 # Athiravile Prarthana 8th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=4f2KyLDL7qk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
