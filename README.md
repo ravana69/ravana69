@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [9 June 2023](https://www.youtube.com/watch?v=pmTvdRDvU8Q)
 - [Christian Superhit Songs | Teenu Treesa | Christian Songs Malayalam | Joji Johns | Biju Narayanan](https://www.youtube.com/watch?v=IC69hX-6xVE)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 9th of June 2023](https://www.youtube.com/watch?v=5Uq5ZLCiR84)
 - [Seemanthayaaminiyil | Super Hit Malayalam Song | Kaliveedu | Jayaram | Manju Warrier - Yesudas Hits](https://www.youtube.com/watch?v=lm5LUH16GoA)
 - [Njaan Nadakkum  | Vajram | Vijay Yesudas | Jyotsna | Ouseppachan | Shibu Chakravarthy](https://www.youtube.com/watch?v=s5xnaVF3Ebk)
 - [Varikomale | Video Song | Jilebi Malayalam Movie | Jayasurya, Remya Nambeesan | Najim Arshad](https://www.youtube.com/watch?v=yPMBt8tuMWw)
-- [Sandhyayum Ee Chandrikayum | Vazhunnor | KJ Yesudas | Sreenivas | Ouseppachan | Gireesh Puthenchery](https://www.youtube.com/watch?v=rgttfsV8-mg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
