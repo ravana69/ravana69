@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Mazhamekha Chelin | Lyrical Video | Kadha Thudarunnu  | Ilayaraja |Vayalar Sarath| Sathyan Anthikkad](https://www.youtube.com/watch?v=Jg8iwfbrcMY)
-- [Duet dance for #IlamaiKadhal song | #Neymar | #MathewThomas, #Naslen | #ShaanRahman | #SudhiMaddison](https://www.youtube.com/watch?v=N7fkAnDaVwg)
-- [Neeyen Sundhari | Sathyam | Prithviraj | Priyamani | Vinayan | Karthik | Chithra](https://www.youtube.com/watch?v=EjvFqz2B3Dc)
-- [Itha nammude daivam / ഇതാ നമ്മുടെ ദൈവം / KJ Yesudas](https://www.youtube.com/watch?v=eX8_lQHJjKU)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 9th June 2023 # Novena to the Sacred Heart of Jesus 9th June 2023](https://www.youtube.com/watch?v=37gsAqqGLQE)
-- [Songs Of The Week | Elizabeth Raju | Kester | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=0OtCVqMBFXk)
+- [Sathyam Sivam Sundaram - Angakale Lyric | Vidyasagar | Kunchako Boban, Aswathi Menon](https://www.youtube.com/watch?v=wYGB1l9SeOQ)
+- [Sainyam - Kallikkuyile Lyric | S.P. Venkatesh | Mammootty, Mukesh, Dileep](https://www.youtube.com/watch?v=pjHwAQqqtfI)
+- [S.P. Venkatesh, G. Venugopal, K.S. Chithra - Vaarmudithumbil (Lyric Video)](https://www.youtube.com/watch?v=hRTWO--pN3w)
+- [Chandrahrudayam Lyric | Vidyasagar | Kunchako Boban, Aswathi Menon](https://www.youtube.com/watch?v=s43ceFjyTVI)
+- [Sathyam Sivam Sundaram - Awwa Awwaa Lyric | Vidyasagar | Kunchako Boban, Aswathi Menon](https://www.youtube.com/watch?v=Ro_tRMxnC7g)
+- [Mercury Lampu Veenu (Lyric Video)](https://www.youtube.com/watch?v=oBMsW9IVV9g)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
