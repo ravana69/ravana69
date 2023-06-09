@@ -217,7 +217,7 @@ https://user-images.githubusercontent.com/47528708/227121919-08688d26-dca6-421d-
 
 <a href="github.com">
 
-    <img src="https://mausam.imd.gov.in/Satellite/3Dasiasec_ir1.jpg" alt="mausam.jpg" />
+<img src="https://mausam.imd.gov.in/Satellite/3Dasiasec_ir1.jpg" alt="mausam.jpg" />
 
   </a>
 
