@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Snehapranamam | Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=2Z3ouvNFT5s)
+- [ഇന്ത്യൻ സിനിമയുടെ തന്നെ അഭിമാനമായ രണ്ട് മഹാഗായകരുടെ അതുല്ല്യ ഗാനങ്ങൾ | KS CHITHRA & KJ YESUDAS HITS](https://www.youtube.com/watch?v=dX5dWNQcQXc)
+- [എല്ലാ മലയാളികളും എത്രനേരം വേണമെങ്കിലും ആസ്വദിക്കുന്ന എക്കലത്തെയും മികച്ച ഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=G05cp649_Go)
 - [Sathyam Sivam Sundaram - Angakale Lyric | Vidyasagar | Kunchako Boban, Aswathi Menon](https://www.youtube.com/watch?v=wYGB1l9SeOQ)
 - [Sainyam - Kallikkuyile Lyric | S.P. Venkatesh | Mammootty, Mukesh, Dileep](https://www.youtube.com/watch?v=pjHwAQqqtfI)
 - [S.P. Venkatesh, G. Venugopal, K.S. Chithra - Vaarmudithumbil (Lyric Video)](https://www.youtube.com/watch?v=hRTWO--pN3w)
-- [Chandrahrudayam Lyric | Vidyasagar | Kunchako Boban, Aswathi Menon](https://www.youtube.com/watch?v=s43ceFjyTVI)
-- [Sathyam Sivam Sundaram - Awwa Awwaa Lyric | Vidyasagar | Kunchako Boban, Aswathi Menon](https://www.youtube.com/watch?v=Ro_tRMxnC7g)
-- [Mercury Lampu Veenu (Lyric Video)](https://www.youtube.com/watch?v=oBMsW9IVV9g)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
