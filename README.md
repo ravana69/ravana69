@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 9th of June 2023](https://www.youtube.com/watch?v=5Uq5ZLCiR84)
+- [Seemanthayaaminiyil | Super Hit Malayalam Song | Kaliveedu | Jayaram | Manju Warrier - Yesudas Hits](https://www.youtube.com/watch?v=lm5LUH16GoA)
+- [Njaan Nadakkum  | Vajram | Vijay Yesudas | Jyotsna | Ouseppachan | Shibu Chakravarthy](https://www.youtube.com/watch?v=s5xnaVF3Ebk)
+- [Varikomale | Video Song | Jilebi Malayalam Movie | Jayasurya, Remya Nambeesan | Najim Arshad](https://www.youtube.com/watch?v=yPMBt8tuMWw)
 - [Sandhyayum Ee Chandrikayum | Vazhunnor | KJ Yesudas | Sreenivas | Ouseppachan | Gireesh Puthenchery](https://www.youtube.com/watch?v=rgttfsV8-mg)
 - [Snehapranamam | Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=2Z3ouvNFT5s)
-- [ഇന്ത്യൻ സിനിമയുടെ തന്നെ അഭിമാനമായ രണ്ട് മഹാഗായകരുടെ അതുല്ല്യ ഗാനങ്ങൾ | KS CHITHRA & KJ YESUDAS HITS](https://www.youtube.com/watch?v=dX5dWNQcQXc)
-- [എല്ലാ മലയാളികളും എത്രനേരം വേണമെങ്കിലും ആസ്വദിക്കുന്ന എക്കലത്തെയും മികച്ച ഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=G05cp649_Go)
-- [Sathyam Sivam Sundaram - Angakale Lyric | Vidyasagar | Kunchako Boban, Aswathi Menon](https://www.youtube.com/watch?v=wYGB1l9SeOQ)
-- [Sainyam - Kallikkuyile Lyric | S.P. Venkatesh | Mammootty, Mukesh, Dileep](https://www.youtube.com/watch?v=pjHwAQqqtfI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
