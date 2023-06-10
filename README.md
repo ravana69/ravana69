@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 10th of June 2023](https://www.youtube.com/watch?v=YM9uMYX_N2c)
+- [Paalkadalil Palli Kollum | Gourishankaram | M Jayachandran | Arundhathi | Gireesh Puthanchery](https://www.youtube.com/watch?v=S7Zfuxp4tSs)
+- [Ponnanappuramerana Meda sooryan | Vazhunnor | MG Sreekumar | Ouseppachan | Gireesh Puthenchery](https://www.youtube.com/watch?v=Na9PMviFINI)
 - [Aadimegha Choodu Vatti - Lyrical Video | Alibhai | MG Sreekumar | Gireesh Puthenchery | Mohanlal](https://www.youtube.com/watch?v=q_wjOYcQDNA)
 - [Kanchana Kannezhuthi - Video Song| Njanum Pinnoru Njanum| Indrans,Jagadish,Joy Mathew|M Jayachandran](https://www.youtube.com/watch?v=AdIAXCS9awE)
 - [ഓരോ മലയാളിയും നിധിപോലെ ഹൃദയത്തിൽ സൂക്ഷിക്കുന്ന വിലമതിക്കാനാവാത്ത ഗാനങ്ങൾ | SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=ZUSO0s1pXTs)
-- [Kulirillam Vazhum | Jalolsavam | BR Prasad | Alphonse Joseph | KJ Yesudas | KS chithra | Navya Nair](https://www.youtube.com/watch?v=xmaoHUI2RzM)
-- [Sulthana 🔥 #kgfchapter2 #rockingstaryash #prashanthneel  #ytshorts #ytshort #power #status](https://www.youtube.com/watch?v=E7NHnfZrlCs)
-- [Enikkente Yeshuvine Kandal Mathi | Heidel & Irine | M C John | Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=VQpz_jFXqBs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
