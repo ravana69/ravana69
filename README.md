@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 10th June 2023 # Novena to the Sacred Heart of Jesus 10th June 2023](https://www.youtube.com/watch?v=eRG1rpxApbk)
+- [Christian Video Songs Malayalam |Surya Narayanan | Christian Devotional Songs | Babu Chalakkudy](https://www.youtube.com/watch?v=82nCZSiVN6U)
+- [Japamala  10th of June  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 10th of June  2023](https://www.youtube.com/watch?v=EN3PRaxIuog)
 - [പ്രഭാത പ്രാര്‍ത്ഥന June 10 # Athiravile Prarthana 10th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=C5rXBtX7lwc)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 10th June 2023](https://www.youtube.com/watch?v=pwt2HOPz3f4)
 - [Kanagathei Kaliyamman | Indriyam | Vikram | Vani Vishwanath | Devan | Berny Ignatius](https://www.youtube.com/watch?v=j3wmtBDZvyE)
-- [9 June 2023](https://www.youtube.com/watch?v=pmTvdRDvU8Q)
-- [Christian Superhit Songs | Teenu Treesa | Christian Songs Malayalam | Joji Johns | Biju Narayanan](https://www.youtube.com/watch?v=IC69hX-6xVE)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 9th of June 2023](https://www.youtube.com/watch?v=5Uq5ZLCiR84)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
