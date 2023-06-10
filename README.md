@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഓരോ മലയാളിയും നിധിപോലെ ഹൃദയത്തിൽ സൂക്ഷിക്കുന്ന വിലമതിക്കാനാവാത്ത ഗാനങ്ങൾ | SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=ZUSO0s1pXTs)
+- [Kulirillam Vazhum | Jalolsavam | BR Prasad | Alphonse Joseph | KJ Yesudas | KS chithra | Navya Nair](https://www.youtube.com/watch?v=xmaoHUI2RzM)
 - [Sulthana 🔥 #kgfchapter2 #rockingstaryash #prashanthneel  #ytshorts #ytshort #power #status](https://www.youtube.com/watch?v=E7NHnfZrlCs)
+- [Enikkente Yeshuvine Kandal Mathi | Heidel & Irine | M C John | Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=VQpz_jFXqBs)
 - [മിഴിയില്‍ മീന്‍ പിടഞ്ഞൂ HD | Mizhiyil Meen Pidanju Song | Sandhyakku Virinja Poovu | Mammootty](https://www.youtube.com/watch?v=DTG-HjrDfFg)
 - [Sing with #AyishaAyisha song  | #Ayisha | #ManjuWarrier | #ShreyaGhoshal | #MJayachandran | #shorts](https://www.youtube.com/watch?v=5jTffpFgBlc)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 10th June 2023 # Novena to the Sacred Heart of Jesus 10th June 2023](https://www.youtube.com/watch?v=eRG1rpxApbk)
-- [Christian Video Songs Malayalam |Surya Narayanan | Christian Devotional Songs | Babu Chalakkudy](https://www.youtube.com/watch?v=82nCZSiVN6U)
-- [Japamala  10th of June  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 10th of June  2023](https://www.youtube.com/watch?v=EN3PRaxIuog)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
