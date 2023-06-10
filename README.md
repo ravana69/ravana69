@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aadimegha Choodu Vatti - Lyrical Video | Alibhai | MG Sreekumar | Gireesh Puthenchery | Mohanlal](https://www.youtube.com/watch?v=q_wjOYcQDNA)
 - [Kanchana Kannezhuthi - Video Song| Njanum Pinnoru Njanum| Indrans,Jagadish,Joy Mathew|M Jayachandran](https://www.youtube.com/watch?v=AdIAXCS9awE)
 - [ഓരോ മലയാളിയും നിധിപോലെ ഹൃദയത്തിൽ സൂക്ഷിക്കുന്ന വിലമതിക്കാനാവാത്ത ഗാനങ്ങൾ | SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=ZUSO0s1pXTs)
 - [Kulirillam Vazhum | Jalolsavam | BR Prasad | Alphonse Joseph | KJ Yesudas | KS chithra | Navya Nair](https://www.youtube.com/watch?v=xmaoHUI2RzM)
 - [Sulthana 🔥 #kgfchapter2 #rockingstaryash #prashanthneel  #ytshorts #ytshort #power #status](https://www.youtube.com/watch?v=E7NHnfZrlCs)
 - [Enikkente Yeshuvine Kandal Mathi | Heidel & Irine | M C John | Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=VQpz_jFXqBs)
-- [മിഴിയില്‍ മീന്‍ പിടഞ്ഞൂ HD | Mizhiyil Meen Pidanju Song | Sandhyakku Virinja Poovu | Mammootty](https://www.youtube.com/watch?v=DTG-HjrDfFg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
