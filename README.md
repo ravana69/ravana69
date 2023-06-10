@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Sulthana 🔥 #kgfchapter2 #rockingstaryash #prashanthneel  #ytshorts #ytshort #power #status](https://www.youtube.com/watch?v=E7NHnfZrlCs)
+- [മിഴിയില്‍ മീന്‍ പിടഞ്ഞൂ HD | Mizhiyil Meen Pidanju Song | Sandhyakku Virinja Poovu | Mammootty](https://www.youtube.com/watch?v=DTG-HjrDfFg)
 - [Sing with #AyishaAyisha song  | #Ayisha | #ManjuWarrier | #ShreyaGhoshal | #MJayachandran | #shorts](https://www.youtube.com/watch?v=5jTffpFgBlc)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 10th June 2023 # Novena to the Sacred Heart of Jesus 10th June 2023](https://www.youtube.com/watch?v=eRG1rpxApbk)
 - [Christian Video Songs Malayalam |Surya Narayanan | Christian Devotional Songs | Babu Chalakkudy](https://www.youtube.com/watch?v=82nCZSiVN6U)
 - [Japamala  10th of June  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 10th of June  2023](https://www.youtube.com/watch?v=EN3PRaxIuog)
-- [പ്രഭാത പ്രാര്‍ത്ഥന June 10 # Athiravile Prarthana 10th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=C5rXBtX7lwc)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 10th June 2023](https://www.youtube.com/watch?v=pwt2HOPz3f4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
