@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഏവരും കേൾക്കാൻ കൊതിക്കുന്ന ഗായകരുടെ സൂപ്പർഹിറ്റ് ക്രിസ്ത്യൻ ഗാനങ്ങൾ  | Christian Melody Songs](https://www.youtube.com/watch?v=u1BqSEYJiIs)
+- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 11th June 2023 # Novena to the Sacred Heart of Jesus 11th June 2023](https://www.youtube.com/watch?v=w9vLqnWWKto)
+- [Lokathin Pinnale | Shorts | Libi Idicula - https://youtu.be/hxkJ0ub_xq8](https://www.youtube.com/watch?v=QSpe26v7dZ0)
+- [Japamala 11th of June 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 11th of June  2023](https://www.youtube.com/watch?v=7GO7WVt4Wx8)
 - [രാവിലെ പ്രാര്‍ത്ഥന June 11 # Athiravile Prarthana 11th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=_ipLp2RWvbM)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 11th June 2023](https://www.youtube.com/watch?v=JAg0DGao2fg)
-- [Raavu Nilaapoovu | Sneham | Jayaram | Perumbavoor G Ravindranath | Yusufali Kecheri | Biju Menon](https://www.youtube.com/watch?v=WCq6fRiqOms)
-- [10 June 2023](https://www.youtube.com/watch?v=P4SPdqTO80c)
-- [മഴതുള്ളിക്കൊപ്പം തുള്ളിചാടിപോകുന്ന മലയാളത്തിലെ കണ്ണഞ്ചിപ്പിക്കുന്ന നൃത്ത ഗാനങ്ങൾ| Re Mastered Songs](https://www.youtube.com/watch?v=6c5ZXQqYQN4)
-- [Yesuve Ente Daivame | New Christian Video Song | Chithra Arun | Br.Anil Malappuram | Joji Johns](https://www.youtube.com/watch?v=277dZDy4KLk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
