@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പാട്ടുപെട്ടി Vol 11 | Malayalam Film Songs](https://www.youtube.com/watch?v=1bdMSMiEl0o)
+- [Good feel song #AyishaAyisha | #Ayisha | #ManjuWarrier | #ShreyaGhoshal | #MJayachandran | #shorts](https://www.youtube.com/watch?v=bSi9h3N0jH4)
+- [Kanakkuyilin Pattinnu | Karaoke Video | College Kumaran |Shibu Chakravarthi| Ouseppachan | Mohanlal](https://www.youtube.com/watch?v=GDaJvuEvTnY)
 - [ഓരില താളി ഞാൻ തേച്ചുതരാം 🎶😍](https://www.youtube.com/watch?v=SR2pB4D4DuU)
 - [Vasantharaavin | Kaiyethum Doorath | Fahad Fazil | Nikhitha | Sujatha | Ouseppachan](https://www.youtube.com/watch?v=7tnfqzW8ql8)
 - [ഏവരും കേൾക്കാൻ കൊതിക്കുന്ന ഗായകരുടെ സൂപ്പർഹിറ്റ് ക്രിസ്ത്യൻ ഗാനങ്ങൾ  | Christian Melody Songs](https://www.youtube.com/watch?v=u1BqSEYJiIs)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 11th June 2023 # Novena to the Sacred Heart of Jesus 11th June 2023](https://www.youtube.com/watch?v=w9vLqnWWKto)
-- [Lokathin Pinnale | Shorts | Libi Idicula - https://youtu.be/hxkJ0ub_xq8](https://www.youtube.com/watch?v=QSpe26v7dZ0)
-- [Japamala 11th of June 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 11th of June  2023](https://www.youtube.com/watch?v=7GO7WVt4Wx8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
