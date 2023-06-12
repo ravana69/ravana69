@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [GOOD MORNING _OWN MEDIA MUSIC](https://www.youtube.com/watch?v=u-xLzbOcU64)
-- [Christian Superhit Songs | Madhu Balakrishnan | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=uRthxRGDoB8)
-- [Chendaykkoru | Manasinakkare | P Jayachandran | MG Sreekumar | Ilayaraja | Gireesh Puthanchery](https://www.youtube.com/watch?v=lrB_01TYDVs)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 12th of June 2023](https://www.youtube.com/watch?v=F3co_gZhEco)
-- [Anthimaanatharo | Pattalam | Biju Narayanan | PV Preetha | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=3ToQuUvGDvk)
-- [Neerthullikal Thorathe | Video Song | Sringaravelan | Dileep | Vedhika | Berny Ignatius](https://www.youtube.com/watch?v=byneq7CIyrs)
+- [12 June 2023](https://www.youtube.com/watch?v=RPwVRFYzMn4)
+- [Ouseppachan, K.J. Yesudas, Sujatha - Naadodi Theyyavum (Lyric Video)](https://www.youtube.com/watch?v=l7uPl5a0zAw)
+- [Perumbavoor G. Raveendranath, K.J. Yesudas - Raavu Nilaappoovu (Lyric Video)](https://www.youtube.com/watch?v=rgj7EDZjiz8)
+- [Raveendran, K.J. Yesudas, K.S. Chithra - Aruvikalude (Lyric Video)](https://www.youtube.com/watch?v=89826fZx1tM)
+- [Perumbavoor G. Raveendranath, K.J. Yesudas - Perariyaathoru Nombarathe (Lyric Video)](https://www.youtube.com/watch?v=_Jti-4KZW0U)
+- [Raveendran, K.J. Yesudas, Sujatha - Muttathe Mullathai (Lyric Video)](https://www.youtube.com/watch?v=13hyB7FUUGU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
