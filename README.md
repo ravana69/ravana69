@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chendaykkoru | Manasinakkare | P Jayachandran | MG Sreekumar | Ilayaraja | Gireesh Puthanchery](https://www.youtube.com/watch?v=lrB_01TYDVs)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 12th of June 2023](https://www.youtube.com/watch?v=F3co_gZhEco)
 - [Anthimaanatharo | Pattalam | Biju Narayanan | PV Preetha | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=3ToQuUvGDvk)
 - [Neerthullikal Thorathe | Video Song | Sringaravelan | Dileep | Vedhika | Berny Ignatius](https://www.youtube.com/watch?v=byneq7CIyrs)
 - [Beautiful baby shower with #EnRojaNeeye | #Kushi | #VijayDeverakonda | #SamanthaRuthPrabhu | #shorts](https://www.youtube.com/watch?v=3EgZbK7IpyQ)
 - [Ennennum Karuthunnon Yeshu |  Nithya Mammen | Pr.Litty Kurian | Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=VaRuxwCsGoQ)
-- [Enundodee | Celluloid | Sithara | Shorts](https://www.youtube.com/watch?v=_WBVMsHzk8I)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
