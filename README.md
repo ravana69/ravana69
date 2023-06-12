@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Christian | Kester Paadiya Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=jEsah7a8EVU)
+- [മലയാളസിനിമയിൽ വെന്നിക്കൊടി പാറിച്ച നായികമാർ അഭിനയിച്ച എക്കാലത്തെയും മികച്ച ഗാനങ്ങൾ | EVERGREEN HITS](https://www.youtube.com/watch?v=rtX7ikEkf6k)
+- [മഴയുടെ നനുത്ത ശബ്‌ദം ആസ്വദിച്ചുകൊണ്ട് പഴയ ഓർമ്മകളെ അയവെറുക്കാൻ കെല്പ്പുള്ള ഗാനങ്ങൾ | FILM SONGS](https://www.youtube.com/watch?v=dtTLSnwssQk)
 - [Muthukkuda Maanam | Pappachan Olivilanu  | M G Sreekumar | Sujatha | Shorts](https://www.youtube.com/watch?v=JiUqhD6LQ1k)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 12th June 2023 # Novena to the Sacred Heart of Jesus 12th June 2023](https://www.youtube.com/watch?v=MJhjwhB8aQs)
 - [Japamala  12th of June  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 12th of June  2023](https://www.youtube.com/watch?v=2E8jxWDKdYo)
-- [പ്രഭാത പ്രാര്‍ത്ഥന June 12 # Athiravile Prarthana 12th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=1yO33FrBIQw)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 12th June 2023](https://www.youtube.com/watch?v=VIQREvTP8lU)
-- [GOOD MORNING](https://www.youtube.com/watch?v=PrBj1no8YGE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
