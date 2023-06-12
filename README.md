@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന June 13 # Athiravile Prarthana 13th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=x2_Zax_3auI)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 13th June 2023](https://www.youtube.com/watch?v=8Ayt0hI-6CA)
 - [12 June 2023](https://www.youtube.com/watch?v=RPwVRFYzMn4)
 - [Ouseppachan, K.J. Yesudas, Sujatha - Naadodi Theyyavum (Lyric Video)](https://www.youtube.com/watch?v=l7uPl5a0zAw)
 - [Perumbavoor G. Raveendranath, K.J. Yesudas - Raavu Nilaappoovu (Lyric Video)](https://www.youtube.com/watch?v=rgj7EDZjiz8)
 - [Raveendran, K.J. Yesudas, K.S. Chithra - Aruvikalude (Lyric Video)](https://www.youtube.com/watch?v=89826fZx1tM)
-- [Perumbavoor G. Raveendranath, K.J. Yesudas - Perariyaathoru Nombarathe (Lyric Video)](https://www.youtube.com/watch?v=_Jti-4KZW0U)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
