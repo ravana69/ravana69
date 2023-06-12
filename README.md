@@ -219,6 +219,13 @@ https://user-images.githubusercontent.com/47528708/227121919-08688d26-dca6-421d-
 
 <img src="https://mausam.imd.gov.in/Satellite/3Dasiasec_ir1.jpg" alt="mausam.jpg" />
 
+</div>
+    
+<img src="https://mausam.imd.gov.in/lightning/Converted/BT.gif" alt="lightning.gif" />
+    
+</div>
+
+<img src="https://mausam.imd.gov.in/Radar/MOSAIC/Converted/mosaic.gif" alt="radar.gif" />
   </a>
 
 </div>
