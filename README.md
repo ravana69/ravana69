@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 12th June 2023 # Novena to the Sacred Heart of Jesus 12th June 2023](https://www.youtube.com/watch?v=MJhjwhB8aQs)
+- [Japamala  12th of June  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 12th of June  2023](https://www.youtube.com/watch?v=2E8jxWDKdYo)
 - [പ്രഭാത പ്രാര്‍ത്ഥന June 12 # Athiravile Prarthana 12th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=1yO33FrBIQw)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 12th June 2023](https://www.youtube.com/watch?v=VIQREvTP8lU)
 - [GOOD MORNING](https://www.youtube.com/watch?v=PrBj1no8YGE)
 - [Iniyoru Janmamundengil | Kannaki | Nandita Das | Lal | KJ Yesudas | Kaithapram | Siddique](https://www.youtube.com/watch?v=9HAS-GeeIJ0)
-- [Christian Superhit Songs | Manoj Christy | Christian Songs Malayalam | Joji Johns | Kester](https://www.youtube.com/watch?v=lT5lfwhSYyc)
-- [Pookkalam vannu Pookkalam|GodFather|Mukesh|Kanaka|Jagadheesh|](https://www.youtube.com/watch?v=Pzd8uyHuzxk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
