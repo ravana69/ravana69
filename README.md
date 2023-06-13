@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Chembakame | Kakkakarumban | Sidharth Bharathan | Meenakshi | Madhu Balakrishnan | M.Jayachandran](https://www.youtube.com/watch?v=d0bWVHJCsSI)
-- [Muthukkuda Maanam | Pappachan Olivilanu |  B K Harinarayanan | Ouseppachan | Shorts](https://www.youtube.com/watch?v=XWZppi8ySus)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 13th June 2023 # Novena to the Sacred Heart of Jesus 13th June 2023](https://www.youtube.com/watch?v=qBn8RiSc5qs)
-- [Singer Of The Week | Narayanan Krishna | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=6SNOzZVdlgc)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #june   13th  mother Mary morning songs #vachanam a](https://www.youtube.com/watch?v=u3NijjSPSIU)
-- [Japamala 13th of June 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 13th of June  2023](https://www.youtube.com/watch?v=5qnuThVlUvs)
+- [Muthukkuda Maanam | Pappachan Olivilanu | M G Sreekumar | Sujatha | Shorts](https://www.youtube.com/watch?v=85e6dQDGKBM)
+- [Muthukkuda Maanam | Pappachan Olivilanu | M G Sreekumar | Sujatha | Shorts](https://www.youtube.com/watch?v=H50RH_TaPfo)
+- [Muthukkuda Maanam | Pappachan Olivilanu | M G Sreekumar | Sujatha | Shorts](https://www.youtube.com/watch?v=cRNG9fzKS5E)
+- [സുരഭീയാമങ്ങളേ... Surabi Yaamangalle | Sreedharante Onnam Thirumurivu, Mammootty](https://www.youtube.com/watch?v=Yn_TuQEnvLs)
+- [Muthukkuda Maanam | Pappachan Olivilanu | B K Harinarayanan | Ouseppachan | Shorts](https://www.youtube.com/watch?v=gzUnRChOIqM)
+- [Beautiful lyrics of #AyishaAyisha | #Ayisha | #ManjuWarrier | #ShreyaGhoshal | #MJayachandran](https://www.youtube.com/watch?v=ErD0KDDVEpk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
