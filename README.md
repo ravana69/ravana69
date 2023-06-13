@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 13th June 2023 # Novena to the Sacred Heart of Jesus 13th June 2023](https://www.youtube.com/watch?v=qBn8RiSc5qs)
+- [Singer Of The Week | Narayanan Krishna | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=6SNOzZVdlgc)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #june   13th  mother Mary morning songs #vachanam a](https://www.youtube.com/watch?v=u3NijjSPSIU)
+- [Japamala 13th of June 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 13th of June  2023](https://www.youtube.com/watch?v=5qnuThVlUvs)
 - [പ്രഭാത പ്രാര്‍ത്ഥന June 13 # Athiravile Prarthana 13th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=x2_Zax_3auI)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 13th June 2023](https://www.youtube.com/watch?v=8Ayt0hI-6CA)
-- [12 June 2023](https://www.youtube.com/watch?v=RPwVRFYzMn4)
-- [Ouseppachan, K.J. Yesudas, Sujatha - Naadodi Theyyavum (Lyric Video)](https://www.youtube.com/watch?v=l7uPl5a0zAw)
-- [Perumbavoor G. Raveendranath, K.J. Yesudas - Raavu Nilaappoovu (Lyric Video)](https://www.youtube.com/watch?v=rgj7EDZjiz8)
-- [Raveendran, K.J. Yesudas, K.S. Chithra - Aruvikalude (Lyric Video)](https://www.youtube.com/watch?v=89826fZx1tM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
