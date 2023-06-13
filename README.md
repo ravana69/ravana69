@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [തിരക്കേറിയ ജീവിതത്തിൽ കൂടെയുള്ളവരെ മനസിലാക്കാൻ നാം ശ്രമിക്കാറുണ്ടോ? | Rev. Aneesh P Joseph #shorts](https://www.youtube.com/watch?v=skm-EEd-HDs)
+- [En Sankadangal Sakalavum Karaoke Track | Christian Karaoke | Karaoke with Lyrics | Minus Tracks](https://www.youtube.com/watch?v=N5YXVgXwsZg)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 13th of June 2023](https://www.youtube.com/watch?v=36Jr9Ax68nc)
+- [Snehapoorvam Jesus |  Madhu Balakrishnanum, Ranjini Josum Paadiya Kristheeya Bhakthigaanangal](https://www.youtube.com/watch?v=P8_H21drYHA)
+- [Sandhyayum Ee Chandrikayum | Vazhunnor | Sujatha Mohan | Ouseppachan | Gireesh Puthenchery](https://www.youtube.com/watch?v=G91gWbVo6AY)
 - [Sooryan Video Song | Tuition Veedu |  Thidambu Band | Steen | Fasil Muhammed | Aashiq Bava](https://www.youtube.com/watch?v=116_VkOlk_s)
-- [Kaapa - Original Sound Track | Prithiviraj | Asif Ali | Dawn Vincent | Shaji Kailas](https://www.youtube.com/watch?v=pDxCFY6IY2I)
-- [Sneham - Marakkan Kazhinjengil Lyric | Perumbavoor.G.Raveendranath | Jayaram](https://www.youtube.com/watch?v=meIPS6Xtm1g)
-- [Sooryamanasam - Kannil Nilaamukham Lyric | M.M. Keeravani | Mammootty, Vaishnavi](https://www.youtube.com/watch?v=a7PaIu65m2Y)
-- [Sammanam - Devi Ennum Neeyen Lyric | Johnson | Manju Warrier, Manoj.K.Jayan](https://www.youtube.com/watch?v=9Agi8T1nNmc)
-- [Sayvar Thirumeni - Allikkallilu Vellam Kootty Lyric | Raveendran | Suresh Gopi](https://www.youtube.com/watch?v=zVhWf5i5DK4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
