@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയണ്ണാർ കണ്ണൻ | Malayannar Kannan Video Song | Kaikudanna Nilavu | Jayaram | Dileep | Shalini](https://www.youtube.com/watch?v=bjk3v_HC2Cw)
 - [പെറ്റമ്മയുടെ താരാട്ടുപോൽ മനസിൽ പതിഞ്ഞു പോയ മലയാളികളുടെ ഇഷ്ടഗാനങ്ങൾ | EVERGREEN SONGS](https://www.youtube.com/watch?v=X3RLqnTqEc0)
 - [Sandhyayam Kadalile | Hridayathil Sookshikkan | Kaithapram | Mohan sithara | Rachana John | Bhavana](https://www.youtube.com/watch?v=5HcXogRhGsI)
 - [മലയാളികളുടെ ഇഷ്ട താരങ്ങൾ ഒന്നിച്ചണിനിരക്കുന്ന മലയാള സിനിമയിലെ പ്രശസ്ത ഗാനങ്ങൾ |Evergreen Songs](https://www.youtube.com/watch?v=neeG0WjJqcY)
+- [Ruh Music Video | Nipin Besent | Adheef Muhamed | Easib | Yusuf Salim | Anzar Haja](https://www.youtube.com/watch?v=LsadYP3Kl78)
 - [O Karthave - En Priyane | Kester | R S Vijayaraj | Shorts](https://www.youtube.com/watch?v=gTlzoXS-_0w)
-- [Vibe by singing #AyishaAyisha | #Ayisha | #ManjuWarrier | #ShreyaGhoshal | #MJayachandran | #shorts](https://www.youtube.com/watch?v=8kPrvnjnsK8)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #june   14th  mother Mary morning songs #vachanam a](https://www.youtube.com/watch?v=QzwmZi2TvaU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
