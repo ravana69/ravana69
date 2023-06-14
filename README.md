@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Aadimegha Choodu Vatti - Lyrical Video | Alibhai | MG Sreekumar | Shaji Kailas | Mohanlal](https://www.youtube.com/watch?v=90xJqGwhvcw)
-- [Chellathathe | Manasinakkare |  KS Chithra | Ilayaraja | Gireesh Puthanchery](https://www.youtube.com/watch?v=0UGZKs6q57c)
-- [മലയണ്ണാർ കണ്ണൻ | Malayannar Kannan Video Song | Kaikudanna Nilavu | Jayaram | Dileep | Shalini](https://www.youtube.com/watch?v=bjk3v_HC2Cw)
-- [പെറ്റമ്മയുടെ താരാട്ടുപോൽ മനസിൽ പതിഞ്ഞു പോയ മലയാളികളുടെ ഇഷ്ടഗാനങ്ങൾ | EVERGREEN SONGS](https://www.youtube.com/watch?v=X3RLqnTqEc0)
-- [Sandhyayam Kadalile | Hridayathil Sookshikkan | Kaithapram | Mohan sithara | Rachana John | Bhavana](https://www.youtube.com/watch?v=5HcXogRhGsI)
-- [മലയാളികളുടെ ഇഷ്ട താരങ്ങൾ ഒന്നിച്ചണിനിരക്കുന്ന മലയാള സിനിമയിലെ പ്രശസ്ത ഗാനങ്ങൾ |Evergreen Songs](https://www.youtube.com/watch?v=neeG0WjJqcY)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 14th of June 2023](https://www.youtube.com/watch?v=czCsn1FrW2o)
+- [വിഷമകരമായ അനുഭവങ്ങളിൽ ദൈവം ഒരിക്കലും നിന്നെ കൈവിടത്തില്ല | Rev. Aneesh P Joseph |#shorts  #spiritual](https://www.youtube.com/watch?v=QqEl43joWs0)
+- [Roohin Nizhale - Video Song | Pendulum | Vijay Babu, Indrans, Anumol | Jean P Johnson | Rejin S Babu](https://www.youtube.com/watch?v=64t4Ofdtdkw)
+- [Neyyel Daivam Vasikkunnidam | Kester Paadiya Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=dJ_SwfEU1mQ)
+- [Manassil Midhuna Mazha | Nandanam | MG Sreekumar | Raveendran | Gireesh Puthanchery](https://www.youtube.com/watch?v=YyHuA2U3avI)
+- [Hai Hai Hailassa | Video Song | Pullipulikalum Attinkuttiyum | Kunchacko Boban, Namitha | Vidyasagar](https://www.youtube.com/watch?v=W7-sDZHMBIU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
