@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vibe by singing #AyishaAyisha | #Ayisha | #ManjuWarrier | #ShreyaGhoshal | #MJayachandran | #shorts](https://www.youtube.com/watch?v=8kPrvnjnsK8)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #june   14th  mother Mary morning songs #vachanam a](https://www.youtube.com/watch?v=QzwmZi2TvaU)
 - [Christian Superhit Songs | Wilson Piravom | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=_OL_rW6XcZI)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 14th June 2023 # Novena to the Sacred Heart of Jesus 14th June 2023](https://www.youtube.com/watch?v=Asx_ZpYX278)
 - [Japamala 14th of June 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 14th of June  2023](https://www.youtube.com/watch?v=3gRT4U_gHtE)
 - [പ്രഭാത പ്രാര്‍ത്ഥന June 14 # Athiravile Prarthana 14th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=vlCxzGYqIdw)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 14th June 2023](https://www.youtube.com/watch?v=YAjvyq0HG78)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
