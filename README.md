@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [En Hridhayam - En Priyane | R S Vijayaraj | Kester | Shorts](https://www.youtube.com/watch?v=HboamQmMtiU)
+- [14 June 2023](https://www.youtube.com/watch?v=EOj_PGBmX6A)
 - [Nee Entae Nadhanae | Worship Song | Kings & Queens Band | D media Kottayam](https://www.youtube.com/watch?v=gTOI0OvfVF8)
 - [Appamayi Koodashayayen | Christian Video Song | Ramesh Murali | Shibu Antony Mavelikkara |Joji Johns](https://www.youtube.com/watch?v=W5gBVVxTFJc)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 14th of June 2023](https://www.youtube.com/watch?v=czCsn1FrW2o)
 - [വിഷമകരമായ അനുഭവങ്ങളിൽ ദൈവം ഒരിക്കലും നിന്നെ കൈവിടത്തില്ല | Rev. Aneesh P Joseph |#shorts  #spiritual](https://www.youtube.com/watch?v=QqEl43joWs0)
-- [Roohin Nizhale - Video Song | Pendulum | Vijay Babu, Indrans, Anumol | Jean P Johnson | Rejin S Babu](https://www.youtube.com/watch?v=64t4Ofdtdkw)
-- [Neyyel Daivam Vasikkunnidam | Kester Paadiya Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=dJ_SwfEU1mQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
