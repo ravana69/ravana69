@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളക്കരയുടെ സംസകാരത്തിന് ഇണങ്ങുന്ന രീതിയിൽ ഒരുക്കിയ മലയാളസിനിമാഗാനങ്ങൾ | EVERGREEN FILM SONGS](https://www.youtube.com/watch?v=6jPkZzO7NPI)
+- [Coming Soon : DJ Remix of Super Hit Malayalam Movie Songs #shorts](https://www.youtube.com/watch?v=r2m-MVPP6Bs)
+- [Masam Masam | Aparichithan | Gireesh Puthenchery | Suresh Peters | Jyotsna Radhakrishnan | Kavya](https://www.youtube.com/watch?v=s0-5-2n_JDQ)
 - [A Love Before The Monsoon Video Jukebox | Best Malayalam Melody Songs | Malayalam Love Songs](https://www.youtube.com/watch?v=5U2nLyrIh9o)
 - [Coming Soon : DJ Remix of Super Hit Malayalam Movie Songs #shorts](https://www.youtube.com/watch?v=iTk4PU33NTE)
 - [Minnadi Minnadi | Lyrical Video | Naran | Mohanlal | Kaithapram | K S Chitra | Deepak Dev](https://www.youtube.com/watch?v=xkkrwXTjZuU)
-- [Beautiful song #AyishaAyisha | #Ayisha | #ManjuWarrier | #ShreyaGhoshal | #MJayachandran | #shorts](https://www.youtube.com/watch?v=I6HAUHEBI-0)
-- [Kallan Chakkettu | Thachiledathu Chundan | Mammootty | Nandhini | Bichu Thirumala | Shajoon Kariyal](https://www.youtube.com/watch?v=kZnlFIVvIs8)
-- [Coming Soon : DJ Remix of Super Hit Malayalam Movie Songs #shorts](https://www.youtube.com/watch?v=84q8ZEZVfC8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
