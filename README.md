@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 16th June 2023](https://www.youtube.com/watch?v=KepLucF5QCU)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=Pf8QH9z02ZE)
 - [15 June 2023](https://www.youtube.com/watch?v=8MG5z0h47M0)
 - [Nizhal Pole Dinangal | Christian Melody Song | Joji Johns | Teenu Treesa | Christian Song](https://www.youtube.com/watch?v=AAEFSL-tvbI)
 - [Silayil Ninnum | Chronic Bachelor | Sujatha Mohan | Deepak Dev | Kaithapram](https://www.youtube.com/watch?v=J4gP3EgEsng)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 15th of June 2023](https://www.youtube.com/watch?v=lde4qyDsupk)
-- [Raziya Lyrical Video | Nabeel Najeeb | Narayani Gopan | Akbar Khan | Alfiya](https://www.youtube.com/watch?v=gEAHD3eeDF4)
-- [മനസ്സിൽ ആരോടും പറയാത്ത നൊമ്പരങ്ങളില്ലേ നിങ്ങളുടെ ഉള്ളിൽ |Rev. Aneesh P Joseph | #shorts | #spiritual](https://www.youtube.com/watch?v=JBTsYpToawA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
