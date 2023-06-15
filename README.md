@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ കേൾക്കാൻ ഏറ്റവും നല്ല ഗാനങ്ങൾ daily worship songs | christian devotional songs malayalam](https://www.youtube.com/watch?v=uhyaw2JG91k)
+- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 15th June 2023 # Novena to the Sacred Heart of Jesus 15th June 2023](https://www.youtube.com/watch?v=MRlfxvdw2to)
+- [നെഞ്ച് തകരുന്ന നേരത്തു നെഞ്ചോട് ചേർത്തുവെക്കുന്ന ഗാനങ്ങൾ | Christian Melody Songs](https://www.youtube.com/watch?v=-ziGW6pdjJs)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം # June  15th mother Mary morning songs #vachanam au](https://www.youtube.com/watch?v=bFfxoO3KU9Q)
+- [Japamala 15th of June 2023 # Mathavinte Japamala # Prakashathinte Rahasyangal 15th of June 2023](https://www.youtube.com/watch?v=KgTjTNBAqx8)
 - [രാവിലെ പ്രാര്‍ത്ഥന June 15 # Athiravile Prarthana 15th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=RRYnuIGY_RI)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 15th June 2023](https://www.youtube.com/watch?v=T_u0LQkZX4k)
-- [Enthathishayame Daivathin Sneham | Merin Gregory | PV Thommy | Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=S3HY5iOr15k)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=S7IyASMCtAw)
-- [Nee Entae Nadhanae | Worship Song | Kings & Queens Band | Releasing on June 17Th at & 7 am](https://www.youtube.com/watch?v=-6dSIqsuMTg)
-- [Athmavin Kavil | Black Cat | Suresh Gopi | Karthika | Meena | Alphonse Joseph | KS Chithra](https://www.youtube.com/watch?v=ZMBBeTgt5Tg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
