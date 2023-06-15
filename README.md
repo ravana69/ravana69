@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 15th of June 2023](https://www.youtube.com/watch?v=lde4qyDsupk)
+- [Raziya Lyrical Video | Nabeel Najeeb | Narayani Gopan | Akbar Khan | Alfiya](https://www.youtube.com/watch?v=gEAHD3eeDF4)
+- [മനസ്സിൽ ആരോടും പറയാത്ത നൊമ്പരങ്ങളില്ലേ നിങ്ങളുടെ ഉള്ളിൽ |Rev. Aneesh P Joseph | #shorts | #spiritual](https://www.youtube.com/watch?v=JBTsYpToawA)
+- [മനസ്സിനെ കുളിർപ്പിക്കുന്ന മനോഹരഗാനങ്ങൾ!!!| Ilayaraja Hits |Malayalam Super Hit Songs |Video Jukebox](https://www.youtube.com/watch?v=puG8YCsVmtE)
+- [Thamaranoolinaal | Mullavalliyum Thenmavum | G Venugopal | Gayathri |Ouseppachan|Gireesh Puthanchery](https://www.youtube.com/watch?v=HVBTrx_20pw)
 - [The Heist Song | Kolla Movie| Shaan Rahman | Aathira Nair | Nelson | Rajisha Vijayan | Priya Varrier](https://www.youtube.com/watch?v=bSiXzf-iO3c)
-- [Snehathin Adayaalam | Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=eA2tf6SSMzU)
-- [മലയാളക്കരയുടെ സംസകാരത്തിന് ഇണങ്ങുന്ന രീതിയിൽ ഒരുക്കിയ മലയാളസിനിമാഗാനങ്ങൾ | EVERGREEN FILM SONGS](https://www.youtube.com/watch?v=6jPkZzO7NPI)
-- [Coming Soon : DJ Remix of Super Hit Malayalam Movie Songs #shorts](https://www.youtube.com/watch?v=r2m-MVPP6Bs)
-- [Masam Masam | Aparichithan | Gireesh Puthenchery | Suresh Peters | Jyotsna Radhakrishnan | Kavya](https://www.youtube.com/watch?v=s0-5-2n_JDQ)
-- [A Love Before The Monsoon Video Jukebox | Best Malayalam Melody Songs | Malayalam Love Songs](https://www.youtube.com/watch?v=5U2nLyrIh9o)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
