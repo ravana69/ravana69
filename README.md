@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Feel the music of #AyishaAyisha | #Ayisha | #ManjuWarrier | #ShreyaGhoshal | #MJayachandran](https://www.youtube.com/watch?v=5IcZN4e1zL4)
+- [Kayyethum Doorath | Pappachan Olivilanu | Vineeth Sreenivasan | Ouseppachan | Sinto Sunny | FilmSong](https://www.youtube.com/watch?v=Q-kvK7aLF2c)
 - [Songs Of The Week | Kester | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=uncqd7u9vfk)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 16th June 2023 # Novena to the Sacred Heart of Jesus 16th June 2023](https://www.youtube.com/watch?v=SL2h3yp4tz4)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #June 16th mother Mary morning songs #vachanam](https://www.youtube.com/watch?v=N6Gpm3coOBQ)
 - [Japamala 16th of June 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 16th of June  2023](https://www.youtube.com/watch?v=mhYLUpAIVAs)
-- [പ്രഭാത പ്രാര്‍ത്ഥന June 16 # Athiravile Prarthana 16th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=-5HDrLOz_dc)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 16th June 2023](https://www.youtube.com/watch?v=KepLucF5QCU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
