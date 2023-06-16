@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ANAADHARE AGATHIKALE | NEW CHRISTIAN SONG | JOSE SAGAR | PAVITHRAN AMACHAL | JINO KUNNUMPURATH |](https://www.youtube.com/watch?v=g6YBWQ8h5ls)
 - [Kallerudooram | Madhu Balakrishnan, Biju Narayanan Ennivar Paadiya Kristheeya Bhakthigaanangal |](https://www.youtube.com/watch?v=Bp182n15qIc)
+- [Njangade Naattile Video Song | Dark Shades of a Secret |  Anil Thalikulam | Manikandan Perumpadappu](https://www.youtube.com/watch?v=pj8czP_A0iU)
+- [Thiruhrudayam | Amal Antony Agustin | Rita Paul | Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=-pVBQbiFY6c)
 - [മലയാളത്തിന്റെ ഒരേയൊരു മെഗാസ്റ്റാർ മമ്മൂട്ടി അഭിനയിച്ച ജനപ്രീതിയേറെയുള്ള സിനിമാഗാനങ്ങൾ |MAMMOOTY HITS](https://www.youtube.com/watch?v=upZIGxu6Ot4)
 - [യാത്രകൾ ഇഷ്ടപ്പെടുന്നവർക്ക് മനസിന് കൂടുതൽ ഉത്സാഹമേകുന്ന മലയാളസിനിമാഗാനങ്ങൾ | EVERGREEN FILM SONGS](https://www.youtube.com/watch?v=OsjNM2prLJE)
-- [Feel the music of #AyishaAyisha | #Ayisha | #ManjuWarrier | #ShreyaGhoshal | #MJayachandran](https://www.youtube.com/watch?v=5IcZN4e1zL4)
-- [Thirayattam | Teaser | Sajeev Kilikulam | Ragi A. R. | Ebin Pallichan  | Malayalam Film Teaser](https://www.youtube.com/watch?v=NQ8BjEgtoo0)
-- [Kayyethum Doorath | Pappachan Olivilanu | Vineeth Sreenivasan | Ouseppachan | Sinto Sunny | FilmSong](https://www.youtube.com/watch?v=Q-kvK7aLF2c)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
