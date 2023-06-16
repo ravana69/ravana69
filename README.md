@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 17th June 2023](https://www.youtube.com/watch?v=_3_jGozxKmo)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=pfLTsrLPLa4)
 - [Nandavana | Symphony | Deepak Dev | Devanand | Sujatha Mohan| Kaithapram | IV Sasi | KS Chithra](https://www.youtube.com/watch?v=Lhobk1y1Mbo)
 - [16 June 2023](https://www.youtube.com/watch?v=QTNUEBxnXLM)
 - [സ്വർഗീയ ഗണങ്ങളോട് ചേർന്ന് പാടും ആരാധന ഗീതങ്ങൾ |Malayalam Christian Devotional Songs |Wilson piravom](https://www.youtube.com/watch?v=BYAx6PN1bpM)
 - [Ee Veyil | Film Video Songs | SAFE | Rahul Subrahmanian | Vineeth Sreenivasan | Arun Alat](https://www.youtube.com/watch?v=s_DWT3AZM6g)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 16th of June 2023](https://www.youtube.com/watch?v=XKEKVXd4Ss4)
-- [ജീവിതത്തിൽ നഷ്ടങ്ങളെയോർത്ത് വിഷമിക്കുന്നവരാണ് നമ്മൾ എല്ലാവരും | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=KVuiidM7DuU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
