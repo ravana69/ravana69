@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളത്തിന്റെ ഒരേയൊരു മെഗാസ്റ്റാർ മമ്മൂട്ടി അഭിനയിച്ച ജനപ്രീതിയേറെയുള്ള സിനിമാഗാനങ്ങൾ |MAMMOOTY HITS](https://www.youtube.com/watch?v=upZIGxu6Ot4)
+- [യാത്രകൾ ഇഷ്ടപ്പെടുന്നവർക്ക് മനസിന് കൂടുതൽ ഉത്സാഹമേകുന്ന മലയാളസിനിമാഗാനങ്ങൾ | EVERGREEN FILM SONGS](https://www.youtube.com/watch?v=OsjNM2prLJE)
 - [Feel the music of #AyishaAyisha | #Ayisha | #ManjuWarrier | #ShreyaGhoshal | #MJayachandran](https://www.youtube.com/watch?v=5IcZN4e1zL4)
+- [Thirayattam | Teaser | Sajeev Kilikulam | Ragi A. R. | Ebin Pallichan  | Malayalam Film Teaser](https://www.youtube.com/watch?v=NQ8BjEgtoo0)
 - [Kayyethum Doorath | Pappachan Olivilanu | Vineeth Sreenivasan | Ouseppachan | Sinto Sunny | FilmSong](https://www.youtube.com/watch?v=Q-kvK7aLF2c)
 - [Songs Of The Week | Kester | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=uncqd7u9vfk)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 16th June 2023 # Novena to the Sacred Heart of Jesus 16th June 2023](https://www.youtube.com/watch?v=SL2h3yp4tz4)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #June 16th mother Mary morning songs #vachanam](https://www.youtube.com/watch?v=N6Gpm3coOBQ)
-- [Japamala 16th of June 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 16th of June  2023](https://www.youtube.com/watch?v=mhYLUpAIVAs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
