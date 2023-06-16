@@ -34,10 +34,10 @@
 <!-- BLOGPOSTS:START -->
 - [Ee Veyil | Film Video Songs | SAFE | Rahul Subrahmanian | Vineeth Sreenivasan | Arun Alat](https://www.youtube.com/watch?v=s_DWT3AZM6g)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 16th of June 2023](https://www.youtube.com/watch?v=XKEKVXd4Ss4)
+- [ജീവിതത്തിൽ നഷ്ടങ്ങളെയോർത്ത് വിഷമിക്കുന്നവരാണ് നമ്മൾ എല്ലാവരും | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=KVuiidM7DuU)
 - [Omane Thankame | Mizhirandilum | K J Yesudas | Raveendran | Vayalar Sarathchandra Varma](https://www.youtube.com/watch?v=4f2xeuHFsqk)
 - [പഞ്ചവർണ കുളിരെ || Malayalam Evergreen Song | Panja Varna Kulire | Jayaram Divya Unni](https://www.youtube.com/watch?v=AtSZ3QKv-UE)
 - [#mehabooba 😍🖤 #kgfchapter2 #rockingstaryash #prashanthneel #ravibasrur #shorts #status](https://www.youtube.com/watch?v=BkEyc9PqPkc)
-- [ഏതു സുന്ദര | Ethu Sundara | Video Song | Nadan Malayalam Movie | Ouseppachan | Najim Arshad |](https://www.youtube.com/watch?v=gj1gEmUZ-DY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
