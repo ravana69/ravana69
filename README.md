@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Otta Vakkile Pattunoolinal | Chacko Randaman | Kalabhavan Mani | Jyolsna | Jophy Tharakan](https://www.youtube.com/watch?v=oJrFQa1hcrk)
 - [Vishudhiye Thikachu Naam | K.G.Markose | Vettamala Philipose Upadeshi | Shorts](https://www.youtube.com/watch?v=4AIRLqAiH5g)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #June 17th mother Mary morning songs #vachanam](https://www.youtube.com/watch?v=jMMaPzRl088)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 17th June 2023 # Novena to the Sacred Heart of Jesus 17th June 2023](https://www.youtube.com/watch?v=_fo6_AfF_jc)
 - [Japamala  17th of June  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 17th of June  2023](https://www.youtube.com/watch?v=7IaUEmUMpGY)
 - [രാവിലെ പ്രാര്‍ത്ഥന June 17 # Athiravile Prarthana 17th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=50HEj_wQBRo)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 17th June 2023](https://www.youtube.com/watch?v=_3_jGozxKmo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
