@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mele Meghapaali ♥️ | Sitaramam Cover | Manu](https://www.youtube.com/watch?v=vwPu4-VHvKI)
+- [Christian Video Songs Malayalam | Shibu Antony | Christian Songs Malayalam | Wilson Piravom](https://www.youtube.com/watch?v=Y16MmLdYYB0)
 - [Dhum Thanakkadi | Mullavalliyum Thenmavum | Franco | Ganga | Ouseppachan | Gireesh Puthanchery](https://www.youtube.com/watch?v=xdgbMJp0_yU)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 17th of June 2023](https://www.youtube.com/watch?v=Kxl4MTUaufA)
 - [കൂടെ ഒരുപാടാളുകൾ  ഉണ്ടെങ്കിലും ഒറ്റപ്പെട്ടുപോയവരാണ് പലരും|Rev. Aneesh P Joseph | #shorts|#spiritual](https://www.youtube.com/watch?v=hfA1GdMs1-Y)
 - [Chiri Chiriyo Nin  | Chronic Bachelor | KJ Yesudas | Ganga | Deepak Dev | Kaithapram](https://www.youtube.com/watch?v=uuVDNk2hv-w)
-- [Eeshoye Ee Bhoovil | Abhijith Kollam | Baby John Kalayanthani | Latest Christian Devotional Songs](https://www.youtube.com/watch?v=m7Ycfepposw)
-- [Sakrari | Manassine Nirmalamaakkunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=jC9KkowdGks)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
