@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [എല്ലാ മലയാളി പ്രേക്ഷകരുടെയും ഹൃദയം കവർന്ന മലയാളസിനിമയിലെ പേരുകേട്ട ഗാനങ്ങൾ | EVERGREEN SUPERHITS](https://www.youtube.com/watch?v=j1Za7Qeot6c)
+- [ഹൃദയത്തിന്റെ ഓരോ സ്‌പന്ദനങ്ങളിലും തുടികൊട്ടിയ താളക്കൊഴുപ്പുള്ള  മലയാളസിനിമാഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=kbgfqGmH7hE)
+- [Ponnu Vithachaalum | Aayiram Meni | K J Yesudas | S P Venkitesh | Gireesh Puthanchery](https://www.youtube.com/watch?v=8GApleofZvE)
 - [Mesmerizing #AyishaAyisha | #Ayisha | #ManjuWarrier | #ShreyaGhoshal | #MJayachandran | #shorts](https://www.youtube.com/watch?v=X2pNaW9bv8Y)
 - [Manju Mazha | Karaoke Video | Aagathan | Dileep | Kaithapram | Ouseppachan](https://www.youtube.com/watch?v=DDvkC4uTwEc)
 - [Otta Vakkile Pattunoolinal | Chacko Randaman | Kalabhavan Mani | Jyolsna | Jophy Tharakan](https://www.youtube.com/watch?v=oJrFQa1hcrk)
-- [Vishudhiye Thikachu Naam | K.G.Markose | Vettamala Philipose Upadeshi | Shorts](https://www.youtube.com/watch?v=4AIRLqAiH5g)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #June 17th mother Mary morning songs #vachanam](https://www.youtube.com/watch?v=jMMaPzRl088)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 17th June 2023 # Novena to the Sacred Heart of Jesus 17th June 2023](https://www.youtube.com/watch?v=_fo6_AfF_jc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
