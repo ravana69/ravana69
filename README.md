@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Sundhariye Chembakamalare | Panthayakkozhi | Shorts](https://www.youtube.com/watch?v=iEVTM-mSp8o)
 - [എല്ലാ മലയാളി പ്രേക്ഷകരുടെയും ഹൃദയം കവർന്ന മലയാളസിനിമയിലെ പേരുകേട്ട ഗാനങ്ങൾ | EVERGREEN SUPERHITS](https://www.youtube.com/watch?v=j1Za7Qeot6c)
 - [ഹൃദയത്തിന്റെ ഓരോ സ്‌പന്ദനങ്ങളിലും തുടികൊട്ടിയ താളക്കൊഴുപ്പുള്ള  മലയാളസിനിമാഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=kbgfqGmH7hE)
 - [Ponnu Vithachaalum | Aayiram Meni | K J Yesudas | S P Venkitesh | Gireesh Puthanchery](https://www.youtube.com/watch?v=8GApleofZvE)
 - [Mesmerizing #AyishaAyisha | #Ayisha | #ManjuWarrier | #ShreyaGhoshal | #MJayachandran | #shorts](https://www.youtube.com/watch?v=X2pNaW9bv8Y)
 - [Manju Mazha | Karaoke Video | Aagathan | Dileep | Kaithapram | Ouseppachan](https://www.youtube.com/watch?v=DDvkC4uTwEc)
-- [Otta Vakkile Pattunoolinal | Chacko Randaman | Kalabhavan Mani | Jyolsna | Jophy Tharakan](https://www.youtube.com/watch?v=oJrFQa1hcrk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
