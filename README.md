@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നല്ല നാളേയ്ക്കായി പ്രതീക്ഷയോടെ നമുക്ക് കാത്തിരിക്കാം | Rev. Aneesh P Joseph | #shorts | #spiritual](https://www.youtube.com/watch?v=FPVht0nnNkw)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 18th of June 2023](https://www.youtube.com/watch?v=TkT7V40BJjI)
 - [Chethoharam /ചേതോഹരം / KJ Yesudas](https://www.youtube.com/watch?v=LN4X2x455-Y)
 - [Unnai Kaanadhu Naan cover |Vishwaroopam |  Bhairavi Music Band](https://www.youtube.com/watch?v=blYhQ__EkGg)
 - [Sooryanay Thazhuki Full Video Song | HD | Sathyam Sivam Sundaram Movie Song |](https://www.youtube.com/watch?v=Imq1G7MrBAc)
 - [Hara Hara Shankara | Rasikan | Dileep | Samvrutha | Vidyasagar | Dinesh | Laljose - HD Video Song](https://www.youtube.com/watch?v=lylaaT_vNng)
-- [ആരോമല്‍ തോണിയിലെന്റെ ജീവന്റെ ജീവനിരിപ്പൂ... #shortsyoutube #youtubeshorts #chippirenjith](https://www.youtube.com/watch?v=Se1kmNIjszE)
-- [പാട്ടുപെട്ടി - Paattupetti Vol 12 | Malayalam Film Songs](https://www.youtube.com/watch?v=-XZ-28Shr_E)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
