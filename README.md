@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന June 20 # Athiravile Prarthana 20th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=R04c4dir5Y4)
 - [Japamala  20th of June  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 20th of June  2023](https://www.youtube.com/watch?v=8Fo_f3x7d4E)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=iBm5YOVGAjs)
 - [19 June 2023](https://www.youtube.com/watch?v=R07Ls5ZayBI)
 - [Parannu Parannu Parum | Chakram | Prithviraj | Meera Jasmine | Lohithadas | Raveendran](https://www.youtube.com/watch?v=3jgaCdOPI8E)
 - [മലയാളികളുടെ അഭിമാനമായിരുന്ന  ജോൺസൻ മാസ്റ്റർ ഈണമിട്ട  എക്കാലത്തെയും മികച്ച ഗാനങ്ങൾ |Hits Of Johnson](https://www.youtube.com/watch?v=n-6Za0GxcJ8)
-- [എത്ര വട്ടം കേട്ടാലും മനസ് മടുക്കാത്ത സുന്ദര ക്രിസ്തീയ ഗാനങ്ങൾ |Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=rmRi0eH9xkI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
