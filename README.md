@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളികളുടെ അഭിമാനമായിരുന്ന  ജോൺസൻ മാസ്റ്റർ ഈണമിട്ട  എക്കാലത്തെയും മികച്ച ഗാനങ്ങൾ |Hits Of Johnson](https://www.youtube.com/watch?v=n-6Za0GxcJ8)
+- [എത്ര വട്ടം കേട്ടാലും മനസ് മടുക്കാത്ത സുന്ദര ക്രിസ്തീയ ഗാനങ്ങൾ |Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=rmRi0eH9xkI)
 - [Anthinila Chembarunthe | Mullavalliyum Thenmavum | Indrajith | Ouseppachan | Gireesh Puthanchery](https://www.youtube.com/watch?v=zkdyaYmTWlw)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 19th of June 2023](https://www.youtube.com/watch?v=q6mj0HwKq24)
 - [നരകഭീതിയിലാണോ നിങ്ങൾ ദൈവത്തെ ആരാധിക്കുന്നത്  | Rev. Aneesh P Joseph | #shorts | #spiritual](https://www.youtube.com/watch?v=4aSYW8bTtOU)
 - [Pakalppoove | Chronic Bachelor | KJ Yesudas | Deepak Dev | Kaithapram](https://www.youtube.com/watch?v=i0ZiV1pnRtQ)
-- [Jeevitham Maayapambaram  | Video Song | Ithihaasa | Deepak Dev | Shine Tom Chacko | Anusree](https://www.youtube.com/watch?v=AS_wbuQvAjg)
-- [Popular Christian Songs by Graham Varghese | Kester |  Wilson Piravom | Superhit Christian Songs](https://www.youtube.com/watch?v=iAwLkfdY7MU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
