@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aavanipponoonjal | Kottaram Veettile Appoottan | Jayaram | Shruthy | Rajasenan | Bearny Ignatius](https://www.youtube.com/watch?v=10yPcTzqzQM)
 - [Sathyam Arakkachayakkuka | RSV | Kester | Shorts](https://www.youtube.com/watch?v=KUlY44_A3zk)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 19th June 2023 # Novena to the Sacred Heart of Jesus 19th June 2023](https://www.youtube.com/watch?v=eiJh5-yVgpM)
 - [Prabhatha Geethangal | Fr.Joshy Kannukaden | Christian Morning Prayer Songs](https://www.youtube.com/watch?v=zvhTkZaKwzw)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #June 19th mother Mary morning songs #vachanam](https://www.youtube.com/watch?v=YFYvzVa09Lk)
 - [Japamala  19th of June  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 19th of June  2023](https://www.youtube.com/watch?v=EeWr-0cL9pE)
-- [രാവിലെ പ്രാര്‍ത്ഥന June 19 # Athiravile Prarthana 19th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=DMRPS4-qZKw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
