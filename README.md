@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Sundhariye Chembaka Malare | Panthayakozhi | Shorts](https://www.youtube.com/watch?v=KhxMz0m999E)
 - [Vachanamenna Vaaledukkuka | Daivam Ezhunnelkkunnu | RSV | Kester | Shorts](https://www.youtube.com/watch?v=UqHnc1_0Tuk)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #June 20th mother Mary morning songs #vachanam](https://www.youtube.com/watch?v=pVEhXMPK7Pc)
 - [പ്രിയ ഗായിക ചിത്ര അരുൺ ആലപിച്ച ഏറ്റവും നല്ല ക്രിസ്തീയ ഗാനങ്ങൾ |Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=CC4KCBy14QU)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 20th June 2023 # Novena to the Sacred Heart of Jesus 20th June 2023](https://www.youtube.com/watch?v=9hSSN3QEPKs)
 - [Japamala 20th of June 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 20th of June  2023](https://www.youtube.com/watch?v=kGtsSA1FfUk)
-- [പ്രഭാത പ്രാര്‍ത്ഥന June 20 # Athiravile Prarthana 20th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=R04c4dir5Y4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
