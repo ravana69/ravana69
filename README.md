@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 20th of June 2023](https://www.youtube.com/watch?v=Xec4JvMTNgo)
+- [മരുഭൂമികൾ ഉദ്യാനമാക്കുന്ന ദൈവം | Rev. Aneesh P Joseph | #shorts | #spiritual](https://www.youtube.com/watch?v=xOaWw1iFd1c)
+- [Aarodum Onnum | Narasimham | KJ Yesudas | M G Radhakrishnan | Gireesh Puthanchery](https://www.youtube.com/watch?v=oegbisiWS9w)
 - [ചന്ദന ചോലയിൽ | Chandana Cholayil | Sallapam | Dileep | Manju Warrier](https://www.youtube.com/watch?v=fyuNn1bShzY)
 - [Aaro Nee Aaro : Beautiful Romantic Duet by KJ Yesudas & Shweta Mohan  #shorts](https://www.youtube.com/watch?v=ipj-jcJxjpc)
 - [Punchirikkana Panchami - Lyrical Video | Alibhai | MG Sreekumar, Liji Francis | Mohanlal](https://www.youtube.com/watch?v=jrIhQYqVCfc)
-- [മലയാളികൾ എന്നും ഹൃദയത്തിൽ സൂക്ഷിക്കുന്ന  ഒരുപിടി നല്ല ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=A5b3dDmo19w)
-- [Dance for #KanniluKannilu | #Ayisha  | #Shorts #YTshorts](https://www.youtube.com/watch?v=8MIgx9Q7tOk)
-- [Sundhariye Chembaka Malare | Panthayakozhi | Shorts](https://www.youtube.com/watch?v=KhxMz0m999E)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
