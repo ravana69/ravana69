@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mangaladeepam Thiritheliyum |Sipaayi Lahala |Mukesh |Re Mastered Video Songs |Evergreen  Songs](https://www.youtube.com/watch?v=tTDLuJ48Lhg)
+- [ശാന്തമീ രാത്രിയിൽ | എന്ത് രസം ആണ് ഈ ഡാൻസ് 😍🕺| Johnnie Walker | Mammootty | K.J Yesudas](https://www.youtube.com/watch?v=ABe97knAux4)
 - [Marathaka Raavin Karayil | Ayal Kadha Ezhuthukayanu | K J Yesudas | Raveendran | Kaithapram](https://www.youtube.com/watch?v=ZZsEYyDnSH8)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 20th of June 2023](https://www.youtube.com/watch?v=Xec4JvMTNgo)
 - [മരുഭൂമികൾ ഉദ്യാനമാക്കുന്ന ദൈവം | Rev. Aneesh P Joseph | #shorts | #spiritual](https://www.youtube.com/watch?v=xOaWw1iFd1c)
 - [Aarodum Onnum | Narasimham | KJ Yesudas | M G Radhakrishnan | Gireesh Puthanchery](https://www.youtube.com/watch?v=oegbisiWS9w)
-- [ചന്ദന ചോലയിൽ | Chandana Cholayil | Sallapam | Dileep | Manju Warrier](https://www.youtube.com/watch?v=fyuNn1bShzY)
-- [Aaro Nee Aaro : Beautiful Romantic Duet by KJ Yesudas & Shweta Mohan  #shorts](https://www.youtube.com/watch?v=ipj-jcJxjpc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
