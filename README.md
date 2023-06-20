@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [20 June 2023](https://www.youtube.com/watch?v=lR4k4euEf00)
 - [Nannavoolla | Doctor Love | Kunchacko Boban | Bhavana | Benny Dayal | Vinu Thomas | Bhagath Manuel](https://www.youtube.com/watch?v=Z2xUUEYC0EI)
 - [Nee Entae Nadhanae | Worship Song | Kings & Queens Band | D media Kottayam | Karoke](https://www.youtube.com/watch?v=vze8dTNZ704)
 - [Mangaladeepam Thiritheliyum |Sipaayi Lahala |Mukesh |Re Mastered Video Songs |Evergreen  Songs](https://www.youtube.com/watch?v=tTDLuJ48Lhg)
 - [ശാന്തമീ രാത്രിയിൽ | എന്ത് രസം ആണ് ഈ ഡാൻസ് 😍🕺| Johnnie Walker | Mammootty | K.J Yesudas](https://www.youtube.com/watch?v=ABe97knAux4)
 - [Marathaka Raavin Karayil | Ayal Kadha Ezhuthukayanu | K J Yesudas | Raveendran | Kaithapram](https://www.youtube.com/watch?v=ZZsEYyDnSH8)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 20th of June 2023](https://www.youtube.com/watch?v=Xec4JvMTNgo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
