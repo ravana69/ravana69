@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മനസിന് കുളിരേകും മലയാള സിനിമയിലെ നിത്യ മനോഹര ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=MklhzUGykiw)
 - [മലയാളി പ്രേക്ഷകർ എന്നും കേൾക്കാൻ ആഗ്രഹിക്കുന്ന മലയാള സിനിമയിലെ രസികൻ ഗാനങ്ങൾ |Evergreen Songs](https://www.youtube.com/watch?v=bdD844DP6B8)
 - [Kannil nilamukham |Sooryamaanasam |Maragathamani |Re Mastered Video Song |Mano |Evergreen Songs](https://www.youtube.com/watch?v=nUpc-wadQ68)
 - [ലോകമെങ്ങും ആളുകൾ കൂടുതലായി കേൾക്കുന്ന ക്രിസ്തീയ ഗാനങ്ങൾ |Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=iJR0YCpH_yk)
 - [Celebrating World Music Day 2023 Malayalam Songs Jukebox | Evergreen Mollywood Songs |Malayalam Hits](https://www.youtube.com/watch?v=P6MVE-PMKpE)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 21st of June 2023](https://www.youtube.com/watch?v=h9LPDNkqcCo)
-- [ദൈവം നൽകിയിരിക്കുന്ന അനുഗ്രഹങ്ങൾ ആണ് ഓർമയും മറവിയും|  Rev. Aneesh P Joseph | #shorts | #spiritual](https://www.youtube.com/watch?v=6fBLpWRYLBU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
