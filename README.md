@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Omal Chiriyo❤️ Dileep hit Song](https://www.youtube.com/watch?v=8lm4nk819jA)
+- [World Music Day - 2023 - Specials (Malayalam) | Aadharanjali | Mandarappoove | Kannilu Kannilu](https://www.youtube.com/watch?v=6KJyY2RKGdw)
+- [Hey Pachappalunke | Mullavalliyum Thenmavum | Jyotsna | Balu | Ouseppachan | Gireesh Puthanchery](https://www.youtube.com/watch?v=wfmolv_enJI)
 - [Mahitham | Aathmeeya Nirvrithiyekunna Kristheeya Bhakthigaanangal | Audio JukeBox](https://www.youtube.com/watch?v=U0cqJcNVzug)
 - [Pokathe Penne Lyrical Song | 3moorthy | Sarathlal Nemibhuvan | Gokul Karma | Shine K  Karun](https://www.youtube.com/watch?v=Liifz0uYj3g)
 - [Feel the song #LaamaLaama - Promo Song | #BhagavanDasanteRamarajyam | #SoorajSanthosh | #shorts](https://www.youtube.com/watch?v=xaV9qiY9UQQ)
-- [Melle Melle | Lyrical  Video | Sagar Alias Jacky Reloaded | Mohanlal | Gopi Sundar | Joffey Tharakan](https://www.youtube.com/watch?v=pwhWbRARjnw)
-- [Muththaram Muthunde | Mr Butler | Dileep | Ruchitha Prasad | MG Sreekumar | Harini | Vidyasagar](https://www.youtube.com/watch?v=942P0TJnovI)
-- [G . VENUGOPAL HITS CHRISTIAN DEVOTIONAL SONGS |OWN MEDIA MUSIC|](https://www.youtube.com/watch?v=67J43OAvz-o)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
