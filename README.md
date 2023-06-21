@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [G . VENUGOPAL HITS CHRISTIAN DEVOTIONAL SONGS |OWN MEDIA MUSIC|](https://www.youtube.com/watch?v=67J43OAvz-o)
 - [En Karangal | En Priyane | Kester | R S Vijayaraj | Shorts](https://www.youtube.com/watch?v=8aM-our1GZs)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 21st June 2023 # Novena to the Sacred Heart of Jesus 21st June 2023](https://www.youtube.com/watch?v=iiLYK1r3BYQ)
 - [Njanennil Kaanunnennum |Christian Video Song |Shibu Antony |Chittoor Gopi |Joji Johns |Christian](https://www.youtube.com/watch?v=v2tGXWXC2ME)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #21st June   mother Mary morning songs](https://www.youtube.com/watch?v=c1-X3tvSXF0)
 - [Japamala 21st of June 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 21st of June  2023](https://www.youtube.com/watch?v=oO11Z6RubCo)
-- [രാവിലെ പ്രാര്‍ത്ഥന June 21 # Athiravile Prarthana 21st of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=_TEtpZStjzE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
