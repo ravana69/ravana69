@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 22nd June 2023](https://www.youtube.com/watch?v=ejj6gf3ge2M)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=5c5MqhZz6GI)
 - [കണ്ണീരുമായിക്കുന്ന  സ്നേഹമല്ലേ...](https://www.youtube.com/watch?v=-upuwPH0uEA)
 - [Prakrutheeshwari Ninte | Vasanthiyum Lakshmiyum Pinne Njanum | Kalabhavan Mani | Yesudas | Vinayan](https://www.youtube.com/watch?v=ozTMYWI9Q1U)
 - [മനസിന് കുളിരേകും മലയാള സിനിമയിലെ നിത്യ മനോഹര ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=MklhzUGykiw)
 - [മലയാളി പ്രേക്ഷകർ എന്നും കേൾക്കാൻ ആഗ്രഹിക്കുന്ന മലയാള സിനിമയിലെ രസികൻ ഗാനങ്ങൾ |Evergreen Songs](https://www.youtube.com/watch?v=bdD844DP6B8)
-- [Kannil nilamukham |Sooryamaanasam |Maragathamani |Re Mastered Video Song |Mano |Evergreen Songs](https://www.youtube.com/watch?v=nUpc-wadQ68)
-- [ലോകമെങ്ങും ആളുകൾ കൂടുതലായി കേൾക്കുന്ന ക്രിസ്തീയ ഗാനങ്ങൾ |Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=iJR0YCpH_yk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
