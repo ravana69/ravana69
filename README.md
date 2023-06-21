@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 21st of June 2023](https://www.youtube.com/watch?v=h9LPDNkqcCo)
+- [ദൈവം നൽകിയിരിക്കുന്ന അനുഗ്രഹങ്ങൾ ആണ് ഓർമയും മറവിയും|  Rev. Aneesh P Joseph | #shorts | #spiritual](https://www.youtube.com/watch?v=6fBLpWRYLBU)
+- [Thinkaloru Thanka Thambalam | Ayal Kadha Ezhuthukayanu | KS Chithra | Raveendran | Kaithapram](https://www.youtube.com/watch?v=3t9-rhxsR_U)
 - [Omal Chiriyo❤️ Dileep hit Song](https://www.youtube.com/watch?v=8lm4nk819jA)
 - [World Music Day - 2023 - Specials (Malayalam) | Aadharanjali | Mandarappoove | Kannilu Kannilu](https://www.youtube.com/watch?v=6KJyY2RKGdw)
 - [Hey Pachappalunke | Mullavalliyum Thenmavum | Jyotsna | Balu | Ouseppachan | Gireesh Puthanchery](https://www.youtube.com/watch?v=wfmolv_enJI)
-- [Mahitham | Aathmeeya Nirvrithiyekunna Kristheeya Bhakthigaanangal | Audio JukeBox](https://www.youtube.com/watch?v=U0cqJcNVzug)
-- [Pokathe Penne Lyrical Song | 3moorthy | Sarathlal Nemibhuvan | Gokul Karma | Shine K  Karun](https://www.youtube.com/watch?v=Liifz0uYj3g)
-- [Feel the song #LaamaLaama - Promo Song | #BhagavanDasanteRamarajyam | #SoorajSanthosh | #shorts](https://www.youtube.com/watch?v=xaV9qiY9UQQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
