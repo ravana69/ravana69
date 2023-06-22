@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Coming Soon : DJ Remix of Super Hit Malayalam Movie Songs #shorts](https://www.youtube.com/watch?v=0XOqYjMqe6U)
 - [Coming Soon : DJ Remix of Super Hit Malayalam Movie Songs #shorts](https://www.youtube.com/watch?v=GIsMq-T7QLY)
+- [Trailer | Purple Poppins | MBS Shine | Nissa | Tapan Dev | M G Ajith | Siyaram Productions](https://www.youtube.com/watch?v=0x-HH_mn_JY)
+- [Kulirormayayi | Lyrical Video | Purple Popins | Nidhin Raj | Nirshad Nini | Malayalam Film Songs](https://www.youtube.com/watch?v=OBls2mzLsBo)
 - [Viswasa Porattamanithu | Daivam Ezhunnelkkunnu | RSV | Kester | Shorts](https://www.youtube.com/watch?v=5wGfNHbYsKE)
 - [കണ്ണീർ തുള്ളികൾ കുപ്പിയിൽ  ശേഖരിക്കും കാരുണ്യവാനാം  യേശുവിൻ  അപദാനങ്ങൾ |Christian Devotional Songs](https://www.youtube.com/watch?v=wEHD9yb9cpM)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 22nd June 2023 # Novena to the Sacred Heart of Jesus 22nd June 2023](https://www.youtube.com/watch?v=wkCCl67vALY)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #june 22nd 2023 mother Mary hits](https://www.youtube.com/watch?v=Id2Rz7ffY2Q)
-- [Japamala 22nd of June 2023 # Mathavinte Japamala # Prakashathinte Rahasyangal 22nd of June 2023](https://www.youtube.com/watch?v=bAIIBBwF1A4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
