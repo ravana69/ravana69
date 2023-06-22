@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chilambolikatte | CID Moosa | Dileep | Bhavana | Vidyasagar| Udit Narayan | Gireesh Puthanchery](https://www.youtube.com/watch?v=bcOibz4_HLg)
 - [22 June 2023](https://www.youtube.com/watch?v=ZgDhEAK3Dkw)
 - [Unarvin Varam Labhippaan |Binoy Chacko | Convention song|Praise And Worship Song](https://www.youtube.com/watch?v=lFaVECH8e3c)
 - [Muthu Mazha Konjal Pole Video Song | Big B | Mamta | Amal Neerad | Vineeth Sreenivasan | Jyotsna](https://www.youtube.com/watch?v=vTMZKD78mrg)
 - [Aalelo Pulelo | Pranayavarnangal |  V Devanand | Sreenivas | Vidyasagar  | Gireesh Puthenchery](https://www.youtube.com/watch?v=v30RgM9FPrg)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 22nd of June 2023](https://www.youtube.com/watch?v=cbEaHQmjaiA)
-- [ദൈവം നൽകിയ വരദാനമാണ് ഈ ജീവിതം | Rev. Aneesh P Joseph | #shorts | #spiritual](https://www.youtube.com/watch?v=5yOOXo0_c-o)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
