@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന June 23 # Athiravile Prarthana 23rd of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=l_XX1ASz7II)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 23rd June 2023](https://www.youtube.com/watch?v=iyGucLgLRpY)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=4A_2smGVXj0)
 - [Chilambolikatte | CID Moosa | Dileep | Bhavana | Vidyasagar| Udit Narayan | Gireesh Puthanchery](https://www.youtube.com/watch?v=bcOibz4_HLg)
 - [22 June 2023](https://www.youtube.com/watch?v=ZgDhEAK3Dkw)
 - [Unarvin Varam Labhippaan |Binoy Chacko | Convention song|Praise And Worship Song](https://www.youtube.com/watch?v=lFaVECH8e3c)
-- [Muthu Mazha Konjal Pole Video Song | Big B | Mamta | Amal Neerad | Vineeth Sreenivasan | Jyotsna](https://www.youtube.com/watch?v=vTMZKD78mrg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
