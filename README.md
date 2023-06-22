@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 22nd of June 2023](https://www.youtube.com/watch?v=cbEaHQmjaiA)
+- [ദൈവം നൽകിയ വരദാനമാണ് ഈ ജീവിതം | Rev. Aneesh P Joseph | #shorts | #spiritual](https://www.youtube.com/watch?v=5yOOXo0_c-o)
+- [Poovinnullil Poomazha | Malayalam Movie Song | Rain Rain Comed Again | Jassie Gift | Ajay | Divya](https://www.youtube.com/watch?v=6f5oDDHIRho)
+- [Amme Nile | Narasimham | MG Sreekumar| M G Radhakrishnan | Gireesh Puthanchery](https://www.youtube.com/watch?v=06quHkv4azg)
 - [Hype for the song #KanniluKannilu | #Ayisha  | #Shorts #YTshorts](https://www.youtube.com/watch?v=D2QsO5fBWqk)
 - [Kayyethum Doorath | Pappachan Olivilanu | Shorts | Vineeth Sreenivasan | Ouseppachan | Sinto Sunny](https://www.youtube.com/watch?v=yV478GejeSA)
-- [Ennennum Karuthunnon Yeshu Karaoke with Lyrics | Christian Karaoke | Karaoke Track](https://www.youtube.com/watch?v=m9z62QSMz_w)
-- [#mehabooba 😍🖤 #kgfchapter2 #rockingstaryash #prashanthneel #ravibasrur #shorts #status](https://www.youtube.com/watch?v=d9cejgDC3S8)
-- [Thalamorungi | Kalyana Thallu | Vineeth Sreenivasan | PG Ragesh | Midhun Bose | Abhishek Udayakumar](https://www.youtube.com/watch?v=amAPSZR3ggo)
-- [David's Harp Heavenly Breeze | Kristheeya Bhakthi Gaanangal | Christian Devotional Songs](https://www.youtube.com/watch?v=cLD9L0WSj2U)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
