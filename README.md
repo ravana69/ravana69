@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 24th June 2023](https://www.youtube.com/watch?v=l7nGBS9x9Ag)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=pXtRRkxLGJU)
 - [23 June 2023](https://www.youtube.com/watch?v=3PlsJQGA2aE)
 - [Megharoodanay - Vishudhiye Thikachu Naam | K.G.Markose | Vettamala Philipose Upadeshi | Shorts](https://www.youtube.com/watch?v=0YDGR0erIPQ)
 - [Appamayi Koodashayayen   Christian Video Song   Ramesh Murali   Shibu Antony Mavelikkara  Joji Johns](https://www.youtube.com/watch?v=n6a-wgw_LRw)
 - [RDX - Motion Poster | Shane Nigam, Antony Varghese, Neeraj Madhav | Nahas Hidhayath | Sam C S](https://www.youtube.com/watch?v=rjWvL3g2FYk)
-- [Mullapoovin motte|Pattanathil Sundaran|Dileep|Navya Nair|Cochin Haneefa|](https://www.youtube.com/watch?v=rPvfm7UMfxQ)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 23rd of June 2023](https://www.youtube.com/watch?v=fVveBYuTKD4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
