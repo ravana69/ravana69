@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [23 June 2023](https://www.youtube.com/watch?v=3PlsJQGA2aE)
 - [Megharoodanay - Vishudhiye Thikachu Naam | K.G.Markose | Vettamala Philipose Upadeshi | Shorts](https://www.youtube.com/watch?v=0YDGR0erIPQ)
 - [Appamayi Koodashayayen   Christian Video Song   Ramesh Murali   Shibu Antony Mavelikkara  Joji Johns](https://www.youtube.com/watch?v=n6a-wgw_LRw)
 - [RDX - Motion Poster | Shane Nigam, Antony Varghese, Neeraj Madhav | Nahas Hidhayath | Sam C S](https://www.youtube.com/watch?v=rjWvL3g2FYk)
 - [Mullapoovin motte|Pattanathil Sundaran|Dileep|Navya Nair|Cochin Haneefa|](https://www.youtube.com/watch?v=rPvfm7UMfxQ)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 23rd of June 2023](https://www.youtube.com/watch?v=fVveBYuTKD4)
-- [മറ്റുള്ളവരെ കേട്ടിരിക്കുന്ന സമയം അവർക്ക് അഭയം നൽകുകയാണ് |Rev. Aneesh P Joseph | #shorts | #spiritual](https://www.youtube.com/watch?v=Y9K8x_9bZV4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
