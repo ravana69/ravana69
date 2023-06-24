@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vazhiyil Veenidathe - Asadhyamayavaye | Shorts |  K G Markose | Fr. Justin Jose](https://www.youtube.com/watch?v=FfBKWLW9aWo)
+- [സ്വർഗ്ഗതുല്യമായ അനുഭവമേകും ക്രിസ്തീയ ഗാനങ്ങൾ |Christian Video Songs|K G Markose |Madhu Balakrishnan](https://www.youtube.com/watch?v=dey8FAq-y5w)
+- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 24th June 2023 # Novena to the Sacred Heart of Jesus 24th June 2023](https://www.youtube.com/watch?v=LZctL2U-pXY)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #June 24th  mother Mary morning songs #vachanam](https://www.youtube.com/watch?v=HaH9VFL0RXQ)
+- [Japamala  24th of June  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 24th of June  2023](https://www.youtube.com/watch?v=CfGTPc4J1e8)
 - [രാവിലെ പ്രാര്‍ത്ഥന June 24 # Athiravile Prarthana 24th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=Gp15TSy87lM)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 24th June 2023](https://www.youtube.com/watch?v=l7nGBS9x9Ag)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=pXtRRkxLGJU)
-- [23 June 2023](https://www.youtube.com/watch?v=3PlsJQGA2aE)
-- [Megharoodanay - Vishudhiye Thikachu Naam | K.G.Markose | Vettamala Philipose Upadeshi | Shorts](https://www.youtube.com/watch?v=0YDGR0erIPQ)
-- [Appamayi Koodashayayen   Christian Video Song   Ramesh Murali   Shibu Antony Mavelikkara  Joji Johns](https://www.youtube.com/watch?v=n6a-wgw_LRw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
