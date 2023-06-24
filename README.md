@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Yaathrayaai Sooryanum - Lyrical Video | Agninakshathram | KJ Yesudas | Raveendran | Mohanlal](https://www.youtube.com/watch?v=EPusPHoSCwA)
-- [Parable of the Lost Goat | Bible Stories | Malayalam Bible Story | Bible Animation Videos](https://www.youtube.com/watch?v=d9js4LsCzo8)
-- [Zionil Vaazhunna Daivam | Kelkkaan Kothikkunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=vuRaYBdLGwY)
-- [മഴയുടെ സംഗീതം പോൽ മനസിൽ പെയ്തിറങ്ങിയ മലയാളസിനിമാഗാനങ്ങൾ | MALAYALAM SUPERHIT SONGS](https://www.youtube.com/watch?v=Jn0usslsfYg)
-- [സംഗീതമഴയായി മനസ്സ് കീഴടക്കും മലയാളസിനിമയിലെ സൂപ്പർഹിറ്റ് ചലച്ചിത്രഗാനങ്ങൾ | SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=8w_iF4fJKSo)
-- [Dancing moment of #LaamaLaama - Promo Song | #BhagavanDasanteRamarajyam | #SoorajSanthosh | #shorts](https://www.youtube.com/watch?v=jwM5H5BGbxY)
+- [Akkuthikkuthadaan  Vaayo | Kaliyoonjal | KS Chithra |  Ilayaraja | Kaithapram](https://www.youtube.com/watch?v=TneoBCkrMY0)
+- [Pathimoonnam Rathri | Official Teaser|Maneesh Babu| Shine Tom Chacko | Vishnu Unnikrishnan|D2K Films](https://www.youtube.com/watch?v=bL0wKv_V9bY)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 24th of June 2023](https://www.youtube.com/watch?v=IDM_gGCAxd8)
+- [Vaanavillen Video Song | SAFE | Rahul Subrahmanian | K S Harisankar | Malayalam Movie Songs](https://www.youtube.com/watch?v=FPULdrPTS0A)
+- [ദൈവത്തിലാശ്രയിക്കുന്നവൻ ചീത്ത ചിന്തകളിൽ നിന്നും സുരക്ഷിതനാകും| Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=2DAYVpnUBuw)
+- [O Priye | Aniyathipravu | MG Sreekumar | Sujatha Mohan | Arundhathi | Ouseppachan | S Ramesan Nair](https://www.youtube.com/watch?v=PNIx80S2h-4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
