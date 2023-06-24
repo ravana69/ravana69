@@ -34,10 +34,10 @@
 <!-- BLOGPOSTS:START -->
 - [Thiruvarangil | Udayon | Madhu Balakrishnan | Mohanlal | Jagathy | Ouseppchan | Gireesh Puthanchery](https://www.youtube.com/watch?v=KqBb1aPJihQ)
 - [Love You Muthe - Lyrical | Padmini | Jakes Bejoy | Kunchacko Boban | Vidyadharan Master |Senna Hegde](https://www.youtube.com/watch?v=W5pGaMBEdww)
+- [Konnadi Penne - Video | Nadhikalil Sundari Yamuna | Aju Varghese | Arun Muraleedharan](https://www.youtube.com/watch?v=2x9Uest3EDg)
 - [ദൈവത്തിൽ ആശ്രയിച്ചു മുന്നേറാൻ മനസൊരുക്കും അനിഷേധ്യ ഗാനങ്ങൾ |Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=bdMASLs1gnc)
 - [Nishagandhi Poothu Chirichu | Nanni Veendum Varika | Shyam | KS Chithra | Mammootty | Urvashi](https://www.youtube.com/watch?v=5Q59QOcBDZw)
 - [Akkuthikkuthadaan  Vaayo | Kaliyoonjal | KS Chithra |  Ilayaraja | Kaithapram](https://www.youtube.com/watch?v=TneoBCkrMY0)
-- [Pathimoonnam Rathri | Official Teaser|Maneesh Babu| Shine Tom Chacko | Vishnu Unnikrishnan|D2K Films](https://www.youtube.com/watch?v=bL0wKv_V9bY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
