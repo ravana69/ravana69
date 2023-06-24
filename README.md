@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ദൈവത്തിൽ ആശ്രയിച്ചു മുന്നേറാൻ മനസൊരുക്കും അനിഷേധ്യ ഗാനങ്ങൾ |Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=bdMASLs1gnc)
+- [Nishagandhi Poothu Chirichu | Nanni Veendum Varika | Shyam | KS Chithra | Mammootty | Urvashi](https://www.youtube.com/watch?v=5Q59QOcBDZw)
 - [Akkuthikkuthadaan  Vaayo | Kaliyoonjal | KS Chithra |  Ilayaraja | Kaithapram](https://www.youtube.com/watch?v=TneoBCkrMY0)
 - [Pathimoonnam Rathri | Official Teaser|Maneesh Babu| Shine Tom Chacko | Vishnu Unnikrishnan|D2K Films](https://www.youtube.com/watch?v=bL0wKv_V9bY)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 24th of June 2023](https://www.youtube.com/watch?v=IDM_gGCAxd8)
 - [Vaanavillen Video Song | SAFE | Rahul Subrahmanian | K S Harisankar | Malayalam Movie Songs](https://www.youtube.com/watch?v=FPULdrPTS0A)
-- [ദൈവത്തിലാശ്രയിക്കുന്നവൻ ചീത്ത ചിന്തകളിൽ നിന്നും സുരക്ഷിതനാകും| Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=2DAYVpnUBuw)
-- [O Priye | Aniyathipravu | MG Sreekumar | Sujatha Mohan | Arundhathi | Ouseppachan | S Ramesan Nair](https://www.youtube.com/watch?v=PNIx80S2h-4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
