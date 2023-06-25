@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Iniyum Kothiyode | Beautiful song by K J Yesudas from Bharya Onnu Makkal moonu #shorts](https://www.youtube.com/watch?v=jsfX2ww0Sqw)
 - [Shorts | Vineeth Sreenivasan | Kayyethum Doorath | Pappachan Olivilanu | Ouseppachan | Sinto Sunny](https://www.youtube.com/watch?v=kBsV2eR28OA)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 25th June 2023 # Novena to the Sacred Heart of Jesus 25th June 2023](https://www.youtube.com/watch?v=ny5d6ETcElU)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #June 25th  mother mary morning songs #vachanam aud](https://www.youtube.com/watch?v=-fL88rn0-fo)
 - [Japamala 25th of June 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 25th of June  2023](https://www.youtube.com/watch?v=afpPCwZeBPk)
 - [പ്രഭാത പ്രാര്‍ത്ഥന June 25 # Athiravile Prarthana 25th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=XeZMaWRgX_g)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 25th June 2023](https://www.youtube.com/watch?v=6ALspKBKXAk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
