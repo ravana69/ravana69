@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 26th June 2023](https://www.youtube.com/watch?v=oyzEJ0ALfTk)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=mxP4Y9S7yzI)
 - [25 June 2023](https://www.youtube.com/watch?v=_rQnhtSVD-Q)
 - [Manmadhanalle | Inspector Garud | Afsal | Alex Paul | Kavya Madhavan | Dileep | Santhosh Varma](https://www.youtube.com/watch?v=bvkN6NP7Dm4)
 - [ദിശയറിയാതെ  അലയുന്നവർക്ക് അത്താണിയായി മാറുന്ന ഗാനങ്ങൾ |Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=Zltx0Wx5rNA)
 - [അമ്മ മീറ്റിങ്ങിൽ തിളങ്ങിയ താരനായികമാർ | Amma General Body Meeting 2023](https://www.youtube.com/watch?v=Fsb5A_mQxJE)
-- [സിംപിൾ ലുക്കിൽ സാനിയ അയ്യപ്പനും ബേബി നയൻതാരയും ! Amma General Body Meeting 2023](https://www.youtube.com/watch?v=7zkI7BicBAI)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 25th of June 2023](https://www.youtube.com/watch?v=TPUncR6-I3Y)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
