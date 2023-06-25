@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പാട്ടുപെട്ടി - Paattupetti Vol 13 | Malayalam Film Songs](https://www.youtube.com/watch?v=D5IPJU1NtyY)
+- [Kukkoo Kukkoo Kuyile | Mukesh | Divya Unni | Mohan Sithara | Chithra | Video Song](https://www.youtube.com/watch?v=KiXkr-AVu1A)
+- [Step up for #KanniluKannilu | #Ayisha  | #Shorts #YTshorts](https://www.youtube.com/watch?v=T_x1kkUcEZw)
+- [Kandu Kandu | Mambazhakkalam | Lyrical Video | Gireesh Puthenchery | M Jayachandran | Mohanlal](https://www.youtube.com/watch?v=NaCqLjeF3EM)
 - [Iniyum Kothiyode | Beautiful song by K J Yesudas from Bharya Onnu Makkal moonu #shorts](https://www.youtube.com/watch?v=jsfX2ww0Sqw)
 - [Shorts | Vineeth Sreenivasan | Kayyethum Doorath | Pappachan Olivilanu | Ouseppachan | Sinto Sunny](https://www.youtube.com/watch?v=kBsV2eR28OA)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 25th June 2023 # Novena to the Sacred Heart of Jesus 25th June 2023](https://www.youtube.com/watch?v=ny5d6ETcElU)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #June 25th  mother mary morning songs #vachanam aud](https://www.youtube.com/watch?v=-fL88rn0-fo)
-- [Japamala 25th of June 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 25th of June  2023](https://www.youtube.com/watch?v=afpPCwZeBPk)
-- [പ്രഭാത പ്രാര്‍ത്ഥന June 25 # Athiravile Prarthana 25th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=XeZMaWRgX_g)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
