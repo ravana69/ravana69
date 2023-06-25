@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manmadhanalle | Inspector Garud | Afsal | Alex Paul | Kavya Madhavan | Dileep | Santhosh Varma](https://www.youtube.com/watch?v=bvkN6NP7Dm4)
 - [ദിശയറിയാതെ  അലയുന്നവർക്ക് അത്താണിയായി മാറുന്ന ഗാനങ്ങൾ |Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=Zltx0Wx5rNA)
 - [അമ്മ മീറ്റിങ്ങിൽ തിളങ്ങിയ താരനായികമാർ | Amma General Body Meeting 2023](https://www.youtube.com/watch?v=Fsb5A_mQxJE)
 - [സിംപിൾ ലുക്കിൽ സാനിയ അയ്യപ്പനും ബേബി നയൻതാരയും ! Amma General Body Meeting 2023](https://www.youtube.com/watch?v=7zkI7BicBAI)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 25th of June 2023](https://www.youtube.com/watch?v=TPUncR6-I3Y)
 - [നമുക്ക് നൊമ്പരങ്ങൾ സമ്മാനിച്ചവർക്ക് നന്ദി പറയാം | Rev. Aneesh P Joseph | #shorts | #spiritual](https://www.youtube.com/watch?v=1LT-RLRJYH8)
-- [സാരിയിൽ സുന്ദരിയായി മാളവിക നായർ ! Amma General Meeting 2023 | Malavika Nair](https://www.youtube.com/watch?v=AkmJAhQFG0M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
