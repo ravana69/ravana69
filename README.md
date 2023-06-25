@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [kannada movie sound recording at D media Kottayam, Kerala](https://www.youtube.com/watch?v=FwuCaZz9Jgs)
 - [പാട്ടുപെട്ടി - Paattupetti Vol 13 | Malayalam Film Songs](https://www.youtube.com/watch?v=D5IPJU1NtyY)
 - [Kukkoo Kukkoo Kuyile | Mukesh | Divya Unni | Mohan Sithara | Chithra | Video Song](https://www.youtube.com/watch?v=KiXkr-AVu1A)
 - [Step up for #KanniluKannilu | #Ayisha  | #Shorts #YTshorts](https://www.youtube.com/watch?v=T_x1kkUcEZw)
 - [Kandu Kandu | Mambazhakkalam | Lyrical Video | Gireesh Puthenchery | M Jayachandran | Mohanlal](https://www.youtube.com/watch?v=NaCqLjeF3EM)
 - [Iniyum Kothiyode | Beautiful song by K J Yesudas from Bharya Onnu Makkal moonu #shorts](https://www.youtube.com/watch?v=jsfX2ww0Sqw)
-- [Shorts | Vineeth Sreenivasan | Kayyethum Doorath | Pappachan Olivilanu | Ouseppachan | Sinto Sunny](https://www.youtube.com/watch?v=kBsV2eR28OA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
