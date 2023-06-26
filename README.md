@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [ഇച്ചാക്കയും ലാലേട്ടനും തമ്മിലുള്ള സ്നേഹം കണ്ടോ !Amma General Body Meeting 2023 #mohanlal #mammootty](https://www.youtube.com/watch?v=yC6HmsHXJVA)
-- [നിങ്ങളെ കൂടെ നിർത്തിയാൽ അത്രയും അപകടം കുറഞ്ഞല്ലോ ! ടോവിനോയുടെ കിടിലൻ മറുപടി ! Amma Meeting 2023](https://www.youtube.com/watch?v=4p3xGCpedrs)
-- [Ethrayennariyatha Karunyam |Biju Narayanan Paadiya Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=YDc3F9KwzUg)
-- [Eeshoye Ee Bhoovil karaoke | Baby John Kalayanthani | Malayalam Christian Karaoke | Minus Tracks](https://www.youtube.com/watch?v=mewYSLIO0E4)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=8n9A_C4L3Jo)
-- [Ona Veyil Olangalil | Bombay March 12 | Karaoke Video | Mammootty | Rafeeque Ahammed | Afzal Yusuff](https://www.youtube.com/watch?v=pGxYhduMtEI)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 26th of June 2023](https://www.youtube.com/watch?v=tcPDKr9tNb4)
+- [ഈ ചെറിയവരിൽ ഒരുവന് നിങ്ങൾ ചെയ്യുന്നതെല്ലാം എനിക്കുതന്നെയാണ്  ചെയ്തിരിക്കുന്നത് |Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=sQjBTnZWzE4)
+- [Mohan Sithara, K.J. Yesudas - Bhoochakravaalangalil (Lyric Video)](https://www.youtube.com/watch?v=SOYxHjgl1O4)
+- [Raveendran, K.S. Chithra - Aarum Aarum Pinvili (Lyric Video)](https://www.youtube.com/watch?v=M-W4RDCvIrI)
+- [Raveendran, Sujatha, Manoj Krishnan - Swarnappakshi (Lyric Video)](https://www.youtube.com/watch?v=QsXhnOojXIc)
+- [Endhinu Veroru Sooryodayam (Version, 1) (Lyric Video)](https://www.youtube.com/watch?v=svT-dRSnWkg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
