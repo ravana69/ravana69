@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 27th June 2023](https://www.youtube.com/watch?v=aa7bq_ngGnw)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=qpos7obrPB8)
 - [Shyamasandhye | Sagaram Sakshi | Mammootty | Yesudas | Kaithapram | Sibi Malayil](https://www.youtube.com/watch?v=pAbG7g2-Y3w)
 - [26 June 2023](https://www.youtube.com/watch?v=byEodlAqj9M)
 - [ശാന്തമായി നിന്ന് പ്രാർത്ഥിക്കാൻ മനസിന് പ്രേരണ നൽകും ഗാനങ്ങൾ |K S Chithra |Christian Prayer Songs](https://www.youtube.com/watch?v=DI4ZVq_yFDg)
 - [Tharakkoottam | Oru Maravathoor Kanavu | MG Sreekumar | Sreenvas | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=pn-lTvUPuBo)
-- [Bhagavan Dasante Ramarajyam - The Making | Akshay Radhakrishnan, Nandana Rajan | Rasheed Parambil](https://www.youtube.com/watch?v=otJ03roW_6c)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 26th of June 2023](https://www.youtube.com/watch?v=tcPDKr9tNb4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
