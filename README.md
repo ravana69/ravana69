@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ശാന്തമായി നിന്ന് പ്രാർത്ഥിക്കാൻ മനസിന് പ്രേരണ നൽകും ഗാനങ്ങൾ |K S Chithra |Christian Prayer Songs](https://www.youtube.com/watch?v=DI4ZVq_yFDg)
 - [Tharakkoottam | Oru Maravathoor Kanavu | MG Sreekumar | Sreenvas | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=pn-lTvUPuBo)
 - [Bhagavan Dasante Ramarajyam - The Making | Akshay Radhakrishnan, Nandana Rajan | Rasheed Parambil](https://www.youtube.com/watch?v=otJ03roW_6c)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 26th of June 2023](https://www.youtube.com/watch?v=tcPDKr9tNb4)
 - [ഈ ചെറിയവരിൽ ഒരുവന് നിങ്ങൾ ചെയ്യുന്നതെല്ലാം എനിക്കുതന്നെയാണ്  ചെയ്തിരിക്കുന്നത് |Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=sQjBTnZWzE4)
 - [Mohan Sithara, K.J. Yesudas - Bhoochakravaalangalil (Lyric Video)](https://www.youtube.com/watch?v=SOYxHjgl1O4)
-- [Raveendran, K.S. Chithra - Aarum Aarum Pinvili (Lyric Video)](https://www.youtube.com/watch?v=M-W4RDCvIrI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
