@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ona Veyil Olangalil | Bombay March 12 | Karaoke Video | Mammootty | Rafeeque Ahammed | Afzal Yusuff](https://www.youtube.com/watch?v=pGxYhduMtEI)
+- [Duet Dance for #LaamaLaama - Promo Song | #BhagavanDasanteRamarajyam | #SoorajSanthosh | #shorts](https://www.youtube.com/watch?v=Y2_4li4WQMw)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 26th June 2023 # Novena to the Sacred Heart of Jesus 26th June 2023](https://www.youtube.com/watch?v=b9iTEhRyIns)
 - [Japamala  26th of June  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 26th of June  2023](https://www.youtube.com/watch?v=xruoA9ScfmU)
 - [രാവിലെ പ്രാര്‍ത്ഥന June 26 # Athiravile Prarthana 26th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=YTn9F_X7yQI)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 26th June 2023](https://www.youtube.com/watch?v=oyzEJ0ALfTk)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=mxP4Y9S7yzI)
-- [25 June 2023](https://www.youtube.com/watch?v=_rQnhtSVD-Q)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
