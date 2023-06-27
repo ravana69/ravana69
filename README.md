@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 27th June 2023 # Novena to the Sacred Heart of Jesus 27th June 2023](https://www.youtube.com/watch?v=p4HXDACXnFs)
+- [ഇഷ്ട ഗായകൻ കെസ്റ്റർ ആലപിച്ച എക്കാലത്തെയും മികച്ച ക്രിസ്തീയ ഗാനങ്ങൾ |Kester |Christian Songs](https://www.youtube.com/watch?v=3siCWvIe1xA)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം # June 27th mother Mary songs Malayalam best](https://www.youtube.com/watch?v=f-ICGc80NeI)
+- [Japamala 27th of June 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 27th of June  2023](https://www.youtube.com/watch?v=QiyyDCK89vs)
 - [പ്രഭാത പ്രാര്‍ത്ഥന June 27 # Athiravile Prarthana 27th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=i_Uf5V0PSjM)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 27th June 2023](https://www.youtube.com/watch?v=aa7bq_ngGnw)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=qpos7obrPB8)
-- [Shyamasandhye | Sagaram Sakshi | Mammootty | Yesudas | Kaithapram | Sibi Malayil](https://www.youtube.com/watch?v=pAbG7g2-Y3w)
-- [26 June 2023](https://www.youtube.com/watch?v=byEodlAqj9M)
-- [ശാന്തമായി നിന്ന് പ്രാർത്ഥിക്കാൻ മനസിന് പ്രേരണ നൽകും ഗാനങ്ങൾ |K S Chithra |Christian Prayer Songs](https://www.youtube.com/watch?v=DI4ZVq_yFDg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
