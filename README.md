@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [താര ജാടയില്ലാതെ എല്ലാവരോടും സൗഹൃദം കാണിച്ച്  ലാലേട്ടൻ Amma General Body Meeting 2023](https://www.youtube.com/watch?v=ByNHs-vR-Wo)
+- [Aniyathipravinu | Aniyathipravu | KS Chithra | Ouseppachan | S Ramesan Nair](https://www.youtube.com/watch?v=P5jXiRTkh0g)
 - [Himalayan Love Story - Music Video | Binoy Nalanda | Naresh Iyer | Varun Krrishna | Joe Paul](https://www.youtube.com/watch?v=7DIkDfG_4D0)
 - [ദൈവം നമ്മോടു കൂടെയുണ്ട് | Rev. Aneesh P Joseph | #shorts | #spiritual](https://www.youtube.com/watch?v=5oLIPwOf198)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 27th of June 2023](https://www.youtube.com/watch?v=73XzZu-CsQs)
 - [Shaaradendu Paadi | Kaliyoonjal | G Venugopal | Ilayaraja | Kaithapram](https://www.youtube.com/watch?v=rxmUcYkihPc)
-- [Coming Soon : DJ Remix of Super Hit Malayalam Movie Songs #shorts](https://www.youtube.com/watch?v=YA_41ap5vOM)
-- [Coming Soon : DJ Remix of Super Hit Malayalam Movie Songs #shorts](https://www.youtube.com/watch?v=-G_ZiccLA7o)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
