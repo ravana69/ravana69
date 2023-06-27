@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Himalayan Love Story - Music Video | Binoy Nalanda | Naresh Iyer | Varun Krrishna | Joe Paul](https://www.youtube.com/watch?v=7DIkDfG_4D0)
+- [ദൈവം നമ്മോടു കൂടെയുണ്ട് | Rev. Aneesh P Joseph | #shorts | #spiritual](https://www.youtube.com/watch?v=5oLIPwOf198)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 27th of June 2023](https://www.youtube.com/watch?v=73XzZu-CsQs)
+- [Shaaradendu Paadi | Kaliyoonjal | G Venugopal | Ilayaraja | Kaithapram](https://www.youtube.com/watch?v=rxmUcYkihPc)
 - [Coming Soon : DJ Remix of Super Hit Malayalam Movie Songs #shorts](https://www.youtube.com/watch?v=YA_41ap5vOM)
 - [Coming Soon : DJ Remix of Super Hit Malayalam Movie Songs #shorts](https://www.youtube.com/watch?v=-G_ZiccLA7o)
-- [Kanninte Kannalle - Lyrical Video | Agninakshathram | KS Chithra, Biju Narayanan | Raveendran](https://www.youtube.com/watch?v=sYx--SsHVsg)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=9oKlEZ7LtWI)
-- [Kuthazhinjangingo / കുത്തഴിഞ്ഞങിങ്ങോ](https://www.youtube.com/watch?v=7IfM_EQcEdA)
-- [Lets dance for #KanniluKannilu | #Ayisha  | #Shorts #YTshorts](https://www.youtube.com/watch?v=fM7KiipFBNU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
