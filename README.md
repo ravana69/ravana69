@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Ooru Sanam Violin Cover 🎻 | Anooj | Ilayaraja](https://www.youtube.com/watch?v=FEYJs2uvzLk)
-- [Kochi song sung by Shine Tom Chacko release today evening 6 PM](https://www.youtube.com/watch?v=r0TGAKagfyQ)
-- [പൂങ്കനവിൻ നാണയങ്ങൾ | Poonkanavin  | Churam Malayalam Film Song | Johnson | KS Chithra | Divya Unni](https://www.youtube.com/watch?v=Nj1iuxUTXsI)
-- [എന്താണ് ബ്രോ മൊടയാണ ! പരസ്‌പരം ട്രോളി മഞ്ജുപിള്ളയും രചനയും ! Amma General Body Meeting](https://www.youtube.com/watch?v=nnoE0PorGqU)
-- [Kanaakkannil | Beautiful Romantic Song from the movie Police #shorts](https://www.youtube.com/watch?v=qdri03OlAC8)
-- [Oru Rathri Koodi Vidavaangave | Summer in Bathlehem | KJ Yesudas | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=wPOmU_SwP34)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 28th of June 2023](https://www.youtube.com/watch?v=OnjpIGOGYKY)
+- [Mappila Pattukal | മാപ്പിളപാട്ടുകൾ | Video Juke Box | Manorama Music](https://www.youtube.com/watch?v=3jKCTlGTt1w)
+- [നമ്മുടെ പാപങ്ങളെ മറന്നു, നമ്മെ ചേർത്തുപിടിയ്ക്കുന്ന ദൈവം | Rev. Aneesh P Joseph |#shorts |#spiritual](https://www.youtube.com/watch?v=AtULbGzQODM)
+- [Njanum Pinnoru Njanum - Second Teaser | Indrans,Jagadish,Joy Mathew | Rajasenan| M Jayachandran](https://www.youtube.com/watch?v=CvzjJt6ESss)
+- [Manathoru Pontharakam | Pranayanilavu | Dileep | Mohini | Kalabhavan Mani | Jagathi | Capt.Raju](https://www.youtube.com/watch?v=cZnmC3EZvu8)
+- [Kochi song sung by Shine Tom Chacko release today evening 6 PM](https://www.youtube.com/watch?v=_ALCkn3rmvk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
