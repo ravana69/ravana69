@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന June 29 # Athiravile Prarthana 29th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=8kJz2y15JXo)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 29th June 2023](https://www.youtube.com/watch?v=mCEC3Fj1zqY)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=iEMGINQr4xo)
 - [Thaimavin Thanalil | Oru Yathramozhi | Mohanlal | MG Sreelumar | KS Chithra | Ilaiyaraja](https://www.youtube.com/watch?v=vIhpTsrz_gI)
 - [ഓട്ടം ഓടുവാൻ അനേകർ | Nalla Porattam Poradi | Muttam GeeVarghese | Kester](https://www.youtube.com/watch?v=kCvSIZIqDXg)
 - [28 June 2023](https://www.youtube.com/watch?v=NiAsmnF54hY)
-- [സമൂഹത്തിൽ അവഗണിക്കപ്പെടുന്നവരെ വിലമതിക്കുന്ന യേശുവിൻ അനുപമ ഗാനങ്ങൾ](https://www.youtube.com/watch?v=hqzzHHvaQ-c)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
