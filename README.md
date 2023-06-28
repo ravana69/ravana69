@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mix-Up Bonanza Malayalam Jukebox | Selected Latest Malayalam Songs | Mollywood Hits](https://www.youtube.com/watch?v=OMj50hu2KWE)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #June 28th mother Mary morning songs #vachanam](https://www.youtube.com/watch?v=U7I7zP_iCsI)
 - [എന്നും മലയാളികൾ സന്തോഷത്തോടെ കേൾക്കുന്ന സൂപ്പർഹിറ്റ് ക്രിസ്തീയ ഗാനങ്ങൾ |Christian Devotional Songs](https://www.youtube.com/watch?v=eW1cmWeB3jI)
 - [ഇടറുന്ന മനസ്സുകളുടെ ഹൃദയത്തിൽ തൊട്ട ഗാനങ്ങൾ old kester hit songs | lazarine uyirpicha daivamanalo](https://www.youtube.com/watch?v=40kj2tD-G90)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 28th June 2023 # Novena to the Sacred Heart of Jesus 28th June 2023](https://www.youtube.com/watch?v=2ovpFAG8YPQ)
 - [Japamala 28th of June 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 28th of June  2023](https://www.youtube.com/watch?v=aNPCh6bkVXE)
-- [രാവിലെ പ്രാര്‍ത്ഥന June 28 # Athiravile Prarthana 28th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=U41BI-bgZvE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
