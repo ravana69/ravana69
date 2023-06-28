@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thaimavin Thanalil | Oru Yathramozhi | Mohanlal | MG Sreelumar | KS Chithra | Ilaiyaraja](https://www.youtube.com/watch?v=vIhpTsrz_gI)
 - [ഓട്ടം ഓടുവാൻ അനേകർ | Nalla Porattam Poradi | Muttam GeeVarghese | Kester](https://www.youtube.com/watch?v=kCvSIZIqDXg)
 - [28 June 2023](https://www.youtube.com/watch?v=NiAsmnF54hY)
 - [സമൂഹത്തിൽ അവഗണിക്കപ്പെടുന്നവരെ വിലമതിക്കുന്ന യേശുവിൻ അനുപമ ഗാനങ്ങൾ](https://www.youtube.com/watch?v=hqzzHHvaQ-c)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 28th of June 2023](https://www.youtube.com/watch?v=OnjpIGOGYKY)
 - [Mappila Pattukal | മാപ്പിളപാട്ടുകൾ | Video Juke Box | Manorama Music](https://www.youtube.com/watch?v=3jKCTlGTt1w)
-- [നമ്മുടെ പാപങ്ങളെ മറന്നു, നമ്മെ ചേർത്തുപിടിയ്ക്കുന്ന ദൈവം | Rev. Aneesh P Joseph |#shorts |#spiritual](https://www.youtube.com/watch?v=AtULbGzQODM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
