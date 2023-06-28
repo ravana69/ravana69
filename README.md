@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Kochi song sung by Shine Tom Chacko release today evening 6 PM](https://www.youtube.com/watch?v=qH_-LLDSZZc)
-- [Kochi song sung by Shine Tom Chacko release today evening 6 PM](https://www.youtube.com/watch?v=iAXyxrMdpME)
-- [Kochi song sung by Shine Tom Chacko release today 28th June  evening 6 PM](https://www.youtube.com/watch?v=vaZvf6imyas)
-- [Ephaathayaakunna Daivam | Hridayakavaadam Thurkkunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=eKt6pLDmtKs)
-- [മനസിന് എന്തെന്നില്ലാത്ത സന്തോഷം പകരുന്ന മലയാള ചലച്ചിത്രഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=5Y5fAL1BqT0)
-- [#LaamaLaama Beautiful Dance Video | #BhagavanDasanteRamarajyam | #SoorajSanthosh | #shorts](https://www.youtube.com/watch?v=wIgoc07QkI8)
+- [Ooru Sanam Violin Cover 🎻 | Anooj | Ilayaraja](https://www.youtube.com/watch?v=FEYJs2uvzLk)
+- [Kochi song sung by Shine Tom Chacko release today evening 6 PM](https://www.youtube.com/watch?v=r0TGAKagfyQ)
+- [പൂങ്കനവിൻ നാണയങ്ങൾ | Poonkanavin  | Churam Malayalam Film Song | Johnson | KS Chithra | Divya Unni](https://www.youtube.com/watch?v=Nj1iuxUTXsI)
+- [എന്താണ് ബ്രോ മൊടയാണ ! പരസ്‌പരം ട്രോളി മഞ്ജുപിള്ളയും രചനയും ! Amma General Body Meeting](https://www.youtube.com/watch?v=nnoE0PorGqU)
+- [Kanaakkannil | Beautiful Romantic Song from the movie Police #shorts](https://www.youtube.com/watch?v=qdri03OlAC8)
+- [Oru Rathri Koodi Vidavaangave | Summer in Bathlehem | KJ Yesudas | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=wPOmU_SwP34)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
