@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #June 28th mother Mary morning songs #vachanam](https://www.youtube.com/watch?v=U7I7zP_iCsI)
+- [എന്നും മലയാളികൾ സന്തോഷത്തോടെ കേൾക്കുന്ന സൂപ്പർഹിറ്റ് ക്രിസ്തീയ ഗാനങ്ങൾ |Christian Devotional Songs](https://www.youtube.com/watch?v=eW1cmWeB3jI)
+- [ഇടറുന്ന മനസ്സുകളുടെ ഹൃദയത്തിൽ തൊട്ട ഗാനങ്ങൾ old kester hit songs | lazarine uyirpicha daivamanalo](https://www.youtube.com/watch?v=40kj2tD-G90)
+- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 28th June 2023 # Novena to the Sacred Heart of Jesus 28th June 2023](https://www.youtube.com/watch?v=2ovpFAG8YPQ)
+- [Japamala 28th of June 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 28th of June  2023](https://www.youtube.com/watch?v=aNPCh6bkVXE)
 - [രാവിലെ പ്രാര്‍ത്ഥന June 28 # Athiravile Prarthana 28th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=U41BI-bgZvE)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 28th June 2023](https://www.youtube.com/watch?v=O6vXC5JOg9A)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=gv4Gb8NSyBQ)
-- [Non Stop Malayalam Christian Songs | Christian Song Videos | Nonstop Christian Songs by AnnaBaby](https://www.youtube.com/watch?v=_ALqaAkWvKc)
-- [സ്നേഹ സ്വരൂപനാം നാഥാ...](https://www.youtube.com/watch?v=hM6OkSITN_c)
-- [Pottu Thottu Ponnukondu | Nammal Thammil | Prithviraj | Geethu Mohandas | Madhu Balakrishnan](https://www.youtube.com/watch?v=kZ_GanAsdrE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
