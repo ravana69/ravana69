@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [രാവിലെ പ്രാര്‍ത്ഥന June 29 # Athiravile Prarthana 29th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=8kJz2y15JXo)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 29th June 2023](https://www.youtube.com/watch?v=mCEC3Fj1zqY)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=iEMGINQr4xo)
-- [Thaimavin Thanalil | Oru Yathramozhi | Mohanlal | MG Sreelumar | KS Chithra | Ilaiyaraja](https://www.youtube.com/watch?v=vIhpTsrz_gI)
-- [ഓട്ടം ഓടുവാൻ അനേകർ | Nalla Porattam Poradi | Muttam GeeVarghese | Kester](https://www.youtube.com/watch?v=kCvSIZIqDXg)
-- [28 June 2023](https://www.youtube.com/watch?v=NiAsmnF54hY)
+- [പണ്ടേതോ രാജ്യത്തെ രാജകുമാരിക്ക് 🥰| Sayyave Sayyave | Christian Brothers | Pandetho Rajyathe](https://www.youtube.com/watch?v=WLtgY-RDqaI)
+- [Nin Hridaya Mounam | Lyrical Video | Flash | Mohanlal | Vineeth Sreenivasan | Gopi Sundar](https://www.youtube.com/watch?v=G_miIrgl8EI)
+- [Vibe for #KanniluKannilu | #Ayisha  | #Shorts #YTshorts](https://www.youtube.com/watch?v=GoZryhXcB9I)
+- [Ninmizhiyal |Anoop S |Sam P Francis | Shabeer Ali | Meera Reghunath | Dr.Anagha |Naveen | Love Songs](https://www.youtube.com/watch?v=LTWKlG2O3v0)
+- [Maadathakili Maadathakili | Vajram | Mammootty | Nandhini | Pramod Pappan | Yesudas | Ouseppachan](https://www.youtube.com/watch?v=ZScluY2FzbI)
+- [Daivam Ezhunnelkkunnu | R S Vijayaraj | Kester](https://www.youtube.com/watch?v=hxtzkZMM5EU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
