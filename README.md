@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 30th June 2023](https://www.youtube.com/watch?v=kRxZlxZF7lE)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=r-P4eSyYyd8)
 - [29 June 2023](https://www.youtube.com/watch?v=tocO_PjwNHk)
 - [#malayalam #music #malayalamsongs #song #parvati #adhipan #mohanlal #parvathyjayaram](https://www.youtube.com/watch?v=WXqZUCMcUiA)
 - [Adamalle Ee Manniladyam | Kana Kanmani | Jayaram | Padmapriya | Baby Niveditha | Sukumari](https://www.youtube.com/watch?v=piNlviQyS6g)
 - [പാപങ്ങളെ മറക്കുന്നവനായ  ദീർഘമായി ക്ഷമിക്കുന്ന ദൈവത്തിന്റെ കാരുണ്യം | Rev. Aneesh P Joseph |#shorts](https://www.youtube.com/watch?v=oUfmwQzbLMk)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 29th of June 2023](https://www.youtube.com/watch?v=U4E8CcBZaLE)
-- [നീ ചാടി കേറണ്ട ! ചാടാതെ കേറിയാൽ മതിട്ടാ സ്വാസികയെ ട്രോള്ളികൊണ്ട്‌ കുളപ്പുള്ളി ലീല #ammameeting2023](https://www.youtube.com/watch?v=YCBEVJcu8RM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
