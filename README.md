@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നീ ചാടി കേറണ്ട ! ചാടാതെ കേറിയാൽ മതിട്ടാ സ്വാസികയെ ട്രോള്ളികൊണ്ട്‌ കുളപ്പുള്ളി ലീല #ammameeting2023](https://www.youtube.com/watch?v=YCBEVJcu8RM)
+- [താരരാജാക്കന്മാരും താരറാണിമാരും തകർത്തഭിനയിച്ച മലയാളസിനിമയിലെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=UE2iCC3idE8)
 - [പണ്ടേതോ രാജ്യത്തെ രാജകുമാരിക്ക് 🥰| Sayyave Sayyave | Christian Brothers | Pandetho Rajyathe](https://www.youtube.com/watch?v=WLtgY-RDqaI)
 - [Nin Hridaya Mounam | Lyrical Video | Flash | Mohanlal | Vineeth Sreenivasan | Gopi Sundar](https://www.youtube.com/watch?v=G_miIrgl8EI)
 - [Vibe for #KanniluKannilu | #Ayisha  | #Shorts #YTshorts](https://www.youtube.com/watch?v=GoZryhXcB9I)
 - [Ninmizhiyal |Anoop S |Sam P Francis | Shabeer Ali | Meera Reghunath | Dr.Anagha |Naveen | Love Songs](https://www.youtube.com/watch?v=LTWKlG2O3v0)
-- [Maadathakili Maadathakili | Vajram | Mammootty | Nandhini | Pramod Pappan | Yesudas | Ouseppachan](https://www.youtube.com/watch?v=ZScluY2FzbI)
-- [Daivam Ezhunnelkkunnu | R S Vijayaraj | Kester](https://www.youtube.com/watch?v=hxtzkZMM5EU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
