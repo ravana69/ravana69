@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Rajadhirajan Yeshu | Kester | Reji Abraham | Stephan Devassy | Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=a5Zgub5HaxQ)
 - [ഏറ്റവും കൂടുതൽ ആളുകൾ കേൾക്കാനാഗ്രഹിക്കുന്ന ക്രിസ്തീയ ഗാനങ്ങൾ |Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=Sn_POfe9vLQ)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 30th June 2023 # Novena to the Sacred Heart of Jesus 30th June 2023](https://www.youtube.com/watch?v=C1KEEImJcXA)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #June 30th mother Mary morning songs #vachanam](https://www.youtube.com/watch?v=P7pNvyE9GjA)
 - [Japamala 30th of June 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 30th of June  2023](https://www.youtube.com/watch?v=cji7wURW5wg)
 - [പ്രഭാത പ്രാര്‍ത്ഥന June 30 # Athiravile Prarthana 30th of June 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=vzeUfffDxpU)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 30th June 2023](https://www.youtube.com/watch?v=kRxZlxZF7lE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
