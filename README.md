@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നമ്മുടെ ജീവിതത്തിൽ ആരോടും പറയാത്ത ചില സങ്കടങ്ങൾ ഇല്ലേ? | Rev. Aneesh P Joseph |#shorts | #spiritual](https://www.youtube.com/watch?v=ZjsZwFOSOHw)
+- [Padminiye - Video Song | Padmini | Jakes Bejoy | Sachin Warrier | Kunchacko Boban, Madonna Sebastian](https://www.youtube.com/watch?v=3YdWN-GTxXQ)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 30th of June 2023](https://www.youtube.com/watch?v=3YmslXqRXHw)
+- [Paithale - Lyrical | Video Song | Njanum Pinnoru Njanum | N. J. Nandini | M Jayachandran](https://www.youtube.com/watch?v=eNViDYhMOOQ)
+- [karayuvaan kaaranamillaathe karayumpol | Femina Francis | Fr Dr Titto Varghese Vallavanthara CMI](https://www.youtube.com/watch?v=cZsO0B8gbes)
 - [Sona Sona |  Remix | Ben Johnson |DJ Savyo|Kalabhavan Mani |Kaithapram | Deepak Dev |Remix Film Song](https://www.youtube.com/watch?v=3sO8joFbPl8)
-- [Morth Shmuni Mathav | Sahanathinte Kadha Parayunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=bx6YhFxtsu4)
-- [നിങ്ങൾ ആവശ്യപ്പെട്ട കേൾക്കാനാഗ്രഹിച്ച മലയാളസിനിമയിലെ പത്ത് മനോഹരഗാനങ്ങൾ | MALAYALAM SUPERHIT SONGS](https://www.youtube.com/watch?v=LHIl-YUA9jk)
-- [കണ്ണെടുക്കാൻ തോന്നണില്ല ! ഒരു രക്ഷയില്ലാത്ത ലുക്കിൽ മമ്മുക്ക ! Amma General body Meeting 2023](https://www.youtube.com/watch?v=4R79kZ6_LCs)
-- [കാവേരീ പാടാമിനി | Kaaveri Padamini | Raajashilpi | Malayalam Film Song](https://www.youtube.com/watch?v=lJZPPPC_NN4)
-- [YERUSALEMIN NADHAN | NEW CHRISTIAN SONG | ROSHMON PETER | PR. SABU PARATHANAM | ZION CLASSICS](https://www.youtube.com/watch?v=R6c9T6QqkVE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
