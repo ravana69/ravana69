@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന  July 2 # Athiravile Prarthana 2nd of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=C7DrZ4qC9X4)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 2nd July 2023](https://www.youtube.com/watch?v=Zb8veqsJNUU)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=92RYtgLgYvo)
 - [എന്തിനാണെന്റെ ഈ ജന്മം](https://www.youtube.com/watch?v=jQ0PHvSdWVk)
 - [Dhanumasa Thingal | Panchaloham | Manoj K Jayan | Vani Viswanath | Raveendran Master](https://www.youtube.com/watch?v=35V4ZRhMy20)
 - [Kanneer Thudakkunna |Christian Video Song |Malayalam Christian Devotional Songs |Joji Johns](https://www.youtube.com/watch?v=iTUhePYcMtA)
-- [Nadavazhiyum Idavazhiyum | Pakalpooram | Panthalam Balan | Raveendran | S Ramesan Nair](https://www.youtube.com/watch?v=5l7ewtw3NzQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
