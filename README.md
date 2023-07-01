@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [സന്തതസഹചാരിയായി എപ്പോഴും കൂടെയുള്ള സംഗീതാസ്വാദകരുടെ ഇഷ്ടഗാനങ്ങൾ | SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=ssy-67hSeHY)
+- [അമ്മയുടെ ചരിത്രത്തിൽ ഇത്രപെട്ടെന്ന് അംഗത്വം നേടിയത് നിങ്ങൾ മാത്രമെന്ന് ഹൈദർ അലി #ammameeting2023](https://www.youtube.com/watch?v=oeLC8ytD_PY)
+- [മനസിൽ മൃദുവായി തൊട്ടുതലോടുന്ന എക്കാലത്തെയും മികച്ച മെലഡി ഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=eBDWmZl8_RY)
 - [Ee Prakasham | Kester Paadiya Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=052zZf0T2n8)
 - [Manikkuyile | Lyrical Video | Valkannadi | Kalabhavan Mani | M.Jayachandran | K.J.Yesudas | Sujatha](https://www.youtube.com/watch?v=RpLTxtR2PI8)
 - [Thaaram Valkkannadi | Keli | Jayaram | Charmila | Johnson | Bharathan | Kaithapram](https://www.youtube.com/watch?v=WivpXyrBPIk)
-- [മനസിന് ആത്‌മീയ ഉണർവേകും സൂപ്പർഹിറ്റ് ക്രിസ്തീയ ഗാനങ്ങൾ |Christian Video Songs |Biju Narayanan](https://www.youtube.com/watch?v=hzKZ685gW0Q)
-- [Japamala 1st of July  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 1st of July 2023](https://www.youtube.com/watch?v=Vuwz1_H3-9w)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #July 1st  mother Mary songs Malayalam best](https://www.youtube.com/watch?v=IMTRSfzunls)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
