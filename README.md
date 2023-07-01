@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Vibing for #LoveYouMuthe | #Padmini | #JakesBejoy | @KunchackoBoban | #VidyadharanMaster](https://www.youtube.com/watch?v=3NgcnI45IzE)
-- [Mohana Ragatharangam | Beautiful Album Song by K S Chithra from  Thapasya  #shorts](https://www.youtube.com/watch?v=VPB4oVItWEc)
-- [Teaser | Pappachan Olivilanu | Sinto Sunny | Thomas Thiruvalla | Ouseppachan | Saiju Kurup | Srinda](https://www.youtube.com/watch?v=bRwaKqGJmnY)
-- [Ilakkumbilil - Lyrical Video | Agninakshathram | KJ Yesudas | Raveendran | Shibu Chakravarthy](https://www.youtube.com/watch?v=RkkMC4gdY0M)
-- [സന്തതസഹചാരിയായി എപ്പോഴും കൂടെയുള്ള സംഗീതാസ്വാദകരുടെ ഇഷ്ടഗാനങ്ങൾ | SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=ssy-67hSeHY)
-- [അമ്മയുടെ ചരിത്രത്തിൽ ഇത്രപെട്ടെന്ന് അംഗത്വം നേടിയത് നിങ്ങൾ മാത്രമെന്ന് ഹൈദർ അലി #ammameeting2023](https://www.youtube.com/watch?v=oeLC8ytD_PY)
+- [🤍Aattunottundayorunni🤍  ഫുട്ബോൾ ഇതിഹാസത്തിന്റെ കൂടെ ഒരു പാട്ട് 🔥🔥 | Vishnu Narayanan | IM Vijayan](https://www.youtube.com/watch?v=S5yCCsQKj5s)
+- [നാം വീഴുമ്പോൾ അവിടുന്ന് നമ്മെ തന്റെ കരങ്ങളിൽ താങ്ങും | Rev. Aneesh P Joseph |#shorts | #spiritual](https://www.youtube.com/watch?v=Zd-xeFysnyg)
+- [Thirayum Theeravum Full Video Song | HD | Memories Movie Song | REMASTERED |](https://www.youtube.com/watch?v=8SXEZx8WfmQ)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 1st of July 2023](https://www.youtube.com/watch?v=2HcP73lUw10)
+- [Kakke Kakke Kakka | Saphalyam | Super Hit Malayalam Song | Suresh Gopi | Praveena | Sangeetha | Arun](https://www.youtube.com/watch?v=MwsPSbUy4ns)
+- [Neelolpalamaala | Thiruvithamkoor Thirumanassu | KJ Yesudas | Premkumar Vadakara | P K Gopi](https://www.youtube.com/watch?v=fRGqwJgmObU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
