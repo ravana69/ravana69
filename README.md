@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ആരാണ് ആ വിജയി?😳🔥വിജയി ഫലങ്ങൾ പുറത്ത് Bigg Boss Malayalam Season 5 Grand Finale Results🔥 #biggboss](https://www.youtube.com/watch?v=LRgoqapTxek)
 - [കാരണങ്ങൾ ഇല്ലാതെ നാം ഏൽക്കുന്ന സഹനം അവിടുത്തെ  ഹിതമാണെന്ന് തിരിച്ചറിയുക | Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=KN8TADJnvnQ)
 - [ദുക്റാന തിരുനാൾ ഗീതങ്ങൾ 2023 # Dhukrana Songs Malayalam # Ft. Fr. John, Fr. Vineeth, Franklin](https://www.youtube.com/watch?v=59SkCtImSpA)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 2nd of July 2023](https://www.youtube.com/watch?v=wZbIRaTJkyY)
 - [Shine Tom Chacko singing Kochi Song from Pathimoonnam Rathri #shorts](https://www.youtube.com/watch?v=c4z3VitIqKo)
 - [💞Poovukkul Olinthirikkum💞 #jeans  #arrahman #aishwaryaraibachchan #vairamuthu #tamil](https://www.youtube.com/watch?v=NlZDRnvFsMQ)
-- [ഭാവാർദ്ര ഗാനങ്ങളാൽ മലയാളികളെ മോഹിപ്പിച്ച ജയചന്ദ്രന്റെ ആരും കൊതിക്കും ഗാനങ്ങൾ | HITS OF JAYACHANDRAN](https://www.youtube.com/watch?v=iQPeUTP04F8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
