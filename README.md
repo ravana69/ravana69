@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [K46 - Demon War Begins Malayalam Promo | Baadshah Kichcha Sudeep | Vijay Kartikeyaa | B. Ajaneesh](https://www.youtube.com/watch?v=WF5y7jx2r-o)
+- [പാട്ടുപെട്ടി - Paattupetti Vol 14 | Malayalam Film Songs](https://www.youtube.com/watch?v=k-YOi9tPIG8)
 - [https://youtu.be/fBBZpouNwWA  : Shine Tom Chacko singing Kochi Song #shorts](https://www.youtube.com/watch?v=y1BOzWGWs_0)
 - [Shine Tom Chacko singing Kochi Song from Pathimoonnam Rathri #shorts](https://www.youtube.com/watch?v=H8en-ZcjJ1U)
 - [Japamala 2nd of July 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 2nd of July 2023](https://www.youtube.com/watch?v=tGPtCnAJRmk)
 - [രാവിലെ പ്രാര്‍ത്ഥന  July 2 # Athiravile Prarthana 2nd of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=C7DrZ4qC9X4)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 2nd July 2023](https://www.youtube.com/watch?v=Zb8veqsJNUU)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=92RYtgLgYvo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
