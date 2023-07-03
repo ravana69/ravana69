@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kannippenne Penne | Mangalam Veettil Maanaseswari Gupta | Sujatha | Johnson | Gireesh Puthenchery](https://www.youtube.com/watch?v=vyqN4z11-Nc)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 3rd of July 2023](https://www.youtube.com/watch?v=lbstN1ZsZlo)
 - [മറ്റുള്ളവർ നിങ്ങൾക്ക് ചെയ്തു തരണമെന്ന് നിങ്ങൾ ആഗ്രഹിക്കുന്നതെല്ലാം നിങ്ങൾ അവർക്കുചെയ്യുവിൻ](https://www.youtube.com/watch?v=v30g8agtFZ4)
 - [Dum Dum Pattalam | My Dear Karadi | MG Sreekumar | Manju Thomas | C Thankaraj | Balu Kiriyath](https://www.youtube.com/watch?v=Q-71rNM95Nc)
 - [Peruchollaam (F) - Lyrical Video | Agninakshathram | KS Chithra | Raveendran | Shibu Chakravarthy](https://www.youtube.com/watch?v=6b7crs64-_8)
 - [Duet for #LoveYouMuthe | #Padmini | #JakesBejoy | #KunchackoBoban | #VidyadharanMaster](https://www.youtube.com/watch?v=_CKaDSs5kfg)
-- [Eeshoye Karayaruthe | Kristheeya Bhakthigaanangal | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=lxxW_vtq20A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
