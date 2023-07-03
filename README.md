@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [3 July 2023](https://www.youtube.com/watch?v=NtrixIPTldo)
 - [Mohan Sithara, K.J. Yesudas - Thodunnathu Ponnaakaan (Lyric Video)](https://www.youtube.com/watch?v=uK3yXI4U00U)
 - [S.P. Venkatesh, K.J. Yesudas - Ohmkaara Ganga Tharangam (Lyric Video)](https://www.youtube.com/watch?v=QYOfy5HcoIU)
 - [S.P. Venkatesh, K.S. Chithra - Ambili Changaathi (Version, 2) (Lyric Video)](https://www.youtube.com/watch?v=rKd71pYIy9A)
 - [S.P. Venkatesh, K.S. Chithra - Moovandhi Penninu (Lyric Video)](https://www.youtube.com/watch?v=AGEeOsiHsfQ)
 - [Ouseppachan, K.J. Yesudas - Panchavarnakkulire (Lyric Video)](https://www.youtube.com/watch?v=J3ofv62EiRE)
-- [M.G. Radhakrishnan, M.G. Sreekumar - Maarivilluduppaninju (Lyric Video)](https://www.youtube.com/watch?v=_w9Wu6u6Ik8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
