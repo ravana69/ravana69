@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Eeshoye Karayaruthe | Kristheeya Bhakthigaanangal | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=lxxW_vtq20A)
+- [Sindoora Thilakavumaayi | Kuyiline Thedi | Raghu | Rohini | Poojappura Ravi - Shyam Hits](https://www.youtube.com/watch?v=PKLcH5tsHRo)
 - [Kuzhaloothum Poonthennale | Lyrical Video | Bhramaram | Mohanlal | Mohan Sithara | Anil Panachooran](https://www.youtube.com/watch?v=PNnW2xRhtIE)
 - [Ponviral | July-3 St.Thomas Day | ദുക്റാന |#Christian Devotional Whatsapp Status Malayalam |#shorts](https://www.youtube.com/watch?v=j0LyoyqYKPk)
 - [Manikyakammal Venam | Vajram | Aravindh | Vasundharadas | Afsal | Sujatha | Ouseppachan](https://www.youtube.com/watch?v=6e8rYf1V_3M)
 - [Paragame | Higuita | Vinayak Sasikumar | Rahul Raj | Sangeeth | Poornasree | Malayalam Film Songs](https://www.youtube.com/watch?v=MR7cAtdL3gg)
-- [St Thomas Day](https://www.youtube.com/watch?v=24NZ8ZU0ob4)
-- [ദുക്റാന തിരുനാൾ ഗീതങ്ങൾ 2023 # Dhukrana Songs Malayalam # Ft. Fr. John, Fr. Vineeth, Franklin](https://www.youtube.com/watch?v=TKX44SIPQxI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
