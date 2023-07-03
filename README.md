@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ponviral | July-3 St.Thomas Day | ദുക്റാന |#Christian Devotional Whatsapp Status Malayalam |#shorts](https://www.youtube.com/watch?v=j0LyoyqYKPk)
+- [Manikyakammal Venam | Vajram | Aravindh | Vasundharadas | Afsal | Sujatha | Ouseppachan](https://www.youtube.com/watch?v=6e8rYf1V_3M)
+- [Paragame | Higuita | Vinayak Sasikumar | Rahul Raj | Sangeeth | Poornasree | Malayalam Film Songs](https://www.youtube.com/watch?v=MR7cAtdL3gg)
 - [St Thomas Day](https://www.youtube.com/watch?v=24NZ8ZU0ob4)
 - [ദുക്റാന തിരുനാൾ ഗീതങ്ങൾ 2023 # Dhukrana Songs Malayalam # Ft. Fr. John, Fr. Vineeth, Franklin](https://www.youtube.com/watch?v=TKX44SIPQxI)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #July 3rd mother mary hits best songs](https://www.youtube.com/watch?v=6Y0S_y3VihU)
-- [Japamala 3rd of July  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 3rd of July 2023](https://www.youtube.com/watch?v=rSCgJktAqB4)
-- [പ്രഭാത പ്രാര്‍ത്ഥന  July 3 # Athiravile Prarthana 3rd of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=4BeNkH8gLEs)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 3rd July 2023](https://www.youtube.com/watch?v=fjEGYmSTTfU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
