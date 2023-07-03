@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Christian Superhit Songs | Midhila Michael | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=A37UxhWgH9I)
-- [Aadharanjali - Trap Mix | Romancham | Sushin Shyam | Johnpaul George Productions | Alvin Bruno](https://www.youtube.com/watch?v=GhLYp5JYApM)
-- [Kannippenne Penne | Mangalam Veettil Maanaseswari Gupta | Sujatha | Johnson | Gireesh Puthenchery](https://www.youtube.com/watch?v=vyqN4z11-Nc)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 3rd of July 2023](https://www.youtube.com/watch?v=lbstN1ZsZlo)
-- [മറ്റുള്ളവർ നിങ്ങൾക്ക് ചെയ്തു തരണമെന്ന് നിങ്ങൾ ആഗ്രഹിക്കുന്നതെല്ലാം നിങ്ങൾ അവർക്കുചെയ്യുവിൻ](https://www.youtube.com/watch?v=v30g8agtFZ4)
-- [Dum Dum Pattalam | My Dear Karadi | MG Sreekumar | Manju Thomas | C Thankaraj | Balu Kiriyath](https://www.youtube.com/watch?v=Q-71rNM95Nc)
+- [Mohan Sithara, K.J. Yesudas - Thodunnathu Ponnaakaan (Lyric Video)](https://www.youtube.com/watch?v=uK3yXI4U00U)
+- [S.P. Venkatesh, K.J. Yesudas - Ohmkaara Ganga Tharangam (Lyric Video)](https://www.youtube.com/watch?v=QYOfy5HcoIU)
+- [S.P. Venkatesh, K.S. Chithra - Ambili Changaathi (Version, 2) (Lyric Video)](https://www.youtube.com/watch?v=rKd71pYIy9A)
+- [S.P. Venkatesh, K.S. Chithra - Moovandhi Penninu (Lyric Video)](https://www.youtube.com/watch?v=AGEeOsiHsfQ)
+- [Ouseppachan, K.J. Yesudas - Panchavarnakkulire (Lyric Video)](https://www.youtube.com/watch?v=J3ofv62EiRE)
+- [M.G. Radhakrishnan, M.G. Sreekumar - Maarivilluduppaninju (Lyric Video)](https://www.youtube.com/watch?v=_w9Wu6u6Ik8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
