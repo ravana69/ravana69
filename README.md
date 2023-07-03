@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ദുക്റാന തിരുനാൾ ഗീതങ്ങൾ 2023 # Dhukrana Songs Malayalam # Ft. Fr. John, Fr. Vineeth, Franklin](https://www.youtube.com/watch?v=TKX44SIPQxI)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #July 3rd mother mary hits best songs](https://www.youtube.com/watch?v=6Y0S_y3VihU)
+- [Japamala 3rd of July  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 3rd of July 2023](https://www.youtube.com/watch?v=rSCgJktAqB4)
 - [പ്രഭാത പ്രാര്‍ത്ഥന  July 3 # Athiravile Prarthana 3rd of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=4BeNkH8gLEs)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 3rd July 2023](https://www.youtube.com/watch?v=fjEGYmSTTfU)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=Q66PtWrsnLM)
-- [2 July 2023](https://www.youtube.com/watch?v=lI7HRpLc6zc)
-- [Thiruhithamihe Thikacheeduvan | Anna Baby | Shorts](https://www.youtube.com/watch?v=FTHIeqofVU8)
-- [Maanathoru Pontharakam | Pranayanilavu | Dileep | Mohini | Vinayan | Berny Ignatius | KS Chithra](https://www.youtube.com/watch?v=76nTxmS9wUI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
