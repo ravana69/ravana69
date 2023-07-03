@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Peruchollaam (F) - Lyrical Video | Agninakshathram | KS Chithra | Raveendran | Shibu Chakravarthy](https://www.youtube.com/watch?v=6b7crs64-_8)
 - [Duet for #LoveYouMuthe | #Padmini | #JakesBejoy | #KunchackoBoban | #VidyadharanMaster](https://www.youtube.com/watch?v=_CKaDSs5kfg)
 - [Eeshoye Karayaruthe | Kristheeya Bhakthigaanangal | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=lxxW_vtq20A)
 - [Sindoora Thilakavumaayi | Kuyiline Thedi | Raghu | Rohini | Poojappura Ravi - Shyam Hits](https://www.youtube.com/watch?v=PKLcH5tsHRo)
 - [Kuzhaloothum Poonthennale | Lyrical Video | Bhramaram | Mohanlal | Mohan Sithara | Anil Panachooran](https://www.youtube.com/watch?v=PNnW2xRhtIE)
 - [Ponviral | July-3 St.Thomas Day | ദുക്റാന |#Christian Devotional Whatsapp Status Malayalam |#shorts](https://www.youtube.com/watch?v=j0LyoyqYKPk)
-- [Manikyakammal Venam | Vajram | Aravindh | Vasundharadas | Afsal | Sujatha | Ouseppachan](https://www.youtube.com/watch?v=6e8rYf1V_3M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
