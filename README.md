@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Punchiri Thanchum | Beautiful Romantic Song by Shankar Mahadevan from Bicycle Thieves #shorts](https://www.youtube.com/watch?v=FxAXElTv2GA)
 - [Sangeerthanangal | Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=5_RstPJILKw)
 - [ഏതൊരു ശ്രോതാവിന്റെ മനസിലും ആകെ മൊത്തം കുളിരു കോരുന്ന സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=_kKp4J7Af7k)
 - [A.R. Rahman, Yogi Sekar - Namma Satham (Tamil Lyric Video [From "Pathu Thala"])](https://www.youtube.com/watch?v=ZbEXJRaNqYE)
 - [A.R. Rahman, Sid Sriram - Nee Singam Dhan (Tamil Lyric Video [From "Pathu Thala"])](https://www.youtube.com/watch?v=yR98sBZQVrU)
 - [Fear In Eyes - CHOVVAZHCHA Teaser | Ajay Bhupathi | Payal Rajput | Ajaneesh Loknath](https://www.youtube.com/watch?v=4W2qEHjlVp4)
-- [Enikkanu Nee | Hridayathil Sookshikkan | Kunchacko Boban | Bhavana | Mohan Sithara - HD Video Song](https://www.youtube.com/watch?v=HZaD-jaxHMU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
