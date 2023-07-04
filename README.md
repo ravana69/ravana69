@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Singer Of The Week | Manoj Christy | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=qbdfkI8Aeb8)
+- [Japamala 4th of July 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 4th of July   2023](https://www.youtube.com/watch?v=6Gtc6LdfLYU)
 - [രാവിലെ പ്രാര്‍ത്ഥന  July 4 # Athiravile Prarthana 4th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=vji3psGZlaA)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 4th July 2023](https://www.youtube.com/watch?v=kV91JbTXcDs)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=FTjxfwOmY8w)
 - [3 July 2023](https://www.youtube.com/watch?v=NtrixIPTldo)
-- [Mohan Sithara, K.J. Yesudas - Thodunnathu Ponnaakaan (Lyric Video)](https://www.youtube.com/watch?v=uK3yXI4U00U)
-- [S.P. Venkatesh, K.J. Yesudas - Ohmkaara Ganga Tharangam (Lyric Video)](https://www.youtube.com/watch?v=QYOfy5HcoIU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
