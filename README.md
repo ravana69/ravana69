@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Let's vibe for #LoveYouMuthe | #Padmini | #JakesBejoy | #KunchackoBoban | #VidyadharanMaster](https://www.youtube.com/watch?v=h8LslYQNulA)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #july 4th mother mary morning songs #vachanam audio](https://www.youtube.com/watch?v=Ngl4r1KG9aQ)
-- [Singer Of The Week | Manoj Christy | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=qbdfkI8Aeb8)
-- [Japamala 4th of July 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 4th of July   2023](https://www.youtube.com/watch?v=6Gtc6LdfLYU)
-- [രാവിലെ പ്രാര്‍ത്ഥന  July 4 # Athiravile Prarthana 4th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=vji3psGZlaA)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 4th July 2023](https://www.youtube.com/watch?v=kV91JbTXcDs)
+- [Sangeerthanangal | Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=5_RstPJILKw)
+- [ഏതൊരു ശ്രോതാവിന്റെ മനസിലും ആകെ മൊത്തം കുളിരു കോരുന്ന സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=_kKp4J7Af7k)
+- [A.R. Rahman, Yogi Sekar - Namma Satham (Tamil Lyric Video [From "Pathu Thala"])](https://www.youtube.com/watch?v=ZbEXJRaNqYE)
+- [A.R. Rahman, Sid Sriram - Nee Singam Dhan (Tamil Lyric Video [From "Pathu Thala"])](https://www.youtube.com/watch?v=yR98sBZQVrU)
+- [Fear In Eyes - CHOVVAZHCHA Teaser | Ajay Bhupathi | Payal Rajput | Ajaneesh Loknath](https://www.youtube.com/watch?v=4W2qEHjlVp4)
+- [Enikkanu Nee | Hridayathil Sookshikkan | Kunchacko Boban | Bhavana | Mohan Sithara - HD Video Song](https://www.youtube.com/watch?v=HZaD-jaxHMU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
