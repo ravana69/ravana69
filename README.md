@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [MADHU BALAKRISHNAN HITS CHRISTIAN DEVOTIONAL SONGS|OWN MEDIA MUSIC|](https://www.youtube.com/watch?v=T6wJx5Exm1g)
+- [Varnnapookal | Christian Devotional Songs Malayalam | Praise and Worship Songs | Jolly Abraham](https://www.youtube.com/watch?v=cYtgi6TNTSg)
+- [Achante Ponnu Mole | Hridayathil Sookshikkan | KJ Yesudas | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=A_P_RejOBjI)
 - [Moha Swaroopini | Pakalpooram | KS Chithra | Raveendran | S Ramesan Nair](https://www.youtube.com/watch?v=pjlvPV1YqxM)
 - [Kuppivala kilukile|Ayal kadha ezhuthukayaanu|Nandini|Mohanlal|](https://www.youtube.com/watch?v=Hctzc4yYIs8)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 4th of July 2023](https://www.youtube.com/watch?v=9jUH7ax14EI)
-- [ഞാൻ നിങ്ങളെ സ്നേഹിച്ചതുപോലെ നിങ്ങളും പരസ്പരം സ്നേഹിക്കണം | Rev. Aneesh P Joseph |#shorts](https://www.youtube.com/watch?v=0AhOVJAJgnQ)
-- [Kocharimulla | Thiruvithamkoor Thirumanassu | KJ Yesudas | Premkumar Vadakara | P K Gopi](https://www.youtube.com/watch?v=J9dtUAYI-dY)
-- [Punchiri Thanchum | Beautiful Romantic Song by Shankar Mahadevan from Bicycle Thieves #shorts](https://www.youtube.com/watch?v=FxAXElTv2GA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
