@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Paattinte Palkadavil | Lyrical Video | Living Together | Shreya Ghoshal | Kaithapram| M Jayachandran](https://www.youtube.com/watch?v=JAc4CZ5a56g)
+- [Enjoy with #LoveYouMuthe | #Padmini | #JakesBejoy | #KunchackoBoban | #VidyadharanMaster](https://www.youtube.com/watch?v=AhoNbueX408)
 - [Panineerpushpam Sharonilavan | Annamma Mammen | Anna Baby](https://www.youtube.com/watch?v=QecaW-LIl3w)
 - [Appamayi Koodashayayen | Christian Video Song | Teenu Treesa | Shibu Antony Mavelikkara |Joji Johns](https://www.youtube.com/watch?v=Yq3DpkwcTg8)
 - [Japamala 5th of July 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 5th of July 2023](https://www.youtube.com/watch?v=KlDnSvGXLY0)
 - [രാവിലെ പ്രാര്‍ത്ഥന  July 5 # Athiravile Prarthana 5th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=FuPNTibNkyA)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 5th July 2023](https://www.youtube.com/watch?v=KbW-hRR_bZw)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=LKujqelpjpE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
