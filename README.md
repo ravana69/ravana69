@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന  July 6 # Athiravile Prarthana 6th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=TaeJSXfGf4k)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 6th July 2023](https://www.youtube.com/watch?v=MzgivhzYCfI)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=oWEojtqKW-Q)
 - [Ennu Varum Nee | Kannaki | Nandita Das | Lal | KS Chithra | Kaithapram | Siddique](https://www.youtube.com/watch?v=IIZWb-Z0hBo)
 - [ഈശോയെ നിൻ രൂപം കാണുമ്പോൾ എന്നുള്ളം ...](https://www.youtube.com/watch?v=kULeIE9bYAg)
 - [Padmini - Official Trailer | Kunchacko Boban, Aparna Balamurali, Madonna Sebastian | Senna Hegde](https://www.youtube.com/watch?v=9FoBxcBee7k)
-- [Christian Melody Songs | Abhijith Kollam | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=fVsSnoc1MZY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
