@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Rishivanam Aagum  | Shaakuntalam(Malayalam) | Samantha, Dev Mohan | Crishna, Chinmayi](https://www.youtube.com/watch?v=V4P8jO1JXgA)
 - [Junile Nilamazhayil | Riya Das | Unplugged Cover](https://www.youtube.com/watch?v=6Lqtco81-DE)
 - [മനസിന്റെ മണിച്ചെപ്പിൽ മലയാളികൾ മായാതെ സൂക്ഷിക്കുന്ന മധുരമനോഹരഗാനങ്ങൾ | EVERGREEN HITS](https://www.youtube.com/watch?v=cOKPZIZ641I)
 - [മലയാളികളെന്നും മനസ്സിൽ സൂക്ഷിക്കുന്ന ഏറ്റവും നല്ല പ്രണയഗാനങ്ങൾ | EVERGREEN LOVE SONGS](https://www.youtube.com/watch?v=XIYNvqJZyPY)
 - [முதல் நீ முடிவும் நீ - தமிழ் பாடல்வரிகள் | தர்புகா சிவா](https://www.youtube.com/watch?v=tUxmZfOLIq4)
 - [இறைவி - காதல் கப்பல் தமிழ் பாடல்வரிகள் | சந்தோஷ் நாராயணன்](https://www.youtube.com/watch?v=K_wwaPqDmeA)
-- [Paattinte Palkadavil | Lyrical Video | Living Together | Shreya Ghoshal | Kaithapram| M Jayachandran](https://www.youtube.com/watch?v=JAc4CZ5a56g)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
