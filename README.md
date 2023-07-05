@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈശോയെ നിൻ രൂപം കാണുമ്പോൾ എന്നുള്ളം ...](https://www.youtube.com/watch?v=kULeIE9bYAg)
+- [Padmini - Official Trailer | Kunchacko Boban, Aparna Balamurali, Madonna Sebastian | Senna Hegde](https://www.youtube.com/watch?v=9FoBxcBee7k)
 - [Christian Melody Songs | Abhijith Kollam | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=fVsSnoc1MZY)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 5th of July 2023](https://www.youtube.com/watch?v=kaVeutnQxzc)
 - [Minnadi Minnadi Animation Video | KS Chithra | DeepakDev | Kaithapram | Film Songs Animation | Naran](https://www.youtube.com/watch?v=FqKnTPRMh14)
 - [കണികള്‍ നിറഞ്ഞൊരുങ്ങീ | Kanikal | Athirathram Movie Song | Mammootty | Seema](https://www.youtube.com/watch?v=MGeohgG9L-0)
-- [Snehathin Nidhi Thedi | MDMS | Prithviraj | Ambili Devi | Chithra | Mohan Sithara](https://www.youtube.com/watch?v=_zlRmXr-WU0)
-- [Rishivanam Aagum  | Shaakuntalam(Malayalam) | Samantha, Dev Mohan | Crishna, Chinmayi](https://www.youtube.com/watch?v=V4P8jO1JXgA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
