@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 5th of July 2023](https://www.youtube.com/watch?v=kaVeutnQxzc)
+- [Minnadi Minnadi Animation Video | KS Chithra | DeepakDev | Kaithapram | Film Songs Animation | Naran](https://www.youtube.com/watch?v=FqKnTPRMh14)
+- [കണികള്‍ നിറഞ്ഞൊരുങ്ങീ | Kanikal | Athirathram Movie Song | Mammootty | Seema](https://www.youtube.com/watch?v=MGeohgG9L-0)
 - [Snehathin Nidhi Thedi | MDMS | Prithviraj | Ambili Devi | Chithra | Mohan Sithara](https://www.youtube.com/watch?v=_zlRmXr-WU0)
 - [Rishivanam Aagum  | Shaakuntalam(Malayalam) | Samantha, Dev Mohan | Crishna, Chinmayi](https://www.youtube.com/watch?v=V4P8jO1JXgA)
 - [Junile Nilamazhayil | Riya Das | Unplugged Cover](https://www.youtube.com/watch?v=6Lqtco81-DE)
-- [മനസിന്റെ മണിച്ചെപ്പിൽ മലയാളികൾ മായാതെ സൂക്ഷിക്കുന്ന മധുരമനോഹരഗാനങ്ങൾ | EVERGREEN HITS](https://www.youtube.com/watch?v=cOKPZIZ641I)
-- [മലയാളികളെന്നും മനസ്സിൽ സൂക്ഷിക്കുന്ന ഏറ്റവും നല്ല പ്രണയഗാനങ്ങൾ | EVERGREEN LOVE SONGS](https://www.youtube.com/watch?v=XIYNvqJZyPY)
-- [முதல் நீ முடிவும் நீ - தமிழ் பாடல்வரிகள் | தர்புகா சிவா](https://www.youtube.com/watch?v=tUxmZfOLIq4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
