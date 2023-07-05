@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [முதல் நீ முடிவும் நீ - தமிழ் பாடல்வரிகள் | தர்புகா சிவா](https://www.youtube.com/watch?v=tUxmZfOLIq4)
+- [இறைவி - காதல் கப்பல் தமிழ் பாடல்வரிகள் | சந்தோஷ் நாராயணன்](https://www.youtube.com/watch?v=K_wwaPqDmeA)
 - [Paattinte Palkadavil | Lyrical Video | Living Together | Shreya Ghoshal | Kaithapram| M Jayachandran](https://www.youtube.com/watch?v=JAc4CZ5a56g)
 - [Enjoy with #LoveYouMuthe | #Padmini | #JakesBejoy | #KunchackoBoban | #VidyadharanMaster](https://www.youtube.com/watch?v=AhoNbueX408)
 - [Panineerpushpam Sharonilavan | Annamma Mammen | Anna Baby](https://www.youtube.com/watch?v=QecaW-LIl3w)
 - [Appamayi Koodashayayen | Christian Video Song | Teenu Treesa | Shibu Antony Mavelikkara |Joji Johns](https://www.youtube.com/watch?v=Yq3DpkwcTg8)
-- [Japamala 5th of July 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 5th of July 2023](https://www.youtube.com/watch?v=KlDnSvGXLY0)
-- [രാവിലെ പ്രാര്‍ത്ഥന  July 5 # Athiravile Prarthana 5th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=FuPNTibNkyA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
