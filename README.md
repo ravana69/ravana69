@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [CAPTAIN MILLER (Malayalam) - Pooja Video | Dhanush | GV Prakash | Arun Matheswaran](https://www.youtube.com/watch?v=XMoj4qy8YEQ)
 - [അരളിയും കദളിയും | Araliyum Kadaliyum |  Jaathakam Movie Song | Jayaram](https://www.youtube.com/watch?v=TFUxbahamk4)
 - [Mullavallikudilil | Kuyiline thedi | Chunakkara Ramankutty | Shyam | S Janaki | Rohini | Raghu](https://www.youtube.com/watch?v=QH8zy56sZdQ)
 - [Eeshoykkenthoru Sneham | Daivasneham Vilichothunna Kristheeya Bhakthigaanangal  Audio Jukebox](https://www.youtube.com/watch?v=iW8NMSQNycY)
 - [നിങ്ങൾ കേൾക്കാനാഗ്രഹിച്ച എൺപതുകളിലെ മനം മയക്കുന്ന ഗാനങ്ങൾ  | 80s HITS](https://www.youtube.com/watch?v=M3m8OWf-b9Q)
 - [விடுதலை - காட்டுமல்லி தமிழ் பாடல்வரிகள் | இளையராஜா](https://www.youtube.com/watch?v=fGMA8t9SjVY)
-- [వెళ్ళకే - లిరిక్స్ భరత్-సౌరభ్](https://www.youtube.com/watch?v=GOqx0SWLjV0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
