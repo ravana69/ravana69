@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [விடுதலை - காட்டுமல்லி தமிழ் பாடல்வரிகள் | இளையராஜா](https://www.youtube.com/watch?v=fGMA8t9SjVY)
+- [వెళ్ళకే - లిరిక్స్ భరత్-సౌరభ్](https://www.youtube.com/watch?v=GOqx0SWLjV0)
+- [Manaklesha Tharangangalal | Anna Baby | Shorts](https://www.youtube.com/watch?v=4h-MrZsgDAc)
 - [Junile Nilamazhayil | Riya Das | Unplugged Cover](https://www.youtube.com/watch?v=iYDIbMvLXhc)
 - [Dance together with #LoveYouMuthe | #Padmini | #JakesBejoy | #KunchackoBoban | #shorts #ytshorts](https://www.youtube.com/watch?v=KcjbATldO9o)
 - [കർത്താവിൽ പ്രത്യാശ തന്ന സുന്ദര ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Wilson Piravom](https://www.youtube.com/watch?v=ZnqVBmiCCtE)
-- [Japamala 6th of July 2023 # Mathavinte Japamala # Prakashathinte Rahasyangal 6th of July 2023](https://www.youtube.com/watch?v=FhLUSVww9qw)
-- [രാവിലെ പ്രാര്‍ത്ഥന  July 6 # Athiravile Prarthana 6th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=TaeJSXfGf4k)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 6th July 2023](https://www.youtube.com/watch?v=MzgivhzYCfI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
