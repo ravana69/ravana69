@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Doo Doo Durudoo | Sharjah To Sharjah | Jayaram | Aishwarya | Mohan Sithara | MG Sreekumar |](https://www.youtube.com/watch?v=VREXQJL3aL0)
 - [Mohan Sithara, K.S. Chithra - Thurakkaatha Ponvaathil (Lyric Video)](https://www.youtube.com/watch?v=TaYkz0Szp3Q)
 - [Ouseppachan, M.G. Sreekumar - Kaliyoonjaal (Lyric Video)](https://www.youtube.com/watch?v=I4VTRI4m9bI)
 - [Ouseppachan, K.J. Yesudas - Koodariyaa Kuyilamme (Version, 2) (Lyric Video)](https://www.youtube.com/watch?v=vtzrdUchNrU)
 - [ഒരു നല്ല മനുഷ്യനെ കണ്ടു ...](https://www.youtube.com/watch?v=GZLcnQvuPnc)
 - [Oh January En Mizhiyil | Big B | Sayanora Philip | Alphons Joseph | Jophi Tharakan | Mammootty](https://www.youtube.com/watch?v=g6XyJU_oIkw)
-- [Padakin Arikilayi | Christian Devotional Songs Malayalam | Kester | Praise and Worship Songs](https://www.youtube.com/watch?v=2HszKCQRvHY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
