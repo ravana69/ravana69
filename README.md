@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Junile Nilamazhayil | Riya Das | Unplugged Cover](https://www.youtube.com/watch?v=iYDIbMvLXhc)
+- [Dance together with #LoveYouMuthe | #Padmini | #JakesBejoy | #KunchackoBoban | #shorts #ytshorts](https://www.youtube.com/watch?v=KcjbATldO9o)
 - [കർത്താവിൽ പ്രത്യാശ തന്ന സുന്ദര ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Wilson Piravom](https://www.youtube.com/watch?v=ZnqVBmiCCtE)
 - [Japamala 6th of July 2023 # Mathavinte Japamala # Prakashathinte Rahasyangal 6th of July 2023](https://www.youtube.com/watch?v=FhLUSVww9qw)
 - [രാവിലെ പ്രാര്‍ത്ഥന  July 6 # Athiravile Prarthana 6th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=TaeJSXfGf4k)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 6th July 2023](https://www.youtube.com/watch?v=MzgivhzYCfI)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=oWEojtqKW-Q)
-- [Ennu Varum Nee | Kannaki | Nandita Das | Lal | KS Chithra | Kaithapram | Siddique](https://www.youtube.com/watch?v=IIZWb-Z0hBo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
