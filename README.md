@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 6th of July 2023](https://www.youtube.com/watch?v=tttnhIk-kdA)
+- [അവൻ നിന്റെ കൂടെയുണ്ട്. ഒരിക്കലും നിന്നെ കൈവിടത്തില്ല |  Rev. Aneesh P Joseph |#shorts](https://www.youtube.com/watch?v=ZuRsSVjjsM0)
+- [Ezhaam Kooliyivan | My Dear Karadi | MG Sreekumar | C Thankaraj | Balu Kiriyath](https://www.youtube.com/watch?v=SGzsQyrOaj4)
+- [Thaarakam Deepakam | 1080p | Poonilamazha | Sanjay Mithra | Shraddha Nigam - Yesudas Hits](https://www.youtube.com/watch?v=Lr34Ccydyzo)
 - [CAPTAIN MILLER (Malayalam) - Pooja Video | Dhanush | GV Prakash | Arun Matheswaran](https://www.youtube.com/watch?v=XMoj4qy8YEQ)
 - [അരളിയും കദളിയും | Araliyum Kadaliyum |  Jaathakam Movie Song | Jayaram](https://www.youtube.com/watch?v=TFUxbahamk4)
-- [Mullavallikudilil | Kuyiline thedi | Chunakkara Ramankutty | Shyam | S Janaki | Rohini | Raghu](https://www.youtube.com/watch?v=QH8zy56sZdQ)
-- [Eeshoykkenthoru Sneham | Daivasneham Vilichothunna Kristheeya Bhakthigaanangal  Audio Jukebox](https://www.youtube.com/watch?v=iW8NMSQNycY)
-- [നിങ്ങൾ കേൾക്കാനാഗ്രഹിച്ച എൺപതുകളിലെ മനം മയക്കുന്ന ഗാനങ്ങൾ  | 80s HITS](https://www.youtube.com/watch?v=M3m8OWf-b9Q)
-- [விடுதலை - காட்டுமல்லி தமிழ் பாடல்வரிகள் | இளையராஜா](https://www.youtube.com/watch?v=fGMA8t9SjVY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
