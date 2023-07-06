@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oh January En Mizhiyil | Big B | Sayanora Philip | Alphons Joseph | Jophi Tharakan | Mammootty](https://www.youtube.com/watch?v=g6XyJU_oIkw)
+- [Padakin Arikilayi | Christian Devotional Songs Malayalam | Kester | Praise and Worship Songs](https://www.youtube.com/watch?v=2HszKCQRvHY)
+- [Niramanassode | Auto Brothers | MG Sreekumar | Biju Narayanan | C Thankaraj | Bichu Thirumala](https://www.youtube.com/watch?v=Cp9kPnRHkMY)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 6th of July 2023](https://www.youtube.com/watch?v=tttnhIk-kdA)
 - [അവൻ നിന്റെ കൂടെയുണ്ട്. ഒരിക്കലും നിന്നെ കൈവിടത്തില്ല |  Rev. Aneesh P Joseph |#shorts](https://www.youtube.com/watch?v=ZuRsSVjjsM0)
 - [Ezhaam Kooliyivan | My Dear Karadi | MG Sreekumar | C Thankaraj | Balu Kiriyath](https://www.youtube.com/watch?v=SGzsQyrOaj4)
-- [Thaarakam Deepakam | 1080p | Poonilamazha | Sanjay Mithra | Shraddha Nigam - Yesudas Hits](https://www.youtube.com/watch?v=Lr34Ccydyzo)
-- [CAPTAIN MILLER (Malayalam) - Pooja Video | Dhanush | GV Prakash | Arun Matheswaran](https://www.youtube.com/watch?v=XMoj4qy8YEQ)
-- [അരളിയും കദളിയും | Araliyum Kadaliyum |  Jaathakam Movie Song | Jayaram](https://www.youtube.com/watch?v=TFUxbahamk4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
