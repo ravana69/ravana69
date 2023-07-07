@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [#LoveYouMuthe dance video | #Padmini | #JakesBejoy | #KunchackoBoban | #shorts #ytshorts](https://www.youtube.com/watch?v=xIGcvVvyc1c)
+- [NEELAKASHAVUM | NEW CHRISTIAN SONG | PAVITHRAN AMACHAL | JINO KUNNUMPURATH](https://www.youtube.com/watch?v=55er11zcuds)
 - [Oh Butterfly Butterfly | Naranath Thamburan | Jayaram | Nandhini | M G Sreekumar | M Jayachandran](https://www.youtube.com/watch?v=gbAU8FUE5FY)
 - [Adavitharukkalinidayil | Annamma Mammen | Anna Baby](https://www.youtube.com/watch?v=XSwlfPEfd0Q)
 - [Japamala 7th of July 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 7th of July   2023](https://www.youtube.com/watch?v=z66UHxGCcoc)
 - [Songs Of The Week | Kester | Joji Johns | Sujatha | Christian Superhit Songs | Christian Songs](https://www.youtube.com/watch?v=SXS5ia09aWI)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kreupasam daily prayer and songs #July 6th 2023](https://www.youtube.com/watch?v=OJ01TrbJz-U)
-- [പ്രഭാത പ്രാര്‍ത്ഥന July 7 # Athiravile Prarthana 7th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=iHSgio-4nJk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
