@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Thumbikinnaram | Romantic Duet by K J Yesudas & Gayathri from the movie Naran #shorts](https://www.youtube.com/watch?v=3-p2xljPjdE)
-- [Nanma Nerum Amma | Lokamaathavaaya Meryyude Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=jha1nHVdd7g)
-- [#PranayamaniThooval Videosong | Sujatha | Vidyasagar | Azhakiyaravanan](https://www.youtube.com/watch?v=JN6VHX0dg8Y)
-- [സർവ്വമലയാളികളും ഒരു മനസോടെ ഇരുകൈയ്യും നീട്ടി സ്വീകരിച്ച എക്കാലത്തെയും മികച്ചഗാനങ്ങൾ | EVERGREEN HITS](https://www.youtube.com/watch?v=cTcKCCbsd_k)
-- [Vida Parayukayaano | Big B | Shreya Ghoshal | Alphons Joseph | Santhosh Varma | Mammootty](https://www.youtube.com/watch?v=jLvnAlTgRLc)
-- [#LoveYouMuthe dance video | #Padmini | #JakesBejoy | #KunchackoBoban | #shorts #ytshorts](https://www.youtube.com/watch?v=xIGcvVvyc1c)
+- [#mehabooba 😍🖤 #kgfchapter2 #rockingstaryash #prashanthneel #ravibasrur #bindugowda #ytshorts](https://www.youtube.com/watch?v=i-VGbmPcgsQ)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 7th of July 2023](https://www.youtube.com/watch?v=nxz6opiymBg)
+- [ജീവിതത്തിലെ ഓരോ വഴിത്തിരിവുകളും വെളിപ്പെടുവാനുള്ള ദൈവീക പദ്ധതികൾ | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=Uz34tlHPFWg)
+- [Puthunaambukal - Video Song | Nadhikalil Sundari Yamuna | Dhyan Sreenivasan | Arun Muraleedharan](https://www.youtube.com/watch?v=fRlu-XglnpM)
+- [Munthiripadam film song in Gayathri Veena by Vaikom Vijayalakshmi](https://www.youtube.com/watch?v=1dlQEScj-_o)
+- [Venalum Varshavum | വേനലും വർഷവും | Vijay Yesudas | M Jayachandran | Anoop Menon | Rafeeq Ahamed](https://www.youtube.com/watch?v=DPQyhXW2BB4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
