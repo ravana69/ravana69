@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Adavitharukkalinidayil | Annamma Mammen | Anna Baby](https://www.youtube.com/watch?v=XSwlfPEfd0Q)
+- [Japamala 7th of July 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 7th of July   2023](https://www.youtube.com/watch?v=z66UHxGCcoc)
+- [Songs Of The Week | Kester | Joji Johns | Sujatha | Christian Superhit Songs | Christian Songs](https://www.youtube.com/watch?v=SXS5ia09aWI)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kreupasam daily prayer and songs #July 6th 2023](https://www.youtube.com/watch?v=OJ01TrbJz-U)
 - [പ്രഭാത പ്രാര്‍ത്ഥന July 7 # Athiravile Prarthana 7th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=iHSgio-4nJk)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 7th July 2023](https://www.youtube.com/watch?v=DD6j-RBorM4)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=gFf0zJftFm8)
-- [Doo Doo Durudoo | Sharjah To Sharjah | Jayaram | Aishwarya | Mohan Sithara | MG Sreekumar |](https://www.youtube.com/watch?v=VREXQJL3aL0)
-- [Mohan Sithara, K.S. Chithra - Thurakkaatha Ponvaathil (Lyric Video)](https://www.youtube.com/watch?v=TaYkz0Szp3Q)
-- [Ouseppachan, M.G. Sreekumar - Kaliyoonjaal (Lyric Video)](https://www.youtube.com/watch?v=I4VTRI4m9bI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
