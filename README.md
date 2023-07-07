@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oru Naalu Naalaai | Carnival | Mammootty | Parvathy | Shyam | Shibu Chakravarthy | Unni Menon](https://www.youtube.com/watch?v=wHdp5kl58QA)
 - [അകലാത്ത സ്നേഹിതനെ ...](https://www.youtube.com/watch?v=KPec-b5c39E)
 - [സന്താപമേറും ലോകയാത്രയിൽ | Sujatha | Reji Abraham | Christian Shorts Video](https://www.youtube.com/watch?v=i3QPTloStX0)
 - [Christian Superhit Songs | Chithra Arun | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=oT1Sh_tggZg)
 - [Guruvayurunni Kannane|Aanachantham|Jayaram|Innocent|](https://www.youtube.com/watch?v=QIRV_G2w6D8)
 - [#mehabooba 😍🖤 #kgfchapter2 #rockingstaryash #prashanthneel #ravibasrur #bindugowda #ytshorts](https://www.youtube.com/watch?v=i-VGbmPcgsQ)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 7th of July 2023](https://www.youtube.com/watch?v=nxz6opiymBg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
