@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Guruvayurunni Kannane|Aanachantham|Jayaram|Innocent|](https://www.youtube.com/watch?v=QIRV_G2w6D8)
 - [#mehabooba 😍🖤 #kgfchapter2 #rockingstaryash #prashanthneel #ravibasrur #bindugowda #ytshorts](https://www.youtube.com/watch?v=i-VGbmPcgsQ)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 7th of July 2023](https://www.youtube.com/watch?v=nxz6opiymBg)
 - [ജീവിതത്തിലെ ഓരോ വഴിത്തിരിവുകളും വെളിപ്പെടുവാനുള്ള ദൈവീക പദ്ധതികൾ | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=Uz34tlHPFWg)
 - [Puthunaambukal - Video Song | Nadhikalil Sundari Yamuna | Dhyan Sreenivasan | Arun Muraleedharan](https://www.youtube.com/watch?v=fRlu-XglnpM)
 - [Munthiripadam film song in Gayathri Veena by Vaikom Vijayalakshmi](https://www.youtube.com/watch?v=1dlQEScj-_o)
-- [Venalum Varshavum | വേനലും വർഷവും | Vijay Yesudas | M Jayachandran | Anoop Menon | Rafeeq Ahamed](https://www.youtube.com/watch?v=DPQyhXW2BB4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
