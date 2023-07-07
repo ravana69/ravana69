@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thumbikinnaram | Romantic Duet by K J Yesudas & Gayathri from the movie Naran #shorts](https://www.youtube.com/watch?v=3-p2xljPjdE)
 - [Nanma Nerum Amma | Lokamaathavaaya Meryyude Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=jha1nHVdd7g)
 - [#PranayamaniThooval Videosong | Sujatha | Vidyasagar | Azhakiyaravanan](https://www.youtube.com/watch?v=JN6VHX0dg8Y)
 - [സർവ്വമലയാളികളും ഒരു മനസോടെ ഇരുകൈയ്യും നീട്ടി സ്വീകരിച്ച എക്കാലത്തെയും മികച്ചഗാനങ്ങൾ | EVERGREEN HITS](https://www.youtube.com/watch?v=cTcKCCbsd_k)
 - [Vida Parayukayaano | Big B | Shreya Ghoshal | Alphons Joseph | Santhosh Varma | Mammootty](https://www.youtube.com/watch?v=jLvnAlTgRLc)
 - [#LoveYouMuthe dance video | #Padmini | #JakesBejoy | #KunchackoBoban | #shorts #ytshorts](https://www.youtube.com/watch?v=xIGcvVvyc1c)
-- [NEELAKASHAVUM | NEW CHRISTIAN SONG | PAVITHRAN AMACHAL | JINO KUNNUMPURATH](https://www.youtube.com/watch?v=55er11zcuds)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
