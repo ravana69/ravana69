@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 8th July 2023](https://www.youtube.com/watch?v=Ce6vymZ9f4Q)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=jyt6ARmFFc8)
 - [Oru Naalu Naalaai | Carnival | Mammootty | Parvathy | Shyam | Shibu Chakravarthy | Unni Menon](https://www.youtube.com/watch?v=wHdp5kl58QA)
 - [അകലാത്ത സ്നേഹിതനെ ...](https://www.youtube.com/watch?v=KPec-b5c39E)
 - [സന്താപമേറും ലോകയാത്രയിൽ | Sujatha | Reji Abraham | Christian Shorts Video](https://www.youtube.com/watch?v=i3QPTloStX0)
 - [Christian Superhit Songs | Chithra Arun | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=oT1Sh_tggZg)
-- [Guruvayurunni Kannane|Aanachantham|Jayaram|Innocent|](https://www.youtube.com/watch?v=QIRV_G2w6D8)
-- [#mehabooba 😍🖤 #kgfchapter2 #rockingstaryash #prashanthneel #ravibasrur #bindugowda #ytshorts](https://www.youtube.com/watch?v=i-VGbmPcgsQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
