@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kantha Varavu Kathu | Hephsibha Benson | Malayalam Christian Devotional Songs | കാന്താ വരവ് കാത്ത്](https://www.youtube.com/watch?v=70Fh_FkGTi0)
+- [ദാസനായി കരുതണെ വരികയായ് ഞാൻ പിതാവേ...](https://www.youtube.com/watch?v=lV_OuNTCDU0)
+- [Yeshu Nadha Ente Rekshka | Christian Video Song | Sebu George | Manu Vakathanam | Joji Johns](https://www.youtube.com/watch?v=MiSfwW7DNJs)
 - [Tik Tik Tik Nee Thottappol | Parayam | Rajesh | Jyotsna | Vijay Yesudas | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=va5zaRfZ7VU)
 - [വേദനയിൽ മാറോടണയ്ക്കുന്ന ഒരു ദൈവമുണ്ട് | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=whQPCOpdjxY)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 8th of July 2023](https://www.youtube.com/watch?v=rq1TpyuaRLw)
-- [പൂ ചിരിച്ചു | Poo Chirichu Pinne Nee Chirichu | Agnisaram | P Jayachandran | Jayan | Jayabharathi](https://www.youtube.com/watch?v=MF5PYDD8IBU)
-- [Pineapple Penne | Film Songs Animation | Animated Video Songs | Vellinakshathram | Franco | Jyotsna](https://www.youtube.com/watch?v=DR4QwhhBze8)
-- [Koohu Koohu | The Campus | KS Chithra | M Jayachandran | MD Rajendran](https://www.youtube.com/watch?v=3wXl9s2W-X4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
