@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Vibes Of #loveyoumuthe 💘| Padmini |Saregama Malayalam #shorts #ytshorts](https://www.youtube.com/watch?v=lmq6rfsFiDM)
-- [#Kadirangi Odi Video Song | C.I.D.Moosa | Dileep | Vidyasagar | Johny Antony](https://www.youtube.com/watch?v=h5_3JMGkGkE)
-- [മലയാളസിനിമയിലെ സൂപ്പർഹിറ്റ് ചലച്ചിത്രഗാനങ്ങൾ | SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=RjyKwkX6VkQ)
-- [തന്റെ പ്രണയിനിക്ക് ഏറ്റവും ഇഷ്‌ടമുള്ള മലയാളസിനിമയിലെ 10 പ്രണയഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=7_YHjSICyuI)
-- [ഒന്നിനൊന്ന് മെച്ചമാം സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ കൊണ്ട് തീർത്ത ഗാനശേഖരം | EVERGREEN SUPERHIT SONGS](https://www.youtube.com/watch?v=kVBq_L8Llow)
-- [Kanive Evide - Lyrical Video | Vaathil | Vinay Fort , Anu Sithara | Sejo John | Sarju Remakanth](https://www.youtube.com/watch?v=YvkCRxt91b8)
+- [Tik Tik Tik Nee Thottappol | Parayam | Rajesh | Jyotsna | Vijay Yesudas | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=va5zaRfZ7VU)
+- [വേദനയിൽ മാറോടണയ്ക്കുന്ന ഒരു ദൈവമുണ്ട് | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=whQPCOpdjxY)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 8th of July 2023](https://www.youtube.com/watch?v=rq1TpyuaRLw)
+- [പൂ ചിരിച്ചു | Poo Chirichu Pinne Nee Chirichu | Agnisaram | P Jayachandran | Jayan | Jayabharathi](https://www.youtube.com/watch?v=MF5PYDD8IBU)
+- [Pineapple Penne | Film Songs Animation | Animated Video Songs | Vellinakshathram | Franco | Jyotsna](https://www.youtube.com/watch?v=DR4QwhhBze8)
+- [Koohu Koohu | The Campus | KS Chithra | M Jayachandran | MD Rajendran](https://www.youtube.com/watch?v=3wXl9s2W-X4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
