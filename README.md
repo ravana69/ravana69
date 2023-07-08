@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളസിനിമയിലെ സൂപ്പർഹിറ്റ് ചലച്ചിത്രഗാനങ്ങൾ | SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=RjyKwkX6VkQ)
+- [തന്റെ പ്രണയിനിക്ക് ഏറ്റവും ഇഷ്‌ടമുള്ള മലയാളസിനിമയിലെ 10 പ്രണയഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=7_YHjSICyuI)
+- [ഒന്നിനൊന്ന് മെച്ചമാം സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ കൊണ്ട് തീർത്ത ഗാനശേഖരം | EVERGREEN SUPERHIT SONGS](https://www.youtube.com/watch?v=kVBq_L8Llow)
 - [Pada Nooru Pala Ooru - Video Song | Neymar| Mathew,Naslen| Deepak Blue| Shaan Rahman| Sudhi Maddison](https://www.youtube.com/watch?v=PnJQy3fH3gE)
 - [Mukilvarna Mukunda | Lyrical Video | Bahubali 2 - The Conclusion | Swetha Mohan | M M Keeravani](https://www.youtube.com/watch?v=7xjFxIlUydI)
 - [Christian Video Songs Malayalam | Madhu Balakrishnan | Christian Superhit Songs | Rithuraj](https://www.youtube.com/watch?v=xAEByiqNyvE)
-- [Japamala 8th of July  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 8th of July 2023](https://www.youtube.com/watch?v=aKs-H0qslNU)
-- [രാവിലെ പ്രാര്‍ത്ഥന  July 8 shorts  # Athiravile Prarthana 8th of July 2023 Morning Prayer shorts](https://www.youtube.com/watch?v=HGOL9xIN5io)
-- [രാവിലെ പ്രാര്‍ത്ഥന  July 8 # Athiravile Prarthana 8th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=B7RzcsTNovc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
