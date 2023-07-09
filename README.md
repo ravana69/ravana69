@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പാട്ടുപെട്ടി - Paattupetti Vol 15 | Malayalam Film Songs](https://www.youtube.com/watch?v=eOL3ev-QO0w)
 - [Manjin Thooval | Beautiful Romantic Melody by K S Chithra & Unni Menon from the movie Avial #shorts](https://www.youtube.com/watch?v=usx8aWFAQ8M)
 - [Vaanam Pole | Dhosth | Dileep | Kunchacko Boban | S.P.Balasubrahmaniam | Vidyasagar | Biju Narayanan](https://www.youtube.com/watch?v=U4-tXAOLK8g)
 - [രോഗങ്ങളാൽ വലഞ്ഞിടും നേരം | Sujatha | Reji Abraham | Christian Shorts Video](https://www.youtube.com/watch?v=XutxTIvtKEM)
 - [പ്രഭാതങ്ങൾ അനുഗ്രഹ പൂരിതമാക്കിയ പ്രഭാത ഗാനങ്ങൾ | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=cx0H5AjDvF0)
 - [Japamala 9th of July 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 9th of July 2023](https://www.youtube.com/watch?v=aSBgcMj1B3U)
-- [പ്രഭാത പ്രാര്‍ത്ഥന July 9 # Athiravile Prarthana 9th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=QBUaSBW7Ka8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
