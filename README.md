@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രോഗങ്ങളാൽ വലഞ്ഞിടും നേരം | Sujatha | Reji Abraham | Christian Shorts Video](https://www.youtube.com/watch?v=XutxTIvtKEM)
+- [പ്രഭാതങ്ങൾ അനുഗ്രഹ പൂരിതമാക്കിയ പ്രഭാത ഗാനങ്ങൾ | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=cx0H5AjDvF0)
+- [Japamala 9th of July 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 9th of July 2023](https://www.youtube.com/watch?v=aSBgcMj1B3U)
 - [പ്രഭാത പ്രാര്‍ത്ഥന July 9 # Athiravile Prarthana 9th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=QBUaSBW7Ka8)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 9th July 2023](https://www.youtube.com/watch?v=8OQ6WwVP1rc)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=Q712TTfUupg)
-- [Onnam Kombathe | Ottamandaram | Ramesh Narayan | Bhama | Shweta Mohan | Vinod Mankara](https://www.youtube.com/watch?v=8qOF50S0Wp8)
-- [Kantha Varavu Kathu | Hephsibha Benson | Malayalam Christian Devotional Songs | കാന്താ വരവ് കാത്ത്](https://www.youtube.com/watch?v=70Fh_FkGTi0)
-- [ദാസനായി കരുതണെ വരികയായ് ഞാൻ പിതാവേ...](https://www.youtube.com/watch?v=lV_OuNTCDU0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
