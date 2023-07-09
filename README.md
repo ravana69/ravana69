@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 9th of July 2023](https://www.youtube.com/watch?v=7Hluh1U1tnA)
+- [കാഴ്ചയാൽ ഉള്ളതല്ല വിശ്വാസം | Rev. Aneesh P Joseph | #shorts #jesusshorts](https://www.youtube.com/watch?v=5uF7Kh8yQ0Y)
+- [Mazhanilavinte | Meghasandesham | Super Hit Movie Song | Suresh Gopi | Rajasree Nair | Indrans](https://www.youtube.com/watch?v=dj37FLv479c)
+- [Ayyo Ayyo Full Video Song | HD | Spanish Masala Movie Song | REMASTERED |](https://www.youtube.com/watch?v=fmvpohA_XhU)
 - [Dhanumasa Kaate Vaayo | Muthodu Muthu | Chunakkara Ramankutty | Shankar | Menaka - Shyam Hits](https://www.youtube.com/watch?v=tIv7C3CL56Y)
 - [മാണിക്യക്കുയിലെ നീ കാണാത്ത കാടുണ്ടോ ! #shortsyoutube #bestmelodysongs](https://www.youtube.com/watch?v=z15Z51ByCco)
-- [പാട്ടുപെട്ടി - Paattupetti Vol 15 | Malayalam Film Songs](https://www.youtube.com/watch?v=eOL3ev-QO0w)
-- [Manjin Thooval | Beautiful Romantic Melody by K S Chithra & Unni Menon from the movie Avial #shorts](https://www.youtube.com/watch?v=usx8aWFAQ8M)
-- [Vaanam Pole | Dhosth | Dileep | Kunchacko Boban | S.P.Balasubrahmaniam | Vidyasagar | Biju Narayanan](https://www.youtube.com/watch?v=U4-tXAOLK8g)
-- [രോഗങ്ങളാൽ വലഞ്ഞിടും നേരം | Sujatha | Reji Abraham | Christian Shorts Video](https://www.youtube.com/watch?v=XutxTIvtKEM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
