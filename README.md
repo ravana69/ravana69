@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Athire Yadhu Radhike | Naranathu Thamburan | S Ramesan Nair | M Jayachandran | KJ Yesudas | Jayaram](https://www.youtube.com/watch?v=7-wzU9GxLUE)
+- [Kannil Nee Thenmalarayi | Muthodu Muthu | Shankar | Menaka - Shyam Hits | KJ Yesudas & S Janaki](https://www.youtube.com/watch?v=5rgCPadJzmk)
+- [Christian Superhit Songs | Kester | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=-fc01v4l76g)
 - [ആധിയും , വ്യാധിയും നീക്കി എന്നിലെന്നും കനിയേണമേ ...](https://www.youtube.com/watch?v=Q68cTO5_3q8)
 - [Enikku Paduvaan | Parayam | KJ Yesudas | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=zebgKR2aq6c)
 - [ഈ  ഭാരം ഒരു അനുഗ്രഹമല്ലേ? |  Rev. Aneesh P Joseph | #shorts #jesusshorts](https://www.youtube.com/watch?v=RraTQrDWvVc)
-- [Mangalam Koodan | Malarvaadi Arts Club | Vineeth Sreenivasan | Shaan Rahman | Animation Video Song](https://www.youtube.com/watch?v=vDLvB8PzeWc)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 10th of July 2023](https://www.youtube.com/watch?v=BDesD4zNdX8)
-- [Othiri Othiri Snehichu Poi | Kattuchembakam | Sujatha Mohan | Mohan Sithara | Vinayan](https://www.youtube.com/watch?v=xWklZ3OyFzE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
