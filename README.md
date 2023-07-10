@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [#loveyoumuthe Vibes Starts  💘| Padmini | Saregama Malayalam #shorts #ytshorts](https://www.youtube.com/watch?v=fE6EVALNt4Q)
 - [ദേവാധി ദേവസുതൻ | George Peter Chittur | Libin Scaria | Shorts](https://www.youtube.com/watch?v=sb4tGfbAITU)
 - [Japamala 10th of July  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 10th of July 2023](https://www.youtube.com/watch?v=zsKpuTe5H5g)
 - [Christian Morning Prayer Songs | Wilson Pirvaom | Prabhatha Geethangal | Christian Melody Songs](https://www.youtube.com/watch?v=fGevnQV66g4)
 - [രാവിലെ പ്രാര്‍ത്ഥന  July 10 shorts  # Athiravile Prarthana 10th of July 2023 Morning Prayer shorts](https://www.youtube.com/watch?v=kxnv3uFO8o0)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം# July 10th  mother Mary prayer and songs Malayalam](https://www.youtube.com/watch?v=yoW8iyL4qeI)
-- [രാവിലെ പ്രാര്‍ത്ഥന  July 10 # Athiravile Prarthana 10th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=WWmnVigD6as)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
