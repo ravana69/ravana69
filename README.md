@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Sthuthipin sthuthippin / സ്തുതിപ്പിന്‍ സ്തുതിപ്പിന്‍ യേശു ദേവനെ / DEEPA MARIYAM](https://www.youtube.com/watch?v=8qn2mAs8-zo)
 - [മനസ് ശാന്തമാകും മലയാള സിനിമയിലെ സൂപ്പർഹിറ്റ് മെലഡി ഗാനങ്ങൾ |Evergreen Nalayalam Film Songs](https://www.youtube.com/watch?v=BI-MQnEd48g)
 - [#loveyoumuthe Vibes Starts  💘| Padmini | Saregama Malayalam #shorts #ytshorts](https://www.youtube.com/watch?v=fE6EVALNt4Q)
 - [ദേവാധി ദേവസുതൻ | George Peter Chittur | Libin Scaria | Shorts](https://www.youtube.com/watch?v=sb4tGfbAITU)
 - [Japamala 10th of July  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 10th of July 2023](https://www.youtube.com/watch?v=zsKpuTe5H5g)
 - [Christian Morning Prayer Songs | Wilson Pirvaom | Prabhatha Geethangal | Christian Melody Songs](https://www.youtube.com/watch?v=fGevnQV66g4)
-- [രാവിലെ പ്രാര്‍ത്ഥന  July 10 shorts  # Athiravile Prarthana 10th of July 2023 Morning Prayer shorts](https://www.youtube.com/watch?v=kxnv3uFO8o0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
