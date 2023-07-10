@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈ  ഭാരം ഒരു അനുഗ്രഹമല്ലേ? |  Rev. Aneesh P Joseph | #shorts #jesusshorts](https://www.youtube.com/watch?v=RraTQrDWvVc)
+- [Mangalam Koodan | Malarvaadi Arts Club | Vineeth Sreenivasan | Shaan Rahman | Animation Video Song](https://www.youtube.com/watch?v=vDLvB8PzeWc)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 10th of July 2023](https://www.youtube.com/watch?v=BDesD4zNdX8)
+- [Othiri Othiri Snehichu Poi | Kattuchembakam | Sujatha Mohan | Mohan Sithara | Vinayan](https://www.youtube.com/watch?v=xWklZ3OyFzE)
+- [നീല നീല സമുദ്രത്തിന്നക്കരെയായി | Neela Neela Samudrathin - Achaani |  P Madhuri | Prem Nazeer](https://www.youtube.com/watch?v=HSOk_Y6Hcro)
 - [Aradhya - Song Promo | Kushi (Malayalam) | Vijay Deverakonda, Samantha | Hesham Abdul Wahab](https://www.youtube.com/watch?v=_DBNkFGus0U)
-- [Sarvashakthan | Swargapithaavinte gaanangal | Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=W_0HZR1F4YQ)
-- [Sthuthipin sthuthippin / സ്തുതിപ്പിന്‍ സ്തുതിപ്പിന്‍ യേശു ദേവനെ / DEEPA MARIYAM](https://www.youtube.com/watch?v=8qn2mAs8-zo)
-- [മനസ് ശാന്തമാകും മലയാള സിനിമയിലെ സൂപ്പർഹിറ്റ് മെലഡി ഗാനങ്ങൾ |Evergreen Nalayalam Film Songs](https://www.youtube.com/watch?v=BI-MQnEd48g)
-- [#loveyoumuthe Vibes Starts  💘| Padmini | Saregama Malayalam #shorts #ytshorts](https://www.youtube.com/watch?v=fE6EVALNt4Q)
-- [Pullu | Official Trailer | Riyaz Raz | Praveen Kelikkoden | Shabitha | Aji Vavachan | Movie Trailers](https://www.youtube.com/watch?v=C-84jri3QlY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
