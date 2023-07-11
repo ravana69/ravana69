@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thulli Thulli | Parayam | Anwar Sadath | Smitha | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=7BB9Cyh6h0c)
+- [Aalmara Kaakka The Poetic Theppu - Lyrical | Padmini | Kunchacko Boban | Senna Hegde | Jakes Bejoy](https://www.youtube.com/watch?v=jkgqwl9cIXI)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 11th of July 2023](https://www.youtube.com/watch?v=dCJtk9viskY)
 - [ആശ്വസിപ്പിക്കാൻ ഒരാൾ ഉണ്ടായിരിക്കുക എന്നത് ഏതൊരു മനുഷ്യന്റെയും വലിയ ഭാഗ്യമാണ് | Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=kK7kIguiHCY)
 - [Kaitha Poothathum | Cousins Movie Song | Kunchacko Boban ,Indrajith, Vedhika | M Jayachandran](https://www.youtube.com/watch?v=de1xyjRJy0w)
 - [Maane Pedamaane | Kattuchembakam | Sujatha Mohan | Mohan Sithara | Vinayan](https://www.youtube.com/watch?v=1ZSUDAqPKik)
-- [En Priyan Yeshuvin Karaoke | Sineesh Chackochan | Malayalam Christian Karaoke | Christian Karaoke](https://www.youtube.com/watch?v=at0N1CRVbV4)
-- [ചില്ലു വിളക്കുമായ് | Chillu Vilakkumayi | Churam Movie Song | Johnson | KS Chithra | Divya Unni](https://www.youtube.com/watch?v=iQ9f_KSZTd0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
