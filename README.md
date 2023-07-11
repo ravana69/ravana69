@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രണയത്തിൻ പെരുമഴക്കാലം തീർത്ത മലയാളസിനിമയിലെ അതുല്ല്യ പ്രതിഭകളുടെ ഗാനങ്ങൾ | EVERGREEN HIT SONGS](https://www.youtube.com/watch?v=yHRmXR82Ztg)
+- [ഓരോ മലയാളിയുടെയും ഹൃദയത്തിൽ അറിയാതെ വിരുന്നെത്തുന്ന അനുഭൂതിയേകും ഗാനങ്ങൾ | EVERGREEN HIT SONGS](https://www.youtube.com/watch?v=JyvDseCCoFE)
+- [Oh Butterfly | Naaranathu Thamburan | S Rameshan Nair | M Jayachandran | MG Sreekumar | Jayaram](https://www.youtube.com/watch?v=9KUqaqxISBc)
 - [NEELAKASHAVUM | NEW CHRISTIAN SONG | PAVITHRAN AMACHAL | JINO KUNNUMPURATH | REEL 01](https://www.youtube.com/watch?v=tr8r_re1eV8)
 - [Duet dance for #loveyoumuthe | Padmini | Saregama Malayalam #shorts #ytshorts](https://www.youtube.com/watch?v=jLtA8J6pQjA)
 - [Ente Pranayathin | Lyrical Video | Chembada | Najim Arshad |Jyothsna| Bala | Musafir|Robin Thirumala](https://www.youtube.com/watch?v=Dz9fG0ncx-g)
-- [Junile Nilamazhayil Shorts | Nammal Thammil | Prithviraj | Geethu Mohandas | Yesudas](https://www.youtube.com/watch?v=7rTKF4qLfpQ)
-- [Katte Katte Mindalle | Sathyam | Prithviraj | Priyamani | M.G.Sreekumar | Vinayan | M.Jayachandran](https://www.youtube.com/watch?v=g7ZeE05zKig)
-- [Yeshuve Shorts Video | M K Arjunan Master | K S Chithra | Nimmy Ambujakshan](https://www.youtube.com/watch?v=N3AQnzwGauU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
