@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന  July 12 # Athiravile Prarthana 12th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=tZNe9dJVbVA)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 12th July 2023](https://www.youtube.com/watch?v=TeEM7riu-gU)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=RCVseDmdvbA)
 - [Ambilipoo Maarano | Sreekrishnapurathu Nakshathrathilakkam | Jagathy | Innocent | Nagma](https://www.youtube.com/watch?v=hMMYbMxNjeM)
 - [വീണ പൂവിൻ വേദനയും വിരിയുന്ന പൂവിൻ ആശകളും അറിയുന്നവൻ....](https://www.youtube.com/watch?v=d_UvIwIOIjw)
 - [Yeshuve Ente Daivame | Christian Melody Song | Chithra Arun | Br.Anil Malappuram | Joji Johns](https://www.youtube.com/watch?v=JbtbO9eKdDI)
-- [Thulli Thulli | Parayam | Anwar Sadath | Smitha | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=7BB9Cyh6h0c)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
