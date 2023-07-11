@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Junile Nilamazhayil Shorts | Nammal Thammil | Prithviraj | Geethu Mohandas | Yesudas](https://www.youtube.com/watch?v=7rTKF4qLfpQ)
+- [Katte Katte Mindalle | Sathyam | Prithviraj | Priyamani | M.G.Sreekumar | Vinayan | M.Jayachandran](https://www.youtube.com/watch?v=g7ZeE05zKig)
 - [Yeshuve Shorts Video | M K Arjunan Master | K S Chithra | Nimmy Ambujakshan](https://www.youtube.com/watch?v=N3AQnzwGauU)
 - [Singers Of The Week | MG Sreekumar | Sujatha Mohan | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=ONYaV50EVmY)
 - [Japamala 11th of July 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 11th of July   2023](https://www.youtube.com/watch?v=F2x2w7DEago)
 - [അതിരാവിലെ കേൾക്കാൻ പറ്റിയ കുറച്ചു നല്ല ഗാനങ്ങൾ  #Morning Christian devotional songs Malayalam](https://www.youtube.com/watch?v=ndXJXD41kF4)
-- [രാവിലെ പ്രാര്‍ത്ഥന  July 11 shorts  # Athiravile Prarthana 11th of July 2023 Morning Prayer shorts](https://www.youtube.com/watch?v=Zf5P7wd7iCU)
-- [പ്രഭാത പ്രാര്‍ത്ഥന July 11 # Athiravile Prarthana 11th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=QkRdx_5PMuI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
