@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ambilipoo Maarano | Sreekrishnapurathu Nakshathrathilakkam | Jagathy | Innocent | Nagma](https://www.youtube.com/watch?v=hMMYbMxNjeM)
 - [വീണ പൂവിൻ വേദനയും വിരിയുന്ന പൂവിൻ ആശകളും അറിയുന്നവൻ....](https://www.youtube.com/watch?v=d_UvIwIOIjw)
 - [Yeshuve Ente Daivame | Christian Melody Song | Chithra Arun | Br.Anil Malappuram | Joji Johns](https://www.youtube.com/watch?v=JbtbO9eKdDI)
 - [Thulli Thulli | Parayam | Anwar Sadath | Smitha | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=7BB9Cyh6h0c)
 - [Aalmara Kaakka The Poetic Theppu - Lyrical | Padmini | Kunchacko Boban | Senna Hegde | Jakes Bejoy](https://www.youtube.com/watch?v=jkgqwl9cIXI)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 11th of July 2023](https://www.youtube.com/watch?v=dCJtk9viskY)
-- [ആശ്വസിപ്പിക്കാൻ ഒരാൾ ഉണ്ടായിരിക്കുക എന്നത് ഏതൊരു മനുഷ്യന്റെയും വലിയ ഭാഗ്യമാണ് | Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=kK7kIguiHCY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
