@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Yeshuve Shorts Video | M K Arjunan Master | K S Chithra | Nimmy Ambujakshan](https://www.youtube.com/watch?v=N3AQnzwGauU)
+- [Singers Of The Week | MG Sreekumar | Sujatha Mohan | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=ONYaV50EVmY)
+- [Japamala 11th of July 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 11th of July   2023](https://www.youtube.com/watch?v=F2x2w7DEago)
+- [അതിരാവിലെ കേൾക്കാൻ പറ്റിയ കുറച്ചു നല്ല ഗാനങ്ങൾ  #Morning Christian devotional songs Malayalam](https://www.youtube.com/watch?v=ndXJXD41kF4)
+- [രാവിലെ പ്രാര്‍ത്ഥന  July 11 shorts  # Athiravile Prarthana 11th of July 2023 Morning Prayer shorts](https://www.youtube.com/watch?v=Zf5P7wd7iCU)
 - [പ്രഭാത പ്രാര്‍ത്ഥന July 11 # Athiravile Prarthana 11th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=QkRdx_5PMuI)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 11th July 2023](https://www.youtube.com/watch?v=tQHcImb1xBs)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=4xVHw9wbUu0)
-- [കൊഞ്ചും നിന്ഇ മ്പം | Konjum Nin Impam Thalavattom | Evergreen Hit Songs | Yesudas, Chithra](https://www.youtube.com/watch?v=n0ZPd490DQM)
-- [Manchadichoppu Minungum | Thiruthalvaadi | Jagadheesh | Siddique | Chithra | S.P.Venkitesh](https://www.youtube.com/watch?v=WK_h0xnLStA)
-- [kannethaa doore(താഴ്‌വാരം )Vinod velayudhan](https://www.youtube.com/watch?v=7DreqPiujLU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
