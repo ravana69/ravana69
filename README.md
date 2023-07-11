@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 11th of July 2023](https://www.youtube.com/watch?v=dCJtk9viskY)
+- [ആശ്വസിപ്പിക്കാൻ ഒരാൾ ഉണ്ടായിരിക്കുക എന്നത് ഏതൊരു മനുഷ്യന്റെയും വലിയ ഭാഗ്യമാണ് | Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=kK7kIguiHCY)
+- [Kaitha Poothathum | Cousins Movie Song | Kunchacko Boban ,Indrajith, Vedhika | M Jayachandran](https://www.youtube.com/watch?v=de1xyjRJy0w)
+- [Maane Pedamaane | Kattuchembakam | Sujatha Mohan | Mohan Sithara | Vinayan](https://www.youtube.com/watch?v=1ZSUDAqPKik)
+- [En Priyan Yeshuvin Karaoke | Sineesh Chackochan | Malayalam Christian Karaoke | Christian Karaoke](https://www.youtube.com/watch?v=at0N1CRVbV4)
 - [ചില്ലു വിളക്കുമായ് | Chillu Vilakkumayi | Churam Movie Song | Johnson | KS Chithra | Divya Unni](https://www.youtube.com/watch?v=iQ9f_KSZTd0)
-- [പ്രണയത്തിൻ പെരുമഴക്കാലം തീർത്ത മലയാളസിനിമയിലെ അതുല്ല്യ പ്രതിഭകളുടെ ഗാനങ്ങൾ | EVERGREEN HIT SONGS](https://www.youtube.com/watch?v=yHRmXR82Ztg)
-- [ഓരോ മലയാളിയുടെയും ഹൃദയത്തിൽ അറിയാതെ വിരുന്നെത്തുന്ന അനുഭൂതിയേകും ഗാനങ്ങൾ | EVERGREEN HIT SONGS](https://www.youtube.com/watch?v=JyvDseCCoFE)
-- [Oh Butterfly | Naaranathu Thamburan | S Rameshan Nair | M Jayachandran | MG Sreekumar | Jayaram](https://www.youtube.com/watch?v=9KUqaqxISBc)
-- [NEELAKASHAVUM | NEW CHRISTIAN SONG | PAVITHRAN AMACHAL | JINO KUNNUMPURATH | REEL 01](https://www.youtube.com/watch?v=tr8r_re1eV8)
-- [Duet dance for #loveyoumuthe | Padmini | Saregama Malayalam #shorts #ytshorts](https://www.youtube.com/watch?v=jLtA8J6pQjA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
