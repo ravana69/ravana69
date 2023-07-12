@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ennuyire - Lyrical Video | Chethaaram | Sujatha Mohan, Biju Narayanan | Mohan Sithara](https://www.youtube.com/watch?v=Yo1j9oxJbi0)
+- [Pularoli Vannu | Beautiful song by Vijay Yesudas from Mammootty Film Bhaskar the Rascal  #shorts](https://www.youtube.com/watch?v=lKZ9JvcjDgQ)
+- [Kilimakale Nee Kando | Kattuchembakam | P Jayachandran | Sujatha Mohan | Mohan Sithara | Vinayan](https://www.youtube.com/watch?v=26D86sLLar8)
 - [ജയന്റെ അടിപൊളി സോങ്ങ് | പൂ ചിരിച്ചു | Poo Chirichu Pinne Nee Chirichu | Agnisaram | Jayan](https://www.youtube.com/watch?v=Yy--SWrO1GY)
 - [Parishudhaathmaave | Kadhanam Marakkunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=ytyEyBQ40so)
 - [Hemandhamayi | Ponnumkudathinu Pottu | Chunakkara Ramankutty | Shyam | KJ Yesudas | Shankar](https://www.youtube.com/watch?v=cJBUsChKptc)
-- [ഒരു കേൾവിക്കാരന്റെ മനസ്സിൽ എന്നും മായാതെ നിൽക്കുന്ന മധുര മനോഹര ഗാനങ്ങൾ | EVERGREEN HIT SONGS](https://www.youtube.com/watch?v=eHQBcaWcQuY)
-- [Duet dance for #loveyoumuthe | Padmini | Saregama Malayalam #shorts #ytshorts](https://www.youtube.com/watch?v=_24859zbrsY)
-- [പൊന്നിട്ട പെട്ടകം പൂട്ടല്ലേ 😍😇 | Dileep Super Hit Song](https://www.youtube.com/watch?v=-Dt2482EToc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
