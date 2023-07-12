@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പൊന്നിട്ട പെട്ടകം പൂട്ടല്ലേ 😍😇 | Dileep Super Hit Song](https://www.youtube.com/watch?v=-Dt2482EToc)
 - [Paravakalkkaharam | George Peter Chittur | Libin Scaria | Shorts](https://www.youtube.com/watch?v=6iY0f-M9px8)
 - [Japamala 12th of July 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 12th of July 2023](https://www.youtube.com/watch?v=vAyp2e1u-i0)
 - [Padumen Adharangalil |Christian Video Song | Shymol Alex | Jaison Joseph | Christian Melody Song](https://www.youtube.com/watch?v=r50wzHMMHD0)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #july 12th mother Mary songs Malayalam](https://www.youtube.com/watch?v=4WXmhMOy9qE)
 - [രാവിലെ പ്രാര്‍ത്ഥന  July 12 shorts  # Athiravile Prarthana 12th of July 2023 Morning Prayer shorts](https://www.youtube.com/watch?v=VtfmASsmhu4)
-- [രാവിലെ പ്രാര്‍ത്ഥന  July 12 # Athiravile Prarthana 12th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=tZNe9dJVbVA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
