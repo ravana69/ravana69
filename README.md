@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Paravakalkkaharam | George Peter Chittur | Libin Scaria | Shorts](https://www.youtube.com/watch?v=6iY0f-M9px8)
+- [Japamala 12th of July 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 12th of July 2023](https://www.youtube.com/watch?v=vAyp2e1u-i0)
+- [Padumen Adharangalil |Christian Video Song | Shymol Alex | Jaison Joseph | Christian Melody Song](https://www.youtube.com/watch?v=r50wzHMMHD0)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #july 12th mother Mary songs Malayalam](https://www.youtube.com/watch?v=4WXmhMOy9qE)
 - [രാവിലെ പ്രാര്‍ത്ഥന  July 12 shorts  # Athiravile Prarthana 12th of July 2023 Morning Prayer shorts](https://www.youtube.com/watch?v=VtfmASsmhu4)
 - [രാവിലെ പ്രാര്‍ത്ഥന  July 12 # Athiravile Prarthana 12th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=tZNe9dJVbVA)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 12th July 2023](https://www.youtube.com/watch?v=TeEM7riu-gU)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=RCVseDmdvbA)
-- [Ambilipoo Maarano | Sreekrishnapurathu Nakshathrathilakkam | Jagathy | Innocent | Nagma](https://www.youtube.com/watch?v=hMMYbMxNjeM)
-- [വീണ പൂവിൻ വേദനയും വിരിയുന്ന പൂവിൻ ആശകളും അറിയുന്നവൻ....](https://www.youtube.com/watch?v=d_UvIwIOIjw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
