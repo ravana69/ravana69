@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Parishudhaathmaave | Kadhanam Marakkunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=ytyEyBQ40so)
 - [Hemandhamayi | Ponnumkudathinu Pottu | Chunakkara Ramankutty | Shyam | KJ Yesudas | Shankar](https://www.youtube.com/watch?v=cJBUsChKptc)
 - [ഒരു കേൾവിക്കാരന്റെ മനസ്സിൽ എന്നും മായാതെ നിൽക്കുന്ന മധുര മനോഹര ഗാനങ്ങൾ | EVERGREEN HIT SONGS](https://www.youtube.com/watch?v=eHQBcaWcQuY)
 - [Duet dance for #loveyoumuthe | Padmini | Saregama Malayalam #shorts #ytshorts](https://www.youtube.com/watch?v=_24859zbrsY)
 - [പൊന്നിട്ട പെട്ടകം പൂട്ടല്ലേ 😍😇 | Dileep Super Hit Song](https://www.youtube.com/watch?v=-Dt2482EToc)
 - [Paravakalkkaharam | George Peter Chittur | Libin Scaria | Shorts](https://www.youtube.com/watch?v=6iY0f-M9px8)
-- [Japamala 12th of July 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 12th of July 2023](https://www.youtube.com/watch?v=vAyp2e1u-i0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
