@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Saturday Night  OST | Original Soundtrack | Jakes Bejoy | Nivin Pauly | Aju Varghese | Saiju Kurup](https://www.youtube.com/watch?v=Wix834-WzH0)
+- [Ramayana Parayanam by Sithara Krishnakumar](https://www.youtube.com/watch?v=pjbZtUbP39Q)
 - [Puthumazhayayi Pozhiyam Video Song | Mudra | M G Sreekumar | Kaithapram | Mohan Sithara](https://www.youtube.com/watch?v=JR6h8egcZ-I)
 - [നറുമണം തൂകും സുഗന്ധം പോൽ മനസ്സ് തരളിതമാക്കും ഗാനങ്ങൾ | EVERGREEN MALAYALAM FILM SONGS | NISARI MUSIC](https://www.youtube.com/watch?v=kz5KacSdTyc)
 - [Karukavayal Kuruvi | Dhruvam | SP Venkitesh | Shibu Chakravarthi | KS Chithra | Mammooty | Gauthami](https://www.youtube.com/watch?v=-tmkFQJVq3E)
 - [Step up for #loveyoumuthe | Padmini | Saregama Malayalam #shorts #ytshorts](https://www.youtube.com/watch?v=dBufnms6JCw)
-- [Thumbippenne Vaa Vaa | Dhruvam | Jayaram | Rudra | Yesudas | Sujatha | Joshi | Mammootty](https://www.youtube.com/watch?v=1cd70O5DYS0)
-- [Yeshuve   reels   2](https://www.youtube.com/watch?v=YIzNa-IS4vo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
