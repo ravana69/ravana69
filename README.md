@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Saturday Night  OST | Original Soundtrack | Jakes Bejoy | Nivin Pauly | Aju Varghese | Saiju Kurup](https://www.youtube.com/watch?v=Wix834-WzH0)
-- [Ramayana Parayanam by Sithara Krishnakumar](https://www.youtube.com/watch?v=pjbZtUbP39Q)
-- [Puthumazhayayi Pozhiyam Video Song | Mudra | M G Sreekumar | Kaithapram | Mohan Sithara](https://www.youtube.com/watch?v=JR6h8egcZ-I)
-- [നറുമണം തൂകും സുഗന്ധം പോൽ മനസ്സ് തരളിതമാക്കും ഗാനങ്ങൾ | EVERGREEN MALAYALAM FILM SONGS | NISARI MUSIC](https://www.youtube.com/watch?v=kz5KacSdTyc)
-- [Karukavayal Kuruvi | Dhruvam | SP Venkitesh | Shibu Chakravarthi | KS Chithra | Mammooty | Gauthami](https://www.youtube.com/watch?v=-tmkFQJVq3E)
-- [Step up for #loveyoumuthe | Padmini | Saregama Malayalam #shorts #ytshorts](https://www.youtube.com/watch?v=dBufnms6JCw)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 13th of July 2023](https://www.youtube.com/watch?v=d0YlSshcPvY)
+- [കടന്നുവന്ന വഴികളിലെല്ലാം ദൈവത്തിന്റെ അനന്തമായ കൃപയുണ്ട്.| Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=MwEIHReNBeo)
+- [തൂമഞ്ഞിൽ മുങ്ങിപ്പൊങ്ങി | Thoomanjil Mungi Pongi | Sangharsham (1981) | Malayalam Old Hits | Yesudas](https://www.youtube.com/watch?v=a_2NH4s5h4g)
+- [രാമായണ വിചാരം by സരിത അയ്യർ( രാമായണം നൽകുന്ന സദ്ചിന്തകളും സന്ദേശങ്ങളും) കർക്കടകമാസത്തിൽ എല്ലാ ദിനവും](https://www.youtube.com/watch?v=0OjQSGwSNwQ)
+- [Aashwasadayaka Paavanaathma | Manassinu Aashwasamekunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=O8O1SVlTY_0)
+- [Minnaminuge | Chathikkatha Chanthu | Fahad | Alex Paul | Gireesh Puthenchery](https://www.youtube.com/watch?v=r3MIzgjvnO4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
