@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thumbippenne Vaa Vaa | Dhruvam | Jayaram | Rudra | Yesudas | Sujatha | Joshi | Mammootty](https://www.youtube.com/watch?v=1cd70O5DYS0)
 - [Yeshuve   reels   2](https://www.youtube.com/watch?v=YIzNa-IS4vo)
 - [Ramayana Parayanam by Sithara Krishnakumar](https://www.youtube.com/watch?v=q1Vuu8RjaV8)
 - [Japamala 13th of July 2023 # Mathavinte Japamala # Prakashathinte Rahasyangal 13th of July 2023](https://www.youtube.com/watch?v=kNyRIDmf8SU)
 - [രാമായണ വിചാരം by സരിത അയ്യർ( രാമായണം നൽകുന്ന സദ്ചിന്തകളും സന്ദേശങ്ങളും) കർക്കടകമാസത്തിൽ എല്ലാ ദിനവും](https://www.youtube.com/watch?v=E1BtCpF-yFs)
 - [Christian Melody Songs |Kester |Joji Johns | Christian Devotional Songs Malayalam |Narayanan Krishna](https://www.youtube.com/watch?v=HbLRk9WGJG8)
-- [രാമായണ വിചാരം by സരിത അയ്യർ( രാമായണം നൽകുന്ന സദ്ചിന്തകളും സന്ദേശങ്ങളും) കർക്കടകമാസത്തിൽ എല്ലാ ദിനവും](https://www.youtube.com/watch?v=Arh5XfGXqZc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
