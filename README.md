@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [രാവിലെ പ്രാര്‍ത്ഥന  July 13 shorts  # Athiravile Prarthana 13th of July 2023 Morning Prayer shorts](https://www.youtube.com/watch?v=b2QrlLaOJnk)
-- [പ്രഭാത പ്രാര്‍ത്ഥന July 13 # Athiravile Prarthana 13th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=s02xuepcrHM)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 13th July 2023](https://www.youtube.com/watch?v=d5nOK4HBGWE)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=RkzK7mwL8Z0)
-- [Ambarapoo Veedhiyilu | Irupatham Noottand | Mohanlal | Urvashi | Shyam | KJ Yesudas](https://www.youtube.com/watch?v=uuxO-wn-4L0)
-- [തിന്മയെല്ലാം വെടിഞ്ഞിടു നന്മ മാത്രം ചെയ്തിടു ...](https://www.youtube.com/watch?v=LyZLOvgyuAE)
+- [Yeshuve   reels   2](https://www.youtube.com/watch?v=YIzNa-IS4vo)
+- [Ramayana Parayanam by Sithara Krishnakumar](https://www.youtube.com/watch?v=q1Vuu8RjaV8)
+- [Japamala 13th of July 2023 # Mathavinte Japamala # Prakashathinte Rahasyangal 13th of July 2023](https://www.youtube.com/watch?v=kNyRIDmf8SU)
+- [രാമായണ വിചാരം by സരിത അയ്യർ( രാമായണം നൽകുന്ന സദ്ചിന്തകളും സന്ദേശങ്ങളും) കർക്കടകമാസത്തിൽ എല്ലാ ദിനവും](https://www.youtube.com/watch?v=E1BtCpF-yFs)
+- [Christian Melody Songs |Kester |Joji Johns | Christian Devotional Songs Malayalam |Narayanan Krishna](https://www.youtube.com/watch?v=HbLRk9WGJG8)
+- [രാമായണ വിചാരം by സരിത അയ്യർ( രാമായണം നൽകുന്ന സദ്ചിന്തകളും സന്ദേശങ്ങളും) കർക്കടകമാസത്തിൽ എല്ലാ ദിനവും](https://www.youtube.com/watch?v=Arh5XfGXqZc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
