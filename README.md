@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന  July 14 # Athiravile Prarthana 14th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=m54Dv5Teesc)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 14th July 2023](https://www.youtube.com/watch?v=5j2F1hZ9nT0)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=ERx4VswI3QE)
 - [Onnu Thodanullil | Yathrakkarude Sradhaykk | Jayaram | Soundharya | P Jayachandran](https://www.youtube.com/watch?v=qsvekr-2oq4)
 - [Sadhuvenne | Riya Das | Charles John | Malayalam Christian Shorts Video](https://www.youtube.com/watch?v=K9luIvjcDSA)
 - [നിരുപമമാകും തെളിനീരുവായ് , നൊമ്പരമേകും വൻ മരുഭൂവിൽ....](https://www.youtube.com/watch?v=Vyue95mE-Ts)
-- [മലയാളസിനിമയുടെ താരരാജാവ് മോഹൻലാലിൻറെ സൂപ്പർഹിറ്റ് ചിത്രങ്ങളിലെ മികച്ച ഗാനങ്ങൾ | EVERGREEN SONGS](https://www.youtube.com/watch?v=f_bK_pkSMoo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
