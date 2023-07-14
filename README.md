@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [BALIVEDHIYIL | NEW CHRISTIAN SONG | TESLIN SHAJI | LOJESH ABRAHAM VANIYAPPARA | ZION CLASSICS](https://www.youtube.com/watch?v=H0xAA3GDL_E)
 - [#loveyoumuthe vibes | Padmini | Saregama Malayalam #shorts #ytshorts](https://www.youtube.com/watch?v=ok45P2_efo0)
 - [Chakkarakkili |Karaoke Video| Vellinakshathram | Prithviraj | Sujatha |S Ramesan Nair|M Jayachandran](https://www.youtube.com/watch?v=0OQ3-vunKcY)
 - [NEELAKASHAVUM | NEW CHRISTIAN SONG | PAVITHRAN AMACHAL | JINO KUNNUMPURATH | REEL 02](https://www.youtube.com/watch?v=AJmtsocyiMs)
 - [Punya Maha | Pappachan Olivilanu | Ouseppachan |Vaikom Vijayalakshmi |  Sinto Sunny | Film Songs](https://www.youtube.com/watch?v=cwLY88LasJ4)
 - [ഭാരങ്ങളാൽ തളർന്നിടും നേരം | Sujatha | Reji Abraham | Christian Shorts Video](https://www.youtube.com/watch?v=81di37q_qyo)
-- [Songs Of The Week | MG Sreekumar | Joji Johns | Christian Superhit Songs Malayalam | Manoj Christy](https://www.youtube.com/watch?v=_spxyjv_gy8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
