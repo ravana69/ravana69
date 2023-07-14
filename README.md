@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [#loveyoumuthe vibes | Padmini | Saregama Malayalam #shorts #ytshorts](https://www.youtube.com/watch?v=ok45P2_efo0)
+- [Chakkarakkili |Karaoke Video| Vellinakshathram | Prithviraj | Sujatha |S Ramesan Nair|M Jayachandran](https://www.youtube.com/watch?v=0OQ3-vunKcY)
 - [NEELAKASHAVUM | NEW CHRISTIAN SONG | PAVITHRAN AMACHAL | JINO KUNNUMPURATH | REEL 02](https://www.youtube.com/watch?v=AJmtsocyiMs)
 - [Punya Maha | Pappachan Olivilanu | Ouseppachan |Vaikom Vijayalakshmi |  Sinto Sunny | Film Songs](https://www.youtube.com/watch?v=cwLY88LasJ4)
 - [ഭാരങ്ങളാൽ തളർന്നിടും നേരം | Sujatha | Reji Abraham | Christian Shorts Video](https://www.youtube.com/watch?v=81di37q_qyo)
 - [Songs Of The Week | MG Sreekumar | Joji Johns | Christian Superhit Songs Malayalam | Manoj Christy](https://www.youtube.com/watch?v=_spxyjv_gy8)
-- [അതിമനോഹരമായ പഴയകാല ഗാനങ്ങൾ old christian songs malayalam with lyrics ! daily worship songs malayalam](https://www.youtube.com/watch?v=KCst4v3bHsQ)
-- [Japamala 14th of July 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 14th of July   2023](https://www.youtube.com/watch?v=IpMyGt05jvE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
