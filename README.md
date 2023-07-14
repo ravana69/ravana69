@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [NEELAKASHAVUM | NEW CHRISTIAN SONG | PAVITHRAN AMACHAL | JINO KUNNUMPURATH | REEL 02](https://www.youtube.com/watch?v=AJmtsocyiMs)
+- [Punya Maha | Pappachan Olivilanu | Ouseppachan |Vaikom Vijayalakshmi |  Sinto Sunny | Film Songs](https://www.youtube.com/watch?v=cwLY88LasJ4)
 - [ഭാരങ്ങളാൽ തളർന്നിടും നേരം | Sujatha | Reji Abraham | Christian Shorts Video](https://www.youtube.com/watch?v=81di37q_qyo)
 - [Songs Of The Week | MG Sreekumar | Joji Johns | Christian Superhit Songs Malayalam | Manoj Christy](https://www.youtube.com/watch?v=_spxyjv_gy8)
 - [അതിമനോഹരമായ പഴയകാല ഗാനങ്ങൾ old christian songs malayalam with lyrics ! daily worship songs malayalam](https://www.youtube.com/watch?v=KCst4v3bHsQ)
 - [Japamala 14th of July 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 14th of July   2023](https://www.youtube.com/watch?v=IpMyGt05jvE)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #July 14th mother Mary songs Malayalam](https://www.youtube.com/watch?v=ImAxAPrMUnw)
-- [രാവിലെ പ്രാര്‍ത്ഥന  July 14 shorts  # Athiravile Prarthana 14th of July 2023 Morning Prayer shorts](https://www.youtube.com/watch?v=yzqY_6heszo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
