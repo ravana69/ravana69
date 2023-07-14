@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 15th July 2023](https://www.youtube.com/watch?v=rk3L_hQKAKw)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=2vNPMp_jUaI)
 - [പാപവഴികളിൽ ഉഴറിടുമെൻ , നീചമനഗതിയറിവൂ നീ ...](https://www.youtube.com/watch?v=mt-gPh7wuQI)
 - [Ambilipoli Pole | Aantholanam | KJ Yesudas | Anoop | Rahna | Yusufali Kecheri | Natesh Shankar](https://www.youtube.com/watch?v=1uS0vHJ2Z0Y)
 - [കേൾക്കുംതോറും ഇഷ്ടം കൂടി കൂടി വരുന്ന പണ്ടത്തെ ഓർമ്മകൾ സമ്മാനിക്കുന്ന പാട്ട്😍](https://www.youtube.com/watch?v=tErw-Leb37o)
 - [Christian Superhit Songs | Wilson Piravom | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=Ln2cy5CtVgs)
-- [Anthyatholam Chirakadiyil | Riya Das | Charles John | Malayalam Christian Shorts Video](https://www.youtube.com/watch?v=B39kVjAmrx0)
-- [Kasargold - Official Teaser | Asif Ali | Sunny Wayne | Vinayakan | Mridul Nair | Vishnu Vijay](https://www.youtube.com/watch?v=PnWc6JxuGUA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
