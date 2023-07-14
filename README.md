@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [തൂമഞ്ഞിൽ മുങ്ങിപ്പൊങ്ങി | Thoomanjil Mungi Pongi | Sangharsham](https://www.youtube.com/watch?v=dJiOyEaAyAA)
-- [Pattu Vennilaavu | Runway | Suresh Peters | Sudha Reghunath | Jyotsna | Gireesh Puthenchery](https://www.youtube.com/watch?v=wllLgd4q1AU)
-- [Bali Bali Bahubali | Remix  | Bahubali 2 - The Conclusion | DJ Savyo | M M Keeravani | Remix Song](https://www.youtube.com/watch?v=up-czhRHeKE)
-- [Iphone Song (Telugu Lyric Video [From "Ramabanam"])](https://www.youtube.com/watch?v=zQ59VCzaEWk)
-- [Yashwanth Nag - Sau Sara (Telugu Lyric Video [From "Pareshan"])](https://www.youtube.com/watch?v=HyXbpS2dFUE)
-- [Nachavule Nachavule (Telugu Lyric Video [From "Virupaksha"])](https://www.youtube.com/watch?v=yHZGR1FS5nA)
+- [Kasargold - Official Teaser | Asif Ali | Sunny Wayne | Vinayakan | Mridul Nair | Vishnu Vijay](https://www.youtube.com/watch?v=PnWc6JxuGUA)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 14th of July 2023](https://www.youtube.com/watch?v=r61UkLo9nJY)
+- [ചരിത്രത്തിന്റെ ഏടുകളിൽ ദൈവീക പ്രവർത്തികൾ ആവർത്തിച്ചുകൊണ്ടേയിരിക്കും | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=hDrz_raha2E)
+- [Kallu Pattu - Video Song | Boomerang | Shine Tom Chacko | Samyuktha](https://www.youtube.com/watch?v=Y8Vvq9zXPWY)
+- [Ouija Board Making - BGM | Romancham | Sushin Shyam | Jithu Madhavan | Johnpaul George Productions](https://www.youtube.com/watch?v=rridqz2K66A)
+- [Enikkaanu Nee | Hridayathil Sookshikkan | Afsal | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=iy2jUd1t3Pw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
