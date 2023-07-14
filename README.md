@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Iphone Song (Telugu Lyric Video [From "Ramabanam"])](https://www.youtube.com/watch?v=zQ59VCzaEWk)
+- [Yashwanth Nag - Sau Sara (Telugu Lyric Video [From "Pareshan"])](https://www.youtube.com/watch?v=HyXbpS2dFUE)
+- [Nachavule Nachavule (Telugu Lyric Video [From "Virupaksha"])](https://www.youtube.com/watch?v=yHZGR1FS5nA)
 - [ശ്രോതാക്കളുടെ ആവശ്യപ്രകാരം തെരഞ്ഞെടുത്ത ഈ ആഴ്ച്ചയിലെ മനസ്സ് മടുക്കാത്ത മലയാളസിനിമാഗാനങ്ങൾ | NISARI](https://www.youtube.com/watch?v=xiFsM-bHzlw)
 - [Manthramothiram Mayamothiram | Ponnapuram Kotta | Vayalar | G Devarajan | Yesudas | Prem Nazir](https://www.youtube.com/watch?v=ZknVKVAgk4k)
 - [BALIVEDHIYIL | NEW CHRISTIAN SONG | TESLIN SHAJI | LOJESH ABRAHAM VANIYAPPARA | ZION CLASSICS](https://www.youtube.com/watch?v=H0xAA3GDL_E)
-- [#loveyoumuthe vibes | Padmini | Saregama Malayalam #shorts #ytshorts](https://www.youtube.com/watch?v=ok45P2_efo0)
-- [Chakkarakkili |Karaoke Video| Vellinakshathram | Prithviraj | Sujatha |S Ramesan Nair|M Jayachandran](https://www.youtube.com/watch?v=0OQ3-vunKcY)
-- [NEELAKASHAVUM | NEW CHRISTIAN SONG | PAVITHRAN AMACHAL | JINO KUNNUMPURATH | REEL 02](https://www.youtube.com/watch?v=AJmtsocyiMs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
