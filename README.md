@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [എൻ സുതൻ നയിച്ചിടുന്ന അജഗണങ്ങളെ ...](https://www.youtube.com/watch?v=uEvD9Pv4TvU)
 - [മറ്റാരേക്കാളും നമ്മെ അറിയുന്നൊരു ദൈവം. | Rev. Aneesh P Joseph | #shorts | #jesusshorts](https://www.youtube.com/watch?v=tmadUwTUmpw)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 15th of July 2023](https://www.youtube.com/watch?v=vygwMjpRaH4)
 - [Veedellam Koodanade | Ennittum | Rajesh Vijay | Hridya Suresh  | Jassie Gift | Kaithapram](https://www.youtube.com/watch?v=41dUiV1aexc)
 - [ADIYADIYADI BOOMERANG - Theme Song | Boomerang Movie | Shine Tom, Samyuktha Menon | Subheer Ali Khan](https://www.youtube.com/watch?v=y4NEwqrJvdw)
 - [Thumbi Penne Vaa Vaa | Evergreen Malayalam Movie Song | Dhruvam | Mammootty | Jayaram | Rudra](https://www.youtube.com/watch?v=7kHojUmzsdA)
-- [Love Love Love Letter | Chathikkatha Chanthu | Jyotsna | Alex Paul | Santhosh Varma](https://www.youtube.com/watch?v=nQ6rZg6oBAU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
