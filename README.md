@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Paattil Ee Paattil | Beautiful Song by Shreya Ghoshal from Pranayam  #shorts](https://www.youtube.com/watch?v=vciL6Q8eveI)
+- [Aakaasha Pooppaadam - Lyrical Video | Chethaaram | Sujatha Mohan, Biju Narayanan | Mohan Sithara](https://www.youtube.com/watch?v=g7hamTh7zX0)
+- [Orkkale Mayathe | Official Song | Ezhu Sundara Rathrikal | Dileep | Prashant Pillai | Karthik](https://www.youtube.com/watch?v=aF7FwB3NLws)
 - [Divya Karunyam | Karunya Varsham Thulumbunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=IqMSx9nYOSY)
+- [Welcome To Baale - Lyrical Video | Bhagavan Dasante Ramarajyam| Akshay,Nandana| Vishnu Sivasankar](https://www.youtube.com/watch?v=4UjhM479i0c)
 - [ഇളനീല മാനം കതിർ ചൊരിഞ്ഞു... | Ila Neela Maanam |  Kaayalum Kayarum Movie Song | Yesudas, P Susheela](https://www.youtube.com/watch?v=mNWjK5GxFMM)
-- [പകരം വെക്കാനാവാത്ത അഭിനയ പ്രതിഭാസം | THE COMPLETE ACTOR | MOHANLAL SUPERHITSONGS MALAYALAM | LALISAM](https://www.youtube.com/watch?v=BgW3hcW_xA0)
-- [പഴയതലമുറക്ക് ശേഷം മലയാളസിനിമാസംഗീതത്തിന്റെ നെടുംതൂണായി നിന്ന എം ജി ശ്രീകുമാറിന്റെ ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=rmplOEHyF5E)
-- [ഒരു കാലത്ത് ക്യാമ്പസുകളിൽ തരംഗമുണർത്തിയ മമ്മൂട്ടി ചിത്രത്തിലെ ഇന്നും ഇഷ്ടമുള്ള ഗാനങ്ങൾ | JOHNYWALKER](https://www.youtube.com/watch?v=C2QMhhFr5NE)
-- [Tharalitha Raavil Mayangiyo Video Song | Soorya Manasam | Mammootty | Siddique | Shoukaar Janaki](https://www.youtube.com/watch?v=F9i4o2nVRIc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
