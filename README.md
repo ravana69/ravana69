@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [#KanniluKannilu 💜💗 | #Ayisha  | #Shorts #YTshorts](https://www.youtube.com/watch?v=k2QFBOQTpIQ)
 - [Manassinullil Mayangi | Vasanthamalika | Mukesh | Uma Shankari | M.G.Sreekumar | Chithra](https://www.youtube.com/watch?v=Bq8RG9Z2sRs)
 - [Yeshuvin Namam | RSV | Shorts](https://www.youtube.com/watch?v=XGpfadPJKe0)
 - [Yeshuve Ninmukham | Sajitha Binu | Fr. John Painunkal | Berny & Tansen | Malayalam Christian Songs](https://www.youtube.com/watch?v=M1Lj5cLvEac)
 - [Neelavelicham VFX Breakdown | Mindstein Studios | Tovino Thomas | Aashiq Abu | Girish Gangadharan](https://www.youtube.com/watch?v=ejFpNb5voWw)
 - [Christian Video Songs Malayalam | Shine | Joji Johns | Kalesh Karunakaran | Christian Superhit Songs](https://www.youtube.com/watch?v=sySNMq9quEw)
-- [രാവിലെ കേൾക്കാൻ ഏറ്റവും നല്ല ഗാനങ്ങൾ daily worship songs | christian devotional songs malayalam](https://www.youtube.com/watch?v=Ve_tsJA0264)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
