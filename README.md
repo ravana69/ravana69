@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഇളനീല മാനം കതിർ ചൊരിഞ്ഞു... | Ila Neela Maanam |  Kaayalum Kayarum Movie Song | Yesudas, P Susheela](https://www.youtube.com/watch?v=mNWjK5GxFMM)
+- [പകരം വെക്കാനാവാത്ത അഭിനയ പ്രതിഭാസം | THE COMPLETE ACTOR | MOHANLAL SUPERHITSONGS MALAYALAM | LALISAM](https://www.youtube.com/watch?v=BgW3hcW_xA0)
+- [പഴയതലമുറക്ക് ശേഷം മലയാളസിനിമാസംഗീതത്തിന്റെ നെടുംതൂണായി നിന്ന എം ജി ശ്രീകുമാറിന്റെ ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=rmplOEHyF5E)
+- [ഒരു കാലത്ത് ക്യാമ്പസുകളിൽ തരംഗമുണർത്തിയ മമ്മൂട്ടി ചിത്രത്തിലെ ഇന്നും ഇഷ്ടമുള്ള ഗാനങ്ങൾ | JOHNYWALKER](https://www.youtube.com/watch?v=C2QMhhFr5NE)
 - [Tharalitha Raavil Mayangiyo Video Song | Soorya Manasam | Mammootty | Siddique | Shoukaar Janaki](https://www.youtube.com/watch?v=F9i4o2nVRIc)
 - [#KanniluKannilu 💜💗 | #Ayisha  | #Shorts #YTshorts](https://www.youtube.com/watch?v=k2QFBOQTpIQ)
-- [Manassinullil Mayangi | Vasanthamalika | Mukesh | Uma Shankari | M.G.Sreekumar | Chithra](https://www.youtube.com/watch?v=Bq8RG9Z2sRs)
-- [Yeshuvin Namam | RSV | Shorts](https://www.youtube.com/watch?v=XGpfadPJKe0)
-- [Yeshuve Ninmukham | Sajitha Binu | Fr. John Painunkal | Berny & Tansen | Malayalam Christian Songs](https://www.youtube.com/watch?v=M1Lj5cLvEac)
-- [Neelavelicham VFX Breakdown | Mindstein Studios | Tovino Thomas | Aashiq Abu | Girish Gangadharan](https://www.youtube.com/watch?v=ejFpNb5voWw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
