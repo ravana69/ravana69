@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Paattil Ee Paattil | Beautiful Song by Shreya Ghoshal from Pranayam  #shorts](https://www.youtube.com/watch?v=vciL6Q8eveI)
-- [Aakaasha Pooppaadam - Lyrical Video | Chethaaram | Sujatha Mohan, Biju Narayanan | Mohan Sithara](https://www.youtube.com/watch?v=g7hamTh7zX0)
-- [Orkkale Mayathe | Official Song | Ezhu Sundara Rathrikal | Dileep | Prashant Pillai | Karthik](https://www.youtube.com/watch?v=aF7FwB3NLws)
-- [Divya Karunyam | Karunya Varsham Thulumbunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=IqMSx9nYOSY)
-- [Welcome To Baale - Lyrical Video | Bhagavan Dasante Ramarajyam| Akshay,Nandana| Vishnu Sivasankar](https://www.youtube.com/watch?v=4UjhM479i0c)
-- [ഇളനീല മാനം കതിർ ചൊരിഞ്ഞു... | Ila Neela Maanam |  Kaayalum Kayarum Movie Song | Yesudas, P Susheela](https://www.youtube.com/watch?v=mNWjK5GxFMM)
+- [മറ്റാരേക്കാളും നമ്മെ അറിയുന്നൊരു ദൈവം. | Rev. Aneesh P Joseph | #shorts | #jesusshorts](https://www.youtube.com/watch?v=tmadUwTUmpw)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 15th of July 2023](https://www.youtube.com/watch?v=vygwMjpRaH4)
+- [Veedellam Koodanade | Ennittum | Rajesh Vijay | Hridya Suresh  | Jassie Gift | Kaithapram](https://www.youtube.com/watch?v=41dUiV1aexc)
+- [ADIYADIYADI BOOMERANG - Theme Song | Boomerang Movie | Shine Tom, Samyuktha Menon | Subheer Ali Khan](https://www.youtube.com/watch?v=y4NEwqrJvdw)
+- [Thumbi Penne Vaa Vaa | Evergreen Malayalam Movie Song | Dhruvam | Mammootty | Jayaram | Rudra](https://www.youtube.com/watch?v=7kHojUmzsdA)
+- [Love Love Love Letter | Chathikkatha Chanthu | Jyotsna | Alex Paul | Santhosh Varma](https://www.youtube.com/watch?v=nQ6rZg6oBAU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
