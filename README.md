@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Neelavelicham VFX Breakdown | Mindstein Studios | Tovino Thomas | Aashiq Abu | Girish Gangadharan](https://www.youtube.com/watch?v=ejFpNb5voWw)
+- [Christian Video Songs Malayalam | Shine | Joji Johns | Kalesh Karunakaran | Christian Superhit Songs](https://www.youtube.com/watch?v=sySNMq9quEw)
+- [രാവിലെ കേൾക്കാൻ ഏറ്റവും നല്ല ഗാനങ്ങൾ daily worship songs | christian devotional songs malayalam](https://www.youtube.com/watch?v=Ve_tsJA0264)
+- [Japamala 15th of July  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 15th of July 2023](https://www.youtube.com/watch?v=Uadkc_YlC88)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #July 15th mother Mary hits Malayalam](https://www.youtube.com/watch?v=8jYQpgMiGGM)
 - [രാവിലെ പ്രാര്‍ത്ഥന  July 15 shorts  # Athiravile Prarthana 15th of July 2023 Morning Prayer shorts](https://www.youtube.com/watch?v=AC81KNSZdkY)
-- [പ്രഭാത പ്രാര്‍ത്ഥന July 15 # Athiravile Prarthana 15th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=LeX9AKZAhmA)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 15th July 2023](https://www.youtube.com/watch?v=rk3L_hQKAKw)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=2vNPMp_jUaI)
-- [പാപവഴികളിൽ ഉഴറിടുമെൻ , നീചമനഗതിയറിവൂ നീ ...](https://www.youtube.com/watch?v=mt-gPh7wuQI)
-- [Ambilipoli Pole | Aantholanam | KJ Yesudas | Anoop | Rahna | Yusufali Kecheri | Natesh Shankar](https://www.youtube.com/watch?v=1uS0vHJ2Z0Y)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
