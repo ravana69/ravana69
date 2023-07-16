@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Valatty - Tale of Tails On July 21st | Official Trailer | Devan | Vijay Babu](https://www.youtube.com/watch?v=tmXo8L6fH0k)
 - [പാട്ടുപെട്ടി- Paattupetti Vol 16 | Malayalam Film Songs](https://www.youtube.com/watch?v=D1v0MIfxk9c)
 - [#KanniluKannilu movements 🤟 | #Ayisha  | #Shorts #YTshorts](https://www.youtube.com/watch?v=AzRuHkt27HQ)
 - [Romancham - Original Sound Track | Sushin Shyam | Jithu Madhavan | Johnpaul George Productions](https://www.youtube.com/watch?v=2RYQb37Ac6A)
 - [വേഗം വന്നീടേണം എന്നേശുവേ | Sujatha | Reji Abraham | Christian Shorts Video](https://www.youtube.com/watch?v=2znar-3favs)
 - [Ramayana Parayanam by Sithara Krishnakumar](https://www.youtube.com/watch?v=lwZCTscAY9k)
-- [തകർന്നുപോയ നിമിഷങ്ങളിൽ കൈയ്‌പിടിച്ചു നടത്തിയ ഗാനങ്ങൾ | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=_13zszsfBcA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
