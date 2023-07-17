@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന July 18 # Athiravile Prarthana 18th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=o3UVY-oxLNk)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 18th July 2023](https://www.youtube.com/watch?v=hTPLQbp9AY4)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=Y0xHJ4OUBAQ)
 - [Muthum Pavizhavum | Darling Darling | Vineeth | Kavya Madhavan | Dileep | Hariharan | Sujatha](https://www.youtube.com/watch?v=faa0s8eKwgI)
 - [കാന്താ വരവ് കാത്ത് | Christian Devotional Shorts | Hephsibha Benson](https://www.youtube.com/watch?v=V3uBNrnJQ1Q)
 - [മനസിലെ സൂര്യനായ് ഉദിക്കുമെങ്കിൽ , ഹൃദയ തേജസായ് ജ്വലിക്കുമെങ്കിൽ ...](https://www.youtube.com/watch?v=FfZ1R5-uG3U)
-- [Christian Superhit Songs |Kester |Joji Johns | Christian Devotional Songs Malayalam | Wilson Piravom](https://www.youtube.com/watch?v=qPNaVqoCjYo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
