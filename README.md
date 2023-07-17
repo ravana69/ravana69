@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thaniyavarthanam Song | Mammootty | Sibi Malayil #shorts](https://www.youtube.com/watch?v=AmFCiMWME80)
 - [ശ്രീരാമ മോക്ഷ നാമജപം | Sree Rama Moksha Naamajapam |  Sreerama Devotional Song](https://www.youtube.com/watch?v=81Na1B5nj0M)
 - [Thumbikinnaram | Karaoke Video | Naran | K J Yesudas | Gayathri | Deepak Dev | Kaithapram](https://www.youtube.com/watch?v=OQyzqb6a1JY)
 - [#KanniluKannilu Vibes | #Ayisha  | #Shorts #YTshorts](https://www.youtube.com/watch?v=LonEqyGjnNU)
 - [Eeranmeghame | Nasrani | Mammootty | Vimala Raman | Manjari | Bijipal](https://www.youtube.com/watch?v=T9c2WTL0z_0)
 - [NEELAKASHAVUM | NEW CHRISTIAN SONG | PAVITHRAN AMACHAL | JINO KUNNUMPURATH | REEL 03](https://www.youtube.com/watch?v=IhI3556EmC8)
-- [En Priyan Yeshuvin | Sumi Sunny | Christian Devotional Shorts Video](https://www.youtube.com/watch?v=b2nyaGpd49o)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
