@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളിത്തമുള്ള ഗാനങ്ങൾ കൊണ്ട് പ്രേക്ഷകരുടെ മനം കവർന്ന കൈതപ്രം ദാമോദരൻ നമ്പൂതിരിയുടെ ഇഷ്ടഗാനങ്ങൾ !](https://www.youtube.com/watch?v=Jtj4bh4PLVY)
+- [മലയാളികളെ മോഹിപ്പിച്ച ജോൺസൻ മാഷിന്റെയും എസ് പി വെങ്കിടേഷിന്റെയും ഗാനങ്ങൾ |Evergreen  Film Songs](https://www.youtube.com/watch?v=9eudGJfJGvk)
 - [Thaniyavarthanam Song | Mammootty | Sibi Malayil #shorts](https://www.youtube.com/watch?v=AmFCiMWME80)
 - [ശ്രീരാമ മോക്ഷ നാമജപം | Sree Rama Moksha Naamajapam |  Sreerama Devotional Song](https://www.youtube.com/watch?v=81Na1B5nj0M)
 - [Thumbikinnaram | Karaoke Video | Naran | K J Yesudas | Gayathri | Deepak Dev | Kaithapram](https://www.youtube.com/watch?v=OQyzqb6a1JY)
 - [#KanniluKannilu Vibes | #Ayisha  | #Shorts #YTshorts](https://www.youtube.com/watch?v=LonEqyGjnNU)
-- [Eeranmeghame | Nasrani | Mammootty | Vimala Raman | Manjari | Bijipal](https://www.youtube.com/watch?v=T9c2WTL0z_0)
-- [NEELAKASHAVUM | NEW CHRISTIAN SONG | PAVITHRAN AMACHAL | JINO KUNNUMPURATH | REEL 03](https://www.youtube.com/watch?v=IhI3556EmC8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
