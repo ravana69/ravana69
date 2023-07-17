@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Snehadeepam | Velicham Pakarunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=nrbNnkWz3Qc)
-- [മലയാളിത്തമുള്ള ഗാനങ്ങൾ കൊണ്ട് പ്രേക്ഷകരുടെ മനം കവർന്ന കൈതപ്രം ദാമോദരൻ നമ്പൂതിരിയുടെ ഇഷ്ടഗാനങ്ങൾ !](https://www.youtube.com/watch?v=Jtj4bh4PLVY)
-- [മലയാളികളെ മോഹിപ്പിച്ച ജോൺസൻ മാഷിന്റെയും എസ് പി വെങ്കിടേഷിന്റെയും ഗാനങ്ങൾ |Evergreen  Film Songs](https://www.youtube.com/watch?v=9eudGJfJGvk)
-- [Thaniyavarthanam Song | Mammootty | Sibi Malayil #shorts](https://www.youtube.com/watch?v=AmFCiMWME80)
-- [ശ്രീരാമ മോക്ഷ നാമജപം | Sree Rama Moksha Naamajapam |  Sreerama Devotional Song](https://www.youtube.com/watch?v=81Na1B5nj0M)
-- [Thumbikinnaram | Karaoke Video | Naran | K J Yesudas | Gayathri | Deepak Dev | Kaithapram](https://www.youtube.com/watch?v=OQyzqb6a1JY)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 17th of July 2023](https://www.youtube.com/watch?v=_NvPQl_kyHI)
+- [മാറോടണച്ച്  ആശ്ലേഷിക്കുന്ന കൂടെയിരുത്തി ആശ്വസിപ്പിക്കുന്ന നല്ല ദാസനെ എന്നുവിളിക്കുന്ന ഒരു ദിവസമുണ്ട്](https://www.youtube.com/watch?v=Gph_1qn8qnk)
+- [Karineela Kannilenthedi | Film song on Gayathri Veena by Vaikom Vijayalakshmi](https://www.youtube.com/watch?v=6qD19XjJlZ8)
+- [താരാട്ടിൻ ചെറു ചെപ്പു തുറക്കാം | Tharattin Cheru Cheppu | Churam | K S Chithra | Johnson](https://www.youtube.com/watch?v=wy2NAN2saj4)
+- [Achante Ponnu Mole | Hridayathil Sookshikkan | Anjana Haridas | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=k6BZV2V18ck)
+- [Padmini - Sneak Peek 1 | Kunchacko Boban | Senna Hegde | Jakes Bejoy](https://www.youtube.com/watch?v=vfZZfGh0Qs4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
