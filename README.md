@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [En Priyan Yeshuvin | Sumi Sunny | Christian Devotional Shorts Video](https://www.youtube.com/watch?v=b2nyaGpd49o)
 - [Shorts | Punya Maha Sannidhe | Pappachan Olivilanu | #latestmalayalam #music #malayalammoviesongs](https://www.youtube.com/watch?v=NIMosCkK3i8)
 - [Christian Morning Prayer Songs | Worship Songs | Kuttiyachan | Prabhatha Geethangal](https://www.youtube.com/watch?v=jBng8WarrKY)
 - [Japamala 17th of July  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 17th of July 2023](https://www.youtube.com/watch?v=AhBktGiwZNY)
 - [രാവിലെ പ്രാര്‍ത്ഥന  July 17 shorts  # Athiravile Prarthana 17th of July 2023 Morning Prayer shorts](https://www.youtube.com/watch?v=coqPC_PzsAw)
 - [രാവിലെ പ്രാര്‍ത്ഥന  July 17 # Athiravile Prarthana 17th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=VqRKXruloAk)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 17th July 2023](https://www.youtube.com/watch?v=H516rDZmRnI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
