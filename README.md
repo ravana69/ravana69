@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കാന്താ വരവ് കാത്ത് | Christian Devotional Shorts | Hephsibha Benson](https://www.youtube.com/watch?v=V3uBNrnJQ1Q)
+- [മനസിലെ സൂര്യനായ് ഉദിക്കുമെങ്കിൽ , ഹൃദയ തേജസായ് ജ്വലിക്കുമെങ്കിൽ ...](https://www.youtube.com/watch?v=FfZ1R5-uG3U)
+- [Christian Superhit Songs |Kester |Joji Johns | Christian Devotional Songs Malayalam | Wilson Piravom](https://www.youtube.com/watch?v=qPNaVqoCjYo)
 - [Maane Pedamaane | Kattuchembakam | P Jayachandran | Mohan Sithara | Vinayan](https://www.youtube.com/watch?v=AhnWqqlo5oo)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 17th of July 2023](https://www.youtube.com/watch?v=_NvPQl_kyHI)
 - [മാറോടണച്ച്  ആശ്ലേഷിക്കുന്ന കൂടെയിരുത്തി ആശ്വസിപ്പിക്കുന്ന നല്ല ദാസനെ എന്നുവിളിക്കുന്ന ഒരു ദിവസമുണ്ട്](https://www.youtube.com/watch?v=Gph_1qn8qnk)
-- [Karineela Kannilenthedi | Film song on Gayathri Veena by Vaikom Vijayalakshmi](https://www.youtube.com/watch?v=6qD19XjJlZ8)
-- [താരാട്ടിൻ ചെറു ചെപ്പു തുറക്കാം | Tharattin Cheru Cheppu | Churam | K S Chithra | Johnson](https://www.youtube.com/watch?v=wy2NAN2saj4)
-- [Achante Ponnu Mole | Hridayathil Sookshikkan | Anjana Haridas | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=k6BZV2V18ck)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
