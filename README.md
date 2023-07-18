@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Hridayavaniyile Gaayikayo | Yesudas | Sindhu Devi | Kottayam Kunjachan | Shyam | Evergreen Songs](https://www.youtube.com/watch?v=RDpbzFxc3Tw)
+- [ഒരു കാലത്തു  ഏവരുടെയും ചുണ്ടിൽ തത്തിക്കളിച്ച സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=hK9YAs3ZyUE)
+- [ഇന്നലേ.... ഇന്നലെ എന്റെ നെഞ്ചിലെ കുഞ്ഞു മണ്‍ വിളക്കൂതിയില്ലേ... ✨️🦋❤️](https://www.youtube.com/watch?v=qx04EsgxfPc)
 - [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=9KxhcdS93OI)
+- [Karaoke Karayodu Cherkkunna Nadhan | Libin Baby | Roy John Chirackal | Christian Karaoke Tracks](https://www.youtube.com/watch?v=JhqGZqOm8iQ)
 - [#KanniluKannilu 💚💥 | #Ayisha  | #Shorts #YTshorts](https://www.youtube.com/watch?v=d4oauW-KzNI)
-- [ANAADHARE AGATHIKALE |NEW CHRISTIAN SONG | JOSE SAGAR | PAVITHRAN AMACHAL |JINO KUNNUMPURATH| REEL 1](https://www.youtube.com/watch?v=2DvGSRr9j2M)
-- [Nadha | Elizabeth Raju | Prem Sagar | R P Hansaraj | Latest Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=Eaxw5enQJ94)
-- [Kirkkan | Official Trailer |Josh|Dr Mathew Mampra| Anarkali Marikar | Maqbool Salmaan |Kani Kusruthy](https://www.youtube.com/watch?v=HMcQbut5pxM)
-- [Punya Maha Sannidhe | Pappachan Olivilanu | Shorts #latestmalayalam #music #malayalammoviesongs](https://www.youtube.com/watch?v=VyAJR4hHDao)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
