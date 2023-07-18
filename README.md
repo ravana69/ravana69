@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ANAADHARE AGATHIKALE |NEW CHRISTIAN SONG | JOSE SAGAR | PAVITHRAN AMACHAL |JINO KUNNUMPURATH| REEL 1](https://www.youtube.com/watch?v=2DvGSRr9j2M)
+- [Nadha | Elizabeth Raju | Prem Sagar | R P Hansaraj | Latest Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=Eaxw5enQJ94)
 - [Punya Maha Sannidhe | Pappachan Olivilanu | Shorts #latestmalayalam #music #malayalammoviesongs](https://www.youtube.com/watch?v=VyAJR4hHDao)
 - [എൻ പ്രിയൻ യേശുവിൻ | Sumi Sunny | Christian Devotional Shorts](https://www.youtube.com/watch?v=9dMJFma-KwU)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #July 18th mother Mary hits Malayalam](https://www.youtube.com/watch?v=EjFRl6pHCEc)
 - [Japamala 18th of July 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 18th of July   2023](https://www.youtube.com/watch?v=fT4jSTC9TK8)
-- [Singer Of The Week | Midhila Michael | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=7WgLiH8s17o)
-- [രാവിലെ പ്രാര്‍ത്ഥന  July 18 shorts  # Athiravile Prarthana 18th of July 2023 Morning Prayer shorts](https://www.youtube.com/watch?v=PoDtN2DsLuk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
