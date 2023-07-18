@@ -195,6 +195,8 @@ https://user-images.githubusercontent.com/47528708/176845771-6ad8f1d2-8008-4f49-
 
 ![image](https://user-images.githubusercontent.com/47528708/208236715-864b1588-423a-4001-8917-acbae7107d71.png)
 
+![bible](https://raw.githubusercontent.com/ravana69/bible/main/github-metrics.svg)
+
 ![Weather](https://raw.githubusercontent.com/ravana69/weather/main/github-metrics.svg)
 
 ![Currency Exchange](https://raw.githubusercontent.com/ravana69/currencyexchange/main/github-metrics.svg)
