@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Viralthottal Viriyunna | Phantom Paily | Nishanth Sagar | Monica | Deva | Jayachandran | Mammootty](https://www.youtube.com/watch?v=AYi9rJj9TTs)
 - [ഇനിമേൽ എനിക്കില്ലോർ ഭയം | Sadhu Kochukunjupadeshi | Shorts](https://www.youtube.com/watch?v=yKsak_9vWEQ)
 - [Japamala 19th of July 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 19th of July 2023](https://www.youtube.com/watch?v=twV-CiYpJVo)
 - [Enne Thazhukunna Kattanu | Christian Video Song | Rajesh Athikayam | Joji Johns |  Liya Ray Isen](https://www.youtube.com/watch?v=dItAb_nbFa8)
 - [മാതാവിൻറെ ഈ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം # July 19th mother mary daily prayer and songs](https://www.youtube.com/watch?v=J42ZCxzE7tk)
 - [രാവിലെ പ്രാര്‍ത്ഥന  July 19 shorts  # Athiravile Prarthana 19th of July 2023 Morning Prayer shorts](https://www.youtube.com/watch?v=n2wLQ8uUt98)
-- [രാവിലെ പ്രാര്‍ത്ഥന  July 19 # Athiravile Prarthana 19th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=Q6b7CnYuOXQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
