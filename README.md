@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 20th July 2023](https://www.youtube.com/watch?v=664v3J8LMSE)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=izDxqtOKp2k)
 - [Mandara cheppundo |Johnson Master| Short Cover version | Ashitha](https://www.youtube.com/watch?v=YYeTa9RJdOs)
 - [മനശാന്തിയാം മഴ തൂകണേ ...](https://www.youtube.com/watch?v=gjML8dPQb14)
 - [ലോകമെമ്പാടുമുള്ള മലയാളികൾ കൂടുതൽ ആവശ്യപ്പെട്ട സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=w_72De6rwmc)
 - [Hridayavaniyile |Kottayam Kunjachan |Remastered Video Song |Mammootty |Yesudas |Shyam |Chunakkara](https://www.youtube.com/watch?v=UohmVIHZv7k)
-- [മലയാള സിനിമകണ്ട വിസ്മയ തൂലിക സ്പർശം ഗിരീഷ് പുത്തഞ്ചേരിയുടെ  അതിശയ ഗാനങ്ങൾ |Evergreen Film Songs](https://www.youtube.com/watch?v=l7MezDR6KXs)
-- [Christian Superhit Songs | KS Chithra | Christian Songs | Sujatha | Joseph Mathew Padinjarethara](https://www.youtube.com/watch?v=0bRi8X87uY0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
