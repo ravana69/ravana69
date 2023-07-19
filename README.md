@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Japamala 19th of July 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 19th of July 2023](https://www.youtube.com/watch?v=twV-CiYpJVo)
+- [Enne Thazhukunna Kattanu | Christian Video Song | Rajesh Athikayam | Joji Johns |  Liya Ray Isen](https://www.youtube.com/watch?v=dItAb_nbFa8)
+- [മാതാവിൻറെ ഈ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം # July 19th mother mary daily prayer and songs](https://www.youtube.com/watch?v=J42ZCxzE7tk)
 - [രാവിലെ പ്രാര്‍ത്ഥന  July 19 shorts  # Athiravile Prarthana 19th of July 2023 Morning Prayer shorts](https://www.youtube.com/watch?v=n2wLQ8uUt98)
 - [രാവിലെ പ്രാര്‍ത്ഥന  July 19 # Athiravile Prarthana 19th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=Q6b7CnYuOXQ)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 19th July 2023](https://www.youtube.com/watch?v=_AEWkpH8q2A)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=QOl7oKdpzjg)
-- [Raasanilavinu | Padheyam | Mammooty | Kaithapram | Yesudas | Bharathan | Bombay Ravi](https://www.youtube.com/watch?v=EXujRFMo6Bg)
-- [അലിമുള്ള ദൈവമേ.. അൻപോടെ നോക്കണേ ...](https://www.youtube.com/watch?v=7uncCzRj0wc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
