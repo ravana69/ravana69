@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Hridayavaniyile |Kottayam Kunjachan |Remastered Video Song |Mammootty |Yesudas |Shyam |Chunakkara](https://www.youtube.com/watch?v=UohmVIHZv7k)
+- [മലയാള സിനിമകണ്ട വിസ്മയ തൂലിക സ്പർശം ഗിരീഷ് പുത്തഞ്ചേരിയുടെ  അതിശയ ഗാനങ്ങൾ |Evergreen Film Songs](https://www.youtube.com/watch?v=l7MezDR6KXs)
+- [Christian Superhit Songs | KS Chithra | Christian Songs | Sujatha | Joseph Mathew Padinjarethara](https://www.youtube.com/watch?v=0bRi8X87uY0)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 19th of July 2023](https://www.youtube.com/watch?v=Zs_vh8jaLYQ)
 - [ഭാരപ്പെടേണ്ട. മറ്റാരേക്കാളും നമ്മെ അറിയുന്ന സ്നേഹവാനായ ദൈവം നമ്മോടൊപ്പമുണ്ട് | Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=D-zzXTw5E1c)
 - [Sukhamanee Nilavu | Nammal | Sidharth | Jishnu | Renuka Menon | Kamal | Vidhu Prathap](https://www.youtube.com/watch?v=ZUyEcQMHWsQ)
-- [Koodu Vaykkan | Jalam  Official Song | Priyanka Nair | Shakthisree | Ouseppachan](https://www.youtube.com/watch?v=KuBXLQNzi7U)
-- [ശര റാന്തൽ തിരി താണു | Shararanthal Thiri Thanu | Kaayalum kayarum Movie Song | K J Yesudas](https://www.youtube.com/watch?v=AOZ01GsmyB8)
-- [https://youtu.be/cq7SOXhK1O4 | വാനമ്പാടി @ 60 | Celebrating 60 Music Years of K S Chithra](https://www.youtube.com/watch?v=N04H2kW9IG0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
