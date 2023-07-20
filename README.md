@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Punya Maha Lyrical Video | Pappachan Olivilanu | Ouseppachan | Vaikom Vijayalakshmi | Sinto Sunny](https://www.youtube.com/watch?v=7nhATFf-G8Y)
 - [Yavana Sundari | Pearl View | Vayalar | G Devarajan | KJ Yesudas | B Vasantha | Prem Nazir](https://www.youtube.com/watch?v=sR3eY8vVfd0)
 - [മലയാളികൾ ആയ ഏവർക്കും ഒരുപോലെ ഇഷ്ടമുള്ള സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ |Evergreen Malayalam Film Songs |Yesudas](https://www.youtube.com/watch?v=snk7zaYonNA)
 - [Chengathir Kaiyyum | K.S.Chithra | Rafeeque Ahammed | Ilayaraja |](https://www.youtube.com/watch?v=hwzVCC03adY)
 - [Hook up for #KanniluKannilu | #Ayisha  | #Shorts #YTshorts](https://www.youtube.com/watch?v=K8g2bjGIqhA)
 - [Thumbikinnaram | Lyrical Video | Naran | K J Yesudas | Gayathri | Deepak Dev | Kaithapram](https://www.youtube.com/watch?v=AtepWVcS2Pc)
-- [#naatunaatu🕺😍 #jnrntr #rrr #ramcharan #mmkeeravaani #ssrajamouli  #ytshorts  #telugudance](https://www.youtube.com/watch?v=u0q_dA1qtm4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
