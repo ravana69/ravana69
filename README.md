@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 20th of July 2023](https://www.youtube.com/watch?v=eAZILNYU4vg)
+- [തന്ന വേദനയ്ക്കും ദുരിതത്തിനും പ്രതിഫലം നൽകുന്ന ഒരു ദൈവമുണ്ട് | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=b6Uz83Mmf5E)
+- [Shaba Shaba | Runway | Suresh Peters | Sunitha Saradhi | Gireesh Puthenchery](https://www.youtube.com/watch?v=q9ZgZtZ09xM)
+- [Manjum Madhumaariyum | Puthiya Karukkal | Jayaram | Parvathi | Chithra | Poovachal Khader](https://www.youtube.com/watch?v=oyHmorWGjb4)
+- [Palkudangal Thulumbum | Pranayanilavu | Super Hit Movie Song | Dileep | Mohini - Berny Ignatius Hits](https://www.youtube.com/watch?v=W8YQf3F_SSA)
 - [https://youtu.be/puFJ3KFP_qQ | വാനമ്പാടി @ 60 | Celebrating 60 Music Years of K S Chithra](https://www.youtube.com/watch?v=bO1PsZwT49k)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=D74H4oeXu3k)
-- [Navya Sneham | Sneham Thulumbunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=PYC3q3Ykhhk)
-- [Punya Maha Lyrical Video | Pappachan Olivilanu | Ouseppachan | Vaikom Vijayalakshmi | Sinto Sunny](https://www.youtube.com/watch?v=7nhATFf-G8Y)
-- [My Cuckoo Mind | Karthick Iyer | Sharanya Gopinath | Smrithi Amarendran| Vijay Menon | Deepa Thomas](https://www.youtube.com/watch?v=eajclACoPaE)
-- [Yavana Sundari | Pearl View | Vayalar | G Devarajan | KJ Yesudas | B Vasantha | Prem Nazir](https://www.youtube.com/watch?v=sR3eY8vVfd0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
