@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [തിരയെ പുണരുന്ന തീരം പോലെന്നെ ,തഴുകി തലോടുന്ന സ്നേഹം .](https://www.youtube.com/watch?v=OzpKmV0H-2M)
 - [Christian Devotional Shorts | കാന്താ വരവ് കാത്ത് | Christian Devotional Shorts | Hephsibha Benson](https://www.youtube.com/watch?v=YU_-FDUfFYI)
 - [Manjaninja Maamalakal |Kottayam Kunjachan |Shyam |Chunakkara Ramankutty |Yesudas |Re Mastered Songs](https://www.youtube.com/watch?v=sJMT7DeGwDs)
 - [https://youtu.be/hwzVCC03adY | വാനമ്പാടി @ 60 | Celebrating 60 Music Years of K S Chithra](https://www.youtube.com/watch?v=W9oEAkBn5Ck)
 - [എല്ലാ മലയാളികളും ഒരുപോലെ സ്നേഹിക്കുന്ന ഏറ്റവും നല്ല സിനിമ ഗാനങ്ങൾ  Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=0LaclVKdrEY)
 - [Swarnnameghame | Ennittum | Vidhu Prathap |  Jyotsna | Jassie Gift | Kaithapram](https://www.youtube.com/watch?v=qZHK35cp9Fw)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 21st of July 2023](https://www.youtube.com/watch?v=XbFkwdcDQc8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
