@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Trailer | Pappachan Olivilanu | Sinto Sunny | Thomas Thiruvalla | Ouseppachan | Saiju Kurup | Srinda](https://www.youtube.com/watch?v=dffGb5FiK58)
 - [Varumavan | George Peter Chittur | Libin Scaria | Shorts](https://www.youtube.com/watch?v=gY7W_bOEqjQ)
 - [Songs Of The Week | Kester | Sreya Jayadeep | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=PsCsXvBd_Ao)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #July 21st mother Mary hits Malayalam](https://www.youtube.com/watch?v=QPSgTsTcVfg)
 - [Japamala 21st of July 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 21st of July   2023](https://www.youtube.com/watch?v=0waj7U7x9LA)
 - [രാവിലെ പ്രാര്‍ത്ഥന  July 21 shorts  # Athiravile Prarthana 21st of July 2023 Morning Prayer shorts](https://www.youtube.com/watch?v=G3cznrvXa1w)
-- [രാവിലെ പ്രാര്‍ത്ഥന  July 21 # Athiravile Prarthana 21st of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=lGhgcDsBErM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
