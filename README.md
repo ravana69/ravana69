@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Varumavan | George Peter Chittur | Libin Scaria | Shorts](https://www.youtube.com/watch?v=gY7W_bOEqjQ)
+- [Songs Of The Week | Kester | Sreya Jayadeep | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=PsCsXvBd_Ao)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #July 21st mother Mary hits Malayalam](https://www.youtube.com/watch?v=QPSgTsTcVfg)
+- [Japamala 21st of July 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 21st of July   2023](https://www.youtube.com/watch?v=0waj7U7x9LA)
 - [രാവിലെ പ്രാര്‍ത്ഥന  July 21 shorts  # Athiravile Prarthana 21st of July 2023 Morning Prayer shorts](https://www.youtube.com/watch?v=G3cznrvXa1w)
 - [രാവിലെ പ്രാര്‍ത്ഥന  July 21 # Athiravile Prarthana 21st of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=lGhgcDsBErM)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 21st July 2023](https://www.youtube.com/watch?v=0DFgbIvGC6Y)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=u-MFiTnJLhA)
-- [കാൽവരിക്കുന്നിൽ നാഥൻ യാഗമായ് മാറി ....](https://www.youtube.com/watch?v=O_BB1PEJ5wY)
-- [https://youtu.be/5UVhKYEsesA | വാനമ്പാടി @ 60 | Celebrating 60 Music Years of K S Chithra](https://www.youtube.com/watch?v=pAmxgB6yU0c)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
