@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Iniyoru Gaanam - Lyrical Video | Chethaaram | KJ Yesudas | Mohan Sithara](https://www.youtube.com/watch?v=vGmujqjXhWU)
-- [Dayana Dayana | Remix  | Ring Master | DJ Savyo | Shankar Mahadevan | Gopi Sundar | Harinarayanan BK](https://www.youtube.com/watch?v=cQJ1eEaHT9U)
-- [https://youtu.be/i5e8Km5R0Dc | വാനമ്പാടി @ 60 | Celebrating 60 Music Years of K S Chithra](https://www.youtube.com/watch?v=G27z6crujvY)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=ayvF_bTuXkA)
-- [മഗ്ദലേന മറിയം | സ്നേഹത്തിൻ രാജാവാം യേശുവിൻ  അരികിൽ | Latest Christian devotional Song Malayalam 2023](https://www.youtube.com/watch?v=ZWIaM5Jrfo0)
-- [മലയാളികളുടെ മനസിനെ മത്തുപിടിപ്പിച്ച ഗാനങ്ങൾ |  NISARI CHITHRAGEETHAM](https://www.youtube.com/watch?v=mc8bqKJi4Qg)
+- [Swarnnameghame | Ennittum | Vidhu Prathap |  Jyotsna | Jassie Gift | Kaithapram](https://www.youtube.com/watch?v=qZHK35cp9Fw)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 21st of July 2023](https://www.youtube.com/watch?v=XbFkwdcDQc8)
+- [Swapnam Oru Chak Animation | Best Actor | Animation Video Song | Mammootty | Bijibal | Arun Alat](https://www.youtube.com/watch?v=z-YgcDNOXkU)
+- [പ്രതികൂലങ്ങളിൽ കൂടെയുള്ള ദൈവം | Rev. Aneesh P Joseph | #shorts #jesus](https://www.youtube.com/watch?v=CUxtaYwKaFE)
+- [Ila Kozhiyum Sisiram | Panthayakozhi | Narain | Pooja | Biju Narayanan | Alex Paul | Lal](https://www.youtube.com/watch?v=GcPib4yNwoM)
+- [Sandhyayaam Kadalile Sooryan | Hridayathil Sookshikkan | Rachana John | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=ceP78p0uPMc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
