@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [എൻ പ്രിയൻ യേശുവിൻ | Sumi Sunny | Christian Devotional Shorts Video](https://www.youtube.com/watch?v=O-_92wCwiDw)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #july 22nd daily mother mary songs](https://www.youtube.com/watch?v=tQiVbfvTrCc)
+- [പഴയകാല പ്രഭാതഗാനങ്ങൾ കേട്ട് പ്രാർത്ഥിച്ചു ഉണരാം daily morning old worship songs with lyrics](https://www.youtube.com/watch?v=KRliHf2178I)
+- [Christian Video Songs Malayalam | Chithra Arun | Rithuraj | Alenia | Superhit Christian Songs](https://www.youtube.com/watch?v=0jEIIMoVGuI)
+- [Japamala 22nd of July  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 22nd of July 2023](https://www.youtube.com/watch?v=0ziLC_6XKt0)
 - [രാവിലെ പ്രാര്‍ത്ഥന  July 22 shorts  # Athiravile Prarthana 22nd of July 2023 Morning Prayer shorts](https://www.youtube.com/watch?v=m5jiykUscTg)
-- [പ്രഭാത പ്രാര്‍ത്ഥന July 22 # Athiravile Prarthana 22nd of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=eTluU5gMlII)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 22nd July 2023](https://www.youtube.com/watch?v=C-4Z6HIU5oc)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=vRxX7aIGWLg)
-- [ശ്രീരാമ സ്തുതി ഗീതം |  | Sree Rama Sthuthi Geetham | Sreerama Devotional Song](https://www.youtube.com/watch?v=30v7-dJ7EFU)
-- [തിരയെ പുണരുന്ന തീരം പോലെന്നെ ,തഴുകി തലോടുന്ന സ്നേഹം .](https://www.youtube.com/watch?v=OzpKmV0H-2M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
