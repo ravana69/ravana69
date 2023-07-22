@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [karayuvaan kaaranamillathe karayumpol | Femina Vinoby | Fr Dr Titto Varghese Vallavanthara CMI](https://www.youtube.com/watch?v=5wlytdJpUpw)
+- [Thumbi Penne Vava | Dhruvam | Shibu Chakravarthi | S P Venkatesh | Yesudas Malayalam Hits | Sujatha](https://www.youtube.com/watch?v=t3O0yakFZmw)
+- [മഴമുകില്‍ കൂന്തലിലെമഞ്ഞണി തുളസികളില്‍ | മിസ്റ്റർ ബട്‌ലർ | Dileep](https://www.youtube.com/watch?v=GC4yUY4lXd4)
 - [Thekkini Kolaya | Lyrical Video| Sufy Paranja Kadha | K S Chithra | Rafeeque Ahammed | Mohan Sithara](https://www.youtube.com/watch?v=QexyflANHlY)
 - [Good feel song #MazhaPattu | #Padavettu | #NivinPauly | #AditiBalan | #AnwarAli | #shorts #ytshorts](https://www.youtube.com/watch?v=Di9w8HK8QSE)
 - [ANAADHARE AGATHIKALE |NEW CHRISTIAN SONG | JOSE SAGAR | PAVITHRAN AMACHAL |JINO KUNNUMPURATH| REEL 3](https://www.youtube.com/watch?v=wyoHksno920)
-- [എൻ പ്രിയൻ യേശുവിൻ | Sumi Sunny | Christian Devotional Shorts Video](https://www.youtube.com/watch?v=O-_92wCwiDw)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #july 22nd daily mother mary songs](https://www.youtube.com/watch?v=tQiVbfvTrCc)
-- [പഴയകാല പ്രഭാതഗാനങ്ങൾ കേട്ട് പ്രാർത്ഥിച്ചു ഉണരാം daily morning old worship songs with lyrics](https://www.youtube.com/watch?v=KRliHf2178I)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
