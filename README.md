@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 23rd July 2023](https://www.youtube.com/watch?v=XxnsfUiMl6M)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=IHVebg_FRlQ)
 - [ഒരു വാക്കുപോലും എനിക്കെതിരായ് നീ ഉരിയാടിയില്ലല്ലോ ... നാഥാ](https://www.youtube.com/watch?v=g7Uxt_b2BPQ)
 - [മനസ്സിൽ തങ്ങിനിൽക്കുന്ന മനോഹര ഗാനങ്ങൾ |Evergreen Malayalam Film Songs |M G Sreekumar |Rajamani](https://www.youtube.com/watch?v=kcjAfOzkgMc)
 - [https://youtu.be/E0RptVAMmao | വാനമ്പാടി @ 60 | Celebrating 60 Music Years of K S Chithra](https://www.youtube.com/watch?v=mZcF1kZlYes)
 - [Christian Superhit Songs | Kester | Bindhu Thomas |Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=CcvIL_7Xlv0)
-- [കലങ്ങുന്ന ഹൃദയം നമ്മുടെ ജീവിതത്തിന്റെ ക്രമം തന്നെ തെറ്റിക്കും |  Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=o7DYOxPvO4M)
-- [മമ്മൂട്ടിയും മോഹൻലാലും ഒന്നിക്കുന്ന മലയാളത്തിലെ ആരും കൊതിക്കും ഗാനങ്ങൾ |Remastered Video Songs](https://www.youtube.com/watch?v=_1GdmF9T7t0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
