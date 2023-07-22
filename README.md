@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മനസ്സിൽ തങ്ങിനിൽക്കുന്ന മനോഹര ഗാനങ്ങൾ |Evergreen Malayalam Film Songs |M G Sreekumar |Rajamani](https://www.youtube.com/watch?v=kcjAfOzkgMc)
 - [https://youtu.be/E0RptVAMmao | വാനമ്പാടി @ 60 | Celebrating 60 Music Years of K S Chithra](https://www.youtube.com/watch?v=mZcF1kZlYes)
 - [Christian Superhit Songs | Kester | Bindhu Thomas |Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=CcvIL_7Xlv0)
 - [കലങ്ങുന്ന ഹൃദയം നമ്മുടെ ജീവിതത്തിന്റെ ക്രമം തന്നെ തെറ്റിക്കും |  Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=o7DYOxPvO4M)
 - [മമ്മൂട്ടിയും മോഹൻലാലും ഒന്നിക്കുന്ന മലയാളത്തിലെ ആരും കൊതിക്കും ഗാനങ്ങൾ |Remastered Video Songs](https://www.youtube.com/watch?v=_1GdmF9T7t0)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 22nd of July 2023](https://www.youtube.com/watch?v=6Ri8CHtsW7c)
-- [PAPPA  | Musical Album | Snehanilaavin | Sunil Kumar | Adrija](https://www.youtube.com/watch?v=-znLcnD7SlQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
