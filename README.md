@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കലങ്ങുന്ന ഹൃദയം നമ്മുടെ ജീവിതത്തിന്റെ ക്രമം തന്നെ തെറ്റിക്കും |  Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=o7DYOxPvO4M)
+- [മമ്മൂട്ടിയും മോഹൻലാലും ഒന്നിക്കുന്ന മലയാളത്തിലെ ആരും കൊതിക്കും ഗാനങ്ങൾ |Remastered Video Songs](https://www.youtube.com/watch?v=_1GdmF9T7t0)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 22nd of July 2023](https://www.youtube.com/watch?v=6Ri8CHtsW7c)
+- [PAPPA  | Musical Album | Snehanilaavin | Sunil Kumar | Adrija](https://www.youtube.com/watch?v=-znLcnD7SlQ)
+- [Moham Manasilitt | Arjunan Pillayum Anchu Makkalum | Mohan Sithara | Jagadeesh | Jagathy](https://www.youtube.com/watch?v=_BpO4CMNTTU)
 - [Yadu Hrudayam | Romantic Duet song by Madhu Balakrishnan & Chithra from Rappakal #shorts](https://www.youtube.com/watch?v=nuoUF1WRxCE)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=jzu89D0q3Q0)
-- [പുടമുറി കല്യാണം | Pudamurikkalyanam | Chilambu | KS Chithra | Malayalam Film Song | Shobhana](https://www.youtube.com/watch?v=_Elv99J5owo)
-- [Kuttathi Kunjamma | Appan Movie Song | Alencier Ley Lopez | Kerala State Film Awards 2023](https://www.youtube.com/watch?v=z5MRM4ISr_k)
-- [Neram Kaalam Video Song | Njaan Ippo Entha Cheyya | Deepa Thomas | Aleena | Elisha Abraham](https://www.youtube.com/watch?v=2xv3ELlOdHA)
-- [karayuvaan kaaranamillathe karayumpol | Femina Vinoby | Fr Dr Titto Varghese Vallavanthara CMI](https://www.youtube.com/watch?v=5wlytdJpUpw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
