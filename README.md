@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഇനിമേൽ എനിക്കില്ലോർ ഭയം | Sadhu Kochukunjupadeshi | Shorts](https://www.youtube.com/watch?v=7wZzQhs3JPE)
+- [അത്ഭുതങ്ങൾ നേടിതരും അനുഗ്രഹ ഗീതങ്ങൾ | Christian Devotional Songs Malayalam | Christian Songs](https://www.youtube.com/watch?v=Yjjx-c-kUe4)
+- [Japamala 23rd of July 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 23rd of July 2023](https://www.youtube.com/watch?v=BtU_NPkthDA)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #july 23rd daily mother Mary songs](https://www.youtube.com/watch?v=aSqiwzUattE)
 - [രാവിലെ പ്രാര്‍ത്ഥന  July 23 shorts  # Athiravile Prarthana 23rd of July 2023 Morning Prayer shorts](https://www.youtube.com/watch?v=b98jqIcWXEw)
 - [പ്രഭാത പ്രാര്‍ത്ഥന July 23 # Athiravile Prarthana 23rd of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=x4fArRb9Zqs)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 23rd July 2023](https://www.youtube.com/watch?v=XxnsfUiMl6M)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=IHVebg_FRlQ)
-- [ഒരു വാക്കുപോലും എനിക്കെതിരായ് നീ ഉരിയാടിയില്ലല്ലോ ... നാഥാ](https://www.youtube.com/watch?v=g7Uxt_b2BPQ)
-- [മനസ്സിൽ തങ്ങിനിൽക്കുന്ന മനോഹര ഗാനങ്ങൾ |Evergreen Malayalam Film Songs |M G Sreekumar |Rajamani](https://www.youtube.com/watch?v=kcjAfOzkgMc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
