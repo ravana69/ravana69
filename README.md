@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കേട്ടവർ മറ്റുള്ളവരോട് പറഞ്ഞു സൂപ്പർഹിറ്റായി മാറിയ അനശ്വര ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=fE6Oj0DoTNg)
 - [Mesmerizing #MazhaPattu | #Padavettu | #NivinPauly | #AditiBalan | #AnwarAli | #shorts #ytshorts](https://www.youtube.com/watch?v=Z3JKwsMFruo)
 - [DIGITAL VILLAGE - Official Teaser | Fahad Nandu | Ulsav Rajeev | Hari S R | Yulin Productions](https://www.youtube.com/watch?v=GL4SCa8t-94)
 - [കരയോട് ചേർക്കുന്ന നാഥൻ | Roy John Chirackal | Shorts](https://www.youtube.com/watch?v=A6BQgrIdoTs)
 - [Japamala 24th of July  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 24th of July 2023](https://www.youtube.com/watch?v=T5JMx8uL_gc)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #july 24th daily mother mary songs](https://www.youtube.com/watch?v=4hw8naxBy8c)
-- [രാവിലെ പ്രാര്‍ത്ഥന  July 24 shorts  # Athiravile Prarthana 24th of July 2023 Morning Prayer shorts](https://www.youtube.com/watch?v=-bdF92I1mRI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
