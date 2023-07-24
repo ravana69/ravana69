@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 24th of July 2023](https://www.youtube.com/watch?v=yfgub9DKx1o)
+- [Rishtha Reprise -Video Song | Pendulum | Najim Arshad | Jean P Johnson | Vijay Babu, Indrans, Anumol](https://www.youtube.com/watch?v=eY4J2EvC0RA)
+- [നസ്രയേൻ സ്നേഹത്തിന്റെ പാഠശാലയാണ് | Rev. Aneesh P Joseph | #shorts #jesusshorts](https://www.youtube.com/watch?v=IzR2doHDrkU)
+- [Attu Mazha Chaattum | Kakkakarumban | Ilanko | M Jayachandran | Gireesh Puthenchery](https://www.youtube.com/watch?v=gvI1f3s8YP8)
+- [Ee Vennilavinte | Makante Achan | Vineeth Sreenivasan | Sreenivasan | M Jayachandran | Kaithapram](https://www.youtube.com/watch?v=48b6QEskxjE)
 - [https://youtu.be/xkkrwXTjZuU | വാനമ്പാടി @ 60 | Celebrating 60 Music Years of K S Chithra](https://www.youtube.com/watch?v=y6Bwzw_xPZ8)
-- [Yelelo Yelelo | #malayalamsongs #maniratnam #shaakuntalam #tipsmalayalam #shorts](https://www.youtube.com/watch?v=ftCVSj3Dm2g)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=Y2ySXd54ibI)
-- [കേട്ടവർ മറ്റുള്ളവരോട് പറഞ്ഞു സൂപ്പർഹിറ്റായി മാറിയ അനശ്വര ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=fE6Oj0DoTNg)
-- [Mesmerizing #MazhaPattu | #Padavettu | #NivinPauly | #AditiBalan | #AnwarAli | #shorts #ytshorts](https://www.youtube.com/watch?v=Z3JKwsMFruo)
-- [DIGITAL VILLAGE - Official Teaser | Fahad Nandu | Ulsav Rajeev | Hari S R | Yulin Productions](https://www.youtube.com/watch?v=GL4SCa8t-94)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
