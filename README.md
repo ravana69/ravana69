@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 25th July 2023](https://www.youtube.com/watch?v=Fp4jRYQrwsw)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=R_LFPPGypc4)
 - [ഹാസ്യതാരമായും നായകനായും തിളങ്ങുന്ന മലയാളികളുടെ സ്വന്തം ജയറാമിന്റെ ഹിറ്റ് ഗാനങ്ങൾ |Evergreen Songs](https://www.youtube.com/watch?v=Cpd3wOztC48)
 - [നൽകുന്നതെല്ലാം അനുഗ്രഹ പാത്രം , ഒരുക്കുന്നതെല്ലാം നന്മ മാത്രം .](https://www.youtube.com/watch?v=bhrrEfvXpiA)
 - [https://youtu.be/A7AdylLiJhU | വാനമ്പാടി @ 60 | Celebrating 60 Music Years of K S Chithra](https://www.youtube.com/watch?v=RP3-1gwbuBI)
 - [Ragam Thaanam |Sooryagaayathri |ReMastered Video Song |Raveendran |K J Yesudas |O N V Kurup](https://www.youtube.com/watch?v=nVMGvvi3Cis)
-- [Christian Superhit Songs | Elizabeth Raju | Joji Johns | Christian Songs Malayalam | Wilson Piravom](https://www.youtube.com/watch?v=Hudf6rjS7r8)
-- [Kaashmeera Sandhye | Manjupoloru Penkutti | Sankar Mahadevan | Alphons Joseph | Kaithapram](https://www.youtube.com/watch?v=6GBPvYqV9RI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
