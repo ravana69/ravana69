@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന  July 24 shorts  # Athiravile Prarthana 24th of July 2023 Morning Prayer shorts](https://www.youtube.com/watch?v=-bdF92I1mRI)
 - [പ്രഭാത പ്രാര്‍ത്ഥന July 24 # Athiravile Prarthana 24th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=NmEzLmyf1kU)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 24th July 2023](https://www.youtube.com/watch?v=6XbyFdq6aBw)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=rCXcf-Wa2Ek)
 - [ആരോടു ഞാൻ പറയണമെൻ വേദന ...](https://www.youtube.com/watch?v=Dm3DmyGD0AE)
 - [Christian Melody Songs | Jessy Raju | Christian Devotional Songs Malayalam | Kester | Joji Johns](https://www.youtube.com/watch?v=KzqovMw0M7s)
-- [https://youtu.be/36o-jrgsX_4 | വാനമ്പാടി @ 60 | Celebrating 60 Music Years of K S Chithra](https://www.youtube.com/watch?v=8h0TJjlmarU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
