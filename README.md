@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [https://youtu.be/xkkrwXTjZuU | വാനമ്പാടി @ 60 | Celebrating 60 Music Years of K S Chithra](https://www.youtube.com/watch?v=y6Bwzw_xPZ8)
+- [Yelelo Yelelo | #malayalamsongs #maniratnam #shaakuntalam #tipsmalayalam #shorts](https://www.youtube.com/watch?v=ftCVSj3Dm2g)
 - [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=Y2ySXd54ibI)
 - [കേട്ടവർ മറ്റുള്ളവരോട് പറഞ്ഞു സൂപ്പർഹിറ്റായി മാറിയ അനശ്വര ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=fE6Oj0DoTNg)
 - [Mesmerizing #MazhaPattu | #Padavettu | #NivinPauly | #AditiBalan | #AnwarAli | #shorts #ytshorts](https://www.youtube.com/watch?v=Z3JKwsMFruo)
 - [DIGITAL VILLAGE - Official Teaser | Fahad Nandu | Ulsav Rajeev | Hari S R | Yulin Productions](https://www.youtube.com/watch?v=GL4SCa8t-94)
-- [കരയോട് ചേർക്കുന്ന നാഥൻ | Roy John Chirackal | Shorts](https://www.youtube.com/watch?v=A6BQgrIdoTs)
-- [Japamala 24th of July  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 24th of July 2023](https://www.youtube.com/watch?v=T5JMx8uL_gc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
