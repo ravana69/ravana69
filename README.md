@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 26th July 2023](https://www.youtube.com/watch?v=0v3L1AEAB5c)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=5auf-1it6Po)
 - [ഇന്നീ ഉഷസിന്റെ നന്ദിയായ് പൂർണ്ണമായെന്നെ സമർപ്പിക്കുന്നു .](https://www.youtube.com/watch?v=RsHp9ZhwwOk)
 - [തിരുഹൃദയത്തിൽ നിന്നും |Fr. Joseph Antony Palliparambil | Kester | Shorts](https://www.youtube.com/watch?v=v0F6mdeI5f8)
 - [https://youtu.be/klIZD9lRBII | വാനമ്പാടി @ 60 | Celebrating 60 Music Years of K S Chithra](https://www.youtube.com/watch?v=u3eJ9y279K8)
 - [Singer Of The Week | Jolly Abraham | Christian Devotional Songs Malayalam | Praise and Worship Songs](https://www.youtube.com/watch?v=-hRwQ4nVoDg)
-- [Kuttalam Kuruvi | Kakkakarumban | Ganga| M Jayachandran | Gireesh Puthenchery](https://www.youtube.com/watch?v=_vII0eA5Qn0)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 25th of July 2023](https://www.youtube.com/watch?v=u76M8njKLGc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
