@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [തിരുഹൃദയത്തിൽ നിന്നും |Fr. Joseph Antony Palliparambil | Kester | Shorts](https://www.youtube.com/watch?v=v0F6mdeI5f8)
+- [https://youtu.be/klIZD9lRBII | വാനമ്പാടി @ 60 | Celebrating 60 Music Years of K S Chithra](https://www.youtube.com/watch?v=u3eJ9y279K8)
+- [Singer Of The Week | Jolly Abraham | Christian Devotional Songs Malayalam | Praise and Worship Songs](https://www.youtube.com/watch?v=-hRwQ4nVoDg)
 - [Kuttalam Kuruvi | Kakkakarumban | Ganga| M Jayachandran | Gireesh Puthenchery](https://www.youtube.com/watch?v=_vII0eA5Qn0)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 25th of July 2023](https://www.youtube.com/watch?v=u76M8njKLGc)
 - [ആകാശത്തോട്  ദൈവത്തെ ചോദിച്ചപ്പോഴാണ് സൂര്യനുദിച്ചത് | Rev. Aneesh P Joseph | #shorts #jesusshorts](https://www.youtube.com/watch?v=zXp8zrJjX1w)
-- [Junile Nilamazhayil | Nammal Thammil | Prithviraj | Geethumohandas | Viji Thambi | Yesudas | Sujatha](https://www.youtube.com/watch?v=Rk8mMnxVUOs)
-- [Pon Nilave | Wanted | MG Sreekumar | Deepan Chatterji | Sanjeev Lal | Gireesh Puthenchery](https://www.youtube.com/watch?v=OfXQTTLCqHM)
-- [മകരമാസക്കുളിരിൽ അവളുടെ നിറഞ്ഞമാറിൻ ചൂടിൽ | Kaayalum kayarum](https://www.youtube.com/watch?v=V4gawdel-dg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
