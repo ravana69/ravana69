@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 25th of July 2023](https://www.youtube.com/watch?v=u76M8njKLGc)
+- [ആകാശത്തോട്  ദൈവത്തെ ചോദിച്ചപ്പോഴാണ് സൂര്യനുദിച്ചത് | Rev. Aneesh P Joseph | #shorts #jesusshorts](https://www.youtube.com/watch?v=zXp8zrJjX1w)
+- [Junile Nilamazhayil | Nammal Thammil | Prithviraj | Geethumohandas | Viji Thambi | Yesudas | Sujatha](https://www.youtube.com/watch?v=Rk8mMnxVUOs)
+- [Pon Nilave | Wanted | MG Sreekumar | Deepan Chatterji | Sanjeev Lal | Gireesh Puthenchery](https://www.youtube.com/watch?v=OfXQTTLCqHM)
+- [മകരമാസക്കുളിരിൽ അവളുടെ നിറഞ്ഞമാറിൻ ചൂടിൽ | Kaayalum kayarum](https://www.youtube.com/watch?v=V4gawdel-dg)
 - [https://youtu.be/wGUyo0mkpfU | വാനമ്പാടി @ 60 | Celebrating 60 Music Years of K S Chithra](https://www.youtube.com/watch?v=PIbg4pyz6lo)
-- [Vellari Praavukal | Kelkkaan Kothikkunna Kristheeya Bhakthigaanangal | Audio Juke Box](https://www.youtube.com/watch?v=OGIIEevTTxw)
-- [Mizhiyil Mizhiyil | Mayabazar | Mammootty | Sheela Kowl | Shorts Video](https://www.youtube.com/watch?v=tzJty9fWGR8)
-- [കോരിച്ചൊരിയുന്ന മഴയത് കേട്ടിരിക്കാൻ കൊതിതോന്നുന്ന സൂപ്പർഹിറ്റ് സിനിമ ഗാനങ്ങൾ |Evergreen Film Songs](https://www.youtube.com/watch?v=W_FsYG7ao-A)
-- [Vaarthikalaal |Pallaavoor Devanarayanan |Remastered Video Song|K S Chithra |Mammootty |Rveendran](https://www.youtube.com/watch?v=dKTgu8631M0)
-- [Dhwadashiyil Shorts | Madhuranambarakkarru | Biju Menon | Samyuktha | Shorts Video](https://www.youtube.com/watch?v=GQq1nk0gAYQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
