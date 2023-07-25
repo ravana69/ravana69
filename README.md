@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [https://youtu.be/wGUyo0mkpfU | വാനമ്പാടി @ 60 | Celebrating 60 Music Years of K S Chithra](https://www.youtube.com/watch?v=PIbg4pyz6lo)
 - [Vellari Praavukal | Kelkkaan Kothikkunna Kristheeya Bhakthigaanangal | Audio Juke Box](https://www.youtube.com/watch?v=OGIIEevTTxw)
 - [Mizhiyil Mizhiyil | Mayabazar | Mammootty | Sheela Kowl | Shorts Video](https://www.youtube.com/watch?v=tzJty9fWGR8)
 - [കോരിച്ചൊരിയുന്ന മഴയത് കേട്ടിരിക്കാൻ കൊതിതോന്നുന്ന സൂപ്പർഹിറ്റ് സിനിമ ഗാനങ്ങൾ |Evergreen Film Songs](https://www.youtube.com/watch?v=W_FsYG7ao-A)
 - [Vaarthikalaal |Pallaavoor Devanarayanan |Remastered Video Song|K S Chithra |Mammootty |Rveendran](https://www.youtube.com/watch?v=dKTgu8631M0)
 - [Dhwadashiyil Shorts | Madhuranambarakkarru | Biju Menon | Samyuktha | Shorts Video](https://www.youtube.com/watch?v=GQq1nk0gAYQ)
-- [Swapnam Oru Chak | Karaoke Video | Best Actor | Mammootty | Martin Prakkat | Bijibal |Santhosh Varma](https://www.youtube.com/watch?v=GMMhLsq6RIo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
