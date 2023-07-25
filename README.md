@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Dhwadashiyil Shorts | Madhuranambarakkarru | Biju Menon | Samyuktha | Shorts Video](https://www.youtube.com/watch?v=GQq1nk0gAYQ)
+- [Swapnam Oru Chak | Karaoke Video | Best Actor | Mammootty | Martin Prakkat | Bijibal |Santhosh Varma](https://www.youtube.com/watch?v=GMMhLsq6RIo)
+- [Cute Performance of #loveyoumuthe | #Padmini | #SaregamaMalayalam #shorts #ytshorts](https://www.youtube.com/watch?v=4Fs2LZOQz4o)
 - [Chirakarnna Mounam | Calendar | Prithviraj | Navya | Yesudas | Sisily | Afsal Yousaf](https://www.youtube.com/watch?v=zAimndVl8qI)
 - [RSV | Yeshuvin Namam | Shorts](https://www.youtube.com/watch?v=fHBw2TaVDv0)
 - [Japamala 25th of July 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 25th of July   2023](https://www.youtube.com/watch?v=JGc2rzF5nLc)
-- [രാവിലെ പ്രാര്‍ത്ഥന  July 25 shorts  # Athiravile Prarthana 25th of July 2023 Morning Prayer shorts](https://www.youtube.com/watch?v=0RyzvloJl0I)
-- [രാവിലെ പ്രാര്‍ത്ഥന  July 25 # Athiravile Prarthana 25th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=biDGLO5h2mU)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 25th July 2023](https://www.youtube.com/watch?v=Fp4jRYQrwsw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
