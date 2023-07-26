@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kuruvi &lpar;2008&rpar; &lpar;Vidyasagar&rpar; &lpar;AnAk Audio&rpar; [ACD-RIP-WAV]](https://www.1tamilmv.zip/index.php?/forums/topic/91610-kuruvi-2008-vidyasagar-anak-audio-acd-rip-wav/&do=findComment&comment=350822)
+- [Sex Education &lpar;2019&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.2GB - 2.4GB &amp; 1.2GB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174528-sex-education-2019-s01-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-52gb-24gb-12gb-esub/&do=findComment&comment=350821)
 - [Kuruvi &lpar;2008&rpar; Tamil Complete Album [ CD | FLAC 16Bit -  Vidyasagar Musical](https://www.1tamilmv.zip/index.php?/forums/topic/126223-kuruvi-2008-tamil-complete-album-cd-flac-16bit-vidyasagar-musical/&do=findComment&comment=350820)
 - [Trial Period &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu + Malayalam + Kannada] - &lpar;AAC 2.0&rpar; - 2.5GB &amp; 1.4GB] - [x264 - 800MB &amp; 400MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174526-trial-period-2023-true-web-dl-1080p-720p-avc-tamil-telugu-malayalam-kannada-aac-20-25gb-14gb-x264-800mb-400mb-esub/&do=findComment&comment=350819)
 - [Choodalani Vundi &lpar;1998&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 224Kbps &lpar;Dolby Digital® 2.0&rpar; - 5.4GB - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174527-choodalani-vundi-1998-telugu-dvd9-untouched-480p-224kbps-dolby-digital%C2%AE-20-54gb-esub/&do=findComment&comment=350818)
-- [Choodalani Vundi &lpar;1998&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 224Kbps &lpar;Dolby Digital® 2.0&rpar; - 5.4GB - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174527-choodalani-vundi-1998-telugu-dvd9-untouched-480p-224kbps-dolby-digital%C2%AE-20-54gb-esub/&do=findComment&comment=350817)
-- [Trial Period &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu + Malayalam + Kannada] - &lpar;AAC 2.0&rpar; - 2.5GB &amp; 1.4GB] - [x264 - 800MB &amp; 400MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174526-trial-period-2023-true-web-dl-1080p-720p-avc-tamil-telugu-malayalam-kannada-aac-20-25gb-14gb-x264-800mb-400mb-esub/&do=findComment&comment=350816)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
