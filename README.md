@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കാന്താ വരവ് കാത്ത് | Christian Devotional Shorts | Hephsibha Benson](https://www.youtube.com/watch?v=BIRnCk58nfM)
+- [Alarunna Thiramalakalkappuram | Christian Video Song | Rithuraj | Joby Kavalam | Joji Johns](https://www.youtube.com/watch?v=kVJLI1E_UyU)
+- [Japamala 26th of July 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 26th of July 2023](https://www.youtube.com/watch?v=NST9SUfpL_Q)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #Daily mother mary prayer and songs July 26th 2023](https://www.youtube.com/watch?v=5MP9d--LRBk)
 - [രാവിലെ പ്രാര്‍ത്ഥന  July 26 shorts  # Athiravile Prarthana 26th of July 2023 Morning Prayer shorts](https://www.youtube.com/watch?v=nAo_DZlqk9M)
 - [രാവിലെ പ്രാര്‍ത്ഥന July 26 # Athiravile Prarthana 26th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=P5a3vMYN2ns)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 26th July 2023](https://www.youtube.com/watch?v=0v3L1AEAB5c)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=5auf-1it6Po)
-- [ഇന്നീ ഉഷസിന്റെ നന്ദിയായ് പൂർണ്ണമായെന്നെ സമർപ്പിക്കുന്നു .](https://www.youtube.com/watch?v=RsHp9ZhwwOk)
-- [തിരുഹൃദയത്തിൽ നിന്നും |Fr. Joseph Antony Palliparambil | Kester | Shorts](https://www.youtube.com/watch?v=v0F6mdeI5f8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
