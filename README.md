@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ആരും പാടത്ത ഗാനം പാടി ആത്മ നാഥനെ സ്തുതിച്ചിടുമ്പോൾ ....](https://www.youtube.com/watch?v=ESlvtjFk1E4)
+- [Christian Melody Songs | Rajkumar Radhakrishnan | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=kQH90Hv1xsA)
+- [https://youtu.be/DiFo84xz7Zo | വാനമ്പാടി @ 60 | Celebrating 60 Music Years of K S Chithra](https://www.youtube.com/watch?v=2d9X-mUkXOQ)
 - [Ashtami Rohini naalilen(തുളസിതീർത്ഥം )Vinod velayudhan -Birthday Dedication By Ks Chithra](https://www.youtube.com/watch?v=o6aQuQjlZJY)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 26th of July 2023](https://www.youtube.com/watch?v=OWN9ER-ivDY)
 - [പുരാതനനായ ദൈവം നിന്റെ സങ്കേതം | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=KrVNp2-LOXA)
-- [Mayaponmaane Ninne | Thalayanamanthram | Sreenivasan | Urvashi | Johnson | Chithra](https://www.youtube.com/watch?v=pVJ1G9p5nVA)
-- [അറുപതിന്റെ നിറവിൽ ചിത്ര!!!|Malayalam Evergreen Songs |Chithra Hits |Birthday Special - Video Jukebox](https://www.youtube.com/watch?v=3QZb1GZpD0U)
-- [Jerusalem Nayaka | Aashrayamarulunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=BSFEaUVtLsg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
