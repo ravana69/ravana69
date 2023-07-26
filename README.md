@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kannil Nila Mugam Video Song | Sooryamanasam | Mammootty | Jagathy Sreekumar](https://www.youtube.com/watch?v=dFw57P_XzAc)
+- [Feel the Song #MazhaPattu | #Padavettu | #NivinPauly | #AditiBalan | #AnwarAli | #shorts #ytshorts](https://www.youtube.com/watch?v=ePkeY8xbozg)
 - [Akaleyo Nee Shorts | Grandmaster | Mohanlal | Priyamani | Vijay Yesudas](https://www.youtube.com/watch?v=8r35B6iLwD4)
 - [കാന്താ വരവ് കാത്ത് | Christian Devotional Shorts | Hephsibha Benson](https://www.youtube.com/watch?v=BIRnCk58nfM)
 - [Alarunna Thiramalakalkappuram | Christian Video Song | Rithuraj | Joby Kavalam | Joji Johns](https://www.youtube.com/watch?v=kVJLI1E_UyU)
 - [Japamala 26th of July 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 26th of July 2023](https://www.youtube.com/watch?v=NST9SUfpL_Q)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #Daily mother mary prayer and songs July 26th 2023](https://www.youtube.com/watch?v=5MP9d--LRBk)
-- [രാവിലെ പ്രാര്‍ത്ഥന  July 26 shorts  # Athiravile Prarthana 26th of July 2023 Morning Prayer shorts](https://www.youtube.com/watch?v=nAo_DZlqk9M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
