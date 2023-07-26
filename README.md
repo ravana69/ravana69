@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [https://youtu.be/EG71v15hLdg | വാനമ്പാടി @ 60 | Celebrating 60 Music Years of K S Chithra](https://www.youtube.com/watch?v=_eLamVBIKdM)
+- [Aalolam Poove Nee | Perumazhakaalam | KS Chithra |  M Jayachandran | Kaithapram](https://www.youtube.com/watch?v=GJo3yv7hZig)
+- [Makale Nee Video Song | Poka | Maneesha K S | Arun G S | Kaviprasad Gopinath | Ayvans Film Factory](https://www.youtube.com/watch?v=6OZaD8zggh0)
 - [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=rEgiLZIr3AA)
 - [പുന്നാരം തുടി | Punnaram Thudi | Newspaper Boy Movie Song | Gireesh Puthenchery | Yesudas | Mukesh](https://www.youtube.com/watch?v=FAMwe8W6bZk)
 - [പുതു തലമുറയുടെ ഹറാമായ സുരേഷ് പീറ്റേഴ്സ്  സംഗീതമേകിയ മെഗാഹിറ്റ് ഗാനങ്ങൾ |Superhitt Malayalam Songs](https://www.youtube.com/watch?v=C_R66AyQzuw)
-- [മലയാളികളുടെ പ്രിയ വാനമ്പാടി ചിത്രച്ചേച്ചിയുടെ അവിസ്മരണീയ ഗാനങ്ങൾ Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=60VDIMb-RM0)
-- [Sanjeev, Biju Narayanan - Raajayogam Vannupoi (Lyric Video)](https://www.youtube.com/watch?v=wZ8NBi_93hg)
-- [Raveendran, K.J. Yesudas - They They Cholli (Lyric Video)](https://www.youtube.com/watch?v=qViLLVid_fo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
