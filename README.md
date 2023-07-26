@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Kannil Nila Mugam Video Song | Sooryamanasam | Mammootty | Jagathy Sreekumar](https://www.youtube.com/watch?v=dFw57P_XzAc)
-- [Feel the Song #MazhaPattu | #Padavettu | #NivinPauly | #AditiBalan | #AnwarAli | #shorts #ytshorts](https://www.youtube.com/watch?v=ePkeY8xbozg)
-- [Akaleyo Nee Shorts | Grandmaster | Mohanlal | Priyamani | Vijay Yesudas](https://www.youtube.com/watch?v=8r35B6iLwD4)
-- [കാന്താ വരവ് കാത്ത് | Christian Devotional Shorts | Hephsibha Benson](https://www.youtube.com/watch?v=BIRnCk58nfM)
-- [Alarunna Thiramalakalkappuram | Christian Video Song | Rithuraj | Joby Kavalam | Joji Johns](https://www.youtube.com/watch?v=kVJLI1E_UyU)
-- [Japamala 26th of July 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 26th of July 2023](https://www.youtube.com/watch?v=NST9SUfpL_Q)
+- [Sanjeev, Biju Narayanan - Raajayogam Vannupoi (Lyric Video)](https://www.youtube.com/watch?v=wZ8NBi_93hg)
+- [Raveendran, K.J. Yesudas - They They Cholli (Lyric Video)](https://www.youtube.com/watch?v=qViLLVid_fo)
+- [Raveendran, K.J. Yesudas - Shokamookamaai (Lyric Video)](https://www.youtube.com/watch?v=JpCoh6D9Xds)
+- [Sanjeev, K.J. Yesudas, K.S. Chithra - Kalichiri Than Praayam (Version, 1) (Lyric Video)](https://www.youtube.com/watch?v=JHokD15BPBI)
+- [Sanjeev, K.S. Chithra - Kalichiri Than Praayam (Version, 2) (Lyric Video)](https://www.youtube.com/watch?v=eYi4LAmu58g)
+- [Raveendran, K.J. Yesudas - Kaduvaaye Kiduva (Lyric Video)](https://www.youtube.com/watch?v=Q3r9VRTNGXo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
