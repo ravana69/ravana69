@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Jujubee &lpar;From &quot;Jailer&quot;&rpar; 3nd Single - &lpar;2023&rpar; Tamil MP3 [320Kbps &amp; 128Kbps] - Anirudh Musical](https://www.1tamilmv.zip/index.php?/forums/topic/174524-jujubee-from-jailer-3nd-single-2023-tamil-mp3-320kbps-128kbps-anirudh-musical/&do=findComment&comment=350814)
-- [Secret Invasion &lpar;2023&rpar; S01 EP06 TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam + Eng] - 4GB - 1.2GB - 550MB &amp; 200MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174519-secret-invasion-2023-s01-ep06-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-tamil-telugu-hindi-malayalam-eng-4gb-12gb-550mb-200mb-esub/&do=findComment&comment=350813)
-- [Jujubee &lpar;From &quot;Jailer&quot;&rpar; Master Quality 24bit - FLAC - Dhee, Anirudh Ravichander Musical - 36 MB](https://www.1tamilmv.zip/index.php?/forums/topic/174525-jujubee-from-jailer-master-quality-24bit-flac-dhee-anirudh-ravichander-musical-36-mb/&do=findComment&comment=350812)
-- [Jujubee &lpar;From &quot;Jailer&quot;&rpar; 3nd Single - &lpar;2023&rpar; Tamil MP3 [320Kbps &amp; 128Kbps] - Anirudh Musical](https://www.1tamilmv.zip/index.php?/forums/topic/174524-jujubee-from-jailer-3nd-single-2023-tamil-mp3-320kbps-128kbps-anirudh-musical/&do=findComment&comment=350811)
-- [Oppenheimer &lpar;2023&rpar; Telugu New HDTC - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 400MB - HQ Fan Dub]](https://www.1tamilmv.zip/index.php?/forums/topic/174523-oppenheimer-2023-telugu-new-hdtc-1080p-720p-x264-28gb-16gb-400mb-hq-fan-dub/&do=findComment&comment=350810)
+- [Kuruvi &lpar;2008&rpar; Tamil Complete Album [ CD | FLAC 16Bit -  Vidyasagar Musical](https://www.1tamilmv.zip/index.php?/forums/topic/126223-kuruvi-2008-tamil-complete-album-cd-flac-16bit-vidyasagar-musical/&do=findComment&comment=350820)
+- [Trial Period &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu + Malayalam + Kannada] - &lpar;AAC 2.0&rpar; - 2.5GB &amp; 1.4GB] - [x264 - 800MB &amp; 400MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174526-trial-period-2023-true-web-dl-1080p-720p-avc-tamil-telugu-malayalam-kannada-aac-20-25gb-14gb-x264-800mb-400mb-esub/&do=findComment&comment=350819)
+- [Choodalani Vundi &lpar;1998&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 224Kbps &lpar;Dolby Digital® 2.0&rpar; - 5.4GB - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174527-choodalani-vundi-1998-telugu-dvd9-untouched-480p-224kbps-dolby-digital%C2%AE-20-54gb-esub/&do=findComment&comment=350818)
+- [Choodalani Vundi &lpar;1998&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 224Kbps &lpar;Dolby Digital® 2.0&rpar; - 5.4GB - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174527-choodalani-vundi-1998-telugu-dvd9-untouched-480p-224kbps-dolby-digital%C2%AE-20-54gb-esub/&do=findComment&comment=350817)
+- [Trial Period &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu + Malayalam + Kannada] - &lpar;AAC 2.0&rpar; - 2.5GB &amp; 1.4GB] - [x264 - 800MB &amp; 400MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174526-trial-period-2023-true-web-dl-1080p-720p-avc-tamil-telugu-malayalam-kannada-aac-20-25gb-14gb-x264-800mb-400mb-esub/&do=findComment&comment=350816)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
