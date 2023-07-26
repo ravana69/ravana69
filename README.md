@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [@Benzmovies - Darling &lpar;2010&rpar; Telugu Blu-Ray [DTSHDMA+DD640Kbps] ESub 14.5GB Benz.mkv](https://www.1tamilmv.zip/index.php?/forums/topic/169256-benzmovies-darling-2010-telugu-blu-ray-dtshdmadd640kbps-esub-145gb-benzmkv/&do=findComment&comment=350833)
-- [Spy &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - &lpar;DD+5.1 - 640Kbps&rpar; - 10GB - 5.5GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174535-spy-2023-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-hindi-malayalam-kannada-dd51-640kbps-10gb-55gb-26gb-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=350832)
-- [Kung Fu Hustle &lpar;2004&rpar; BluRay - 1080p - HEVC - Multi Audios - DD+5.1 - [Tamil + Tel + Hin  + Eng] - 2.7GB](https://www.1tamilmv.zip/index.php?/forums/topic/174533-kung-fu-hustle-2004-bluray-1080p-hevc-multi-audios-dd51-tamil-tel-hin-eng-27gb/&do=findComment&comment=350830)
-- [Sex Education &lpar;2019&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.2GB - 2.4GB &amp; 1.2GB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174528-sex-education-2019-s01-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-52gb-24gb-12gb-esub/&do=findComment&comment=350828)
-- [Maamannan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.1GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174531-maamannan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-61gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=350827)
+- [@Benzmovies - Darling &lpar;2010&rpar; Telugu Blu-Ray [DTSHDMA+DD640Kbps] ESub 14.5GB Benz.mkv](https://www.1tamilmv.zip/index.php?/forums/topic/169256-benzmovies-darling-2010-telugu-blu-ray-dtshdmadd640kbps-esub-145gb-benzmkv/&do=findComment&comment=350838)
+- [@Benzmovies - Darling &lpar;2010&rpar; Telugu Blu-Ray [DTSHDMA+DD640Kbps] ESub 14.5GB Benz.mkv](https://www.1tamilmv.zip/index.php?/forums/topic/169256-benzmovies-darling-2010-telugu-blu-ray-dtshdmadd640kbps-esub-145gb-benzmkv/&do=findComment&comment=350837)
+- [@Benzmovies - Darling &lpar;2010&rpar; Telugu Blu-Ray [DTSHDMA+DD640Kbps] ESub 14.5GB Benz.mkv](https://www.1tamilmv.zip/index.php?/forums/topic/169256-benzmovies-darling-2010-telugu-blu-ray-dtshdmadd640kbps-esub-145gb-benzmkv/&do=findComment&comment=350836)
+- [Spy &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 10GB - 5.5GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174536-spy-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-10gb-55gb-26gb-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=350835)
+- [@Benzmovies - Darling &lpar;2010&rpar; Telugu Blu-Ray [DTSHDMA+DD640Kbps] ESub 14.5GB Benz.mkv](https://www.1tamilmv.zip/index.php?/forums/topic/169256-benzmovies-darling-2010-telugu-blu-ray-dtshdmadd640kbps-esub-145gb-benzmkv/&do=findComment&comment=350834)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
