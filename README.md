@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പുതു തലമുറയുടെ ഹറാമായ സുരേഷ് പീറ്റേഴ്സ്  സംഗീതമേകിയ മെഗാഹിറ്റ് ഗാനങ്ങൾ |Superhitt Malayalam Songs](https://www.youtube.com/watch?v=C_R66AyQzuw)
+- [മലയാളികളുടെ പ്രിയ വാനമ്പാടി ചിത്രച്ചേച്ചിയുടെ അവിസ്മരണീയ ഗാനങ്ങൾ Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=60VDIMb-RM0)
 - [Sanjeev, Biju Narayanan - Raajayogam Vannupoi (Lyric Video)](https://www.youtube.com/watch?v=wZ8NBi_93hg)
 - [Raveendran, K.J. Yesudas - They They Cholli (Lyric Video)](https://www.youtube.com/watch?v=qViLLVid_fo)
 - [Raveendran, K.J. Yesudas - Shokamookamaai (Lyric Video)](https://www.youtube.com/watch?v=JpCoh6D9Xds)
 - [Sanjeev, K.J. Yesudas, K.S. Chithra - Kalichiri Than Praayam (Version, 1) (Lyric Video)](https://www.youtube.com/watch?v=JHokD15BPBI)
-- [Sanjeev, K.S. Chithra - Kalichiri Than Praayam (Version, 2) (Lyric Video)](https://www.youtube.com/watch?v=eYi4LAmu58g)
-- [Raveendran, K.J. Yesudas - Kaduvaaye Kiduva (Lyric Video)](https://www.youtube.com/watch?v=Q3r9VRTNGXo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
