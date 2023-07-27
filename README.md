@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Enthe Mulle Pookathu Video Song | Gireesh Puthenchery | Raveendran | KJ Yesudas | KS Chithra](https://www.youtube.com/watch?v=tBMz69djaYQ)
+- [സഹനം ജീവിതം വിശുദ്ധമാക്കും ....](https://www.youtube.com/watch?v=hGJ8Hxg3Zr4)
 - [Ennod Kattum Karunakk | Christian Melody Song | KS Chithra | Christian Songs Malayalam](https://www.youtube.com/watch?v=Z1hGAuFcabU)
 - [Omale Nee | Wanted | MG Sreekumar | Deepan Chatterji | Sanjeev Lal | Gireesh Puthenchery](https://www.youtube.com/watch?v=_KzwW__uWqg)
 - [Kushi (Malayalam) - Title Song Promo| Vijay Deverakonda,Samantha| Hesham Abdul Wahab | Shiva Nirvana](https://www.youtube.com/watch?v=HA0vNVG7m-Y)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 27th of July 2023](https://www.youtube.com/watch?v=Zys1s1m3stQ)
-- [Madhu Nirayunna |Lyrical Video| Pathimoonnam Rathri |Zia Ul Haq | Anooj Babu|K Santhosh|Maneesh Babu](https://www.youtube.com/watch?v=Claypwbj4-Q)
-- [നമുക്കും നന്മയുടെ നല്ല ഫലങ്ങൾ  അണിയാം | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=3jJWsFrmmKg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
