@@ -35,9 +35,9 @@
 - [https://youtu.be/iWDRj6XSiuQ | വാനമ്പാടി @ 60 | Celebrating 60 Music Years of K S Chithra](https://www.youtube.com/watch?v=dVNBysZxW1Y)
 - [Ponnodu Poovai |വാനമ്പാടി @ 60|Celebratinbg 60 Musical Years of K S Chithra |Sharreth |Beeyar Prasad](https://www.youtube.com/watch?v=AGKHZ9nEinI)
 - [Mohanaragatharangam |വാനമ്പാടി @ 60|Celebratinbg 60 Musical Years of K S Chithra | O N V Kurup](https://www.youtube.com/watch?v=OhGWMPpZWfk)
-- [https://youtu.be/pp56PogLAhw | വാനമ്പാടി @ 60 | Celebrating 60 Music Years of K S Chithra](https://www.youtube.com/watch?v=n54T4rfLenc)
-- [ദേവാലയങ്ങളിൽ നിങ്ങൾ കേട്ടു പരിചയിച്ചഗാനങ്ങൾ | Christian Songs Malayalam | Manoj Christy | Joji Johns](https://www.youtube.com/watch?v=Cr_x4TF1e5o)
-- [Japamala 27th of July 2023 # Mathavinte Japamala # Prakashathinte Rahasyangal 27th of July 2023](https://www.youtube.com/watch?v=5gJBsKcVjfw)
+- [Chenkathir Kayyum | വാനമ്പാടി @ 60 |  Celebratinbg 60 Musical Years of K S Chithra |Ilayaraja](https://www.youtube.com/watch?v=o0OYuO5NNTg)
+- [Chandhanamukile | വാനമ്പാടി @ 60 | Celebratinbg 60 Musical Years of K S Chithra | M Jayachandran](https://www.youtube.com/watch?v=ZwAZcx2OrCI)
+- [Aadikkarin Manjal | വാനമ്പാടി @ 60 |  Celebratinbg 60 Musical Years of K S Chithra | O N V Kurup](https://www.youtube.com/watch?v=qgTrFxvISM0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
