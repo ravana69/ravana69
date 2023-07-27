@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aadyathe Kuttumon - Lyrical Video | American Ammaayi | Ranjini Jose, Prabhakar](https://www.youtube.com/watch?v=u9aVbaRfYec)
+- [Daivame Thriyekane | Chithra Arun | P D John | Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=fyBb7JcmCkA)
 - [Edanil Vazhum En Daivame | Manoharamaaya Kristheeya Bhakthigaananagal | Audio Jukebox](https://www.youtube.com/watch?v=o-7H3TAcjiI)
 - [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=O0pMPAwyiyU)
 - [KS Chitra Birthday Special | Video Song Jukebox | Melody songs | Vidyasagar | Saina Music](https://www.youtube.com/watch?v=7qdEiU0wzB0)
-- [ചിത്രേച്ചിയുടെ പിറന്നാൾ സ്പെഷ്യൽ ഗാനങ്ങൾ | K S Chithra Birthday Special Songs | Malayalam Film Songs](https://www.youtube.com/watch?v=Id680EJCD9o)
-- [മലയാളികളുടെ മനസ്സിൽ രാഗമായ് ,താളമായ് വേരൂന്നിയ നിത്യ സുന്ദര ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=LiMWc8hK3gs)
-- [മലയാളികളുടെ പ്രിയ വാനമ്പാടി ചിത്രയുടെ മലയാളികൾ എന്നും കൊതിക്കുന്നഗാനങ്ങൾ | KS Chithra Birthday Songs](https://www.youtube.com/watch?v=YcdC7CNjFEs)
+- [Igly Bigly Love | Anoop Nirichan | Renjith R Nair | Vismaya Viswanath | Bharath Krishna |Saina Music](https://www.youtube.com/watch?v=vtFjmS7njrY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
