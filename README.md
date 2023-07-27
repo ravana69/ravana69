@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ചിത്രേച്ചിയുടെ പിറന്നാൾ സ്പെഷ്യൽ ഗാനങ്ങൾ | K S Chithra Birthday Special Songs | Malayalam Film Songs](https://www.youtube.com/watch?v=Id680EJCD9o)
+- [മലയാളികളുടെ മനസ്സിൽ രാഗമായ് ,താളമായ് വേരൂന്നിയ നിത്യ സുന്ദര ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=LiMWc8hK3gs)
+- [മലയാളികളുടെ പ്രിയ വാനമ്പാടി ചിത്രയുടെ മലയാളികൾ എന്നും കൊതിക്കുന്നഗാനങ്ങൾ | KS Chithra Birthday Songs](https://www.youtube.com/watch?v=YcdC7CNjFEs)
+- [Joshua Sridhar, Suzanne D'Mello - Mazhai Varum (From "Veppam")](https://www.youtube.com/watch?v=i2eJG24pNCo)
+- [Joshua Sridhar, Karthik, Sricharan - Kaatril Eeram (From "Veppam")](https://www.youtube.com/watch?v=oT2qm67T9gU)
 - [Joshua Sridhar, Benny Dayal - Minnala (From "Veppam")](https://www.youtube.com/watch?v=NxFI32U3gZI)
-- [Joshua Sridhar, Naresh Iyer - Veppam (From "Veppam")](https://www.youtube.com/watch?v=B3tyERoto8w)
-- [Joshua Sridhar, Clinton, Shweta Mohan - Oru Devathai (From "Veppam")](https://www.youtube.com/watch?v=aqARlHVwWnU)
-- [Ponnodu Poovai | Celebratinbg 60 Musical Years of K S Chithra | Sharreth | Beeyar Prasad](https://www.youtube.com/watch?v=EuE9iZOgt3U)
-- [Soorya Manasam Video Song | Tharalitha Raavil Mayangiyo | Mammootty #shorts](https://www.youtube.com/watch?v=VtNw6rh4wU0)
-- [Singing for #MazhaPattu | #Padavettu | #NivinPauly | #AditiBalan | #AnwarAli | #shorts #ytshorts](https://www.youtube.com/watch?v=l5XYQYZz6Ko)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
