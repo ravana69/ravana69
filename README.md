@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Witcher &lpar;2023&rpar; S03 EP&lpar;06-08&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 5GB - 1.2GB &amp; 500MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174546-the-witcher-2023-s03-ep06-08-true-web-dl-1080p-720p-avc-dd51-192kbps-tamil-telugu-hindi-eng-5gb-12gb-500mb-esub/&do=findComment&comment=350881)
+- [Geetanjali 1989 &lpar;Nagarjuna movie&rpar; 720p no watermark](https://www.1tamilmv.zip/index.php?/forums/topic/30335-geetanjali-1989-nagarjuna-movie-720p-no-watermark/&do=findComment&comment=350880)
 - [Oppenheimer &lpar;2023&rpar; Tamil HDTC - [1080p &amp; 720p - x264 - 2.8GB - 1.6GB &amp; 400MB - HQ Fan Dub]](https://www.1tamilmv.zip/index.php?/forums/topic/174543-oppenheimer-2023-tamil-hdtc-1080p-720p-x264-28gb-16gb-400mb-hq-fan-dub/&do=findComment&comment=350879)
 - [Happiness for Beginners &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.6GB &amp; 1.3GB| x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174544-happiness-for-beginners-2023-hd-original-audios-1080p-720p-avc-dd51-640kbps-tamil-telugu-hindi-eng-36gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=350878)
 - [Maamannan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.1GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174531-maamannan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-61gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=350877)
-- [Anaganaga Oka Roju &lpar;1996&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 5.6GB - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174506-anaganaga-oka-roju-1996-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-56gb-esub/&do=findComment&comment=350876)
-- [Maamannan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.1GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174531-maamannan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-61gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=350875)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
