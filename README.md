@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Maamannan &lpar;2023&rpar; NF WEB-DL MULTI DDP5.1 Esubs x264 - 1080p | 720p - 8.2 GB | 3.6 GB](https://www.1tamilmv.zip/index.php?/forums/topic/174539-maamannan-2023-nf-web-dl-multi-ddp51-esubs-x264-1080p-720p-82-gb-36-gb/&do=findComment&comment=350851)
+- [Sex Education &lpar;2019&rpar; Complete S01 Merged 1080p &amp; 720p NF WEB-DL &lpar;Telugu DDP5.1 - 640Kbps&rpar; x264 ESub [Google Drive]](https://www.1tamilmv.zip/index.php?/forums/topic/174520-sex-education-2019-complete-s01-merged-1080p-720p-nf-web-dl-telugu-ddp51-640kbps-x264-esub-google-drive/&do=findComment&comment=350850)
 - [Secret invasion &lpar;2023&rpar; Complete S01 Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tam + Tel + Hin + Mal + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 8.4GB - 3.7GB][ 360p - &lpar;Tam + Tel + Hin +Mal + Eng&rpar; - 1.3GB] - ESub [Google Drive]](https://www.1tamilmv.zip/index.php?/forums/topic/174538-secret-invasion-2023-complete-s01-merged-true-web-dl-1080p-720p-avc-tam-tel-hin-mal-eng-dd51-192kbps-84gb-37gb-360p-tam-tel-hin-mal-eng-13gb-esub-google-drive/&do=findComment&comment=350849)
 - [Maamannan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.1GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174531-maamannan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-61gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=350848)
 - [Maamannan &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Malayalam + Kannada] - 2.8GB &amp; 1.6GB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174532-maamannan-2023-true-web-dl-1080p-720p-avc-dd51-192kbps-malayalam-kannada-28gb-16gb-x264-750mb-450mb-esub/&do=findComment&comment=350847)
-- [Kolla &lpar;2023&rpar; Malayalam TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 8.5GB - 2.9GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174530-kolla-2023-malayalam-true-web-dl-4k-1080p-720p-avc-dd51-192kbps-85gb-29gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=350846)
-- [Maamannan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.1GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174531-maamannan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-61gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=350845)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
