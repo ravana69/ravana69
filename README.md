@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Dhamaka &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174549-dhamaka-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=350915)
 - [Dhamaka &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174549-dhamaka-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=350914)
 - [Captain Miller -Teaser | Dhanush | Shivarajkumar, Sundeep Kishan, Priyanka Mohan | Arun Matheswaran](https://www.1tamilmv.zip/index.php?/forums/topic/174554-captain-miller-teaser-dhanush-shivarajkumar-sundeep-kishan-priyanka-mohan-arun-matheswaran/&do=findComment&comment=350913)
 - [CAPTAIN MILLER -Teaser | Dhanush | Shivarajkumar, Sundeep Kishan, Priyanka Mohan | Arun Matheswaran](https://www.1tamilmv.zip/index.php?/forums/topic/174552-captain-miller-teaser-dhanush-shivarajkumar-sundeep-kishan-priyanka-mohan-arun-matheswaran/&do=findComment&comment=350911)
 - [Thalapathy Vijay Complete Filmography  &lpar;1984 - 2023&rpar; 69 Movies Tamil HD / DVDRip / AP / AYN / AMZN /SNXT / AHA [4k &amp; 1080p &amp; 720p &amp; 480p] 1TB [Drive &amp; Terabox] ESub](https://www.1tamilmv.zip/index.php?/forums/topic/148252-thalapathy-vijay-complete-filmography-1984-2023-69-movies-tamil-hd-dvdrip-ap-ayn-amzn-snxt-aha-4k-1080p-720p-480p-1tb-drive-terabox-esub/&do=findComment&comment=350910)
-- [One Friday Night &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.6GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174551-one-friday-night-2023-hindi-true-web-dl-1080p-720p-avc-dd51-384kbps-26gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=350909)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
