@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ettunila Pattanam | Kakkakarumban | Alex | Franco | M Jayachandran | Gireesh Puthenchery](https://www.youtube.com/watch?v=CAy8arJjauc)
 - [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=8EOUwVtTDOE)
 - [Thalolam - Smaravaaram Lyric | Kaithapram | Suresh Gopi, Murali, Sreelakshmi](https://www.youtube.com/watch?v=0AlGndFdpLI)
 - [#Halaballoo🕺Swag-Step  Ft. #Shane Nigam |  RDX | Saregama Malayalam #shorts #ytshorts](https://www.youtube.com/watch?v=XtYk6_0-VAU)
 - [Join With #Sandy Master Hook Steps Of #Halaballoo🕺 | RDX | Saregama Malayalam #shorts #ytshorts](https://www.youtube.com/watch?v=7v24rzGKyUg)
 - [Dingiri Dingiri Pattalam Video Song | Gireesh Puthenchery | Vidyasagar | Alan | Kalyani | Pattaalam](https://www.youtube.com/watch?v=OvWKGj7DQtc)
-- [വി.അൽഫോൻസാമ്മയുടെ  തിരുനാൾ ഗാനം 2023|Sahanathin Malakhayay | #shorts | #tophits #status #stalphonsa](https://www.youtube.com/watch?v=hPFJ2TqUEtM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
