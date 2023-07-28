@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Appatha &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 13GB - 2.3GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174577-appatha-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-13gb-23gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351002)
+- [Appatha &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 13GB - 2.3GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174577-appatha-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-13gb-23gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351001)
 - [Thalapathy Vijay Complete Filmography  &lpar;1984 - 2023&rpar; 69 Movies Tamil HD / DVDRip / AP / AYN / AMZN /SNXT / AHA [4k &amp; 1080p &amp; 720p &amp; 480p] 1TB [Drive &amp; Terabox] ESub](https://www.1tamilmv.zip/index.php?/forums/topic/148252-thalapathy-vijay-complete-filmography-1984-2023-69-movies-tamil-hd-dvdrip-ap-ayn-amzn-snxt-aha-4k-1080p-720p-480p-1tb-drive-terabox-esub/&do=findComment&comment=351000)
 - [Sivakarthikeyan Movies Collections &lpar;2012 - 2023&rpar; HD / HS / SS / AMZN /SNXT - WEB DL - H264/H265 [4k &amp; 1080p &amp; 720p] [GDRIVE &amp; Telegram] Esubs](https://www.1tamilmv.zip/index.php?/forums/topic/147468-sivakarthikeyan-movies-collections-2012-2023-hd-hs-ss-amzn-snxt-web-dl-h264h265-4k-1080p-720p-gdrive-telegram-esubs/&do=findComment&comment=350999)
 - [Dexter Complete S01 - S08 Merged 720p BluRay English x265 HEVC 10bit AAC 5.1 ESub [Google Drive]](https://www.1tamilmv.zip/index.php?/forums/topic/174507-dexter-complete-s01-s08-merged-720p-bluray-english-x265-hevc-10bit-aac-51-esub-google-drive/&do=findComment&comment=350998)
-- [Sex Education &lpar;2019&rpar; Complete S01 EP &lpar;01-08&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.2GB - 2.4GB &amp; 1.2GB] - ESub [Google Drive]](https://www.1tamilmv.zip/index.php?/forums/topic/174575-sex-education-2019-complete-s01-ep-01-08-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-52gb-24gb-12gb-esub-google-drive/&do=findComment&comment=350997)
-- [BRO &lpar;2023&rpar; Telugu Full Album - FLAC &lpar;24Bit &amp; 16Bit&rpar; - iTunes &lpar;256Kbps&rpar; - Thaman S Musical](https://www.1tamilmv.zip/index.php?/forums/topic/174576-bro-2023-telugu-full-album-flac-24bit-16bit-itunes-256kbps-thaman-s-musical/&do=findComment&comment=350996)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
