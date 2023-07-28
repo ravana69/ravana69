@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Pullu Teaser | Riyaz Raz | Praveen Kelikkoden | Shabith | Aji Vavachan| Latest Malayalam Film Teaser](https://www.youtube.com/watch?v=fEnKoIoejGE)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 28th of July 2023](https://www.youtube.com/watch?v=BgGh1wWgX0M)
+- [Mehruba Mehruba | Perumazhakaalam | Afsal  | M Jayachandran | Kaithapram](https://www.youtube.com/watch?v=OTbDUxORxL8)
+- [Swapnangal Kanaan | Oomapenninu Uriyaadapayyan | Jayasurya | Kavya Madhavan | Vinayan | MG Sreekumar](https://www.youtube.com/watch?v=JLMA_fvZ2SU)
 - [Ettunila Pattanam | Kakkakarumban | Alex | Franco | M Jayachandran | Gireesh Puthenchery](https://www.youtube.com/watch?v=CAy8arJjauc)
 - [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=8EOUwVtTDOE)
-- [Thalolam - Smaravaaram Lyric | Kaithapram | Suresh Gopi, Murali, Sreelakshmi](https://www.youtube.com/watch?v=0AlGndFdpLI)
-- [#Halaballoo🕺Swag-Step  Ft. #Shane Nigam |  RDX | Saregama Malayalam #shorts #ytshorts](https://www.youtube.com/watch?v=XtYk6_0-VAU)
-- [Join With #Sandy Master Hook Steps Of #Halaballoo🕺 | RDX | Saregama Malayalam #shorts #ytshorts](https://www.youtube.com/watch?v=7v24rzGKyUg)
-- [Dingiri Dingiri Pattalam Video Song | Gireesh Puthenchery | Vidyasagar | Alan | Kalyani | Pattaalam](https://www.youtube.com/watch?v=OvWKGj7DQtc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
