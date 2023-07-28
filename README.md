@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Beautiful lyrics #MazhaPattu | #Padavettu | #NivinPauly | #AditiBalan | #AnwarAli| #shorts #ytshorts](https://www.youtube.com/watch?v=cjuMt-GSx50)
+- [ഇവൾക്കൊരുവൻ കിഴക്കുദിച്ചേ ഇന്നു താലി പീലി പൊന്നും കെട്ടി മുത്തഴകു മണിച്ചെറുക്കൻ.. തിങ്കളേ പൂ തിങ്കളേ](https://www.youtube.com/watch?v=uMxFHcWVEw0)
 - [Akkuthikkuthaanavarambe | Ambadi Thannilorunni 1986 | K.J. Yesudas, Ashalatha | Malayalam Movie Song](https://www.youtube.com/watch?v=q_SI_1Pr9u8)
 - [Snehathin Kankulir Kazhchaye | Kester | Christian Shorts](https://www.youtube.com/watch?v=UcM9q3vB-H0)
 - [St. Alphonsa Feast Day wishes](https://www.youtube.com/watch?v=TeLaigkJBQI)
 - [Songs Of The Week |Wilson Piravom |Joji Johns | Manoj Christy | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=Jdxfv0ZazdQ)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #July 28th mother Mary songs non stop](https://www.youtube.com/watch?v=RfetO_E3P4c)
-- [Japamala 28th of July 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 28th of July 2023](https://www.youtube.com/watch?v=HN78UxIIcAA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
