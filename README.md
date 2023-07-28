@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [LGM - Let&#39;s Get Married &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.zip/index.php?/forums/topic/174562-lgm-lets-get-married-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=350991)
+- [BRO &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.zip/index.php?/forums/topic/174560-bro-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=350990)
+- [Njaan Ippo Entha Cheyya &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 2GB &amp; 1GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.zip/index.php?/forums/topic/174574-njaan-ippo-entha-cheyya-2023-malayalam-true-web-dl-1080p-720p-avc-2gb-1gb-x264-700mb-400mb/&do=findComment&comment=350989)
 - [After &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 2GB &amp; 1GB| x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174407-after-2019-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-2gb-1gb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=350988)
 - [After &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 2GB &amp; 1GB| x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174407-after-2019-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-2gb-1gb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=350987)
-- [LGM - Let&#39;s Get Married &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.zip/index.php?/forums/topic/174562-lgm-lets-get-married-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=350986)
-- [Jailer &lpar;2023&rpar; Tamil - MP3 [320Kbps &amp; 128Kbps] - Anirudh Musical](https://www.1tamilmv.zip/index.php?/forums/topic/174573-jailer-2023-tamil-mp3-320kbps-128kbps-anirudh-musical/&do=findComment&comment=350985)
-- [Dhamaka &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174549-dhamaka-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=350984)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
