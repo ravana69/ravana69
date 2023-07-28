@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kaithapram, K.J. Yesudas - Iniyennu Kaanum Makale (Lyric Video)](https://www.youtube.com/watch?v=0pOSwjwqlSs)
+- [Kaithapram, Sujatha - Thennilaavilen (Version, 1) (Lyric Video)](https://www.youtube.com/watch?v=WjxvMaNG8p0)
+- [Kaithapram, K.J. Yesudas - Gopaalike Nee Kanduvo (Lyric Video)](https://www.youtube.com/watch?v=5Flsk644D3U)
+- [Kaithapram, K.J. Yesudas - Kanne Urangurangu (Lyric Video)](https://www.youtube.com/watch?v=dnkCjQNXE6w)
+- [Sanjeev, Biju Narayanan, K.S. Chithra - Kamaladalam Moodum (Version, 2) (Lyric Video)](https://www.youtube.com/watch?v=nRZHJeBZ2vY)
 - [Beautiful lyrics #MazhaPattu | #Padavettu | #NivinPauly | #AditiBalan | #AnwarAli| #shorts #ytshorts](https://www.youtube.com/watch?v=cjuMt-GSx50)
-- [ഇവൾക്കൊരുവൻ കിഴക്കുദിച്ചേ ഇന്നു താലി പീലി പൊന്നും കെട്ടി മുത്തഴകു മണിച്ചെറുക്കൻ.. തിങ്കളേ പൂ തിങ്കളേ](https://www.youtube.com/watch?v=uMxFHcWVEw0)
-- [Akkuthikkuthaanavarambe | Ambadi Thannilorunni 1986 | K.J. Yesudas, Ashalatha | Malayalam Movie Song](https://www.youtube.com/watch?v=q_SI_1Pr9u8)
-- [Snehathin Kankulir Kazhchaye | Kester | Christian Shorts](https://www.youtube.com/watch?v=UcM9q3vB-H0)
-- [St. Alphonsa Feast Day wishes](https://www.youtube.com/watch?v=TeLaigkJBQI)
-- [Songs Of The Week |Wilson Piravom |Joji Johns | Manoj Christy | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=Jdxfv0ZazdQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
