@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Good Omens &lpar;2023&rpar; S02 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5GB - 2.1GB &amp; 600MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174555-good-omens-2023-s02-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-eng-dd51-192kbps-5gb-21gb-600mb-esub/&do=findComment&comment=350928)
 - [📌 #BHARATEEYUDU &lpar;1996&rpar; &lpar;Music Video Album&rpar; - 1080P &lpar;10000 Kb/s&rpar; - WEBDL - AVC - DD® 5.1  @ 384Kb/s - ESubs - 1.8GB *FirstOnNet*](https://www.1tamilmv.zip/index.php?/forums/topic/174542-%F0%9F%93%8C-bharateeyudu-1996-music-video-album-1080p-10000-kbs-webdl-avc-dd%C2%AE-51%C2%A0-384kbs-esubs-18gb-firstonnet/&do=findComment&comment=350927)
+- [Good Omens &lpar;2023&rpar; S02 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5GB - 2.1GB &amp; 600MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174555-good-omens-2023-s02-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-eng-dd51-192kbps-5gb-21gb-600mb-esub/&do=findComment&comment=350925)
 - [The Witcher &lpar;2023&rpar; S03 EP&lpar;06-08&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 5GB - 1.2GB &amp; 500MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174546-the-witcher-2023-s03-ep06-08-true-web-dl-1080p-720p-avc-dd51-192kbps-tamil-telugu-hindi-eng-5gb-12gb-500mb-esub/&do=findComment&comment=350924)
 - [One Friday Night &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.6GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174551-one-friday-night-2023-hindi-true-web-dl-1080p-720p-avc-dd51-384kbps-26gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=350923)
-- [Samajavaragamana &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 4.7GB - 2.5GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174548-samajavaragamana-2023-telugu-true-web-dl-4k-1080p-720p-avc-dd51-384kbps-47gb-25gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=350922)
-- [Captain Miller -Teaser | Dhanush | Shivarajkumar, Sundeep Kishan, Priyanka Mohan | Arun Matheswaran](https://www.1tamilmv.zip/index.php?/forums/topic/174554-captain-miller-teaser-dhanush-shivarajkumar-sundeep-kishan-priyanka-mohan-arun-matheswaran/&do=findComment&comment=350921)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
