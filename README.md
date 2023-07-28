@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BRO &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.zip/index.php?/forums/topic/174560-bro-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=350954)
+- [BRO &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.zip/index.php?/forums/topic/174560-bro-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=350952)
+- [BRO &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.zip/index.php?/forums/topic/174560-bro-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=350939)
 - [Dhamaka &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174549-dhamaka-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=350938)
 - [Hidden Strike &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.1GB - 1GB &amp; 450MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174558-hidden-strike-2023-english-true-web-dl-1080p-720p-avc-dd51-640kbps-21gb-1gb-450mb-esub/&do=findComment&comment=350937)
-- [Hidden Strike &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.1GB - 1GB &amp; 450MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174558-hidden-strike-2023-english-true-web-dl-1080p-720p-avc-dd51-640kbps-21gb-1gb-450mb-esub/&do=findComment&comment=350935)
-- [Hidden Strike &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.1GB - 1GB &amp; 450MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174558-hidden-strike-2023-english-true-web-dl-1080p-720p-avc-dd51-640kbps-21gb-1gb-450mb-esub/&do=findComment&comment=350934)
-- [Good Omens &lpar;2023&rpar; S02 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5GB - 2.1GB &amp; 600MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174555-good-omens-2023-s02-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-eng-dd51-192kbps-5gb-21gb-600mb-esub/&do=findComment&comment=350932)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
