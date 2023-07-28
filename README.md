@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Snehathin Kankulir Kazhchaye | Kester | Christian Shorts](https://www.youtube.com/watch?v=UcM9q3vB-H0)
+- [St. Alphonsa Feast Day wishes](https://www.youtube.com/watch?v=TeLaigkJBQI)
 - [Songs Of The Week |Wilson Piravom |Joji Johns | Manoj Christy | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=Jdxfv0ZazdQ)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #July 28th mother Mary songs non stop](https://www.youtube.com/watch?v=RfetO_E3P4c)
 - [Japamala 28th of July 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 28th of July 2023](https://www.youtube.com/watch?v=HN78UxIIcAA)
 - [Puthumazhayil  | വാനമ്പാടി @ 60 |  Celebratinbg 60 Musical Years of K S Chithra | Rafeeque Ahammed](https://www.youtube.com/watch?v=dftiUefqow0)
-- [രാവിലെ പ്രാര്‍ത്ഥന  July 28 shorts  # Athiravile Prarthana 28th of July 2023 Morning Prayer shorts](https://www.youtube.com/watch?v=a6ezXKrvGdE)
-- [രാവിലെ പ്രാര്‍ത്ഥന July 28 # Athiravile Prarthana 28th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=lRObT3lEFE4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
