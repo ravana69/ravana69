@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന  July 28 shorts  # Athiravile Prarthana 28th of July 2023 Morning Prayer shorts](https://www.youtube.com/watch?v=a6ezXKrvGdE)
 - [രാവിലെ പ്രാര്‍ത്ഥന July 28 # Athiravile Prarthana 28th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=lRObT3lEFE4)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 28th July 2023](https://www.youtube.com/watch?v=gk6oEqF-_lE)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=0MgMqKettug)
 - [Enthe Mulle Pookathu Video Song | Gireesh Puthenchery | Raveendran | KJ Yesudas | KS Chithra](https://www.youtube.com/watch?v=tBMz69djaYQ)
 - [സഹനം ജീവിതം വിശുദ്ധമാക്കും ....](https://www.youtube.com/watch?v=hGJ8Hxg3Zr4)
-- [Ennod Kattum Karunakk | Christian Melody Song | KS Chithra | Christian Songs Malayalam](https://www.youtube.com/watch?v=Z1hGAuFcabU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
