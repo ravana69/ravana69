@@ -65,6 +65,9 @@
 
 [![wakatime](https://wakatime.com/badge/user/742e15ca-1e4c-47e9-85d8-14b80b31f9ec.svg)](https://wakatime.com/@742e15ca-1e4c-47e9-85d8-14b80b31f9ec)
 
+# Wakatime Today:
+[![wakatime Today](https://wakatime.com/badge/user/742e15ca-1e4c-47e9-85d8-14b80b31f9ec/project/eb56f685-cdfa-4c67-b1a1-fc362eb1af37.svg)](https://wakatime.com/badge/user/742e15ca-1e4c-47e9-85d8-14b80b31f9ec/project/eb56f685-cdfa-4c67-b1a1-fc362eb1af37)
+
 <!--START_SECTION:waka-->
 
 ```txt
