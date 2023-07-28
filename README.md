@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kushi (Malayalam) Title Song - Lyrical | Vijay Deverakonda, Samantha | Hesham Abdul Wahab](https://www.youtube.com/watch?v=SRdyyNca-Mo)
+- [Mayilaay Parannuvaa S Janaki Version | Video Song | Berny Ignatius | S Ramesan Nair |Mayilppeelikavu](https://www.youtube.com/watch?v=eQYosumrV_Y)
+- [നീറുമെൻ മനതാരിൽ നിൻ കരുണാർദ്ര സ്നേഹമേകണേ ...](https://www.youtube.com/watch?v=iRijkeRaj8I)
 - [Baale Songs Compilation - Lyrical | Bhagavan Dasante Ramarajyam| Akshay, Nandana | Vishnu Sivasankar](https://www.youtube.com/watch?v=Tnmz-w3UeKI)
 - [ചെറുപ്പം കാത്തു സൂക്ഷിക്കാൻ ഏറ്റവും ഉത്തമമായ മലയാളസിനിമയിലെ പ്രണയ ഗാനങ്ങൾ |Evergreen Songs Malayalam](https://www.youtube.com/watch?v=5snne1h7NSA)
 - [Pullu Teaser | Riyaz Raz | Praveen Kelikkoden | Shabith | Aji Vavachan| Latest Malayalam Film Teaser](https://www.youtube.com/watch?v=fEnKoIoejGE)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 28th of July 2023](https://www.youtube.com/watch?v=BgGh1wWgX0M)
-- [Mehruba Mehruba | Perumazhakaalam | Afsal  | M Jayachandran | Kaithapram](https://www.youtube.com/watch?v=OTbDUxORxL8)
-- [Swapnangal Kanaan | Oomapenninu Uriyaadapayyan | Jayasurya | Kavya Madhavan | Vinayan | MG Sreekumar](https://www.youtube.com/watch?v=JLMA_fvZ2SU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
