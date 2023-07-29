@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഏകാന്ത യാമങ്ങളിൽ | Baby John Kalayanthani | Abhijith Vijayan | Shorts](https://www.youtube.com/watch?v=64zc5nKrbyM)
 - [Thekkini Kolayil | വാനമ്പാടി @ 60 |  Celebratinbg 60 Musical Years of K S Chithra | Mohan Sithara](https://www.youtube.com/watch?v=xXck7N56Ta8)
 - [Lovely song #MazhaPattu | #Padavettu | #NivinPauly | #AditiBalan | #AnwarAli | #shorts #ytshorts](https://www.youtube.com/watch?v=jOHRVyh3HsA)
 - [Katru Veliyidai Kannanna | Thanmathra | Karaoke Video | Mohanlal | Blessy | Mohan Sithara](https://www.youtube.com/watch?v=0Ffh-z0kya8)
 - [Aave Mariya | Aalambamarulunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=tsUKjmmDydI)
 - [Chirichente Manassile  | Anuragakottaram 1998 | K.J Yesudas, K.S Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=mgP0hfzf7SE)
-- [Ammoomakili Vayadi | Chandralekha | Mohanlal | Sukanya | Chithra | Bearny Ignatius | Fazil](https://www.youtube.com/watch?v=O1dTwdvlzK4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
