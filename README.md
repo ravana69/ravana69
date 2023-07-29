@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളികളുടെ ഇഷ്ടനായകന്മാർ ഒന്നിക്കുന്ന  കേൾക്കാൻ കൊതിക്കും സൂപ്പർ ഗാനങ്ങൾ |Re Mastered Video Songs](https://www.youtube.com/watch?v=HX_4xnQ9vy4)
 - [മനസ്സിൽ ഇപ്പോഴും ഓടിയെത്തുന്ന മലയാളത്തിലെ പ്രശസ്ത സിനിമ ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=tZNEUl3eAEk)
 - [ഏകാന്ത യാമങ്ങളിൽ | Baby John Kalayanthani | Abhijith Vijayan | Shorts](https://www.youtube.com/watch?v=64zc5nKrbyM)
 - [Thekkini Kolayil | വാനമ്പാടി @ 60 |  Celebratinbg 60 Musical Years of K S Chithra | Mohan Sithara](https://www.youtube.com/watch?v=xXck7N56Ta8)
 - [Lovely song #MazhaPattu | #Padavettu | #NivinPauly | #AditiBalan | #AnwarAli | #shorts #ytshorts](https://www.youtube.com/watch?v=jOHRVyh3HsA)
 - [Katru Veliyidai Kannanna | Thanmathra | Karaoke Video | Mohanlal | Blessy | Mohan Sithara](https://www.youtube.com/watch?v=0Ffh-z0kya8)
-- [Aave Mariya | Aalambamarulunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=tsUKjmmDydI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
