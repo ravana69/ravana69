@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [എൻ മനസറിയും നാഥാ ...](https://www.youtube.com/watch?v=jfQHwfCWblk)
-- [Christian Video Songs Malayalam | Kester | Sreya Jayadeep | Christian Devotional Songs | Joji Johns](https://www.youtube.com/watch?v=eLzdixjNw20)
-- [Vallikkavil Manthram Pole | Kakkakarumban | Manoj Christy | M Jayachandran | Gireesh Puthenchery](https://www.youtube.com/watch?v=KmRs_gJ9q-Q)
-- [Love You Muthe - Video Song | Padmini| Jakes Bejoy| Kunchacko Boban| Vidyadharan Master |Senna Hegde](https://www.youtube.com/watch?v=F7QcXS9Bre4)
-- [വേദനയും നൊമ്പരവും സഹനവും വരുമ്പോൾ അതെന്നെ കൂടുതൽ  കരുത്തുള്ളതാക്കും | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=n6I-MwtadwI)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 29th of July 2023](https://www.youtube.com/watch?v=EIrx9jHXc2o)
+- [M.G. Radhakrishnan, K.S. Chithra - Vilolam Snehasangeetham (Version, 2) (Lyric Video)](https://www.youtube.com/watch?v=VQfb6MyrN8I)
+- [M.G. Radhakrishnan, K.S. Chithra - Anuraagam Ezhapaakum (Lyric Video)](https://www.youtube.com/watch?v=VZ_JEXJlNc8)
+- [Johnson, C.O. Anto - Kozhippoovante (Lyric Video)](https://www.youtube.com/watch?v=oFiq0u8Bui0)
+- [Johnson, K.J. Yesudas, Sujatha - Vibhaavaree Raagam (Lyric Video)](https://www.youtube.com/watch?v=l6RbGdqjUmw)
+- [Johnson, K.J. Yesudas - Omanathingal (Lyric Video)](https://www.youtube.com/watch?v=Kk8ioVgTVUc)
+- [M.G. Radhakrishnan, M.G. Sreekumar - Thoomanjo Paraagam Pol (Lyric Video)](https://www.youtube.com/watch?v=_TFqHif8j78)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
