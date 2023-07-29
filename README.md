@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Appatha &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 13GB - 2.3GB - 1.2GB &amp; 750MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174577-appatha-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-13gb-23gb-12gb-750mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351015)
 - [Dhamaka &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174549-dhamaka-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351014)
 - [Gypsy &lpar;2020&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 4.2GB - ESub - GDFlix](https://www.1tamilmv.zip/index.php?/forums/topic/174579-gypsy-2020-tamil-true-web-dl-1080p-avc-untouched-dd51-42gb-esub-gdflix/&do=findComment&comment=351013)
 - [Joker &lpar;2016&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 3.6GB - GDFlix](https://www.1tamilmv.zip/index.php?/forums/topic/174578-joker-2016-tamil-true-web-dl-1080p-avc-untouched-dd51-36gb-gdflix/&do=findComment&comment=351012)
 - [Maamannan &lpar;2023&rpar; NF WEB-DL MULTI DDP5.1 Esubs x264 - 1080p | 720p - 8.2 GB | 3.6 GB](https://www.1tamilmv.zip/index.php?/forums/topic/174539-maamannan-2023-nf-web-dl-multi-ddp51-esubs-x264-1080p-720p-82-gb-36-gb/&do=findComment&comment=351011)
-- [Appatha &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 13GB - 2.3GB - 1.2GB &amp; 750MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174577-appatha-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-13gb-23gb-12gb-750mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351010)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
