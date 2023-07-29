@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Leo - Glimpse of Antony Das | Thalapathy Vijay | Lokesh Kanagaraj | Anirudh Ravichander](https://www.1tamilmv.zip/index.php?/forums/topic/174584-leo-glimpse-of-antony-das-thalapathy-vijay-lokesh-kanagaraj-anirudh-ravichander/&do=findComment&comment=351038)
+- [Jujutsu Kaisen &lpar;2023&rpar; S01 EP &lpar;01-03&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Hindi] - 600MB &amp; 300MB]](https://www.1tamilmv.zip/index.php?/forums/topic/174582-jujutsu-kaisen-2023-s01-ep-01-03-true-web-dl-1080p-720p-avc-tamil-hindi-600mb-300mb/&do=findComment&comment=351037)
 - [MARVEL MOVIES  &lpar;2008 - 2021&rpar; - &lpar;25 Movies&rpar; - [ 4K &amp; 1080P - 720P - 480P ][ MULTI = TAMIL + TELUGU + HINDI + ENGLISH &lpar;DDP+5.1 &rpar;] | 𝐈𝐌𝐒𝐑𝐈 | 🌈™ [ 𝐆 - 𝐃𝐑𝐈𝐕𝐄 ]](https://www.1tamilmv.zip/index.php?/forums/topic/152345-marvel-movies-2008-2021-25-movies-4k-1080p-720p-480p-multi-tamil-telugu-hindi-english-ddp51-%F0%9D%90%88%F0%9D%90%8C%F0%9D%90%92%F0%9D%90%91%F0%9D%90%88-%F0%9F%8C%88%E2%84%A2-%F0%9D%90%86-%F0%9D%90%83%F0%9D%90%91%F0%9D%90%88%F0%9D%90%95%F0%9D%90%84/&do=findComment&comment=351036)
 - [THE MARVEL CINEMATIC UNIVERSE ​ REMUX COLLECTION​  | UHD BLURAY 2160🇵​ 4🇰​ | ENGLISH |​ HINDI | HEVC​ |](https://www.1tamilmv.zip/index.php?/forums/topic/153097-the-marvel-cinematic-universe-%E2%80%8B-remux-collection%E2%80%8B-uhd-bluray-2160%F0%9F%87%B5%E2%80%8B-4%F0%9F%87%B0%E2%80%8B-english-%E2%80%8B-hindi-hevc%E2%80%8B/&do=findComment&comment=351035)
 - [MAHAAN &lpar;2022&rpar; Tamil &lpar;Original Version&rpar; TRUE WEB-DL - [ 4k - 1080p &amp; 720p - AVC / HEVC ] - [x264 / XviD - 700MB ] - IMSRI - [ 🤩⚡ G&#39;DRIVE⚡🤩 ]](https://www.1tamilmv.zip/index.php?/forums/topic/155153-mahaan-2022-tamil-original-version-true-web-dl-4k-1080p-720p-avc-hevc-x264-xvid-700mb-imsri-%F0%9F%A4%A9%E2%9A%A1-gdrive%E2%9A%A1%F0%9F%A4%A9/&do=findComment&comment=351034)
-- [Moon Knight &lpar;2022&rpar; S01 EP02 TRUE WEB-DL - [ 4K - &lpar;Tamil + Telugu + Hindi + Malayalam + English&rpar; - 7GB - ] - IMSRI](https://www.1tamilmv.zip/index.php?/forums/topic/159530-moon-knight-2022-s01-ep02-true-web-dl-4k-tamil-telugu-hindi-malayalam-english-7gb-imsri/&do=findComment&comment=351033)
-- [Leo - Glimpse of Antony Das | Thalapathy Vijay | Lokesh Kanagaraj | Anirudh Ravichander](https://www.1tamilmv.zip/index.php?/forums/topic/174584-leo-glimpse-of-antony-das-thalapathy-vijay-lokesh-kanagaraj-anirudh-ravichander/&do=findComment&comment=351032)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
