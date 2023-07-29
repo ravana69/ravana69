@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Gireesh Puthenchery Non-Stop Melodies | Vidyasagar | Malayalam Film Songs | Video Song Jukebox](https://www.youtube.com/watch?v=t84elxhzWF4)
-- [Manathe Chandiranothoru Video Song | Gireesh Puthenchery | BernyIgnatius |MG Sreekumar|Malgudi Subha](https://www.youtube.com/watch?v=ts1TaTvgLPU)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=yJzctOQFkkI)
-- [മലയാളികളുടെ ഇഷ്ടനായകന്മാർ ഒന്നിക്കുന്ന  കേൾക്കാൻ കൊതിക്കും സൂപ്പർ ഗാനങ്ങൾ |Re Mastered Video Songs](https://www.youtube.com/watch?v=HX_4xnQ9vy4)
-- [മനസ്സിൽ ഇപ്പോഴും ഓടിയെത്തുന്ന മലയാളത്തിലെ പ്രശസ്ത സിനിമ ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=tZNEUl3eAEk)
-- [ഏകാന്ത യാമങ്ങളിൽ | Baby John Kalayanthani | Abhijith Vijayan | Shorts](https://www.youtube.com/watch?v=64zc5nKrbyM)
+- [വേദനയും നൊമ്പരവും സഹനവും വരുമ്പോൾ അതെന്നെ കൂടുതൽ  കരുത്തുള്ളതാക്കും | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=n6I-MwtadwI)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 29th of July 2023](https://www.youtube.com/watch?v=EIrx9jHXc2o)
+- [Kunje Ninakkuvendi | Kaazhcha | Asha Madhu | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=jYL5VshAjrY)
+- [Gopihridayam Nirayunnu | Kankettu | Johnson | Jayaram | Shobana | Sreenivasan | Mamukoya](https://www.youtube.com/watch?v=qumTnZJ5wzM)
+- [Urumaal Thunnalizhakalaayu - Video Song | Munna | Indrans | Jagatheesh | Sibu | Mridula | Vijesh](https://www.youtube.com/watch?v=8y4A_vZPz3Y)
+- [Nilaavin Geetham - Lyrical Video | Chenkadal | KJ Yesudas, KS Chithra | SP Venkitesh](https://www.youtube.com/watch?v=BFP7FlimiXU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
