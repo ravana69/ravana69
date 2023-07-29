@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Christian Video Songs Malayalam | Kester | Sreya Jayadeep | Christian Devotional Songs | Joji Johns](https://www.youtube.com/watch?v=eLzdixjNw20)
 - [Vallikkavil Manthram Pole | Kakkakarumban | Manoj Christy | M Jayachandran | Gireesh Puthenchery](https://www.youtube.com/watch?v=KmRs_gJ9q-Q)
 - [Love You Muthe - Video Song | Padmini| Jakes Bejoy| Kunchacko Boban| Vidyadharan Master |Senna Hegde](https://www.youtube.com/watch?v=F7QcXS9Bre4)
 - [വേദനയും നൊമ്പരവും സഹനവും വരുമ്പോൾ അതെന്നെ കൂടുതൽ  കരുത്തുള്ളതാക്കും | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=n6I-MwtadwI)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 29th of July 2023](https://www.youtube.com/watch?v=EIrx9jHXc2o)
 - [Kunje Ninakkuvendi | Kaazhcha | Asha Madhu | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=jYL5VshAjrY)
-- [Gopihridayam Nirayunnu | Kankettu | Johnson | Jayaram | Shobana | Sreenivasan | Mamukoya](https://www.youtube.com/watch?v=qumTnZJ5wzM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
