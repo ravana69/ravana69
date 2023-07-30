@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന  July 30 shorts  # Athiravile Prarthana 30th of July 2023 Morning Prayer shorts](https://www.youtube.com/watch?v=6kvUHAm1RJw)
 - [പ്രഭാത പ്രാര്‍ത്ഥന July 30 # Athiravile Prarthana 30th of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=w8ogSk4ATDU)
 - [M.G. Radhakrishnan, K.S. Chithra - Vilolam Snehasangeetham (Version, 2) (Lyric Video)](https://www.youtube.com/watch?v=VQfb6MyrN8I)
 - [M.G. Radhakrishnan, K.S. Chithra - Anuraagam Ezhapaakum (Lyric Video)](https://www.youtube.com/watch?v=VZ_JEXJlNc8)
 - [Johnson, C.O. Anto - Kozhippoovante (Lyric Video)](https://www.youtube.com/watch?v=oFiq0u8Bui0)
 - [Johnson, K.J. Yesudas, Sujatha - Vibhaavaree Raagam (Lyric Video)](https://www.youtube.com/watch?v=l6RbGdqjUmw)
-- [Johnson, K.J. Yesudas - Omanathingal (Lyric Video)](https://www.youtube.com/watch?v=Kk8ioVgTVUc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
