@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ദൈവം സ്നേഹമാണ് | Rev. Aneesh P Joseph | #shorts #malayalamshorts #jesusshorts](https://www.youtube.com/watch?v=vtZLUeSD-U4)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 30th of July 2023](https://www.youtube.com/watch?v=b4Nu2MQeLdY)
+- [Aararum Kandillenno | Kakkakuyil | Mohanlal | Mukesh | #shorts](https://www.youtube.com/watch?v=HhM-ddSIuT4)
+- [Penninte Chenchundil | Guruji Oru Vakku | Nedumudi Venu | Bichu Thirumala | Jerry Amaldev | Yesudas](https://www.youtube.com/watch?v=Uf5Au3xT2r8)
 - [Nadodi Theyyavum Video Song | KJ Yesudas | Sujatha Mohan | Ouseppachan | Bichu Thirumala](https://www.youtube.com/watch?v=lipP5ks-SvI)
 - [Pappacha Pappacha | Pappachan Olivilanu | Animated Promo Song | Sinto Sunny | Ouseppachan](https://www.youtube.com/watch?v=mxr_Hbp4NGM)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=_P8ovFxJeUQ)
-- [Pappacha Pappacha | Pappachan Olivilanu | Animated Promo Song 4K | Sinto Sunny | Ouseppachan](https://www.youtube.com/watch?v=k-WWd8xv6co)
-- [ഡിങ്കിരി ഡിങ്കിരി ഡിങ്കിരി ഡിങ്കിരിപ്പട്ടാളം... ഡുമുക്കി ഡുമുക്കി ഡുമുക്കി ഡൂക്കിലി പട്ടാളം....](https://www.youtube.com/watch?v=PJhJqFMcCR4)
-- [പാട്ടുപെട്ടി - Paattupetti Vol 18 | Malayalam Film Songs](https://www.youtube.com/watch?v=6-hI592twW4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
