@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നിൻ ക്രൂശിലേക്കൊന്നു നോക്കുമ്പോൾ എന്നുള്ളം തേങ്ങിടും ...](https://www.youtube.com/watch?v=rAj1INs-vGw)
 - [Nin Thriuhrudayam | Christian Video Song | Shymol Alex | Joji Johns | Jincy Joby | Christian Song](https://www.youtube.com/watch?v=Vi-6jMdnI5I)
 - [ദൈവം സ്നേഹമാണ് | Rev. Aneesh P Joseph | #shorts #malayalamshorts #jesusshorts](https://www.youtube.com/watch?v=vtZLUeSD-U4)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 30th of July 2023](https://www.youtube.com/watch?v=b4Nu2MQeLdY)
 - [Aararum Kandillenno | Kakkakuyil | Mohanlal | Mukesh | #shorts](https://www.youtube.com/watch?v=HhM-ddSIuT4)
 - [Penninte Chenchundil | Guruji Oru Vakku | Nedumudi Venu | Bichu Thirumala | Jerry Amaldev | Yesudas](https://www.youtube.com/watch?v=Uf5Au3xT2r8)
-- [Nadodi Theyyavum Video Song | KJ Yesudas | Sujatha Mohan | Ouseppachan | Bichu Thirumala](https://www.youtube.com/watch?v=lipP5ks-SvI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
