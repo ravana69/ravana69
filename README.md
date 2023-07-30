@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Shree &lpar;2002&rpar;.Tamil.1080p.Web-dl.x264.AAC2.0 - 4.3GB - USERDRIVE](https://www.1tamilmv.zip/index.php?/forums/topic/109812-shree-2002tamil1080pweb-dlx264aac20-43gb-userdrive/&do=findComment&comment=351080)
 - [Peranbu &lpar;2019&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 7.1GB - ESub - GDFlix](https://www.1tamilmv.zip/index.php?/forums/topic/174596-peranbu-2019-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-71gb-esub-gdflix/&do=findComment&comment=351079)
 - [Taramani &lpar;2017&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 5.8GB - ESub - GDFlix](https://www.1tamilmv.zip/index.php?/forums/topic/174595-taramani-2017-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-58gb-esub-gdflix/&do=findComment&comment=351078)
 - [Awaara &lpar;2010&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD5.1 - 448Kbps&rpar; - 6.7GB - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174594-awaara-2010-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-67gb-esub/&do=findComment&comment=351077)
 - [Jujutsu Kaisen &lpar;2023&rpar; S01 EP &lpar;01-03&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Hindi] - 600MB &amp; 300MB]](https://www.1tamilmv.zip/index.php?/forums/topic/174582-jujutsu-kaisen-2023-s01-ep-01-03-true-web-dl-1080p-720p-avc-tamil-hindi-600mb-300mb/&do=findComment&comment=351076)
-- [Shikaaru &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Malayalam + Kannada] - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174593-shikaaru-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-malayalam-kannada-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351075)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
