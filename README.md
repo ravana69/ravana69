@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Jujutsu Kaisen &lpar;2023&rpar; S01 EP &lpar;01-03&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Hindi] - 600MB &amp; 300MB]](https://www.1tamilmv.zip/index.php?/forums/topic/174582-jujutsu-kaisen-2023-s01-ep-01-03-true-web-dl-1080p-720p-avc-tamil-hindi-600mb-300mb/&do=findComment&comment=351076)
+- [Shikaaru &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Malayalam + Kannada] - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174593-shikaaru-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-malayalam-kannada-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351075)
 - [Shikaaru &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Malayalam + Kannada] - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174593-shikaaru-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-malayalam-kannada-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351074)
 - [Aayitha Ezhuthu &lpar;2004&rpar; Tamil REMUXED AYN DVD9 - MPEG - &lpar;DD.5.1&rpar; - 6GB - GDFlix](https://www.1tamilmv.zip/index.php?/forums/topic/174498-aayitha-ezhuthu-2004-tamil-remuxed-ayn-dvd9-mpeg-dd51-6gb-gdflix/&do=findComment&comment=351073)
 - [Kattradhu Thamizh &lpar;2007&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 7.8GB - ESub - GDFlix](https://www.1tamilmv.zip/index.php?/forums/topic/174590-kattradhu-thamizh-2007-tamil-true-web-dl-1080p-avc-untouched-ddp20-78gb-esub-gdflix/&do=findComment&comment=351072)
-- [The Flash 2023 True WEB DL - H264/H265 - DD5.1 &lpar;640Kbps&rpar; - [Tamil + Telugu + Hindi + English] - ESub - [4K, 1080p &amp; 720p - 8.3GB - 4.6GB - 3GB - 1.9GB] [GDRIVE]](https://www.1tamilmv.zip/index.php?/forums/topic/140694-the-flash-2023-true-web-dl-h264h265-dd51-640kbps-tamil-telugu-hindi-english-esub-4k-1080p-720p-83gb-46gb-3gb-19gb-gdrive/&do=findComment&comment=351071)
-- [Kattradhu Thamizh &lpar;2007&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 7.8GB - ESub - GDFlix](https://www.1tamilmv.zip/index.php?/forums/topic/174590-kattradhu-thamizh-2007-tamil-true-web-dl-1080p-avc-untouched-ddp20-78gb-esub-gdflix/&do=findComment&comment=351070)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
