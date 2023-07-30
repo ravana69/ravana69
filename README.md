@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥനJuly 31 # Athiravile Prarthana 31st of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=qT80XcZ_4iA)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 31st July 2023](https://www.youtube.com/watch?v=IxyqHF67TgI)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=_hfHlTq1vCk)
 - [എം ജി രാധാകൃഷ്ണൻറെ ഹിറ്റ് സിനിമാഗാനങ്ങൾ | M G Radhakrishnan Hits | കെ ജെ യേശുദാസ് | Remastered songs](https://www.youtube.com/watch?v=OHROd8VwRro)
 - [നിൻ ക്രൂശിലേക്കൊന്നു നോക്കുമ്പോൾ എന്നുള്ളം തേങ്ങിടും ...](https://www.youtube.com/watch?v=rAj1INs-vGw)
 - [Nin Thriuhrudayam | Christian Video Song | Shymol Alex | Joji Johns | Jincy Joby | Christian Song](https://www.youtube.com/watch?v=Vi-6jMdnI5I)
-- [ദൈവം സ്നേഹമാണ് | Rev. Aneesh P Joseph | #shorts #malayalamshorts #jesusshorts](https://www.youtube.com/watch?v=vtZLUeSD-U4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
