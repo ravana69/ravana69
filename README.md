@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Sacred Games Complete S01 &amp; S02 Merged NF HDRip - [720p - 480p - HEVC - Hindi + English] x265 AAC - 1.9GB - 900MB &amp; 2GB - 1GB] - ESub [Google Drive]](https://www.1tamilmv.zip/index.php?/forums/topic/174588-sacred-games-complete-s01-s02-merged-nf-hdrip-720p-480p-hevc-hindi-english-x265-aac-19gb-900mb-2gb-1gb-esub-google-drive/&do=findComment&comment=351060)
 - [Erumbu &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 7GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174586-erumbu-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-7gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351059)
 - [Thiruchitrambalam &lpar;2022&rpar; Tamil - SNXT WEB-DL - 4K &lpar;DOLBY VISION &amp; HDR10+&rpar; - 2160p - x265 - HEVC - UNTOUCHED - DD+5.1 Atmos &lpar;CBR-448Kbps&rpar; - 12.8GB &amp; 10.4GB - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174382-thiruchitrambalam-2022-tamil-snxt-web-dl-4k-dolby-vision-hdr10-2160p-x265-hevc-untouched-dd51-atmos-cbr-448kbps-128gb-104gb-esub/&do=findComment&comment=351058)
 - [Jujutsu Kaisen &lpar;2023&rpar; S01 EP &lpar;01-03&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Hindi] - 600MB &amp; 300MB]](https://www.1tamilmv.zip/index.php?/forums/topic/174582-jujutsu-kaisen-2023-s01-ep-01-03-true-web-dl-1080p-720p-avc-tamil-hindi-600mb-300mb/&do=findComment&comment=351057)
 - [Miraculous Ladybug &amp; Cat Noir, The Movie &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.2GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174559-miraculous-ladybug-cat-noir-the-movie-2023-hd-original-audios-1080p-720p-avc-dd51-640kbps-tamil-telugu-hindi-eng-32gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=351056)
-- [Leo - Glimpse of Antony Das | Thalapathy Vijay | Lokesh Kanagaraj | Anirudh Ravichander](https://www.1tamilmv.zip/index.php?/forums/topic/174584-leo-glimpse-of-antony-das-thalapathy-vijay-lokesh-kanagaraj-anirudh-ravichander/&do=findComment&comment=351055)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
