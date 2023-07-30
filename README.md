@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Shikaaru &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Malayalam + Kannada] - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174593-shikaaru-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-malayalam-kannada-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351085)
 - [Shikaaru &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Malayalam + Kannada] - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174593-shikaaru-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-malayalam-kannada-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351084)
 - [30 Tamil Movies - ASTRO/AMZN/SS/SUN NXT WEB DL - H264/H265 - DD5.1/DDP5.1/AAC2.0 - ESub - [4K, 1080p &amp; 720p - 275GB] [GDRIVE]](https://www.1tamilmv.zip/index.php?/forums/topic/169176-30-tamil-movies-astroamznsssun-nxt-web-dl-h264h265-dd51ddp51aac20-esub-4k-1080p-720p-275gb-gdrive/&do=findComment&comment=351083)
 - [Awaara &lpar;2010&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD5.1 - 448Kbps&rpar; - 6.7GB - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174594-awaara-2010-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-67gb-esub/&do=findComment&comment=351082)
 - [Josh &lpar;2009&rpar; Telugu Amazon TRUE WEBDL - [1080p / 540p / 480p] - UNTOUCHED - AVC - [DD 2.0&lpar;224kbps&rpar; &amp; AAC] - Esubs - [10GB / 3GB / 1.6GB] - [GDrive]](https://www.1tamilmv.zip/index.php?/forums/topic/124305-josh-2009-telugu-amazon-true-webdl-1080p-540p-480p-untouched-avc-dd-20224kbps-aac-esubs-10gb-3gb-16gb-gdrive/&do=findComment&comment=351081)
-- [Shree &lpar;2002&rpar;.Tamil.1080p.Web-dl.x264.AAC2.0 - 4.3GB - USERDRIVE](https://www.1tamilmv.zip/index.php?/forums/topic/109812-shree-2002tamil1080pweb-dlx264aac20-43gb-userdrive/&do=findComment&comment=351080)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
