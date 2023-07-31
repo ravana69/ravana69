@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [KANMANIYEPPOL | NEW CHRISTIAN SONG | JIJO MATHEW ADOOR | FRANCIS PULLUKADAN](https://www.youtube.com/watch?v=qzZqcCGQYm4)
+- [എത്ര കേട്ടാലും മതിവരാത്ത ജനങ്ങളേറെ ഇഷ്ടപ്പെടുന്ന ഗാനങ്ങൾ |Evergreen Malyalam Film Songs](https://www.youtube.com/watch?v=iMen0gK3p3w)
 - [ഇനിമേൽ എനിക്കില്ലോർ ഭയം | Sadhu Kochukunjupadeshi | Shorts](https://www.youtube.com/watch?v=5WIyobuNTiA)
 - [Vasantham Neelmizhithumpil Video Song |  K J Yesudas |  P Susheela | Ithihaasam |](https://www.youtube.com/watch?v=Ll0bup7iWz8)
 - [Kaithapram, Sudeep Kumar - Thennilaavilen (Version, 2) (Lyric Video)](https://www.youtube.com/watch?v=8T_wMseFix4)
 - [Sakalamaana | Apoorvam Chilar 1991 | Johnson | Kaithapram | M. G. Sreekumar | Malayalam Movie Song](https://www.youtube.com/watch?v=Hy-9HS4JA50)
-- [Thaniye Thaniye | Laika | Lyrical Video | B T Anil Kumar | Satheesh Ramachandran | Gayathri Jyothish](https://www.youtube.com/watch?v=p3-fmUQC6uE)
-- [Iru Meyyum Oru Manassum | Njangal Santhushtaranu | Jayaram | Abhirami | Yesudas | Ouseppachan](https://www.youtube.com/watch?v=-BZK0Ayrvl4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
