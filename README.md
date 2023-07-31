@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thiruhrudayathil Ninnum | Christian Devotional Shorts | Kester](https://www.youtube.com/watch?v=Pc4L7UlIxxY)
+- [Japamala 31st of July  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 31st of July 2023](https://www.youtube.com/watch?v=8Aw_kVddz0Y)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #July 31st mother Mary Christian devotional songs m](https://www.youtube.com/watch?v=0UPa6Y-rjD0)
 - [രാവിലെ പ്രാര്‍ത്ഥന  July 31 shorts  # Athiravile Prarthana 31st of July 2023 Morning Prayer shorts](https://www.youtube.com/watch?v=ZoyTVGn0Uog)
 - [രാവിലെ പ്രാര്‍ത്ഥനJuly 31 # Athiravile Prarthana 31st of July 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=qT80XcZ_4iA)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 31st July 2023](https://www.youtube.com/watch?v=IxyqHF67TgI)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=_hfHlTq1vCk)
-- [എം ജി രാധാകൃഷ്ണൻറെ ഹിറ്റ് സിനിമാഗാനങ്ങൾ | M G Radhakrishnan Hits | കെ ജെ യേശുദാസ് | Remastered songs](https://www.youtube.com/watch?v=OHROd8VwRro)
-- [നിൻ ക്രൂശിലേക്കൊന്നു നോക്കുമ്പോൾ എന്നുള്ളം തേങ്ങിടും ...](https://www.youtube.com/watch?v=rAj1INs-vGw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
