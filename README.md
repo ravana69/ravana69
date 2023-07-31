@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Ambarappoo Veedhiyil |Irupathaam Noottand |Re Mastered Video Song |Shyam |K J Yesudas |Mohanlal](https://www.youtube.com/watch?v=rM4W1zLCUy0)
-- [Vazhiyarikile Padhikan | Kristheeya Bhakthigaanangl | Audio Jukebox](https://www.youtube.com/watch?v=LI-7Gw4NMUc)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=zhtNUgqy9aY)
-- [മല്ലികാബാണന്‍ തന്റെ വില്ലെടുത്തു |Mallikabalanthante - Achaani | P Jayachandran | P Madhuri](https://www.youtube.com/watch?v=kfBnmSKAzlE)
-- [KANMANIYEPPOL | NEW CHRISTIAN SONG | JIJO MATHEW ADOOR | FRANCIS PULLUKADAN](https://www.youtube.com/watch?v=qzZqcCGQYm4)
-- [എത്ര കേട്ടാലും മതിവരാത്ത ജനങ്ങളേറെ ഇഷ്ടപ്പെടുന്ന ഗാനങ്ങൾ |Evergreen Malyalam Film Songs](https://www.youtube.com/watch?v=iMen0gK3p3w)
+- [Karineela Kannilenthedi Video Song | Sujatha Mohan | Vineeth Sreenivasan | Gireesh Puthenchery](https://www.youtube.com/watch?v=8V07US7BU2I)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 31st of July 2023](https://www.youtube.com/watch?v=vIh55WslD-E)
+- [പ്രശ്നമേ നീ എത്ര വലുതാണെങ്കിലും അത് എനിക്ക് പ്രശ്നമല്ല | Rev. Aneesh P Joseph | #shorts #jesusshorts](https://www.youtube.com/watch?v=wvPpkC-HPf8)
+- [Perumbavoor G. Raveendranath, M.G. Sreekumar - Himagirinirakal (Lyric Video)](https://www.youtube.com/watch?v=QRjHhumaU7o)
+- [M.G. Radhakrishnan, K.S. Chithra, Mano - Thankatheril (Lyric Video)](https://www.youtube.com/watch?v=1P9SnJ7R7xM)
+- [Johnson, K.S. Chithra - Kaarthikadeepam (Lyric Video)](https://www.youtube.com/watch?v=evKJ209wcCA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
