@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kootathil Oruthan &lpar;2017&rpar;.Tamil.720p &amp; 1080p.Web-dl.x264.DD5.1 - 900MB &amp; 2GB](https://www.1tamilmv.zip/index.php?/forums/topic/174604-kootathil-oruthan-2017tamil720p-1080pweb-dlx264dd51-900mb-2gb/&do=findComment&comment=351120)
+- [Criminal Justice: Adhura Sach &lpar;2022&rpar; Complete S01 EP &lpar;01-08&rpar; Merged TRUE WEB-DL - [1080p, 720p - &lpar;Tam + Tel + Hin + Mal + Kan&rpar; - 6GB - 3.3GB | x264 - 950MB] - ESub [Google Drive]](https://www.1tamilmv.zip/index.php?/forums/topic/174603-criminal-justice-adhura-sach-2022-complete-s01-ep-01-08-merged-true-web-dl-1080p-720p-tam-tel-hin-mal-kan-6gb-33gb-x264-950mb-esub-google-drive/&do=findComment&comment=351119)
 - [Awaara &lpar;2010&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD5.1 - 448Kbps&rpar; - 6.7GB - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174594-awaara-2010-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-67gb-esub/&do=findComment&comment=351118)
 - [Erumbu &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 7GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174586-erumbu-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-7gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351117)
 - [Shikaaru &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Malayalam + Kannada] - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174593-shikaaru-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-malayalam-kannada-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351116)
-- [Erumbu &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 7GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174586-erumbu-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-7gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351115)
-- [Racer &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174592-racer-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351114)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
