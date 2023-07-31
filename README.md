@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Wolfman &lpar;2010&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.5GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/173847-the-wolfman-2010-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-24gb-15gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=351088)
 - [Njaan Ippo Entha Cheyya &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 2GB &amp; 1GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.zip/index.php?/forums/topic/174574-njaan-ippo-entha-cheyya-2023-malayalam-true-web-dl-1080p-720p-avc-2gb-1gb-x264-700mb-400mb/&do=findComment&comment=351087)
 - [Criminal Justice &lpar;2020&rpar; Complete S01 Merged HQ HDRip - [1080p - 720p - AVC - [Tel + Tam + Hin + Mal + Kan + Mar + Ben - AAC 2.0] - 5.6GB - 3.8GB] - ESub [Google Drive]](https://www.1tamilmv.zip/index.php?/forums/topic/174597-criminal-justice-2020-complete-s01-merged-hq-hdrip-1080p-720p-avc-tel-tam-hin-mal-kan-mar-ben-aac-20-56gb-38gb-esub-google-drive/&do=findComment&comment=351086)
 - [Shikaaru &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Malayalam + Kannada] - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174593-shikaaru-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-malayalam-kannada-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351085)
 - [Shikaaru &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Malayalam + Kannada] - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174593-shikaaru-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-malayalam-kannada-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351084)
-- [30 Tamil Movies - ASTRO/AMZN/SS/SUN NXT WEB DL - H264/H265 - DD5.1/DDP5.1/AAC2.0 - ESub - [4K, 1080p &amp; 720p - 275GB] [GDRIVE]](https://www.1tamilmv.zip/index.php?/forums/topic/169176-30-tamil-movies-astroamznsssun-nxt-web-dl-h264h265-dd51ddp51aac20-esub-4k-1080p-720p-275gb-gdrive/&do=findComment&comment=351083)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
