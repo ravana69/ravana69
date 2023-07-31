@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ajith Kumar Movies Collections &lpar;1993 - 2023&rpar; HD / DVDRip / AP / AYN / AHA / PYD / JC / SS / AMZN /SNXT - WEB DL - H264/H265 [4k &amp; 1080p &amp; 720p] [GDRIVE &amp; Telegram] Esubs](https://www.1tamilmv.zip/index.php?/forums/topic/147473-ajith-kumar-movies-collections-1993-2023-hd-dvdrip-ap-ayn-aha-pyd-jc-ss-amzn-snxt-web-dl-h264h265-4k-1080p-720p-gdrive-telegram-esubs/&do=findComment&comment=351126)
 - [The Flash &lpar;2023&rpar; TRUE WEB-DL - 4K [2160p] - HEVC - UNTOUCHED - [Tamil + Telugu + Hindi + English&lpar;DD+5.1&lpar;768kbps&rpar; Atmos&rpar;] - DD+5.1&lpar;640kbps&rpar; - 14.6GB - MSub](https://www.1tamilmv.zip/index.php?/forums/topic/174608-the-flash-2023-true-web-dl-4k-2160p-hevc-untouched-tamil-telugu-hindi-englishdd51768kbps-atmos-dd51640kbps-146gb-msub/&do=findComment&comment=351125)
 - [Transformers Rise of the Beasts &lpar;2023&rpar; TRUE WEB-DL - 4K &amp; 1080p - HEVC / AVC - UNTOUCHED - [Tamil + Telugu + Hindi + English&lpar;DD+5.1&lpar;768kbps&rpar; Atmos&rpar;] - DD+5.1&lpar;640kbps&rpar; - 15.7GB &amp; 11.3GB - MSub](https://www.1tamilmv.zip/index.php?/forums/topic/174607-transformers-rise-of-the-beasts-2023-true-web-dl-4k-1080p-hevc-avc-untouched-tamil-telugu-hindi-englishdd51768kbps-atmos-dd51640kbps-157gb-113gb-msub/&do=findComment&comment=351124)
 - [Magadheera &lpar;2009&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7GB - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174606-magadheera-2009-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-7gb-esub/&do=findComment&comment=351123)
 - [Ajith Kumar Movies Collections &lpar;1993 - 2023&rpar; HD / DVDRip / AP / AYN / AHA / PYD / JC / SS / AMZN /SNXT - WEB DL - H264/H265 [4k &amp; 1080p &amp; 720p] [GDRIVE &amp; Telegram] Esubs](https://www.1tamilmv.zip/index.php?/forums/topic/147473-ajith-kumar-movies-collections-1993-2023-hd-dvdrip-ap-ayn-aha-pyd-jc-ss-amzn-snxt-web-dl-h264h265-4k-1080p-720p-gdrive-telegram-esubs/&do=findComment&comment=351122)
-- [Mumbai Diaries 26/11 &lpar;2021&rpar; Complete S01 Merged HQ AMZN WEB-DL - [1080p - 720p - 576p - AVC - [Telugu + Tamil + Hindi] - &lpar;14.3GB - 3.4GB - 1.1GB&rpar; - ESub [Google Drive]](https://www.1tamilmv.zip/index.php?/forums/topic/174605-mumbai-diaries-2611-2021-complete-s01-merged-hq-amzn-web-dl-1080p-720p-576p-avc-telugu-tamil-hindi-143gb-34gb-11gb-esub-google-drive/&do=findComment&comment=351121)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
