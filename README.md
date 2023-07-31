@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Good, the Bad, the Weird &lpar;2008&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174600-the-good-the-bad-the-weird-2008-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-24gb-14gb-x264-tamil-hindi-450mb-esub/&do=findComment&comment=351100)
 - [Awaara &lpar;2010&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD5.1 - 448Kbps&rpar; - 6.7GB - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174594-awaara-2010-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-67gb-esub/&do=findComment&comment=351099)
 - [The Good, the Bad, the Weird &lpar;2008&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174600-the-good-the-bad-the-weird-2008-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-24gb-14gb-x264-tamil-hindi-450mb-esub/&do=findComment&comment=351098)
 - [Not Reachable &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 2.3GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.zip/index.php?/forums/topic/174598-not-reachable-2022-tamil-true-web-dl-1080p-720p-avc-hevc-23gb-13gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=351097)
 - [The Good, the Bad, the Weird &lpar;2008&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174600-the-good-the-bad-the-weird-2008-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-24gb-14gb-x264-tamil-hindi-450mb-esub/&do=findComment&comment=351096)
-- [Lucy &lpar;2014&rpar;.Tamil.1080p.JIO.Web-dl.x264.DD5.1 640Kbps Upmixed.ESub - 4GB](https://www.1tamilmv.zip/index.php?/forums/topic/174599-lucy-2014tamil1080pjioweb-dlx264dd51-640kbps-upmixedesub-4gb/&do=findComment&comment=351095)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
