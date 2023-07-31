@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Lucy &lpar;2014&rpar;.Tamil.1080p.JIO.Web-dl.x264.DD5.1 640Kbps Upmixed.ESub - 4GB](https://www.1tamilmv.zip/index.php?/forums/topic/174599-lucy-2014tamil1080pjioweb-dlx264dd51-640kbps-upmixedesub-4gb/&do=findComment&comment=351095)
 - [Not Reachable &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 2.3GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.zip/index.php?/forums/topic/174598-not-reachable-2022-tamil-true-web-dl-1080p-720p-avc-hevc-23gb-13gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=351094)
 - [Kousalya Supraja Rama &lpar;2023&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.zip/index.php?/forums/topic/174567-kousalya-supraja-rama-2023-kannada-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=351093)
 - [Erumbu &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 7GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174586-erumbu-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-7gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351092)
 - [Racer &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174592-racer-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351091)
-- [Not Reachable &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 2.3GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.zip/index.php?/forums/topic/174598-not-reachable-2022-tamil-true-web-dl-1080p-720p-avc-hevc-23gb-13gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=351090)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
