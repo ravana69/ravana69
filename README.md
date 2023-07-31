@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 1st August 2023](https://www.youtube.com/watch?v=ZvYPMww2zPM)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=xZjCtg3fLnA)
 - [ഉറ്റവരെല്ലാരും അകലുമ്പോൾ , ചുറ്റും നിൻ വൈരികൾ ഉണരുമ്പോൾ....](https://www.youtube.com/watch?v=XHxAqzSC9d0)
 - [ഏഴും വാഴാ മുളം പാടി പെണ്ണാളെ.. കോലോത്തേക്കുണ്ണുവാന്‍ പഴുതില്യോടീ .... നാടോടിത്തെയ്യവും തോറ്റവും.....](https://www.youtube.com/watch?v=EIyDozpaVFY)
 - [HITS OF TOMIN J THACHANKERY CHRISTIAN DEVOTIONAL SONGS|OWN MEDIA MUSIC|](https://www.youtube.com/watch?v=tLQeb77MH4g)
 - [Mickey J. Meyer, Krishna Tejasvi - Brotherhood of Ramabanam (From "Ramabanam")](https://www.youtube.com/watch?v=HGt5uMKZO0M)
-- [മനം നൊന്തു കേണപ്പോൾ ആശ്വസിപ്പിക്കാനെത്തിയ ഗാനങ്ങൾ   Cicily   Joji Johns Christian Devotional Songs](https://www.youtube.com/watch?v=v_RhBCNMscg)
-- [Kadumthudi Evide | December |  Jassie Gift | Chithra Iyer |  Kaithapram](https://www.youtube.com/watch?v=pZ4ZEhcd2V4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
