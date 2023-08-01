@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Halaballoo with Sandy Master | RDX | Shane Nigam, Antony Varghese, Neeraj Madhav | Sam C S](https://www.youtube.com/watch?v=hZjKukjGVhs)
-- [Malarkkili - Lyrical Video | Chenkadal | KS Chithra | SP Venkitesh](https://www.youtube.com/watch?v=EhgOoHckaQM)
-- [Group Dance for #Halaballoo | #RDX | #ShaneNigam, #AntonyVarghese, #NeerajMadhav | #SamCS | #shorts](https://www.youtube.com/watch?v=HzC2AmHSpiU)
-- [Pullu | Official Trailer 2 | Riyaz Raz | Praveen Kelikkoden | Shabitha | Aji Vavachan|Movie Trailers](https://www.youtube.com/watch?v=CF0bFAoUU2U)
-- [Monsoon Melodies (Malayalam) | Rain Songs | Mandarappoove | Veyillelam | Onnu Thotte](https://www.youtube.com/watch?v=REdbNyE54Bs)
-- [Soorya Manasam Video Song | Mammootty | Tharalitha Raavil Mayangiyo #shorts](https://www.youtube.com/watch?v=SKKP2TW0Y0c)
+- [നമ്മുടെ ജീവിതത്തിൽ നേരിടുന്ന വേദനകൾ ഉണ്ടല്ലോ അത് അധികനാൾ നിലനിൽക്കില്ല | Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=izihzoIaTzc)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 31st of August 2023](https://www.youtube.com/watch?v=8JDu_Ynqua8)
+- [Kokki Kurukiyum | Olympiyan Anthony Adam | Mohanlal | #shorts](https://www.youtube.com/watch?v=BcDL0UsCmP8)
+- [Madanapathaakayil | Njaan Salpperu Ramankutty | KJ Yesudas | Radhika Thilak |  Raveendran](https://www.youtube.com/watch?v=WqMLAtEfsgc)
+- [Oru Rajamalli Vidarunna | Aniyathipravu | Kunchacko Boban | Shalini | Ouseppachan | Fazil | Appachan](https://www.youtube.com/watch?v=5PUB0fSHq6k)
+- [Paaril Parkkum Lyrical Video | Anna Baby | Rev. O.M. Rajukutty | Malayalam Christian Lyrics Video](https://www.youtube.com/watch?v=DCYRo4j0XPs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
