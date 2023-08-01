@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mazhavillupole | മാതാവിനോട് പ്രാർത്ഥിക്കാം ഈ ഗാനത്തിലൂടെ | #shorts #christianwatsappstatus #mathavu](https://www.youtube.com/watch?v=9DgC7R6RIZg)
+- [Thozhukai | Boeing Boeing 1985  | Raghu Kumar |  K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=-7_rsfzgFiA)
 - [Daivame Thriyekane | Chithra Arun | P D John | Shorts](https://www.youtube.com/watch?v=dW3rLxHW1u4)
 - [Japamala 1st of August 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 1st of August 2023](https://www.youtube.com/watch?v=TEWil9hMdwM)
 - [എല്ലാ മലയാളികളുടെയും ഇഷ്ട ഗായകൻ മധു ബാലകൃഷ്ണൻ പാടിയ സൂപ്പർഹിറ്റ് ക്രിസ്തീയ ഗാനങ്ങൾ |Christian Songs](https://www.youtube.com/watch?v=TKZ6EDqsm0Y)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #August 1st 20233 mother Christian devotional songs](https://www.youtube.com/watch?v=-eqxGgWsH4k)
-- [രാവിലെ പ്രാര്‍ത്ഥന  1st of August shorts  # Athiravile Prarthana1st of August 2023 shorts](https://www.youtube.com/watch?v=-cP52QCX1zE)
-- [രാവിലെ പ്രാര്‍ത്ഥന August 1 # Athiravile Prarthana 1st of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=S9_E9bDwnoE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
