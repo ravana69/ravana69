@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Halaballoo with Sandy Master | RDX | Shane Nigam, Antony Varghese, Neeraj Madhav | Sam C S](https://www.youtube.com/watch?v=hZjKukjGVhs)
+- [Malarkkili - Lyrical Video | Chenkadal | KS Chithra | SP Venkitesh](https://www.youtube.com/watch?v=EhgOoHckaQM)
+- [Group Dance for #Halaballoo | #RDX | #ShaneNigam, #AntonyVarghese, #NeerajMadhav | #SamCS | #shorts](https://www.youtube.com/watch?v=HzC2AmHSpiU)
+- [Pullu | Official Trailer 2 | Riyaz Raz | Praveen Kelikkoden | Shabitha | Aji Vavachan|Movie Trailers](https://www.youtube.com/watch?v=CF0bFAoUU2U)
 - [Monsoon Melodies (Malayalam) | Rain Songs | Mandarappoove | Veyillelam | Onnu Thotte](https://www.youtube.com/watch?v=REdbNyE54Bs)
 - [Soorya Manasam Video Song | Mammootty | Tharalitha Raavil Mayangiyo #shorts](https://www.youtube.com/watch?v=SKKP2TW0Y0c)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=-DfjGEPu_n0)
-- [എന്നും ഇപ്പോഴും കേൾക്കാൻ ആഗ്രഹിക്കുന്ന മലയാളസിനിമയിലെ ഇഷ്ട ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=b4jjX0dO2MQ)
-- [Pareshan - Musi Musi Navvula Manjula Video | Thiruveer | Yashwanth Nag](https://www.youtube.com/watch?v=vItATQ818jU)
-- [Vavavo Vave Video Song | Gireesh Puthenchery | Ouseppachan | P Jayachandran | Sujatha Mohan](https://www.youtube.com/watch?v=hacZ21gfvPQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
