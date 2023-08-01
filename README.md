@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നാഥാ നിനക്കായ് ഏകുന്നു മോദാൽ നന്ദി തൻ നൽമൊഴികൾ ....](https://www.youtube.com/watch?v=KAho-5u0jkI)
 - [Etho Nidrathan Video Song | Mohanlal | Nandhini | KJ Yesudas | Raveendran | Kaithapram | Melody Song](https://www.youtube.com/watch?v=PQTzOci3Ptg)
 - [Yeshu Manavalan | Christian Melody Songs | Kester | Praise and Worship Songs | Christian Songs](https://www.youtube.com/watch?v=nIWIJ2BsnP0)
 - [Alakadalin Alakalil | December | Ishaan Dev | Jyotsna | Jassie Gift | Kaithapram](https://www.youtube.com/watch?v=Z9-4vbinq4E)
 - [നമ്മുടെ ജീവിതത്തിൽ നേരിടുന്ന വേദനകൾ ഉണ്ടല്ലോ അത് അധികനാൾ നിലനിൽക്കില്ല | Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=izihzoIaTzc)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 31st of August 2023](https://www.youtube.com/watch?v=8JDu_Ynqua8)
-- [Kokki Kurukiyum | Olympiyan Anthony Adam | Mohanlal | #shorts](https://www.youtube.com/watch?v=BcDL0UsCmP8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
