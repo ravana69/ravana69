@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Monsoon Melodies (Malayalam) | Rain Songs | Mandarappoove | Veyillelam | Onnu Thotte](https://www.youtube.com/watch?v=REdbNyE54Bs)
+- [Soorya Manasam Video Song | Mammootty | Tharalitha Raavil Mayangiyo #shorts](https://www.youtube.com/watch?v=SKKP2TW0Y0c)
+- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=-DfjGEPu_n0)
 - [എന്നും ഇപ്പോഴും കേൾക്കാൻ ആഗ്രഹിക്കുന്ന മലയാളസിനിമയിലെ ഇഷ്ട ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=b4jjX0dO2MQ)
 - [Pareshan - Musi Musi Navvula Manjula Video | Thiruveer | Yashwanth Nag](https://www.youtube.com/watch?v=vItATQ818jU)
 - [Vavavo Vave Video Song | Gireesh Puthenchery | Ouseppachan | P Jayachandran | Sujatha Mohan](https://www.youtube.com/watch?v=hacZ21gfvPQ)
-- [Mazhavillupole | മാതാവിനോട് പ്രാർത്ഥിക്കാം ഈ ഗാനത്തിലൂടെ | #shorts #christianwatsappstatus #mathavu](https://www.youtube.com/watch?v=9DgC7R6RIZg)
-- [Thozhukai | Boeing Boeing 1985  | Raghu Kumar |  K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=-7_rsfzgFiA)
-- [Daivame Thriyekane | Chithra Arun | P D John | Shorts](https://www.youtube.com/watch?v=dW3rLxHW1u4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
