@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Meg &lpar;2018&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.3GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174610-the-meg-2018-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-33gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=351173)
 - [Rudrangi &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174611-rudrangi-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=351172)
 - [Insidious: The Red Door &lpar;2023&rpar; MA WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10-DV] | 1080P - 18.8 gb | 6.5 gb](https://www.1tamilmv.zip/index.php?/forums/topic/174618-insidious-the-red-door-2023-ma-web-dl-ddp51-atmos-esubs-2160p-hdr10-dv-1080p-188-gb-65-gb/&do=findComment&comment=351171)
 - [500 Hollywood Dubbed Movie Collection - 1080p Multi Original Auidos &lpar;DD5.1 /DD2.0&rpar; - {TAMIL + TELUGU+ HINDI + ENGLISH} - 2270GB](https://www.1tamilmv.zip/index.php?/forums/topic/172114-500-hollywood-dubbed-movie-collection-1080p-multi-original-auidos-dd51-dd20-tamil-telugu-hindi-english-2270gb/&do=findComment&comment=351170)
 - [Thiruchitrambalam &lpar;2022&rpar; Complete Album - An Anirudh Ravichander Musical - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 213 MB | 111 MB | 37 MB | 15 MB](https://www.1tamilmv.zip/index.php?/forums/topic/167659-thiruchitrambalam-2022-complete-album-an-anirudh-ravichander-musical-flac-24bit16bit-mp3-320kbps128kbps-213-mb-111-mb-37-mb-15-mb/&do=findComment&comment=351169)
-- [Ajith Kumar Movies Collections &lpar;1993 - 2023&rpar; HD / DVDRip / AP / AYN / AHA / PYD / JC / SS / AMZN /SNXT - WEB DL - H264/H265 [4k &amp; 1080p &amp; 720p] [GDRIVE &amp; Telegram] Esubs](https://www.1tamilmv.zip/index.php?/forums/topic/147473-ajith-kumar-movies-collections-1993-2023-hd-dvdrip-ap-ayn-aha-pyd-jc-ss-amzn-snxt-web-dl-h264h265-4k-1080p-720p-gdrive-telegram-esubs/&do=findComment&comment=351168)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
