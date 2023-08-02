@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kaloori &lpar;2007&rpar; Tamil TRUE WEB-DL - 480p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 1.3GB - HC-ESub - GDFlix](https://www.1tamilmv.zip/index.php?/forums/topic/174622-kaloori-2007-tamil-true-web-dl-480p-avc-untouched-aac20-13gb-hc-esub-gdflix/&do=findComment&comment=351177)
 - [AK Ayyappanum Koshiyum &lpar;2020&rpar; Malayalam - TRUE WEB-DL - 1080p - AVC - DD+5.1&lpar;640kbps&rpar; - 5.7GB - Esub](https://www.1tamilmv.zip/index.php?/forums/topic/174621-ak-ayyappanum-koshiyum-2020-malayalam-true-web-dl-1080p-avc-dd51640kbps-57gb-esub/&do=findComment&comment=351176)
 - [Gajendraa &lpar;2004&rpar;.Tamil.480p.DVDRip.x264.AAC2.0.HC-ESub - 1.5GB](https://www.1tamilmv.zip/index.php?/forums/topic/174620-gajendraa-2004tamil480pdvdripx264aac20hc-esub-15gb/&do=findComment&comment=351175)
 - [Insidious The Red Door &lpar;2023&rpar;.Eng.720p.x264,Virtual 3D Surround Sound.ESub - 1GB](https://www.1tamilmv.zip/index.php?/forums/topic/174619-insidious-the-red-door-2023eng720px264virtual-3d-surround-soundesub-1gb/&do=findComment&comment=351174)
 - [The Meg &lpar;2018&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.3GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174610-the-meg-2018-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-33gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=351173)
-- [Rudrangi &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174611-rudrangi-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=351172)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
