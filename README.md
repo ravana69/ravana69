@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Kshanamaanu (Poem) - Lyrical | Bhagavan Dasante Ramarajyam | Akshay, Nandana | Vishnu Sivasankar](https://www.youtube.com/watch?v=75pWFPhQgbY)
-- [ജീവിതത്തിലെ ഏറ്റവും വലിയ അനുഗ്രഹമാണ് നല്ല സൗഹൃദങ്ങൾ | Rev. Aneesh P Joseph | #jesusshorts #jesus](https://www.youtube.com/watch?v=bQjqmDwberc)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 2nd of August 2023](https://www.youtube.com/watch?v=NjTnwdPwYKs)
-- [Raathingal Poothali | Ee Puzhayum Kadannu | Biju Menon | Mohini | Johnson | KJ Yesudas](https://www.youtube.com/watch?v=iFJs9oFX_Lk)
-- [Maama Nee | Rasikan | MG Sreekumar | Vineeth Sreenivasan | Murali | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=8AcnNfh-U5Q)
-- [Antony - Motion Poster | Joju George, Kalyani Priyadarshan, Nyla Usha, Chemban Vinod | Joshiy](https://www.youtube.com/watch?v=C-Tg8zvrIYw)
+- [Yashwanth Nag - Atharu Butharu (From "Pareshan")](https://www.youtube.com/watch?v=L2ZbU1ZcRKI)
+- [Aalila Kavile Thennale Video Song | Gireesh Puthenchery | Vidyasagar | P Jayachandran |Sujatha Mohan](https://www.youtube.com/watch?v=-7nbxsN3Txg)
+- [ആ വഴിയോരത്ത്‌ അന്നാര്‍ദ്രമാം സന്ധ്യയില്‍.... ആവണിപ്പൂവായ്‌ നീ നിന്നുവെന്നോ ....  ഏതോ നിദ്രതന്‍..](https://www.youtube.com/watch?v=E7fZpZzyEGI)
+- [Krishna](https://www.youtube.com/watch?v=9SIxzuvfyVE)
+- [Dance for #Halaballoo | #RDX | #ShaneNigam, #AntonyVarghese, #NeerajMadhav | #SamCS | #shorts](https://www.youtube.com/watch?v=pfQ4H7yMuNo)
+- [Enne Menajathennadhan |Christian Video Song |Liny Jimmy John | Snehathin Udayon | Fr.Nithin V Rajan](https://www.youtube.com/watch?v=jJKgj2ortCA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
