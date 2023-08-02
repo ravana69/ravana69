@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [500 Hollywood Dubbed Movie Collection - 1080p Multi Original Auidos &lpar;DD5.1 /DD2.0&rpar; - {TAMIL + TELUGU+ HINDI + ENGLISH} - 2270GB](https://www.1tamilmv.zip/index.php?/forums/topic/172114-500-hollywood-dubbed-movie-collection-1080p-multi-original-auidos-dd51-dd20-tamil-telugu-hindi-english-2270gb/&do=findComment&comment=351170)
 - [Thiruchitrambalam &lpar;2022&rpar; Complete Album - An Anirudh Ravichander Musical - FLAC [24bit|16bit] | MP3 [320kbps|128kbps] - 213 MB | 111 MB | 37 MB | 15 MB](https://www.1tamilmv.zip/index.php?/forums/topic/167659-thiruchitrambalam-2022-complete-album-an-anirudh-ravichander-musical-flac-24bit16bit-mp3-320kbps128kbps-213-mb-111-mb-37-mb-15-mb/&do=findComment&comment=351169)
 - [Ajith Kumar Movies Collections &lpar;1993 - 2023&rpar; HD / DVDRip / AP / AYN / AHA / PYD / JC / SS / AMZN /SNXT - WEB DL - H264/H265 [4k &amp; 1080p &amp; 720p] [GDRIVE &amp; Telegram] Esubs](https://www.1tamilmv.zip/index.php?/forums/topic/147473-ajith-kumar-movies-collections-1993-2023-hd-dvdrip-ap-ayn-aha-pyd-jc-ss-amzn-snxt-web-dl-h264h265-4k-1080p-720p-gdrive-telegram-esubs/&do=findComment&comment=351168)
 - [The Good, the Bad, the Weird &lpar;2008&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174600-the-good-the-bad-the-weird-2008-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-24gb-14gb-x264-tamil-hindi-450mb-esub/&do=findComment&comment=351167)
 - [Mankatha &lpar;2011&rpar; Tamil - BluRay - 1080p &amp; 720p - AVC / HEVC - DTS5.1&lpar;1510kbps&rpar; / DD+5.1&lpar;640kbps&rpar; - 8GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174617-mankatha-2011-tamil-bluray-1080p-720p-avc-hevc-dts511510kbps-dd51640kbps-8gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351166)
-- [BRO &lpar;2023&rpar; Telugu New HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.zip/index.php?/forums/topic/174566-bro-2023-telugu-new-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=351165)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
