@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Christian Superhit Songs | Elizabeth Raju | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=sy8sgPJVLSg)
+- [Japamala 2nd of August 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 2nd of August 2023](https://www.youtube.com/watch?v=I8bPHgwwTeA)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #August 2nd mother Mary songs Malayalam 2023](https://www.youtube.com/watch?v=GPvGcpeDfBA)
 - [രാവിലെ പ്രാര്‍ത്ഥന  2nd of August shorts  # Athiravile Prarthana 2nd of August 2023 shorts](https://www.youtube.com/watch?v=kZSHpc07LLU)
 - [പ്രഭാത പ്രാര്‍ത്ഥന August 2 # Athiravile Prarthana 2nd of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=pKNrFcYubjs)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 2nd August 2023](https://www.youtube.com/watch?v=dI4m6YpCg44)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=waMhjGCeRHU)
-- [നാഥാ നിനക്കായ് ഏകുന്നു മോദാൽ നന്ദി തൻ നൽമൊഴികൾ ....](https://www.youtube.com/watch?v=KAho-5u0jkI)
-- [Etho Nidrathan Video Song | Mohanlal | Nandhini | KJ Yesudas | Raveendran | Kaithapram | Melody Song](https://www.youtube.com/watch?v=PQTzOci3Ptg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
