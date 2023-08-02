@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manju Mazha | Lyrical  Video | Aagathan | Shreya Ghoshal  | Kaithapram | Ouseppachan | Dileep](https://www.youtube.com/watch?v=1zyaEpARYrY)
+- [Ponmaanam Ee Kaikalil | Anuragakottaram 1998 | Ilayaraja | Biju Narayanan | Malayalam Movie Song](https://www.youtube.com/watch?v=DsXyPIifYMI)
 - [Sundhariye Chembaka | Shorts | Panthayakozhi | Narein | Pooja | Short Video](https://www.youtube.com/watch?v=iu8lrtpalq4)
 - [Shyamameghame Nee | Adhipan | Mohanlal | Parvathy | K.Madhu | Chithra | Shyam](https://www.youtube.com/watch?v=li5s306y9IY)
 - [Mazhathulli Palunkukal | Romantic Melody by Shreya Ghoshal & Vijay Yesudas from Pranayam  #shorts](https://www.youtube.com/watch?v=QqE_4ginSvs)
 - [Anayatha Deepamaay | Shorts | Sr. Rincy Alphonse](https://www.youtube.com/watch?v=3XWr-DC_f5U)
-- [Christian Superhit Songs | Elizabeth Raju | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=sy8sgPJVLSg)
-- [Japamala 2nd of August 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 2nd of August 2023](https://www.youtube.com/watch?v=I8bPHgwwTeA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
