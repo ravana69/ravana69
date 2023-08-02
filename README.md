@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Yashwanth Nag - Where What Why (From "Pareshan")](https://www.youtube.com/watch?v=QmBNg5y-QM8)
+- [Penne En Penne | Udayananu Tharam | Afsal | Shalini Singh | Deepak Dev | Kaithapram](https://www.youtube.com/watch?v=7A54xvpmlT8)
 - [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=GE7fuQGf2XQ)
 - [Chilamboli katte Video Song | Gireesh Puthenchery | Vidyasagar | Sujatha Mohan | Udit Narayan](https://www.youtube.com/watch?v=aslL6J6urY4)
 - [#Halaballoo Vibes | #RDX | #ShaneNigam, #AntonyVarghese, #NeerajMadhav | #SamCS | #shorts](https://www.youtube.com/watch?v=jf-CSRgOULM)
 - [ഓരോ തവണ കേൾക്കുമ്പോഴും ഇഷ്ടം കൂടിവരുന്ന സൂപ്പർഹിറ്റ് സിനിമ ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=bQIB63ljI-4)
-- [Aathmaavil Unarunna Gaanam |Kelkkan Kothikkunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=PA18yrI8U1o)
-- [Thandavam - Pottuthottakiliye Lyric | M.G.Sreekumar | Mohanlal, Kiran Rathod](https://www.youtube.com/watch?v=x_3TjN5e9h8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
