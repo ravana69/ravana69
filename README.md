@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഗുരുനാഥനായ് നീ കുടെയുണ്ടാവുകിൽ , ചെയ്യുന്നതാകയും ഫലമായിടും ....](https://www.youtube.com/watch?v=I4YqIy_hwYY)
+- [ദേവാധി ദേവസുതൻ | George Peter Chittur | Libin Scaria | Shorts](https://www.youtube.com/watch?v=EnCTQlqCvUg)
 - [Yashwanth Nag - Atharu Butharu (From "Pareshan")](https://www.youtube.com/watch?v=L2ZbU1ZcRKI)
 - [Aalila Kavile Thennale Video Song | Gireesh Puthenchery | Vidyasagar | P Jayachandran |Sujatha Mohan](https://www.youtube.com/watch?v=-7nbxsN3Txg)
 - [ആ വഴിയോരത്ത്‌ അന്നാര്‍ദ്രമാം സന്ധ്യയില്‍.... ആവണിപ്പൂവായ്‌ നീ നിന്നുവെന്നോ ....  ഏതോ നിദ്രതന്‍..](https://www.youtube.com/watch?v=E7fZpZzyEGI)
 - [Krishna](https://www.youtube.com/watch?v=9SIxzuvfyVE)
-- [Dance for #Halaballoo | #RDX | #ShaneNigam, #AntonyVarghese, #NeerajMadhav | #SamCS | #shorts](https://www.youtube.com/watch?v=pfQ4H7yMuNo)
-- [Enne Menajathennadhan |Christian Video Song |Liny Jimmy John | Snehathin Udayon | Fr.Nithin V Rajan](https://www.youtube.com/watch?v=jJKgj2ortCA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
