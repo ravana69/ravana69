@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Manju Mazha | Lyrical  Video | Aagathan | Shreya Ghoshal  | Kaithapram | Ouseppachan | Dileep](https://www.youtube.com/watch?v=1zyaEpARYrY)
-- [Ponmaanam Ee Kaikalil | Anuragakottaram 1998 | Ilayaraja | Biju Narayanan | Malayalam Movie Song](https://www.youtube.com/watch?v=DsXyPIifYMI)
-- [Sundhariye Chembaka | Shorts | Panthayakozhi | Narein | Pooja | Short Video](https://www.youtube.com/watch?v=iu8lrtpalq4)
-- [Shyamameghame Nee | Adhipan | Mohanlal | Parvathy | K.Madhu | Chithra | Shyam](https://www.youtube.com/watch?v=li5s306y9IY)
-- [Mazhathulli Palunkukal | Romantic Melody by Shreya Ghoshal & Vijay Yesudas from Pranayam  #shorts](https://www.youtube.com/watch?v=QqE_4ginSvs)
-- [Anayatha Deepamaay | Shorts | Sr. Rincy Alphonse](https://www.youtube.com/watch?v=3XWr-DC_f5U)
+- [Aathmaavil Unarunna Gaanam |Kelkkan Kothikkunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=PA18yrI8U1o)
+- [Thandavam - Pottuthottakiliye Lyric | M.G.Sreekumar | Mohanlal, Kiran Rathod](https://www.youtube.com/watch?v=x_3TjN5e9h8)
+- [Vettom - Illathe Kallyaanathinu Lyric | Berny-Ignatious | Dileep, Bhavna Pani](https://www.youtube.com/watch?v=euefug09SU4)
+- [Thommanum Makkalum - Karpakamalare Lyric | Alex Paul | Mammootty, Sindhu Menon](https://www.youtube.com/watch?v=kXMHkGODHug)
+- [Thommanum Makkalum - Nerinazhaku Lyric | Alex Paul | Mammootty, Sindhu Menon](https://www.youtube.com/watch?v=R6SPBkOhaBI)
+- [Thandavam - Paalkkinnam Thoovunnu Lyric | M.G.Sreekumar | Mohanlal, Kiran Rathod](https://www.youtube.com/watch?v=jmsS5Q33ZuA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
