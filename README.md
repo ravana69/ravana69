@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chilamboli katte Video Song | Gireesh Puthenchery | Vidyasagar | Sujatha Mohan | Udit Narayan](https://www.youtube.com/watch?v=aslL6J6urY4)
+- [#Halaballoo Vibes | #RDX | #ShaneNigam, #AntonyVarghese, #NeerajMadhav | #SamCS | #shorts](https://www.youtube.com/watch?v=jf-CSRgOULM)
+- [ഓരോ തവണ കേൾക്കുമ്പോഴും ഇഷ്ടം കൂടിവരുന്ന സൂപ്പർഹിറ്റ് സിനിമ ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=bQIB63ljI-4)
 - [Aathmaavil Unarunna Gaanam |Kelkkan Kothikkunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=PA18yrI8U1o)
 - [Thandavam - Pottuthottakiliye Lyric | M.G.Sreekumar | Mohanlal, Kiran Rathod](https://www.youtube.com/watch?v=x_3TjN5e9h8)
 - [Vettom - Illathe Kallyaanathinu Lyric | Berny-Ignatious | Dileep, Bhavna Pani](https://www.youtube.com/watch?v=euefug09SU4)
-- [Thommanum Makkalum - Karpakamalare Lyric | Alex Paul | Mammootty, Sindhu Menon](https://www.youtube.com/watch?v=kXMHkGODHug)
-- [Thommanum Makkalum - Nerinazhaku Lyric | Alex Paul | Mammootty, Sindhu Menon](https://www.youtube.com/watch?v=R6SPBkOhaBI)
-- [Thandavam - Paalkkinnam Thoovunnu Lyric | M.G.Sreekumar | Mohanlal, Kiran Rathod](https://www.youtube.com/watch?v=jmsS5Q33ZuA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
