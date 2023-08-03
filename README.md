@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Arikil Nin | Amigo 2015 | Malayalam Movie Song](https://www.youtube.com/watch?v=7lNQnuQKhpk)
-- [Poompaithale  | വാനമ്പാടി @ 60 |  Celebratinbg 60 Musical Years of K S Chithra | P S Jayhari](https://www.youtube.com/watch?v=5AV1s4mF_Tg)
-- [Pullu | Official Trailer 2 | Riyaz Raz | Praveen Kelikkoden | Shabitha | Reena Maria | First Clap](https://www.youtube.com/watch?v=0ez4VNx4sk8)
-- [Japamala 3rd of August 2023 # Mathavinte Japamala # Prakashathinte Rahasyangal 3rd of August 2023](https://www.youtube.com/watch?v=W3nktjKPW8A)
-- [കെസ്റ്ററിന്റെ എക്കാലത്തെയും സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | Kester | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=HjfpZDK4WjE)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #August 3rd mother Mary songs Malayalam 2023](https://www.youtube.com/watch?v=QtGs0amkyvE)
+- [Vettom - Makkasai Makkasai Lyric | Berny-Ignatious | Dileep, Bhavna Pani](https://www.youtube.com/watch?v=dTswm-Qhh7E)
+- [Thattakam - Pakalkkinaavil Palavattom Lyric | Kaithapram | Sree Hari, Ranjitha](https://www.youtube.com/watch?v=Y9kp_EfqG8Y)
+- [Thattakam - Baashpasaagara Lyric | Kaithapram | Sree Hari, Ranjitha](https://www.youtube.com/watch?v=sN844hiCDkI)
+- [Vietnam Colony - Sooryodayam Lyric | S. Balakrishanan | Mohanlal, Kanaka, Innocent](https://www.youtube.com/watch?v=tjW9shmKdww)
+- [Thattakam - Chandhanakkaavile Lyric | Kaithapram | Sree Hari, Ranjitha](https://www.youtube.com/watch?v=dzG-TEQ_7YA)
+- [Vadakkumnathan - Kalabham Tharaam Lyric | Raveendran | Mohanlal, Padmapriya](https://www.youtube.com/watch?v=MQDKHYws_Cs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
