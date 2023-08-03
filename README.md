@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mandara Cheppundo Video Song | Mohanlal | Johnson | KS Chithra | MG Sreekumar | Dasharatham](https://www.youtube.com/watch?v=FctVtK0Fp5c)
+- [പലകുടുംബങ്ങളിലും പലകുറി കേൾക്കുന്ന ഏവരുടെയും ഇഷ്ട ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=N-jJa2Roiag)
+- [കരിവണ്ടിണ കണ്ണുകളിൽ | Penninte Chenchundil | Guruji Oru Vaak](https://www.youtube.com/watch?v=Bno3Umd-cgk)
+- [Vibe for #Halaballoo | #RDX | #ShaneNigam, #AntonyVarghese, #NeerajMadhav | #SamCS | #shorts](https://www.youtube.com/watch?v=7vgBX_a_J7c)
 - [Vettom - Makkasai Makkasai Lyric | Berny-Ignatious | Dileep, Bhavna Pani](https://www.youtube.com/watch?v=dTswm-Qhh7E)
 - [Thattakam - Pakalkkinaavil Palavattom Lyric | Kaithapram | Sree Hari, Ranjitha](https://www.youtube.com/watch?v=Y9kp_EfqG8Y)
-- [Thattakam - Baashpasaagara Lyric | Kaithapram | Sree Hari, Ranjitha](https://www.youtube.com/watch?v=sN844hiCDkI)
-- [Vietnam Colony - Sooryodayam Lyric | S. Balakrishanan | Mohanlal, Kanaka, Innocent](https://www.youtube.com/watch?v=tjW9shmKdww)
-- [Thattakam - Chandhanakkaavile Lyric | Kaithapram | Sree Hari, Ranjitha](https://www.youtube.com/watch?v=dzG-TEQ_7YA)
-- [Vadakkumnathan - Kalabham Tharaam Lyric | Raveendran | Mohanlal, Padmapriya](https://www.youtube.com/watch?v=MQDKHYws_Cs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
