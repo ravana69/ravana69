@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 4th August 2023](https://www.youtube.com/watch?v=dwSkRtNc6S0)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=wW95cHMaEHY)
 - [അക്ഷരനക്ഷത്രങ്ങളെ കോർത്തെടുത്തു മലയാളഗാനങ്ങളെ പ്രിയങ്കരങ്ങളാക്കിയ കവിയുടെ പാട്ടുകൾ |ഓ എൻ വി കുറുപ്പ്](https://www.youtube.com/watch?v=ORkHoUnvpyU)
 - [Ennulliletho Shorts | MDMS | Prithviraj | Renuka | Vinayan | Short Video](https://www.youtube.com/watch?v=Xlc0ix8BZUE)
 - [Therirangum Mukile Video Song | Dileep | P Jayachandran | Suresh Peters | S Ramesan Nair |Navya Nair](https://www.youtube.com/watch?v=7EqdUVLeJBg)
 - [Kanner Thudakunna | Christian Devotional Songs Malayalam | Kalesh Karunakaran | Robin Kaithaparampu](https://www.youtube.com/watch?v=WZgz-m_Xk8A)
-- [വരുവിൻ വരുവിൻ പ്രിയ സ്നേഹിതരേ.. ഇടയനല്ലാതില്ല ഭയം .](https://www.youtube.com/watch?v=CXvLeWn2EZw)
-- [Niramaanam Pootha Pol | December | Jassie Gift | Kaithapram](https://www.youtube.com/watch?v=HRb8M-xM_Ow)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
