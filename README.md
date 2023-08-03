@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന 3rd of August shorts  # Athiravile Prarthana 3rd of August 2023 shorts](https://www.youtube.com/watch?v=8eD5JAdvins)
 - [രാവിലെ പ്രാര്‍ത്ഥന August 3 # Athiravile Prarthana 3rd of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=P2ikhRw1tcw)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 3rd August 2023](https://www.youtube.com/watch?v=30bab1htEv4)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=xrqnDiy7lj4)
 - [ഗുരുനാഥനായ് നീ കുടെയുണ്ടാവുകിൽ , ചെയ്യുന്നതാകയും ഫലമായിടും ....](https://www.youtube.com/watch?v=I4YqIy_hwYY)
 - [ദേവാധി ദേവസുതൻ | George Peter Chittur | Libin Scaria | Shorts](https://www.youtube.com/watch?v=EnCTQlqCvUg)
-- [Yashwanth Nag - Atharu Butharu (From "Pareshan")](https://www.youtube.com/watch?v=L2ZbU1ZcRKI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
