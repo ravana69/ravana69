@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Behind the magic of #kanave | #Pallotty90sKids | #ArjunAshokan | #ManikandanAyyappa | #shorts](https://www.youtube.com/watch?v=XKrYIU5i5go)
+- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=pnWsntCF2cA)
 - [Mandara Cheppundo Video Song | Mohanlal | Johnson | KS Chithra | MG Sreekumar | Dasharatham](https://www.youtube.com/watch?v=FctVtK0Fp5c)
 - [പലകുടുംബങ്ങളിലും പലകുറി കേൾക്കുന്ന ഏവരുടെയും ഇഷ്ട ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=N-jJa2Roiag)
 - [കരിവണ്ടിണ കണ്ണുകളിൽ | Penninte Chenchundil | Guruji Oru Vaak](https://www.youtube.com/watch?v=Bno3Umd-cgk)
 - [Vibe for #Halaballoo | #RDX | #ShaneNigam, #AntonyVarghese, #NeerajMadhav | #SamCS | #shorts](https://www.youtube.com/watch?v=7vgBX_a_J7c)
-- [Vettom - Makkasai Makkasai Lyric | Berny-Ignatious | Dileep, Bhavna Pani](https://www.youtube.com/watch?v=dTswm-Qhh7E)
-- [Thattakam - Pakalkkinaavil Palavattom Lyric | Kaithapram | Sree Hari, Ranjitha](https://www.youtube.com/watch?v=Y9kp_EfqG8Y)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
