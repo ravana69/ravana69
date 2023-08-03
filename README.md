@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [വരുവിൻ വരുവിൻ പ്രിയ സ്നേഹിതരേ.. ഇടയനല്ലാതില്ല ഭയം .](https://www.youtube.com/watch?v=CXvLeWn2EZw)
+- [Niramaanam Pootha Pol | December | Jassie Gift | Kaithapram](https://www.youtube.com/watch?v=HRb8M-xM_Ow)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 3rd of August 2023](https://www.youtube.com/watch?v=yjJrpcSaTWw)
 - [നിരാശയിൽ പ്രത്യാശ നൽകുന്ന ഒരു ദൈവം നിനക്കുണ്ട് | Rev. Aneesh P Joseph | #jesusshorts #jesus](https://www.youtube.com/watch?v=gAMY3yrcQmo)
 - [Dance vibes for #Halaballoo | #RDX | #ShaneNigam, #AntonyVarghese, #NeerajMadhav | #SamCS | #shorts](https://www.youtube.com/watch?v=6VSZ_L_nRRs)
 - [Punnaare Poonthinkale | Kadathu | Unni Menon | Shankar | #shorts](https://www.youtube.com/watch?v=axAV5fQ3i6Y)
-- [Omkaram Shankil |Super Hit Malayalam Movie Song |Veruthe Oru Bharya |Gopika |Jayaram -Unni Menon Hit](https://www.youtube.com/watch?v=y-H9POj110s)
-- [Mandharapooventhe | Njaan Salpperu Ramankutty | Radhika Thilak | Raveendran | Beeyar Prasad](https://www.youtube.com/watch?v=5fnJvbnh8Gg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
