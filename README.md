@@ -12,8 +12,8 @@
 
 [![spotify-github-profile](https://spotify-github-profile.vercel.app/api/view?uid=31rfzgmuvvewegdlxvlev4ynz4vu&cover_image=true&theme=natemoo-re&bar_color=000000&bar_color_cover=true)](https://github.com/ravana69)
 
-<a href="https://www.data-card-for-spotify.com/card?user_id=31rfzgmuvvewegdlxvlev4ynz4vu">
-  <img src="https://www.data-card-for-spotify.com/api/card?user_id=31rfzgmuvvewegdlxvlev4ynz4vu" alt="Data Card for Spotify">
+<a href="https://data-card-for-spotify.herokuapp.com/api/card?user_id=31rfzgmuvvewegdlxvlev4ynz4vu">
+  <img src="https://data-card-for-spotify.herokuapp.com/api/card?user_id=31rfzgmuvvewegdlxvlev4ynz4vu" alt="Data Card for Spotify">
 </a>
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=0000FF&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
