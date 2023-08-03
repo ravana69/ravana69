@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [50 Tamil Movies - AMZN/JC/SS/TK/SUN NXT WEB DL - H264/H265 - DDP5.1/AAC2.0 - [4K, 1080p &amp; 720p - 550GB] [GDRIVE]](https://www.1tamilmv.zip/index.php?/forums/topic/129789-50-tamil-movies-amznjcsstksun-nxt-web-dl-h264h265-ddp51aac20-4k-1080p-720p-550gb-gdrive/&do=findComment&comment=351235)
+- [Jayam &lpar;2003&rpar; Tamil HD DVD - 1080p - AVC - HQ DVDRip - &lpar;DD.5.1&rpar; - 4GB - GDFlix](https://www.1tamilmv.zip/index.php?/forums/topic/174635-jayam-2003-tamil-hd-dvd-1080p-avc-hq-dvdrip-dd51-4gb-gdflix/&do=findComment&comment=351234)
+- [Lucy &lpar;2014&rpar;.Tamil.1080p.JIO.Web-dl.x264.DD5.1 640Kbps Upmixed.ESub - 4GB](https://www.1tamilmv.zip/index.php?/forums/topic/174599-lucy-2014tamil1080pjioweb-dlx264dd51-640kbps-upmixedesub-4gb/&do=findComment&comment=351233)
 - [August 16 1947 &lpar;2023&rpar; Telugu &lpar;Org Vers&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174638-august-16-1947-2023-telugu-org-vers-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351232)
 - [14 Tamil Movies 4k - 2160p UHD - HDR &amp; SDR - [Tam + Hin &lpar;DD5.1 &amp; ATMOS&rpar;] -17GB to 4GB - &lpar;170GB&rpar; ESub ~ Immortal Encodes 🔰 ATMOS - GDRIVE 🔰](https://www.1tamilmv.zip/index.php?/forums/topic/152640-14-tamil-movies-4k-2160p-uhd-hdr-sdr-tam-hin-dd51-atmos-17gb-to-4gb-170gb-esub-~-immortal-encodes-%F0%9F%94%B0-atmos-gdrive-%F0%9F%94%B0/&do=findComment&comment=351231)
-- [August 16 1947 &lpar;2023&rpar; Telugu &lpar;Org Vers&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174638-august-16-1947-2023-telugu-org-vers-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351230)
-- [Beau is Afraid &lpar;2023&rpar; English - AMZN WEB-DL - 1080p - TRUE HD AVC UNTOUCHED - x264 - DD+5.1&lpar;768kbps&rpar; Atmos - 9GB - MSub](https://www.1tamilmv.zip/index.php?/forums/topic/174637-beau-is-afraid-2023-english-amzn-web-dl-1080p-true-hd-avc-untouched-x264-dd51768kbps-atmos-9gb-msub/&do=findComment&comment=351229)
-- [Angels &amp; Demons &lpar;2009&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.6GB &amp; 1.3GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174636-angels-demons-2009-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-36gb-13gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=351228)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
