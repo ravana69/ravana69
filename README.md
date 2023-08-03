@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Pullu | Official Trailer 2 | Riyaz Raz | Praveen Kelikkoden | Shabitha | Reena Maria | First Clap](https://www.youtube.com/watch?v=0ez4VNx4sk8)
 - [Japamala 3rd of August 2023 # Mathavinte Japamala # Prakashathinte Rahasyangal 3rd of August 2023](https://www.youtube.com/watch?v=W3nktjKPW8A)
 - [കെസ്റ്ററിന്റെ എക്കാലത്തെയും സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | Kester | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=HjfpZDK4WjE)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #August 3rd mother Mary songs Malayalam 2023](https://www.youtube.com/watch?v=QtGs0amkyvE)
 - [രാവിലെ പ്രാര്‍ത്ഥന 3rd of August shorts  # Athiravile Prarthana 3rd of August 2023 shorts](https://www.youtube.com/watch?v=8eD5JAdvins)
 - [രാവിലെ പ്രാര്‍ത്ഥന August 3 # Athiravile Prarthana 3rd of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=P2ikhRw1tcw)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 3rd August 2023](https://www.youtube.com/watch?v=30bab1htEv4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
