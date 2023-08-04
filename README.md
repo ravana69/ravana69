@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [50 Tamil Movies - SS/AMZN/TK/JC/SUN NXT WEB DL - H264/H265 - DDP5.1/AAC2.0 - ESub - [1080p &amp; 720p - 300GB] [GDRIVE]](https://www.1tamilmv.zip/index.php?/forums/topic/128916-50-tamil-movies-ssamzntkjcsun-nxt-web-dl-h264h265-ddp51aac20-esub-1080p-720p-300gb-gdrive/&do=findComment&comment=351317)
 - [Aswathama &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174674-aswathama-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351316)
 - [Jujutsu Kaisen &lpar;2023&rpar; S01 EP &lpar;04-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Hindi] - 800MB &amp; 400MB]](https://www.1tamilmv.zip/index.php?/forums/topic/174673-jujutsu-kaisen-2023-s01-ep-04-06-true-web-dl-1080p-720p-avc-tamil-hindi-800mb-400mb/&do=findComment&comment=351315)
 - [The Hunt for Veerappan &lpar;2023&rpar; S01 EP &lpar;01-04&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 3.7GB - 1.6GB &amp; 750MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174672-the-hunt-for-veerappan-2023-s01-ep-01-04-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-37gb-16gb-750mb-esub/&do=findComment&comment=351314)
 - [The Hunt for Veerappan &lpar;2023&rpar; S01 EP &lpar;01-04&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 3.7GB - 1.6GB &amp; 750MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174672-the-hunt-for-veerappan-2023-s01-ep-01-04-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-37gb-16gb-750mb-esub/&do=findComment&comment=351313)
-- [The Hunt for Veerappan &lpar;2023&rpar; S01 EP &lpar;01-04&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 3.7GB - 1.6GB &amp; 750MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174672-the-hunt-for-veerappan-2023-s01-ep-01-04-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-37gb-16gb-750mb-esub/&do=findComment&comment=351312)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
