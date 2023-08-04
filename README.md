@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന 4th of August shorts  # Athiravile Prarthana 4th of August 2023 shorts](https://www.youtube.com/watch?v=ww5f6WaCJwA)
 - [പ്രഭാത പ്രാര്‍ത്ഥന August 4 # Athiravile Prarthana 4th of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=KsR9aiIQz6M)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 4th August 2023](https://www.youtube.com/watch?v=dwSkRtNc6S0)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=wW95cHMaEHY)
 - [അക്ഷരനക്ഷത്രങ്ങളെ കോർത്തെടുത്തു മലയാളഗാനങ്ങളെ പ്രിയങ്കരങ്ങളാക്കിയ കവിയുടെ പാട്ടുകൾ |ഓ എൻ വി കുറുപ്പ്](https://www.youtube.com/watch?v=ORkHoUnvpyU)
 - [Ennulliletho Shorts | MDMS | Prithviraj | Renuka | Vinayan | Short Video](https://www.youtube.com/watch?v=Xlc0ix8BZUE)
-- [Therirangum Mukile Video Song | Dileep | P Jayachandran | Suresh Peters | S Ramesan Nair |Navya Nair](https://www.youtube.com/watch?v=7EqdUVLeJBg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
