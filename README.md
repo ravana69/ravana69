@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [MARVEL MOVIES  &lpar;2008 - 2021&rpar; - &lpar;25 Movies&rpar; - [ 4K &amp; 1080P - 720P - 480P ][ MULTI = TAMIL + TELUGU + HINDI + ENGLISH &lpar;DDP+5.1 &rpar;] | 𝐈𝐌𝐒𝐑𝐈 | 🌈™ [ 𝐆 - 𝐃𝐑𝐈𝐕𝐄 ]](https://www.1tamilmv.zip/index.php?/forums/topic/152345-marvel-movies-2008-2021-25-movies-4k-1080p-720p-480p-multi-tamil-telugu-hindi-english-ddp51-%F0%9D%90%88%F0%9D%90%8C%F0%9D%90%92%F0%9D%90%91%F0%9D%90%88-%F0%9F%8C%88%E2%84%A2-%F0%9D%90%86-%F0%9D%90%83%F0%9D%90%91%F0%9D%90%88%F0%9D%90%95%F0%9D%90%84/&do=findComment&comment=351332)
+- [MAHAAN &lpar;2022&rpar; Tamil &lpar;Original Version&rpar; TRUE WEB-DL - [ 4k - 1080p &amp; 720p - AVC / HEVC ] - [x264 / XviD - 700MB ] - IMSRI - [ 🤩⚡ G&#39;DRIVE⚡🤩 ]](https://www.1tamilmv.zip/index.php?/forums/topic/155153-mahaan-2022-tamil-original-version-true-web-dl-4k-1080p-720p-avc-hevc-x264-xvid-700mb-imsri-%F0%9F%A4%A9%E2%9A%A1-gdrive%E2%9A%A1%F0%9F%A4%A9/&do=findComment&comment=351331)
 - [[DROPBOX] ⤵️. MEG 2 THE TRENCH 2023 HINDI DUBBED 720P | 480P HQ S PRINT 900MB.MKV](https://www.1tamilmv.zip/index.php?/forums/topic/161030-dropbox-%E2%A4%B5%EF%B8%8F-meg-2-the-trench-2023-hindi-dubbed-720p-480p-hq-s-print-900mbmkv/&do=findComment&comment=351330)
 - [[DROPBOX] MY FAULT 2023 HINDI ORG DUAL AUDIO 1080P | 720P | 480P HDRIP MSUB](https://www.1tamilmv.zip/index.php?/forums/topic/152758-dropbox-my-fault-2023-hindi-org-dual-audio-1080p-720p-480p-hdrip-msub/&do=findComment&comment=351329)
 - [Aswathama &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174674-aswathama-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351328)
-- [Blood &amp; Chocolate &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.zip/index.php?/forums/topic/174665-blood-chocolate-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=351327)
-- [Aadavari Matalaku Arthale Verule &lpar;2007&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174626-aadavari-matalaku-arthale-verule-2007-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=351326)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
