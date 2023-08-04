@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Poovaaname  - Lyrical Video | Chenkadal | KS Chithra | SP Venkitesh](https://www.youtube.com/watch?v=BKlh93Q2JQ8)
+- [Kusumavadana | Remix Video | Madhuchandralekha  | DJ Savyo | M Jayachandran | Gireesh Puthenchery](https://www.youtube.com/watch?v=OtHWAYaKpsA)
 - [Making of #KushiTitle Song (Malayalam) | #VijayDeverakonda, #Samantha | #HeshamAbdulWahab | #shorts](https://www.youtube.com/watch?v=Ad01_HEqZEk)
 - [Viral Thottal Viriyunna Video Song | KS Chithra | P Jayachandran | Gireesh Puthenchery | Deva](https://www.youtube.com/watch?v=fmi5lOmAqls)
 - [Manathudichoru Malagha | Kelkkaan Kothikkunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=uETh1191k40)
 - [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=I0EBIfUVl_s)
-- [മലയാളികളെ കോരിത്തരിപ്പിച്ച മലയാള സിനിമയിലെ മനം മയക്കും ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=u9Y1Kpw-DRU)
-- [Berny-Ignatius, M.G. Sreekumar, Sujatha - Oru Kaathilola (Lyric Video)](https://www.youtube.com/watch?v=nIxw21UiicA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
