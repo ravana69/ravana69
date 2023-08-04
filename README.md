@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നമുക്ക് ദൈവം നൽകിയ കഴിവുകളിൽ ആത്മാർത്ഥമായി വിശ്വസിക്കാം | Rev. Aneesh P Joseph | #jesusshorts #jesus](https://www.youtube.com/watch?v=sccBObeLg3s)
+- [Hook up steps of #Halaballoo | #RDX | #ShaneNigam, #AntonyVarghese, #NeerajMadhav | #SamCS | #shorts](https://www.youtube.com/watch?v=aMlw_1d0vY8)
+- [Laavanya Devathayalle  Video Song | K J Yesudas  | Ratheesh | Seema |  Karimpoocha |](https://www.youtube.com/watch?v=jCvr3qFxtDE)
+- [Muttathe Mulle | Mayavi | Mammootty | Gopika | Yesudas | Majari | Shafi](https://www.youtube.com/watch?v=WZ-p3Tob8qE)
 - [Poovaaname  - Lyrical Video | Chenkadal | KS Chithra | SP Venkitesh](https://www.youtube.com/watch?v=BKlh93Q2JQ8)
 - [Kusumavadana | Remix Video | Madhuchandralekha  | DJ Savyo | M Jayachandran | Gireesh Puthenchery](https://www.youtube.com/watch?v=OtHWAYaKpsA)
-- [Making of #KushiTitle Song (Malayalam) | #VijayDeverakonda, #Samantha | #HeshamAbdulWahab | #shorts](https://www.youtube.com/watch?v=Ad01_HEqZEk)
-- [Viral Thottal Viriyunna Video Song | KS Chithra | P Jayachandran | Gireesh Puthenchery | Deva](https://www.youtube.com/watch?v=fmi5lOmAqls)
-- [Manathudichoru Malagha | Kelkkaan Kothikkunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=uETh1191k40)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=I0EBIfUVl_s)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
