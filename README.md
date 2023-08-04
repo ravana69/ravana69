@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നിൻ വചനങ്ങളിൽ ദൈവമഹത്ത്വത്തിൻ ഇടിമിന്നൽ കൂടു വെച്ചു.''](https://www.youtube.com/watch?v=3BN22wahgSE)
+- [ഏപ്രിൽ ലില്ലിപ്പൂവേ നിൻ മെയ്യിൽ ഞാൻതൂവൽത്തുമ്പാൽ തൊട്ടാൽ.. ചിലമ്പൊലിക്കാറ്റേ ഒന്നു ചുറ്റിയടിച്ചാട്ടേ](https://www.youtube.com/watch?v=-FlBuXe_AEo)
 - [നമുക്ക് ദൈവം നൽകിയ കഴിവുകളിൽ ആത്മാർത്ഥമായി വിശ്വസിക്കാം | Rev. Aneesh P Joseph | #jesusshorts #jesus](https://www.youtube.com/watch?v=sccBObeLg3s)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 4th of August 2023](https://www.youtube.com/watch?v=IvLZmsGWZDI)
 - [Hook up steps of #Halaballoo | #RDX | #ShaneNigam, #AntonyVarghese, #NeerajMadhav | #SamCS | #shorts](https://www.youtube.com/watch?v=aMlw_1d0vY8)
 - [Laavanya Devathayalle  Video Song | K J Yesudas  | Ratheesh | Seema |  Karimpoocha |](https://www.youtube.com/watch?v=jCvr3qFxtDE)
-- [Muttathe Mulle | Mayavi | Mammootty | Gopika | Yesudas | Majari | Shafi](https://www.youtube.com/watch?v=WZ-p3Tob8qE)
-- [Poovaaname  - Lyrical Video | Chenkadal | KS Chithra | SP Venkitesh](https://www.youtube.com/watch?v=BKlh93Q2JQ8)
-- [Kusumavadana | Remix Video | Madhuchandralekha  | DJ Savyo | M Jayachandran | Gireesh Puthenchery](https://www.youtube.com/watch?v=OtHWAYaKpsA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
