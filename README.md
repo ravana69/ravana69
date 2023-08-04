@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 5th August 2023](https://www.youtube.com/watch?v=-zJ2tZ0pKNI)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=u2NpeE6jOYA)
 - [Oru Paattin Kaattil Video Song | Mammootty | Vidyasagar | Gireesh Puthenchery| Sujatha Mohan | Dubai](https://www.youtube.com/watch?v=YMGekA5bwQ0)
 - [Pularinilavu |Pallavoor Devanarayanan |Raveendran K J Yesudas |Re Mastered Video Song](https://www.youtube.com/watch?v=XMl_EA4KXCE)
 - [കുടുംബ പ്രേക്ഷകർക്കേറെയിഷ്ടമുള്ള ഔസേപ്പച്ചന്റെ എക്കാലത്തെയും മികച്ച ഗാനങ്ങൾ | evergreen Film Songs](https://www.youtube.com/watch?v=rjz_aFBrtFg)
 - [Christian Superhit Songs |  Abhijith Kollam | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=D1MSY-oiCZ4)
-- [നിൻ വചനങ്ങളിൽ ദൈവമഹത്ത്വത്തിൻ ഇടിമിന്നൽ കൂടു വെച്ചു.''](https://www.youtube.com/watch?v=3BN22wahgSE)
-- [ഏപ്രിൽ ലില്ലിപ്പൂവേ നിൻ മെയ്യിൽ ഞാൻതൂവൽത്തുമ്പാൽ തൊട്ടാൽ.. ചിലമ്പൊലിക്കാറ്റേ ഒന്നു ചുറ്റിയടിച്ചാട്ടേ](https://www.youtube.com/watch?v=-FlBuXe_AEo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
