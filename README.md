@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [തെന്നലാടും പൂവനത്തില്‍ | Thennalaadum Poomarathin | Kandu Kandarinju Malayalam Movie Song | Chithra](https://www.youtube.com/watch?v=5Mfx7L9QiaQ)
 - [Gang vibes for #Halaballoo | #RDX | #ShaneNigam, #AntonyVarghese, #NeerajMadhav | #SamCS | #shorts](https://www.youtube.com/watch?v=qP12bn2IzOA)
 - [Snehapoovayenkil Shorts | Lakshmi | Venkitesh | Nayanthara | Short Video](https://www.youtube.com/watch?v=Q9_eofc-34o)
 - [Kando Kando | Karaoke Video  | Innathe Chintha Vishayam | Mohanlal | Sathyan Anthikkad | Ilayaraaja](https://www.youtube.com/watch?v=_Ie5r4qdxT0)
 - [MIZHIYONNU THUDAKKANE | NEW CHRISTIAN SONG | ARAVIND DILEEP NAIR | REJAN REGHU | PRADEESH PARASSALA](https://www.youtube.com/watch?v=kBWxxqdQyL4)
 - [Shyamasandhye | Sagaram Sakshi | Mammoootty | Sukanya | Sharreth | Sibi Malayil](https://www.youtube.com/watch?v=wSkvrMBjPIc)
-- [Sapthaswara Mandalameri | Ayalathe Adheham 1992 |  Chithra, M.G. Sreekumar | Malayalam Movie Song](https://www.youtube.com/watch?v=K4stZM6CuX4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
