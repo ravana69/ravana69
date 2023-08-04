@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Gang vibes for #Halaballoo | #RDX | #ShaneNigam, #AntonyVarghese, #NeerajMadhav | #SamCS | #shorts](https://www.youtube.com/watch?v=qP12bn2IzOA)
+- [Snehapoovayenkil Shorts | Lakshmi | Venkitesh | Nayanthara | Short Video](https://www.youtube.com/watch?v=Q9_eofc-34o)
+- [Kando Kando | Karaoke Video  | Innathe Chintha Vishayam | Mohanlal | Sathyan Anthikkad | Ilayaraaja](https://www.youtube.com/watch?v=_Ie5r4qdxT0)
+- [MIZHIYONNU THUDAKKANE | NEW CHRISTIAN SONG | ARAVIND DILEEP NAIR | REJAN REGHU | PRADEESH PARASSALA](https://www.youtube.com/watch?v=kBWxxqdQyL4)
 - [Shyamasandhye | Sagaram Sakshi | Mammoootty | Sukanya | Sharreth | Sibi Malayil](https://www.youtube.com/watch?v=wSkvrMBjPIc)
 - [Sapthaswara Mandalameri | Ayalathe Adheham 1992 |  Chithra, M.G. Sreekumar | Malayalam Movie Song](https://www.youtube.com/watch?v=K4stZM6CuX4)
-- [Japamala 4th of August 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 4th of August 2023](https://www.youtube.com/watch?v=bFbfjOx7Z6w)
-- [Songs Of The Week | Christian Devotional Songs Malayalam | Wilson Piravom | Kester | Joji Johns](https://www.youtube.com/watch?v=OH9jzMJ33jc)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #August 4th mother Mary hits Malayalam](https://www.youtube.com/watch?v=8x-uguLttqw)
-- [രാവിലെ പ്രാര്‍ത്ഥന 4th of August shorts  # Athiravile Prarthana 4th of August 2023 shorts](https://www.youtube.com/watch?v=ww5f6WaCJwA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
