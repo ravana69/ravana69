@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഏകാന്ത യാമങ്ങളിൽ | Baby John Kalayanthani | Abhijith Vijayan | Shorts](https://www.youtube.com/watch?v=QLUkNFCKIac)
 - [Christian Video Songs Malayalam | Rithuraj | Sreya Jayadeep | Alenia | Christian Melody Songs](https://www.youtube.com/watch?v=upONouCYea4)
 - [രാവിലെ കേൾക്കാൻ ഏറ്റവും നല്ല ഗാനങ്ങൾ daily worship songs | christian devotional songs malayalam](https://www.youtube.com/watch?v=YUfWPHD6goQ)
 - [Japamala 5th of August  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 5th of August 2023](https://www.youtube.com/watch?v=BnQIxA28Bh0)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #August 5th mother mary hits malayalam](https://www.youtube.com/watch?v=lgf1WMrMP24)
 - [രാവിലെ പ്രാര്‍ത്ഥന 5th of August shorts  # Athiravile Prarthana 5th of August 2023 shorts](https://www.youtube.com/watch?v=An4WlfuqUbg)
-- [രാവിലെ പ്രാര്‍ത്ഥന August 5 # Athiravile Prarthana 5th of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=CVmOrW6yPSY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
