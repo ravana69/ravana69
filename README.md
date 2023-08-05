@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Shanthimanthram Theliyum | ശാന്തിമന്ത്രം തെളിയും |  Aryan | M G Sreekumar | Sujatha Mohan |Kaihapram](https://www.youtube.com/watch?v=PQGJ78WXEhA)
+- [വർഷങ്ങളളേറെ കഴിഞ്ഞിട്ടും ഇന്നും കേട്ട് കൊതി തീരാത്തമലയാളത്തിലെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ| Malayalam Songs](https://www.youtube.com/watch?v=3LLxqytH_X8)
 - [Let's Dance for #Halaballoo | #RDX | #ShaneNigam, #AntonyVarghese, #NeerajMadhav | #SamCS | #shorts](https://www.youtube.com/watch?v=-AhqaAKcqkk)
 - [Oru Punnaaram | Boeing Boeing 1985  | K. J. Yesudas, KS Chithra, Unni Menon | Malayalam Movie Song](https://www.youtube.com/watch?v=kStWmT4koYs)
 - [Manchadi Mazha | Romantic Melody by Sujatha & Madhu Balakrishnan from Rock N Roll  #shorts](https://www.youtube.com/watch?v=tkQ8Fly8C20)
 - [ഏകാന്ത യാമങ്ങളിൽ | Baby John Kalayanthani | Abhijith Vijayan | Shorts](https://www.youtube.com/watch?v=QLUkNFCKIac)
-- [Christian Video Songs Malayalam | Rithuraj | Sreya Jayadeep | Alenia | Christian Melody Songs](https://www.youtube.com/watch?v=upONouCYea4)
-- [രാവിലെ കേൾക്കാൻ ഏറ്റവും നല്ല ഗാനങ്ങൾ daily worship songs | christian devotional songs malayalam](https://www.youtube.com/watch?v=YUfWPHD6goQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
