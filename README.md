@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന 5th of August shorts  # Athiravile Prarthana 5th of August 2023 shorts](https://www.youtube.com/watch?v=An4WlfuqUbg)
 - [രാവിലെ പ്രാര്‍ത്ഥന August 5 # Athiravile Prarthana 5th of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=CVmOrW6yPSY)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 5th August 2023](https://www.youtube.com/watch?v=-zJ2tZ0pKNI)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=u2NpeE6jOYA)
 - [Oru Paattin Kaattil Video Song | Mammootty | Vidyasagar | Gireesh Puthenchery| Sujatha Mohan | Dubai](https://www.youtube.com/watch?v=YMGekA5bwQ0)
 - [Pularinilavu |Pallavoor Devanarayanan |Raveendran K J Yesudas |Re Mastered Video Song](https://www.youtube.com/watch?v=XMl_EA4KXCE)
-- [കുടുംബ പ്രേക്ഷകർക്കേറെയിഷ്ടമുള്ള ഔസേപ്പച്ചന്റെ എക്കാലത്തെയും മികച്ച ഗാനങ്ങൾ | evergreen Film Songs](https://www.youtube.com/watch?v=rjz_aFBrtFg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
