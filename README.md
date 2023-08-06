@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Corona Dhavan - Sneak peek | Lukman Avaran | Sreenath Bhasi | Johny Antony | Irshad Ali](https://www.youtube.com/watch?v=JQYzSQRBIUo)
 - [Kannil Kannil Minnum Shorts | Gourishankaram | Munna | Short Video | Kavya Madhavan](https://www.youtube.com/watch?v=-RfmUMuv-Ko)
 - [പാട്ടുപെട്ടി - Paattupetti Vol 19 | Malayalam Film Songs](https://www.youtube.com/watch?v=N6_NqjrFdSM)
 - [Oru Naal Annorunaal |Lyrical  Video| Four Friends | M.Jayachandran | Kaithapram |Jayaram | Jayasurya](https://www.youtube.com/watch?v=PFO9KlPDL9c)
 - [Duet Dance for #Halaballoo | #RDX | #ShaneNigam, #AntonyVarghese, #NeerajMadhav | #SamCS | #shorts](https://www.youtube.com/watch?v=4sAnn4zWGz4)
 - [Ennulliletho Minnunna | MDMS | Prithviraj | Renuka Menon | Vinayan | Mohan Sithara](https://www.youtube.com/watch?v=X7VvXd1FDoY)
-- [Alakaapuriyile | Arayannam 1981 | Pukazhenthi | P. Bhaskaran |  Vani Jairam | Malayalam Movie Song](https://www.youtube.com/watch?v=LCJGqfdx4eA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
