@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ennulliletho Minnunna | MDMS | Prithviraj | Renuka Menon | Vinayan | Mohan Sithara](https://www.youtube.com/watch?v=X7VvXd1FDoY)
+- [Alakaapuriyile | Arayannam 1981 | Pukazhenthi | P. Bhaskaran |  Vani Jairam | Malayalam Movie Song](https://www.youtube.com/watch?v=LCJGqfdx4eA)
 - [Japamala 6th of August 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 6th of August 2023](https://www.youtube.com/watch?v=jGPMuAISy0Q)
 - [എല്ലാ ദിനവും കേൾക്കുന്ന ദൈവീക ഗാനങ്ങൾ  | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=CX6jh3ETnEg)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #August 6th mother mary songs 2023](https://www.youtube.com/watch?v=X2pnZ8cw_OQ)
 - [രാവിലെ പ്രാര്‍ത്ഥന 6th of August shorts  # Athiravile Prarthana 6th of August 2023 shorts](https://www.youtube.com/watch?v=LU6H_Zm0zOM)
-- [പ്രഭാത പ്രാര്‍ത്ഥന August 6 # Athiravile Prarthana 6th of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=W-lPBFEM5xQ)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 6th August 2023](https://www.youtube.com/watch?v=_yu0O1bcXKU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
