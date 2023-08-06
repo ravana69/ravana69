@@ -19,10 +19,10 @@ jobs:
         with:
           node-version: 14.x
       - name: pull script to get quote
-        uses: ashutoshkrris/random-advice-workflow@main
+        uses: ravana69/random-advice-workflow@main
       - name: Commit and push changes
         run: |
-          git config --global user.name "ashutoshkrris"
+          git config --global user.name "ravana69"
           git config --global user.email "contact@gmail.com"
           git add -A
           git commit -m "New Advice added"
