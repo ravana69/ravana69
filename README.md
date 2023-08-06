@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന 6th of August shorts  # Athiravile Prarthana 6th of August 2023 shorts](https://www.youtube.com/watch?v=LU6H_Zm0zOM)
 - [പ്രഭാത പ്രാര്‍ത്ഥന August 6 # Athiravile Prarthana 6th of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=W-lPBFEM5xQ)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 6th August 2023](https://www.youtube.com/watch?v=_yu0O1bcXKU)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=hiC0nTQEIr8)
 - [മാനവനായ് മോചകനായ് മാനവ ക്ലേശം നീക്കാൻ...](https://www.youtube.com/watch?v=qItzxyg5Z04)
 - [Anayatha Deepamaay | Shorts | Sr. Rincy Alphonse](https://www.youtube.com/watch?v=RznF6Mkm5h8)
-- [Thoo Vennilavo Video Song | Johnson | Sujatha Mohan | G Venugopal | Kaithapram | Sreeja | Mukesh](https://www.youtube.com/watch?v=e_hnfRuVxvs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
