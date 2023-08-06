@@ -19,7 +19,7 @@ jobs:
         with:
           node-version: 14.x
       - name: pull script to get quote
-        uses: ravana69/random-advice-workflow@main
+        uses: ravana69/random-advice-workflow@master
       - name: Commit and push changes
         run: |
           git config --global user.name "ravana69"
