@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Let's Vibe for #Halaballoo | #RDX | #ShaneNigam, #AntonyVarghese, #NeerajMadhav | #SamCS | #shorts](https://www.youtube.com/watch?v=y9GNRNlltGI)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 6th of August 2023](https://www.youtube.com/watch?v=OSR5XwFcLHA)
 - [നിങ്ങളുടെ  പ്രശ്നങ്ങളാണ് നിങ്ങളെ കരുത്തുള്ളവരാക്കി രൂപപ്പെടുത്തുന്നത് | Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=8u99RySA9Fw)
 - [Veena Poove Video Song | KJ Yesudas | Sheela | Jeevikkaan Marannu Poya Sthree |](https://www.youtube.com/watch?v=jyFMKmWjpoU)
 - [Palapoovithalil | Thirakkatha | Sharreth | Nishad | Shweta Mohan | Anoop Menon | Priyamani | Ranjith](https://www.youtube.com/watch?v=y9Z_shuhAqo)
 - [Chingamasam Video Song | Dileep | Vidyasagar | Gireesh Puthenchery | Rimi Tomy | Shankar Mahadevan](https://www.youtube.com/watch?v=NBSQ6xytDn0)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=qBbKvQFToJ4)
-- [Corona Dhavan - Sneak peek | Lukman Avaran | Sreenath Bhasi | Johny Antony | Irshad Ali](https://www.youtube.com/watch?v=JQYzSQRBIUo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
