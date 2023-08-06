@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 7th August 2023](https://www.youtube.com/watch?v=fzRwYKfbyMs)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=-KhwfrxGR0Y)
 - [മലയാളികൾ മറക്കാത്ത എം ജി രാധാകൃഷ്ണൻറെ പാട്ടുകൾ |കെ ജെ യേശുദാസ് |M G Radhakrishnan | Remastered songs](https://www.youtube.com/watch?v=NXCHGAZGLIk)
 - [കർത്താവെ നീയെന്നെ കൈവിടല്ലേ... നീ നല്ല ഇടയനല്ലേ ...!](https://www.youtube.com/watch?v=JaZ8FWSxCpQ)
 - [Mele Vinnin Muttatharo Video Song | KS Chithra | Vidyasagar| Gireesh Puthenchery |Ezhupunna Tharakan](https://www.youtube.com/watch?v=Sw8UzdBYwbY)
 - [Christian Melody Songs | Kester | Christian Songs Malayalam | Joji Johns | Narayana Krishna](https://www.youtube.com/watch?v=CxDHWAkl0b4)
-- [Themma Themma|Rain Rain Come Again|Jyotsna|](https://www.youtube.com/watch?v=zwoz47l8uL0)
-- [Let's Vibe for #Halaballoo | #RDX | #ShaneNigam, #AntonyVarghese, #NeerajMadhav | #SamCS | #shorts](https://www.youtube.com/watch?v=y9GNRNlltGI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
