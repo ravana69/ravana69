@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kannil Kannil Minnum Shorts | Gourishankaram | Munna | Short Video | Kavya Madhavan](https://www.youtube.com/watch?v=-RfmUMuv-Ko)
+- [പാട്ടുപെട്ടി - Paattupetti Vol 19 | Malayalam Film Songs](https://www.youtube.com/watch?v=N6_NqjrFdSM)
+- [Oru Naal Annorunaal |Lyrical  Video| Four Friends | M.Jayachandran | Kaithapram |Jayaram | Jayasurya](https://www.youtube.com/watch?v=PFO9KlPDL9c)
+- [Duet Dance for #Halaballoo | #RDX | #ShaneNigam, #AntonyVarghese, #NeerajMadhav | #SamCS | #shorts](https://www.youtube.com/watch?v=4sAnn4zWGz4)
 - [Ennulliletho Minnunna | MDMS | Prithviraj | Renuka Menon | Vinayan | Mohan Sithara](https://www.youtube.com/watch?v=X7VvXd1FDoY)
 - [Alakaapuriyile | Arayannam 1981 | Pukazhenthi | P. Bhaskaran |  Vani Jairam | Malayalam Movie Song](https://www.youtube.com/watch?v=LCJGqfdx4eA)
-- [Japamala 6th of August 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 6th of August 2023](https://www.youtube.com/watch?v=jGPMuAISy0Q)
-- [എല്ലാ ദിനവും കേൾക്കുന്ന ദൈവീക ഗാനങ്ങൾ  | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=CX6jh3ETnEg)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #August 6th mother mary songs 2023](https://www.youtube.com/watch?v=X2pnZ8cw_OQ)
-- [രാവിലെ പ്രാര്‍ത്ഥന 6th of August shorts  # Athiravile Prarthana 6th of August 2023 shorts](https://www.youtube.com/watch?v=LU6H_Zm0zOM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
