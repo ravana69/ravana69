@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Surya Son Of Krishnan &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.7GB - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174679-surya-son-of-krishnan-2008-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-67gb-esub/&do=findComment&comment=351375)
 - [Nala Damayanthi &lpar;2003&rpar; Tamil TRUE WEB-DL - 1080p HQ - x265 HEVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 8GB - ESub - GDFlix](https://www.1tamilmv.zip/index.php?/forums/topic/174686-nala-damayanthi-2003-tamil-true-web-dl-1080p-hq-x265-hevc-untouched-ddp20-8gb-esub-gdflix/&do=findComment&comment=351374)
 - [Aswathama &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174674-aswathama-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351373)
 - [LGM - Let&#39;s Get Married &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.zip/index.php?/forums/topic/174663-lgm-lets-get-married-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=351372)
 - [Silent Hours &lpar;2021&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.2GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174648-silent-hours-2021-hd-original-audios-1080p-720p-avc-dd51-640kbps-tamil-telugu-hindi-eng-32gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=351371)
-- [The Suicide Squad &lpar;2021&rpar; BluRay - 1080p - TRUE HD AVC - [Tamil + Telugu + Hindi + English&lpar;TrueHD 7.1&lpar;3455kbps&rpar; Atmos&rpar;] - AAC5.1&lpar;320kbps&rpar; - 14.7GB &amp; 3.5GB - ESub](https://www.1tamilmv.zip/index.php?/forums/topic/174685-the-suicide-squad-2021-bluray-1080p-true-hd-avc-tamil-telugu-hindi-englishtruehd-713455kbps-atmos-aac51320kbps-147gb-35gb-esub/&do=findComment&comment=351370)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
