@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=jAQ1bjaFXzw)
-- [August 7, 2023](https://www.youtube.com/watch?v=tjiw4LEAlk8)
-- [Pavizhamalar Penkodi Video Song | KS Chithra | MG Sreekumar | Suresh Peters | Kaithapram | Jayaram](https://www.youtube.com/watch?v=1emawGl4Wl8)
-- [എല്ലാത്തരം സംഗീതാസ്വാദകരെയും ഉൾക്കൊള്ളിച്ചുകൊണ്ട്  തയ്യാറാക്കിയ  ഗാനസമാഹാരം | evergreen Songs](https://www.youtube.com/watch?v=JXkR_CErUkg)
-- [മലയാളസിനിമയുടെ പാരമ്പര്യം കാത്തുസൂക്ഷിച്ച എഴുത്തുകാർ ഒന്നിച്ച ഗാനങ്ങൾ Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=0X_byi2Gdik)
-- [വിരൽ തൊട്ടാൽ വിരിയുന്ന പെൺപൂവേ... നെഞ്ചിൽ തഞ്ചി നിന്റെ കൊഞ്ചൽ നാദംപാടും പാട്ടിന്റെ പഞ്ചാമൃതം...](https://www.youtube.com/watch?v=9L3yOYwHvsU)
+- [Anuraagini Itha en|Oru Kudakeezhil|Venu Nagavally|Madhavi|](https://www.youtube.com/watch?v=dgspp8KqTgg)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 7th of August 2023](https://www.youtube.com/watch?v=TewrJOPTXiI)
+- [ഓരോ വിത്തിനുള്ളിലും അവനൊരു പൂക്കാലം ഒളിപ്പിച്ചുവെച്ചിട്ടുണ്ട് | Rev. Aneesh P Joseph | #jesusshorts](https://www.youtube.com/watch?v=KP4nVFLXd9g)
+- [Ashtapadiyile |Jeevikkaan Marannu Poya Sthree | P Jayachandran | Sheela | #shorts](https://www.youtube.com/watch?v=FmKvl7lm9xA)
+- [Penne En Penne | Remix Version | Udayananu Tharam | Afsal | Deepak Dev | Kaithapram](https://www.youtube.com/watch?v=OLn-FAQbRfs)
+- [Puthumazhayay Pozhiyam | Mudra | Mammootty | Sudheesh | Baiju | Mohan Sithara | MG Sreekumar](https://www.youtube.com/watch?v=AOdBHg7XW5c)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
