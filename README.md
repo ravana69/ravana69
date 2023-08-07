@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ദിവ്യകാരുണ്യമേ ബലിവേദിയിൽ| Fr. Vipin Kurishuthara CMI | Fr. Vinil Kurishuthara CMF | Shorts](https://www.youtube.com/watch?v=ouHxLENbs6g)
+- [Athinigoodakananam | Nigoodam Lyrical Video | Sudheep Kumar | Vineeth Rajan | Anoop Menon | Indrans](https://www.youtube.com/watch?v=tRR7mHcHN9g)
 - [Ennum Ninne Poojikkam Video Song | KJ Yesudas | Sujatha Mohan | Ouseppachan | S Ramesan Nair](https://www.youtube.com/watch?v=KCsbMFx-DXM)
 - [Christian Superhit Songs | Narayanan krishna|Christian Songs Malayalam | Joji Johns | Radhika Thilak](https://www.youtube.com/watch?v=bjVMyvAN4c8)
 - [അദ്ധ്വാനിക്കുന്നോ നാലംബം , ഭാരം ചുമക്കുന്നോനാശ്വാസം :](https://www.youtube.com/watch?v=LuJSGJniByc)
 - [Irulin Kayangalil | December | Karthika | Jassie Gift | Kaithapram](https://www.youtube.com/watch?v=Mmvb0aV6qZc)
-- [Anuraagini Itha en|Oru Kudakeezhil|Venu Nagavally|Madhavi|](https://www.youtube.com/watch?v=dgspp8KqTgg)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 7th of August 2023](https://www.youtube.com/watch?v=TewrJOPTXiI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
