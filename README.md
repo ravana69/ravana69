@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Insidious: The Red Door &lpar;2023&rpar; MA WEB-DL Multi DDP5.1 Atmos Msubs - 2160p [HDR10-DV] | 1080p - 19.6 GB | 6.5 GB](https://www.1tamilmv.mov/index.php?/forums/topic/174695-insidious-the-red-door-2023-ma-web-dl-multi-ddp51-atmos-msubs-2160p-hdr10-dv-1080p-196-gb-65-gb/&do=findComment&comment=351415)
 - [Cobra Kai Complete &lpar;S01 - S05&rpar; Merged NF WEB-DL - [720p - AVC - [Hindi + English] - AAC - ESub [Google Drive]](https://www.1tamilmv.mov/index.php?/forums/topic/174694-cobra-kai-complete-s01-s05-merged-nf-web-dl-720p-avc-hindi-english-aac-esub-google-drive/&do=findComment&comment=351414)
 - [Shennong Savage &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Chi&rpar; - 1.5GB &amp; 850MB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 400MB]](https://www.1tamilmv.mov/index.php?/forums/topic/174693-shennong-savage-2022-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-chi-15gb-850mb-x264-tamil-telugu-hindi-400mb/&do=findComment&comment=351413)
+- [Fast X &lpar;2023&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 4.5GB - 3GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174692-fast-x-2023-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-45gb-3gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=351412)
 - [Jailer &lpar;2023&rpar; Tamil Audio launch TRUE HQ HDTV - [1080p &amp; 720p - AVC - 3GB - 1.4GB &amp; 400MB]](https://www.1tamilmv.mov/index.php?/forums/topic/174691-jailer-2023-tamil-audio-launch-true-hq-hdtv-1080p-720p-avc-3gb-14gb-400mb/&do=findComment&comment=351411)
-- [Lucy &lpar;2014&rpar; Bluray 4K &lpar;2160p&rpar; | 1080p | 720p - [Hindi + Tamil + English] &lpar;DTS 5.1 + DD+5.1&rpar; - Esubs - [8.5GB + 4GB + 1.8GB + 1GB + 530MB G-DRIVE] - Ninja 360](https://www.1tamilmv.mov/index.php?/forums/topic/116780-lucy-2014-bluray-4k-2160p-1080p-720p-hindi-tamil-english-dts-51-dd51-esubs-85gb-4gb-18gb-1gb-530mb-g-drive-ninja-360/&do=findComment&comment=351409)
-- [Jailer &lpar;2023&rpar; Tamil Audio launch TRUE HQ HDTV - [1080p &amp; 720p - AVC - 3GB - 1.4GB &amp; 400MB]](https://www.1tamilmv.mov/index.php?/forums/topic/174691-jailer-2023-tamil-audio-launch-true-hq-hdtv-1080p-720p-avc-3gb-14gb-400mb/&do=findComment&comment=351408)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
