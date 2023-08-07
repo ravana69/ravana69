@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Daivame Thriyekane | Chithra Arun | P D John | Shorts](https://www.youtube.com/watch?v=kyyDSPAPQ-E)
+- [Prabhatha Geethangal |Wilson Piravom | Christian Morning Prayer Songs | Joji Johnx | Christian Songs](https://www.youtube.com/watch?v=NrF9sf3pVJ4)
+- [Japamala 7th of August  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 7th of August 2023](https://www.youtube.com/watch?v=0TGYwHRn0IY)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #August 7th mother mary songs 2023](https://www.youtube.com/watch?v=0CS34Kz64uU)
 - [രാവിലെ പ്രാര്‍ത്ഥന 7th of August shorts  # Athiravile Prarthana 7th of August 2023 shorts](https://www.youtube.com/watch?v=WzCJ6Bk7wxI)
 - [പ്രഭാത പ്രാര്‍ത്ഥന August 7 # Athiravile Prarthana 7th of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=yiCX76aYluI)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 7th August 2023](https://www.youtube.com/watch?v=fzRwYKfbyMs)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=-KhwfrxGR0Y)
-- [മലയാളികൾ മറക്കാത്ത എം ജി രാധാകൃഷ്ണൻറെ പാട്ടുകൾ |കെ ജെ യേശുദാസ് |M G Radhakrishnan | Remastered songs](https://www.youtube.com/watch?v=NXCHGAZGLIk)
-- [കർത്താവെ നീയെന്നെ കൈവിടല്ലേ... നീ നല്ല ഇടയനല്ലേ ...!](https://www.youtube.com/watch?v=JaZ8FWSxCpQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
