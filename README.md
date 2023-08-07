@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Cobra Kai Complete &lpar;S01 - S05&rpar; Merged NF WEB-DL - [720p - AVC - [Hindi + English] - AAC - ESub [Google Drive]](https://www.1tamilmv.mov/index.php?/forums/topic/174694-cobra-kai-complete-s01-s05-merged-nf-web-dl-720p-avc-hindi-english-aac-esub-google-drive/&do=findComment&comment=351414)
+- [Shennong Savage &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Chi&rpar; - 1.5GB &amp; 850MB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 400MB]](https://www.1tamilmv.mov/index.php?/forums/topic/174693-shennong-savage-2022-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-chi-15gb-850mb-x264-tamil-telugu-hindi-400mb/&do=findComment&comment=351413)
 - [Jailer &lpar;2023&rpar; Tamil Audio launch TRUE HQ HDTV - [1080p &amp; 720p - AVC - 3GB - 1.4GB &amp; 400MB]](https://www.1tamilmv.mov/index.php?/forums/topic/174691-jailer-2023-tamil-audio-launch-true-hq-hdtv-1080p-720p-avc-3gb-14gb-400mb/&do=findComment&comment=351411)
 - [Lucy &lpar;2014&rpar; Bluray 4K &lpar;2160p&rpar; | 1080p | 720p - [Hindi + Tamil + English] &lpar;DTS 5.1 + DD+5.1&rpar; - Esubs - [8.5GB + 4GB + 1.8GB + 1GB + 530MB G-DRIVE] - Ninja 360](https://www.1tamilmv.mov/index.php?/forums/topic/116780-lucy-2014-bluray-4k-2160p-1080p-720p-hindi-tamil-english-dts-51-dd51-esubs-85gb-4gb-18gb-1gb-530mb-g-drive-ninja-360/&do=findComment&comment=351409)
 - [Jailer &lpar;2023&rpar; Tamil Audio launch TRUE HQ HDTV - [1080p &amp; 720p - AVC - 3GB - 1.4GB &amp; 400MB]](https://www.1tamilmv.mov/index.php?/forums/topic/174691-jailer-2023-tamil-audio-launch-true-hq-hdtv-1080p-720p-avc-3gb-14gb-400mb/&do=findComment&comment=351408)
-- [The Mummy &lpar;2017&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.1GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174684-the-mummy-2017-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-21gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=351407)
-- [Insidious: The Red Door &lpar;2023&rpar; &lpar;UHD + Original Audios&rpar; - [4K ,1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 6.5GB - 3.7GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174680-insidious-the-red-door-2023-uhd-original-audios-4k-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-65gb-37gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=351406)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
