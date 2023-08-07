@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Jailer &lpar;2023&rpar; Tamil Audio launch TRUE HQ HDTV - [1080p &amp; 720p - AVC - 3GB - 1.4GB &amp; 400MB]](https://www.1tamilmv.mov/index.php?/forums/topic/174691-jailer-2023-tamil-audio-launch-true-hq-hdtv-1080p-720p-avc-3gb-14gb-400mb/&do=findComment&comment=351435)
 - [The Labyrinth &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Chi&rpar; - 1.4GB &amp; 800MB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 400MB]](https://www.1tamilmv.mov/index.php?/forums/topic/174698-the-labyrinth-2022-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-chi-14gb-800mb-x264-tamil-telugu-hindi-400mb/&do=findComment&comment=351434)
 - [Detective Dee: Murder in Chang&#39;an &lpar;2021&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Chi&rpar; - 1.4GB &amp; 800MB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 400MB]](https://www.1tamilmv.mov/index.php?/forums/topic/174699-detective-dee-murder-in-changan-2021-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-chi-14gb-800mb-x264-tamil-telugu-hindi-400mb/&do=findComment&comment=351433)
 - [Vijay Sethupathi Movies Collections &lpar;2010 - 2023&rpar; ITune / NF / TK / JC / SS / AMZN /SUNXT - WEB-DL - H264/H265 [4k &amp; 1080p &amp; 720p] [GDRIVE &amp; Telegram]Esubs](https://www.1tamilmv.mov/index.php?/forums/topic/147475-vijay-sethupathi-movies-collections-2010-2023-itune-nf-tk-jc-ss-amzn-sunxt-web-dl-h264h265-4k-1080p-720p-gdrive-telegramesubs/&do=findComment&comment=351432)
 - [Ivan Sariyanavan [Sarrainodu] &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 5.6GB - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174687-ivan-sariyanavan-sarrainodu-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-56gb-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351431)
-- [Dark Shades Of A Secret &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.7GB &amp; 1GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.mov/index.php?/forums/topic/174675-dark-shades-of-a-secret-2023-malayalam-true-web-dl-1080p-720p-avc-17gb-1gb-x264-700mb-400mb/&do=findComment&comment=351429)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
