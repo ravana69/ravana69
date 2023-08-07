@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ജാലകച്ചില്ലിന്‍ ചാരെ പാലലത്തെന്നല്‍ പോലെ.. പാളിനിന്നെന്നെ നോക്കി പാടി..  ഒരു പാട്ടിന്‍ കാറ്റില്‍...](https://www.youtube.com/watch?v=crVC2skGtsE)
+- [Ponnum Thinkal Thaarattum | Anuragakottaram 1998 | Ilayaraja | K. J. Yesudas| Malayalam Movie Song](https://www.youtube.com/watch?v=KdH3DKwOPzg)
+- [Make the moves of #Halaballoo | #RDX | #ShaneNigam, #AntonyVarghese, #NeerajMadhav | #SamCS| #shorts](https://www.youtube.com/watch?v=azpFJKmJ0Cg)
 - [Daivame Thriyekane | Chithra Arun | P D John | Shorts](https://www.youtube.com/watch?v=kyyDSPAPQ-E)
 - [Prabhatha Geethangal |Wilson Piravom | Christian Morning Prayer Songs | Joji Johnx | Christian Songs](https://www.youtube.com/watch?v=NrF9sf3pVJ4)
 - [Japamala 7th of August  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 7th of August 2023](https://www.youtube.com/watch?v=0TGYwHRn0IY)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #August 7th mother mary songs 2023](https://www.youtube.com/watch?v=0CS34Kz64uU)
-- [രാവിലെ പ്രാര്‍ത്ഥന 7th of August shorts  # Athiravile Prarthana 7th of August 2023 shorts](https://www.youtube.com/watch?v=WzCJ6Bk7wxI)
-- [പ്രഭാത പ്രാര്‍ത്ഥന August 7 # Athiravile Prarthana 7th of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=yiCX76aYluI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
