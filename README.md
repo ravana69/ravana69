@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nijadhaasa Varadhaa | Chandrolsavam | KS Chithra | Vidyasagar](https://www.youtube.com/watch?v=fQwHeJPaaTE)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 8th of August 2023](https://www.youtube.com/watch?v=sDBy1U6mMw8)
 - [ദൈവം വെളിച്ചമാണ്. അവനിൽ ഇരുട്ടൊട്ടുമില്ല | Rev. Aneesh P Joseph | #jesusshorts](https://www.youtube.com/watch?v=PjMMxqE0mXk)
 - [Ividathe Chechikku Video Song | Azhakulla Saleena | Latha Raju | Jayabharathi |](https://www.youtube.com/watch?v=y-d330ZEO3E)
 - [Puzha Paadum | Njaan Salpperu Ramankutty | Madhu Balakrishnan |  Raveendran | Beeyar Prasad](https://www.youtube.com/watch?v=pc1eG2iARv0)
 - [Chembazhukka Nalla | Kunjaliyan | Jayasurya | Ananya | Yesudas | M.G.Sreekumar](https://www.youtube.com/watch?v=oixD6uOyFE8)
-- [Kandu Njan Video Song | Priyadarshan | Mohanlal | MG Sreekumar | Raveendran | Kaithapram | Abhimanyu](https://www.youtube.com/watch?v=CoBXbRyhJCw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
