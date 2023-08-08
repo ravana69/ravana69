@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Swantham Nizhalumaay | Ayalathe Adheham 1992 | Kaithapram |  K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=21qj6pAg7h8)
+- [Aashritha valsala/ ആശ്രിതവത്സലനേശു മഹേശനെ/ kj Yesudas](https://www.youtube.com/watch?v=T8QT6eYQQMg)
+- [Pzhamthamizh | Manichithrathazhu | Mohanlal | Sobhana | Yesudas | Fazil](https://www.youtube.com/watch?v=zkvkYHAb6kQ)
+- [Kuzhaloothum Poonthennale | Romantic Melody by Sujatha & G Venugopal from Bhramaram #shorts](https://www.youtube.com/watch?v=ShGyaUgaaJM)
+- [Sree Ragardram Malayalam | Onam Song by G Venugopal #shorts](https://www.youtube.com/watch?v=P41gKAGLDJg)
 - [Anayatha Deepamaay | Shorts | Sr. Rincy Alphonse](https://www.youtube.com/watch?v=rWNBtzuSlo4)
-- [Singer Of The Week | Kester | Christian Devotional Songs Malayalam | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=WrOPdxQhayc)
-- [Japamala 8th of August 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 8th of August 2023](https://www.youtube.com/watch?v=5WELsw45aHc)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #August 8th mother mary devotional songs 2023](https://www.youtube.com/watch?v=n2CFBmJGYXM)
-- [രാവിലെ പ്രാര്‍ത്ഥന 8th of August shorts  # Athiravile Prarthana 8th of August 2023 shorts](https://www.youtube.com/watch?v=Mvd5sdms3V0)
-- [പ്രഭാത പ്രാര്‍ത്ഥന August 8 # Athiravile Prarthana 8th of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=BH1cYZfx2Ck)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
