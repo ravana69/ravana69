@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Eesho Gaanam Paadi | Sneham Thulumbunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=9mxTfoVWz5g)
+- [Aavani Ponnoonjal Video Song | MG Sreekumar | Berny Ignatius | S Ramesan Nair | Jayaram | Shruthi](https://www.youtube.com/watch?v=NKEoy178OWE)
+- [മനം കുളിർക്കെ കേട്ടാസ്വദിക്കും കനവിലും നിനവിലും ഹരം പകർന്ന മലയാളസിനിമാഗാനങ്ങൾ | NISARI MUSIC](https://www.youtube.com/watch?v=QjYy-mdiR38)
+- [Achante Ponnu Mole | Hridayathil Sookshikkan | KJ Yesudas | Mohan Sithara | Kaithapram | Bhavana](https://www.youtube.com/watch?v=dRhAdcidT2E)
 - [Anubhoothi Pookkum  | വാനമ്പാടി @ 60 |  Celebratinbg 60 Musical Years of K S Chithra | Sunny Stephen](https://www.youtube.com/watch?v=UjWvjSC4f0M)
 - [Aavanithennale | Onam Video | Radhika Thilak | Chowalloor Krishnankutty | Jaya Vijaya (Jayan)](https://www.youtube.com/watch?v=Xs5qh26kEqY)
-- [Swantham Nizhalumaay | Ayalathe Adheham 1992 | Kaithapram |  K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=21qj6pAg7h8)
-- [Aashritha valsala/ ആശ്രിതവത്സലനേശു മഹേശനെ/ kj Yesudas](https://www.youtube.com/watch?v=T8QT6eYQQMg)
-- [Pzhamthamizh | Manichithrathazhu | Mohanlal | Sobhana | Yesudas | Fazil](https://www.youtube.com/watch?v=zkvkYHAb6kQ)
-- [Kuzhaloothum Poonthennale | Romantic Melody by Sujatha & G Venugopal from Bhramaram #shorts](https://www.youtube.com/watch?v=ShGyaUgaaJM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
