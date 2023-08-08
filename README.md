@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 9th August 2023](https://www.youtube.com/watch?v=cP3J1uXi6gc)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=PoXN5xeKgFI)
 - [പ്രിയകവി ഓ എൻ വിയുടെ അനശ്വരഗാനങ്ങൾ | കെ ജെ യേശുദാസ് | കെ എസ് ചിത്ര | O N V | Remastered movie songs](https://www.youtube.com/watch?v=zBIXZomTBWI)
 - [കൂടുവിട്ടെങ്ങോ ... അലഞ്ഞ കുഞ്ഞാടു ഞാൻ .](https://www.youtube.com/watch?v=9UKGoQnxYys)
 - [Onnumillaykayil Ninennen | Christian Melody Song | Kester | Praise and Worship Songs |](https://www.youtube.com/watch?v=M3czSgoSpAI)
 - [Nijadhaasa Varadhaa | Chandrolsavam | KS Chithra | Vidyasagar](https://www.youtube.com/watch?v=fQwHeJPaaTE)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 8th of August 2023](https://www.youtube.com/watch?v=sDBy1U6mMw8)
-- [ദൈവം വെളിച്ചമാണ്. അവനിൽ ഇരുട്ടൊട്ടുമില്ല | Rev. Aneesh P Joseph | #jesusshorts](https://www.youtube.com/watch?v=PjMMxqE0mXk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
