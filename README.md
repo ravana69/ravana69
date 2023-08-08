@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Parugu &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174703-parugu-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351479)
 - [Billa &lpar;2009&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.6GB - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174713-billa-2009-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-76gb-esub/&do=findComment&comment=351478)
 - [Snake Cave &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Chi&rpar; - 1.7GB &amp; 1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB]](https://www.1tamilmv.mov/index.php?/forums/topic/174712-snake-cave-2023-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-chi-17gb-1gb-x264-tamil-telugu-hindi-450mb/&do=findComment&comment=351477)
 - [Billa &lpar;2009&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.6GB - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174713-billa-2009-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-76gb-esub/&do=findComment&comment=351476)
 - [Billa &lpar;2009&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.6GB - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174713-billa-2009-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-76gb-esub/&do=findComment&comment=351475)
-- [Neymar &lpar;2023&rpar; TRUE WEB-DL - [4K,1080p &amp; 720p - AVC / HEVC - [Tamil + Telugu + Hindi + Malayalam] - &lpar;DD+5.1 - 192Kbps&rpar; -  16GB - 10GB - 5.1GB - 3.7GB - 2.6GB - 1.5GB] - ESub - Leyon](https://www.1tamilmv.mov/index.php?/forums/topic/169157-neymar-2023-true-web-dl-4k1080p-720p-avc-hevc-tamil-telugu-hindi-malayalam-dd51-192kbps-16gb-10gb-51gb-37gb-26gb-15gb-esub-leyon/&do=findComment&comment=351474)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
