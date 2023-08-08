@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Bommalattam &lpar;2008&rpar;.Tamil.1080p.Web-dl.x264.AAC2.0 - 3.7GB - GDRIVE](https://www.1tamilmv.mov/index.php?/forums/topic/113402-bommalattam-2008tamil1080pweb-dlx264aac20-37gb-gdrive/&do=findComment&comment=351490)
-- [TAKKARI DONGA &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 7.1GB](https://www.1tamilmv.mov/index.php?/forums/topic/174717-takkari-donga-2002-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-50-71gb/&do=findComment&comment=351489)
-- [MURARI &lpar;2001&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 320Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.9GB - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174716-murari-2001-telugu-dvd9-untouched-480p-320kbps-dolby-digital%C2%AE-51-69gb-esub/&do=findComment&comment=351488)
-- [MURARI &lpar;2001&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 320Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.9GB - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174716-murari-2001-telugu-dvd9-untouched-480p-320kbps-dolby-digital%C2%AE-51-69gb-esub/&do=findComment&comment=351487)
-- [The Mummy 4K &lpar;2017&rpar; 2160p HDR10 HEVC 10bit Multi Original Audios [&lpar;Telugu + Tamil&rpar; Org JC &lpar;DD2.0 - 192Kbps&rpar; + Hindi &lpar;DD5.1- 640Kbps&rpar; + English &lpar;DD5.1&rpar; ] - x265 - ESub.mkv - 6.65 GB](https://www.1tamilmv.mov/index.php?/forums/topic/174714-the-mummy-4k-2017-2160p-hdr10-hevc-10bit-multi-original-audios-telugu-tamil-org-jc-dd20-192kbps-hindi-dd51-640kbps-english-dd51-x265-esubmkv-665-gb/&do=findComment&comment=351486)
+- [POKIRI &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.1GB](https://www.1tamilmv.mov/index.php?/forums/topic/174720-pokiri-2006-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-71gb/&do=findComment&comment=351499)
+- [Billa &lpar;2009&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.6GB - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174713-billa-2009-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-76gb-esub/&do=findComment&comment=351498)
+- [ATHADU &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7GB - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174719-athadu-2005-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-7gb-esub/&do=findComment&comment=351497)
+- [Dayaa &lpar;2023&rpar; Complete S01 EP&lpar;01 - 08&rpar; Merged HQ HDRip - [1080p - 720p - AVC - [Tam + Tel + Hin + Mal + Kan] - &lpar;DD+5.1 - 192Kbps&rpar; - 7.8GB - 3.4GB][ 480p - &lpar;Tam + Tel&rpar; - 700MB] - ESub [Google Drive]](https://www.1tamilmv.mov/index.php?/forums/topic/174715-dayaa-2023-complete-s01-ep01-08-merged-hq-hdrip-1080p-720p-avc-tam-tel-hin-mal-kan-dd51-192kbps-78gb-34gb-480p-tam-tel-700mb-esub-google-drive/&do=findComment&comment=351496)
+- [Sarvam &lpar;2009&rpar; TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; [ Tamil + Telugu ] - 4.8GB - GDFlix](https://www.1tamilmv.mov/index.php?/forums/topic/174704-sarvam-2009-true-web-dl-1080p-avc-untouched-aac20-tamil-telugu-48gb-gdflix/&do=findComment&comment=351495)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
