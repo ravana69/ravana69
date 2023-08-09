@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aazhakadalinte Eenam - Video Song | Munna | Haricharan I Indrans | Jagatheesh | Sibu Sukumaran](https://www.youtube.com/watch?v=DJjqBFyIBnI)
+- [Chaanju Nilkkana Poothamaavinte | Rasikan | Murali Krishnan | Vidyasagar | MD Ashok](https://www.youtube.com/watch?v=0aahJHr__Hk)
 - [വിരൽ തൊട്ടാൽ വിരിയുന്ന പെൺപൂവേ...](https://www.youtube.com/watch?v=p6UUyG7Ch3I)
 - [ചിരിയുടെ ഗോഡ്‌ഫാദറിന് പ്രണാമം | പൂക്കാലം വന്നൂ പൂക്കാലം | Godfather Malayalam Movie Song | Siddique](https://www.youtube.com/watch?v=obmlntBt8tg)
 - [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=1Fepku4hBEA)
 - [Yathra | Janmapunyamekunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=lPATMNx8r3o)
-- [Oraayiram Kinaakkalal | Ramji Rao Speaking (1989) | Bichu Thirumala | S Balakrishnan | Mukesh](https://www.youtube.com/watch?v=rVboXaR5Evs)
-- [ചിരിയുടെ ഗോഡ്‌ഫാദറിന് പ്രണാമം !  TRIBUTE SONGS TO SIDDIQUE LAL | EVERGREEN SONGS MALAYALAM](https://www.youtube.com/watch?v=yoIbfhovK40)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
