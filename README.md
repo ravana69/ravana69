@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ചിരിയുടെ ഗോഡ് ഫാദറിന് പ്രണാമം | Tribute to Siddique (Director) | East Coast Satge Shows #Shorts](https://www.youtube.com/watch?v=1kDLslHmXv4)
 - [Kandu Kandu Kandilla Video Song | KJ Yesudas | Mohan Sithara | Kaithapram | Dileep | Navya Nair](https://www.youtube.com/watch?v=Yfmf0JLwWKQ)
 - [Vibe for #Aadharanjali | #Romancham | #SushinShyam | #JithuMadhavan | #shorts](https://www.youtube.com/watch?v=Z5hLR9SwkA4)
 - [Kalabham chaarthiya | Pai Brothers 1995 | K. S .Chithra, P. Jayachandran | Malayalam Movie Song](https://www.youtube.com/watch?v=pQO-iH_r778)
 - [Japamala 9th of August 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 9th of August 2023](https://www.youtube.com/watch?v=LHbHAzvNaPA)
 - [Manasinullile Nombaram | Christian Video Song | Babu Chalakkudy | Joji Johns | Manoj Illavunkal](https://www.youtube.com/watch?v=0yazpoloPQg)
-- [രാവിലെ പ്രാര്‍ത്ഥന 9th of August shorts  # Athiravile Prarthana 9th of August 2023 shorts](https://www.youtube.com/watch?v=rVN7jbXSUhc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
