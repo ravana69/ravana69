@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Iru Mugan &lpar;2016&rpar; Tamil 1080p SS WEB DL AVC x264 DD5.1 Esub 4.3GB [Gdrive]](https://www.1tamilmv.mov/index.php?/forums/topic/128913-iru-mugan-2016-tamil-1080p-ss-web-dl-avc-x264-dd51-esub-43gb-gdrive/&do=findComment&comment=351550)
+- [En Aasai Machan &lpar;1994&rpar;.Tamil.1080p.HDTV.HEVC.AAC2.0 - 2.5GB](https://www.1tamilmv.mov/index.php?/forums/topic/174737-en-aasai-machan-1994tamil1080phdtvhevcaac20-25gb/&do=findComment&comment=351549)
 - [Spider-Man: Across the Spider-Verse &lpar;2023&rpar; iT WEB-DL Multi DDP5.1 Atmos Esubs - 2160p [HDR10-DV] | 1080p - 24.9 GB | 11.4 GB](https://www.1tamilmv.mov/index.php?/forums/topic/174705-spider-man-across-the-spider-verse-2023-it-web-dl-multi-ddp51-atmos-esubs-2160p-hdr10-dv-1080p-249-gb-114-gb/&do=findComment&comment=351548)
 - [50 Tamil Movies - AMZN/SS/TK/JC/SUN NXT WEB DL - H264/H265 - DDP5.1/AAC2.0 - ESub - [1080p &amp; 720p - 350GB] [GDRIVE]](https://www.1tamilmv.mov/index.php?/forums/topic/168865-50-tamil-movies-amznsstkjcsun-nxt-web-dl-h264h265-ddp51aac20-esub-1080p-720p-350gb-gdrive/&do=findComment&comment=351546)
 - [Spider-Man Across The Spider-Verse &lpar;2023&rpar; WEBRip 4K - 2160p - HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada + English] - x265 - 9.6GB - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174735-spider-man-across-the-spider-verse-2023-webrip-4k-2160p-hevc-dd51-640kbps-tamil-telugu-hindi-malayalam-kannada-english-x265-96gb-esub/&do=findComment&comment=351545)
-- [Aadavari Matalaku Arthale Verule &lpar;2007&rpar;.Telugu.1080p.DVD9Rip.x264.Untouched DD5.1.ESub - 2.8GB](https://www.1tamilmv.mov/index.php?/forums/topic/174734-aadavari-matalaku-arthale-verule-2007telugu1080pdvd9ripx264untouched-dd51esub-28gb/&do=findComment&comment=351544)
-- [Jujutsu Kaisen &lpar;2023&rpar; S01 EP &lpar;04-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Hindi] - 800MB &amp; 400MB]](https://www.1tamilmv.mov/index.php?/forums/topic/174673-jujutsu-kaisen-2023-s01-ep-04-06-true-web-dl-1080p-720p-avc-tamil-hindi-800mb-400mb/&do=findComment&comment=351543)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
