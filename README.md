@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Maane Malaramban Video Song | Mohanlal | KJ Yesudas| Raveendran| Kaithapram |Ayal Kadhayezhthukayanu](https://www.youtube.com/watch?v=X-JbkMu0nMM)
+- [Christian Superhit Songs | Kester | Jayachandran | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=4IhihQ6v-Ko)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 9th of August 2023](https://www.youtube.com/watch?v=ok9pVuPWHtI)
 - [Katruveliyide Kannama film song played by Vaikom Vijayalakshmi on Gayathri Veena](https://www.youtube.com/watch?v=FXlZ_DiUysc)
 - [ജീവിതാനുഭവങ്ങളുടെ നൊമ്പരങ്ങളുമായി യാത്ര ചെയ്യുമ്പോൾ സഹയാത്രികനായി  ഒരാൾ ഉണ്ടാകുക എത്ര ആനന്ദകരമാണ്](https://www.youtube.com/watch?v=2_Ng_8nulvI)
 - [Araliyum kadaliyum | Jaathakam | KS Chithra | Jayaram | Sithara | #shorts](https://www.youtube.com/watch?v=91U9w3Bdt-U)
-- [Oraayiram Kinaakkalal |Evergreen Malayalam Movie Song|Ramji Rao Speaking |Innocent |Mukesh |Saikumar](https://www.youtube.com/watch?v=MGy2gNysJno)
-- [Kai Niraye Venna Tharam - Lyrical Video | Baba Kalyani | G Venugopal | Alex Paul](https://www.youtube.com/watch?v=NaHl42qw_Vk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
