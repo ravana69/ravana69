@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [ATHIDHI &lpar;2007&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.5GB - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174728-athidhi-2007-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-65gb-esub/&do=findComment&comment=351520)
+- [TAKKARI DONGA &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 7.1GB](https://www.1tamilmv.mov/index.php?/forums/topic/174717-takkari-donga-2002-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-50-71gb/&do=findComment&comment=351519)
+- [OKKADU &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.8GB - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174718-okkadu-2003-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-68gb-esub/&do=findComment&comment=351518)
 - [White Snake &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.2GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174721-white-snake-2019-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-22gb-11gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=351517)
 - [MURARI &lpar;2001&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 320Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.9GB - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174716-murari-2001-telugu-dvd9-untouched-480p-320kbps-dolby-digital%C2%AE-51-69gb-esub/&do=findComment&comment=351516)
-- [POKIRI &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.1GB](https://www.1tamilmv.mov/index.php?/forums/topic/174720-pokiri-2006-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-71gb/&do=findComment&comment=351515)
-- [SAINIKUDU &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.7GB - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174727-sainikudu-2006-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-67gb-esub/&do=findComment&comment=351514)
-- [TAKKARI DONGA &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 7.1GB](https://www.1tamilmv.mov/index.php?/forums/topic/174717-takkari-donga-2002-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-50-71gb/&do=findComment&comment=351513)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
