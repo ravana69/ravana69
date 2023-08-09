@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Aadavari Matalaku Arthale Verule &lpar;2007&rpar;.Telugu.1080p.DVD9Rip.x264.Untouched DD5.1.ESub - 2.8GB](https://www.1tamilmv.mov/index.php?/forums/topic/174734-aadavari-matalaku-arthale-verule-2007telugu1080pdvd9ripx264untouched-dd51esub-28gb/&do=findComment&comment=351544)
 - [Jujutsu Kaisen &lpar;2023&rpar; S01 EP &lpar;04-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Hindi] - 800MB &amp; 400MB]](https://www.1tamilmv.mov/index.php?/forums/topic/174673-jujutsu-kaisen-2023-s01-ep-04-06-true-web-dl-1080p-720p-avc-tamil-hindi-800mb-400mb/&do=findComment&comment=351543)
 - [Vedalam &lpar;2015&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 320Kbps&rpar; - 4.5GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174729-vedalam-2015-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-320kbps-45gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351542)
 - [65 Tamil Movies - AMZN / SUN NXT / SS WEB DL - H264 / H265 - DDP5.1/DD5.1/AAC2.0 - [1080p &amp; 720p - 500GB] [Gdrive]](https://www.1tamilmv.mov/index.php?/forums/topic/139538-65-tamil-movies-amzn-sun-nxt-ss-web-dl-h264-h265-ddp51dd51aac20-1080p-720p-500gb-gdrive/&do=findComment&comment=351541)
 - [Vedalam &lpar;2015&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 320Kbps&rpar; - 4.5GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174729-vedalam-2015-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-320kbps-45gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351540)
-- [Vettaiyaadu Vilaiyaadu &lpar;2006&rpar; TRUE WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - [Tamil + Telugu] - [DD+5.1&lpar;640Kbps&rpar; + DD+2.0&lpar;224Kbps&rpar;] - 13.2GB - 8.5GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 750MB - 450MB &amp; 300MB - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174733-vettaiyaadu-vilaiyaadu-2006-true-web-dl-1080p-720p-avc-hevc-untouched-tamil-telugu-dd51640kbps-dd20224kbps-132gb-85gb-55gb-27gb-18gb-14gb-950mb-x264-750mb-450mb-300mb-esub/&do=findComment&comment=351539)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
