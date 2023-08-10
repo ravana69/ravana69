@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Connect (Telugu) - Nay Geesina Gaganam Video | Nayanthara, Vignesh Shivan](https://www.youtube.com/watch?v=UAu3X1_nVa4)
+- [Connect - Naan Varaigira Vaanam Video | Nayanthara, Vignesh Shivan](https://www.youtube.com/watch?v=6kIdWJjwg2c)
+- [പുതിയ തലമുറയും പഴമക്കാരും ഒരുപോലെ ഇഷ്ടപെടുന്ന ചുറുചുറുക്കുള്ള താരങ്ങളും ഗാനങ്ങളും | EVERGREEN SONGS](https://www.youtube.com/watch?v=aj0TvqD3OU0)
 - [Midhunam Madhuram | Anuragam | Vidhu Prathap | Mridula Varier | Joel Johns | Titto P Thankachen](https://www.youtube.com/watch?v=GIW_yiPnlM4)
 - [നടക്കില്ല എന്നുവിചാരിച്ചിരുന്നാൽ ലോകത്തൊരു കാര്യവും നടക്കില്ല | Rev. Aneesh P Joseph | #shortvideo](https://www.youtube.com/watch?v=i6zz6yA2dSc)
 - [Manikyakallal Menumenje|Varnapakittu|Mohanlal|Divya Unni|](https://www.youtube.com/watch?v=QsBM0PZAvVE)
-- [Olangal Thaalam Thallumpol Video Song | Kadathu | Unni Menon | Shankar | Prem Nazir |](https://www.youtube.com/watch?v=doLGTpQ2_Bo)
-- [Aalunde Anjaravandi | Amal Antony | Sinto Sunny | Ouseppachan | Thomas Thiruvalla | Film Songs](https://www.youtube.com/watch?v=BnmkJFhbxyk)
-- [Thee Kathana Kannalivan | Kurukkan | Vineeth Sreenivasan | Unni Elayaraja | Manu Manjith](https://www.youtube.com/watch?v=zNxyFxc5W3M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
