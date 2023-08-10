@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [No Hard Feelings &lpar;2023&rpar; English HQ HDRip - 1080p - x265 HEVC 10bit - [ Hindi &lpar;DDP.5.1&rpar; + English &lpar;AAC.5.1&rpar; ] - 1.8GB - ESub - GDFlix](https://www.1tamilmv.mov/index.php?/forums/topic/174744-no-hard-feelings-2023-english-hq-hdrip-1080p-x265-hevc-10bit-hindi-ddp51-english-aac51-18gb-esub-gdflix/&do=findComment&comment=351569)
+- [Thalaivaa &lpar;2013&rpar; SNXT WEB-DL DDP5.1 Esub x264 - 5.1 GB](https://www.1tamilmv.mov/index.php?/forums/topic/174743-thalaivaa-2013-snxt-web-dl-ddp51-esub-x264-51-gb/&do=findComment&comment=351568)
+- [Aadukalam &lpar;2011&rpar; SNXT WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 5.6 GB | 3.9 GB](https://www.1tamilmv.mov/index.php?/forums/topic/174742-aadukalam-2011-snxt-web-dl-ddp51-esubs-x264-1080p-720p-56-gb-39-gb/&do=findComment&comment=351567)
 - [Vishwaroopam 2 &lpar;2018&rpar; Tamil - TRUE WEB-DL - 1080p - AVC - DD5.1&lpar;160kbps&rpar; - 2.1GB - ESub [5 Years of Vishwaroopam 2]](https://www.1tamilmv.mov/index.php?/forums/topic/174741-vishwaroopam-2-2018-tamil-true-web-dl-1080p-avc-dd51160kbps-21gb-esub-5-years-of-vishwaroopam-2/&do=findComment&comment=351566)
 - [Aadavari Matalaku Arthale Verule &lpar;2007&rpar;.Telugu.1080p.DVD9Rip.x264.Untouched DD5.1.ESub - 2.8GB](https://www.1tamilmv.mov/index.php?/forums/topic/174734-aadavari-matalaku-arthale-verule-2007telugu1080pdvd9ripx264untouched-dd51esub-28gb/&do=findComment&comment=351565)
-- [Satyaprem Ki Katha &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174740-satyaprem-ki-katha-2023-hindi-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=351564)
-- [KUSHI Official Trailer [Tamil + Telugu + Kannada + Hindi] -  | Vijay Deverakonda | Samantha | Shiva Nirvana | Hesham Abdul Wahab](https://www.1tamilmv.mov/index.php?/forums/topic/174552-kushi-official-trailer-tamil-telugu-kannada-hindi-vijay-deverakonda-samantha-shiva-nirvana-hesham-abdul-wahab/&do=findComment&comment=351563)
-- [The Legend of Muay Thai: 9 Satra &lpar;2018&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Thai&rpar; - 2.5GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174738-the-legend-of-muay-thai-9-satra-2018-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-thai-25gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=351562)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
