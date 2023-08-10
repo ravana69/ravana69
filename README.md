@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vedalam &lpar;2015&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 320Kbps&rpar; - 4.5GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174729-vedalam-2015-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-320kbps-45gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351580)
+- [📌 BUSINESSMAN &lpar;2012&rpar; &lpar;Music Video Album&rpar; - 1080P - UNTOUCHED BLU-RAY REUMX - AVC - LPCM / DD / DTS-HD® MA 5.1 @ 2.5Mbps - ESubs - 5.4GB](https://www.1tamilmv.mov/index.php?/forums/topic/174752-%F0%9F%93%8C-businessman-2012-music-video-album-1080p-untouched-blu-ray-reumx-avc-lpcm-dd-dts-hd%C2%AE-ma-51-25mbps-esubs-54gb/&do=findComment&comment=351579)
+- [Alluri &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174739-alluri-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351578)
+- [Satyaprem Ki Katha &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174740-satyaprem-ki-katha-2023-hindi-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=351577)
 - [King of Kotha Official Trailer &lpar;Multi language&rpar;| Dulquer Salmaan | Abhilash Joshiy | Jakes Bejoy](https://www.1tamilmv.mov/index.php?/forums/topic/174745-king-of-kotha-official-trailer-multi-language-dulquer-salmaan-abhilash-joshiy-jakes-bejoy/&do=findComment&comment=351570)
-- [No Hard Feelings &lpar;2023&rpar; English HQ HDRip - 1080p - x265 HEVC 10bit - [ Hindi &lpar;DDP.5.1&rpar; + English &lpar;AAC.5.1&rpar; ] - 1.8GB - ESub - GDFlix](https://www.1tamilmv.mov/index.php?/forums/topic/174744-no-hard-feelings-2023-english-hq-hdrip-1080p-x265-hevc-10bit-hindi-ddp51-english-aac51-18gb-esub-gdflix/&do=findComment&comment=351569)
-- [Thalaivaa &lpar;2013&rpar; SNXT WEB-DL DDP5.1 Esub x264 - 5.1 GB](https://www.1tamilmv.mov/index.php?/forums/topic/174743-thalaivaa-2013-snxt-web-dl-ddp51-esub-x264-51-gb/&do=findComment&comment=351568)
-- [Aadukalam &lpar;2011&rpar; SNXT WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 5.6 GB | 3.9 GB](https://www.1tamilmv.mov/index.php?/forums/topic/174742-aadukalam-2011-snxt-web-dl-ddp51-esubs-x264-1080p-720p-56-gb-39-gb/&do=findComment&comment=351567)
-- [Vishwaroopam 2 &lpar;2018&rpar; Tamil - TRUE WEB-DL - 1080p - AVC - DD5.1&lpar;160kbps&rpar; - 2.1GB - ESub [5 Years of Vishwaroopam 2]](https://www.1tamilmv.mov/index.php?/forums/topic/174741-vishwaroopam-2-2018-tamil-true-web-dl-1080p-avc-dd51160kbps-21gb-esub-5-years-of-vishwaroopam-2/&do=findComment&comment=351566)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
