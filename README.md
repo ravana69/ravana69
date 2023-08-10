@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Thiruvachanam | Saukhyamekunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=tj8mKliBqQc)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=I4mfva6iNEc)
-- [ഏറെ കൗതുകത്തോടെ മലയാളികളെന്നു കേൾക്കുന്ന മനസ്സിനിഷ്ടപ്പെട്ട മനോഹരഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=aRjQf_2wVI4)
-- [Kaithudi Thaalam Thatti Video Song | Kunchacko Boban | Afsal | Berny Ignatius | Kaithapram](https://www.youtube.com/watch?v=IE9r3gHiw_g)
-- [Vanashalabhame Lyrical Video | Sithara Krishnakumar | Sadanandan MV | Innalekal Thalirkkumbol](https://www.youtube.com/watch?v=M5TVAKjLik8)
-- [Vibe to the trend #Aadharanjali | #Romancham | #SushinShyam | #JithuMadhavan | #shorts](https://www.youtube.com/watch?v=O1XnBdXhxYg)
+- [നടക്കില്ല എന്നുവിചാരിച്ചിരുന്നാൽ ലോകത്തൊരു കാര്യവും നടക്കില്ല | Rev. Aneesh P Joseph | #shortvideo](https://www.youtube.com/watch?v=i6zz6yA2dSc)
+- [Manikyakallal Menumenje|Varnapakittu|Mohanlal|Divya Unni|](https://www.youtube.com/watch?v=QsBM0PZAvVE)
+- [Olangal Thaalam Thallumpol Video Song | Kadathu | Unni Menon | Shankar | Prem Nazir |](https://www.youtube.com/watch?v=doLGTpQ2_Bo)
+- [Aalunde Anjaravandi | Amal Antony | Sinto Sunny | Ouseppachan | Thomas Thiruvalla | Film Songs](https://www.youtube.com/watch?v=BnmkJFhbxyk)
+- [Thee Kathana Kannalivan | Kurukkan | Vineeth Sreenivasan | Unni Elayaraja | Manu Manjith](https://www.youtube.com/watch?v=zNxyFxc5W3M)
+- [Vaavavo Vaave | Ente Veedu Appuntem | Kalidas | Jayaram | Jyothirmayi | Ouseppachan](https://www.youtube.com/watch?v=kpTZpgHUbXk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
