@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vibe to the trend #Aadharanjali | #Romancham | #SushinShyam | #JithuMadhavan | #shorts](https://www.youtube.com/watch?v=O1XnBdXhxYg)
+- [Ravereyaay | Lyrical Video | Rock N Roll | Mohanlal | Vidyasagar | Gireesh Puthencherry](https://www.youtube.com/watch?v=osrG_d26YRg)
 - [അനുരാഗ വിലോചനനായി.. അതിലേറെ മോഹിതനായി.. പടിമേലേ നില്‍ക്കും ചന്ദ്രനോ തിടുക്കം...](https://www.youtube.com/watch?v=-B9Ci1czEmg)
 - [Pulli poonkuyil | Pai Brothers 1995 | K. S .Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=uyeWxtpf7RE)
 - [Varthinkalaay Maaril | Pallavur Devanarayanan | Mammootty | Manthra | Yesudas | Raveendran](https://www.youtube.com/watch?v=H7JjQm-7jgI)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #August 10th mother mary devotional songs 2023](https://www.youtube.com/watch?v=Obig_7Y_Gvc)
-- [മനം നൊന്ത് പ്രാർത്ഥിക്കുമ്പോൾ കൂടെ പാടുന്ന ദിവ്യഗാനങ്ങൾ  | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=s7ukNLKp7CY)
-- [Japamala 10th of August 2023 # Mathavinte Japamala # Prakashathinte Rahasyangal 10th of August 2023](https://www.youtube.com/watch?v=xkMDtefjCCE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
