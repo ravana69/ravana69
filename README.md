@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [King of Kotha Official Trailer &lpar;Multi language&rpar;| Dulquer Salmaan | Abhilash Joshiy | Jakes Bejoy](https://www.1tamilmv.mov/index.php?/forums/topic/174745-king-of-kotha-official-trailer-multi-language-dulquer-salmaan-abhilash-joshiy-jakes-bejoy/&do=findComment&comment=351570)
 - [No Hard Feelings &lpar;2023&rpar; English HQ HDRip - 1080p - x265 HEVC 10bit - [ Hindi &lpar;DDP.5.1&rpar; + English &lpar;AAC.5.1&rpar; ] - 1.8GB - ESub - GDFlix](https://www.1tamilmv.mov/index.php?/forums/topic/174744-no-hard-feelings-2023-english-hq-hdrip-1080p-x265-hevc-10bit-hindi-ddp51-english-aac51-18gb-esub-gdflix/&do=findComment&comment=351569)
 - [Thalaivaa &lpar;2013&rpar; SNXT WEB-DL DDP5.1 Esub x264 - 5.1 GB](https://www.1tamilmv.mov/index.php?/forums/topic/174743-thalaivaa-2013-snxt-web-dl-ddp51-esub-x264-51-gb/&do=findComment&comment=351568)
 - [Aadukalam &lpar;2011&rpar; SNXT WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 5.6 GB | 3.9 GB](https://www.1tamilmv.mov/index.php?/forums/topic/174742-aadukalam-2011-snxt-web-dl-ddp51-esubs-x264-1080p-720p-56-gb-39-gb/&do=findComment&comment=351567)
 - [Vishwaroopam 2 &lpar;2018&rpar; Tamil - TRUE WEB-DL - 1080p - AVC - DD5.1&lpar;160kbps&rpar; - 2.1GB - ESub [5 Years of Vishwaroopam 2]](https://www.1tamilmv.mov/index.php?/forums/topic/174741-vishwaroopam-2-2018-tamil-true-web-dl-1080p-avc-dd51160kbps-21gb-esub-5-years-of-vishwaroopam-2/&do=findComment&comment=351566)
-- [Aadavari Matalaku Arthale Verule &lpar;2007&rpar;.Telugu.1080p.DVD9Rip.x264.Untouched DD5.1.ESub - 2.8GB](https://www.1tamilmv.mov/index.php?/forums/topic/174734-aadavari-matalaku-arthale-verule-2007telugu1080pdvd9ripx264untouched-dd51esub-28gb/&do=findComment&comment=351565)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
