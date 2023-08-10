@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Jailer &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.mov/index.php?/forums/topic/174746-jailer-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=351581)
 - [Vedalam &lpar;2015&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 320Kbps&rpar; - 4.5GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174729-vedalam-2015-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-320kbps-45gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351580)
 - [📌 BUSINESSMAN &lpar;2012&rpar; &lpar;Music Video Album&rpar; - 1080P - UNTOUCHED BLU-RAY REUMX - AVC - LPCM / DD / DTS-HD® MA 5.1 @ 2.5Mbps - ESubs - 5.4GB](https://www.1tamilmv.mov/index.php?/forums/topic/174752-%F0%9F%93%8C-businessman-2012-music-video-album-1080p-untouched-blu-ray-reumx-avc-lpcm-dd-dts-hd%C2%AE-ma-51-25mbps-esubs-54gb/&do=findComment&comment=351579)
 - [Alluri &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174739-alluri-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351578)
 - [Satyaprem Ki Katha &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174740-satyaprem-ki-katha-2023-hindi-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=351577)
-- [King of Kotha Official Trailer &lpar;Multi language&rpar;| Dulquer Salmaan | Abhilash Joshiy | Jakes Bejoy](https://www.1tamilmv.mov/index.php?/forums/topic/174745-king-of-kotha-official-trailer-multi-language-dulquer-salmaan-abhilash-joshiy-jakes-bejoy/&do=findComment&comment=351570)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
