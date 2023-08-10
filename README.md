@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Friends Complete Collection &lpar;1994-2004&rpar; [S01 - S10] Merged - 1080p BluRay 10bit HEVC English DD 5.1 x265 Esub [Google Drive]](https://www.1tamilmv.mov/index.php?/forums/topic/174759-friends-complete-collection-1994-2004-s01-s10-merged-1080p-bluray-10bit-hevc-english-dd-51-x265-esub-google-drive/&do=findComment&comment=351616)
+- [Confidential Assignment 2: International &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Malayalam + Kor&rpar; - 2.5GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin + Mal&rpar; - 450MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174761-confidential-assignment-2-international-2022-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-malayalam-kor-25gb-12gb-x264-tam-tel-hin-mal-450mb-esub/&do=findComment&comment=351615)
 - [Thalaivaa &lpar;2013&rpar; SNXT WEB-DL DDP5.1 Esub x264 - 5.1 GB](https://www.1tamilmv.mov/index.php?/forums/topic/174743-thalaivaa-2013-snxt-web-dl-ddp51-esub-x264-51-gb/&do=findComment&comment=351614)
 - [Friends Complete Collection &lpar;1994-2004&rpar; [S01 - S10] Merged - 1080p BluRay 10bit HEVC English DD 5.1 x265 Esub [Google Drive]](https://www.1tamilmv.mov/index.php?/forums/topic/174759-friends-complete-collection-1994-2004-s01-s10-merged-1080p-bluray-10bit-hevc-english-dd-51-x265-esub-google-drive/&do=findComment&comment=351613)
 - [Por Thozhil &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174754-por-thozhil-2023-tamil-true-web-dl-1080p-720p-avc-hevc-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351612)
-- [Hidimbha &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.8GB - 2.4GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174760-hidimbha-2023-telugu-true-web-dl-4k-1080p-720p-avc-dd51-384kbps-38gb-24gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351611)
-- [Friends Complete Collection &lpar;1994-2004&rpar; [S01 - S10] Merged - 1080p BluRay 10bit HEVC English DD 5.1 x265 Esub [Google Drive]](https://www.1tamilmv.mov/index.php?/forums/topic/174759-friends-complete-collection-1994-2004-s01-s10-merged-1080p-bluray-10bit-hevc-english-dd-51-x265-esub-google-drive/&do=findComment&comment=351610)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
