@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [അനുരാഗ വിലോചനനായി.. അതിലേറെ മോഹിതനായി.. പടിമേലേ നില്‍ക്കും ചന്ദ്രനോ തിടുക്കം...](https://www.youtube.com/watch?v=-B9Ci1czEmg)
+- [Pulli poonkuyil | Pai Brothers 1995 | K. S .Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=uyeWxtpf7RE)
+- [Varthinkalaay Maaril | Pallavur Devanarayanan | Mammootty | Manthra | Yesudas | Raveendran](https://www.youtube.com/watch?v=H7JjQm-7jgI)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #August 10th mother mary devotional songs 2023](https://www.youtube.com/watch?v=Obig_7Y_Gvc)
 - [മനം നൊന്ത് പ്രാർത്ഥിക്കുമ്പോൾ കൂടെ പാടുന്ന ദിവ്യഗാനങ്ങൾ  | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=s7ukNLKp7CY)
 - [Japamala 10th of August 2023 # Mathavinte Japamala # Prakashathinte Rahasyangal 10th of August 2023](https://www.youtube.com/watch?v=xkMDtefjCCE)
-- [രാവിലെ പ്രാര്‍ത്ഥന 10th of August shorts  # Athiravile Prarthana 10th of August 2023 shorts](https://www.youtube.com/watch?v=Z0mDas-hXws)
-- [പ്രഭാത പ്രാര്‍ത്ഥന August 10 # Athiravile Prarthana 10th of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=2A7-4xk2PVs)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 10th August 2023](https://www.youtube.com/watch?v=UJIWqR5t9KM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
