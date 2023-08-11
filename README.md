@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 12th August 2023](https://www.youtube.com/watch?v=SbUwf5C0m8U)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=3USX5qheQtc)
 - [നിങ്ങളെ പ്രണയിക്കാൻ കൊതിപ്പിച്ച ദാസേട്ടൻറെ ഗാനങ്ങൾ | കെ ജെ യേശുദാസ് | K J Yesudas Romantic Hits](https://www.youtube.com/watch?v=p5mDVMKgcvQ)
 - [പരിശുദ്ധ അമ്മേ മാതാവേ , സഹരക്ഷകയാം കന്യകയേ ...](https://www.youtube.com/watch?v=nvNwUAfcJz8)
 - [Christian Melody Songs | Kester | Christian Songs Malayalam | Joji Johns | Manjeri](https://www.youtube.com/watch?v=ZNxKtjzANUQ)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 11th of August 2023](https://www.youtube.com/watch?v=EsAJ7XwckCc)
-- [അവരുടെ ജീവിതത്തിൽ എല്ലാമായിരുന്നു യേശു. യേശു നമുക്ക് ആരാണ്?  | Rev. Aneesh P Joseph | #shortvideo](https://www.youtube.com/watch?v=Ad27y5wx1Tk)
-- [Maraalike Maraalike | Azhakulla Saleena | K J Yesudas | Jayabharathi | #shorts](https://www.youtube.com/watch?v=3iM6rDkxNew)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
