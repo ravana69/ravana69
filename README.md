@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ദിവ്യകാരുണ്യമേ ബലിവേദിയിൽ| Fr. Vipin Kurishuthara CMI | Fr. Vinil Kurishuthara CMF | Shorts](https://www.youtube.com/watch?v=UgQ0ISBrfdU)
 - [രാവിലെ കേൾക്കാൻ ഏറ്റവും നല്ല ഗാനങ്ങൾ daily worship songs | christian devotional songs malayalam](https://www.youtube.com/watch?v=Dyn7qwPcs8Q)
 - [Songs Of The Week | KG Markose | Christian Devotional Songs Malayalam | Joji Johns | Kester](https://www.youtube.com/watch?v=C9X18fvbay0)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mother Mary daily prayer and songs Malayalam](https://www.youtube.com/watch?v=VHhI2w06XsI)
 - [Japamala 11th of August 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 11th of August 2023](https://www.youtube.com/watch?v=FbU-LdZD-Qc)
 - [രാവിലെ പ്രാര്‍ത്ഥന 11th of August shorts  # Athiravile Prarthana 11th of August 2023 shorts](https://www.youtube.com/watch?v=MhX0kOvHdPY)
-- [രാവിലെ പ്രാര്‍ത്ഥന August 11 # Athiravile Prarthana 11th of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=tVWRvA0IMxM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
