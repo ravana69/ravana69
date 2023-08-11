@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Hook up for #Aadharanjali | #Romancham | #SushinShyam | #JithuMadhavan | #shorts](https://www.youtube.com/watch?v=TNy7e-VvHqY)
 - [Uthradapooviliyil | Onam Song by K J Yesudas #shorts](https://www.youtube.com/watch?v=sX4inY4UzHE)
 - [Aniyathipraavinu  | Aniyathipraavu 1997 | S. Ramesan Nair | K. S. Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=lu8H0MLtin0)
 - [Manassil Viriyunna  | Beautiful song sung by K J Yesudas from the movie Madhuchandralekha #shorts](https://www.youtube.com/watch?v=FzNS-rxMmxM)
 - [Nanni Nalla Daivamae | Sonichen CMI | Kings & Queens Band | Worship Song](https://www.youtube.com/watch?v=Y-8gmapdzp8)
 - [ദിവ്യകാരുണ്യമേ ബലിവേദിയിൽ| Fr. Vipin Kurishuthara CMI | Fr. Vinil Kurishuthara CMF | Shorts](https://www.youtube.com/watch?v=UgQ0ISBrfdU)
-- [രാവിലെ കേൾക്കാൻ ഏറ്റവും നല്ല ഗാനങ്ങൾ daily worship songs | christian devotional songs malayalam](https://www.youtube.com/watch?v=Dyn7qwPcs8Q)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
