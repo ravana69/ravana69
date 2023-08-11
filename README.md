@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Maaveeran &lpar;2023&rpar; WEB-DL DDP5.1 Atmos Esubs x264 - 2160p | 1080p - 9 GB | 8.4 GB](https://www.1tamilmv.mov/index.php?/forums/topic/174780-maaveeran-2023-web-dl-ddp51-atmos-esubs-x264-2160p-1080p-9-gb-84-gb/&do=findComment&comment=351669)
 - [Por Thozhil &lpar;2023&rpar; TRUE WEB-DL - 1080p - AVC - UNTOUCHED - [Tamil + Telugu + Malayalam + Kannada + Hindi] - AAC2.0&lpar;128kbps&rpar; - 2.8GB - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174784-por-thozhil-2023-true-web-dl-1080p-avc-untouched-tamil-telugu-malayalam-kannada-hindi-aac20128kbps-28gb-esub/&do=findComment&comment=351667)
 - [Maaveeran &lpar;2023&rpar; AMZN WEB-DL - [4K, 1080p &amp; 720p &lpar;Tamil&rpar; - &lpar;DD+5.1 - 640Kbps&rpar; - 9GB - 7GB - 5.3GB - 3.7GB - 2.9GB - 1.9GB - 1.4GB &amp; 900MB] - H.264/265 - ESub - Leyon](https://www.1tamilmv.mov/index.php?/forums/topic/168660-maaveeran-2023-amzn-web-dl-4k-1080p-720p-tamil-dd51-640kbps-9gb-7gb-53gb-37gb-29gb-19gb-14gb-900mb-h264265-esub-leyon/&do=findComment&comment=351666)
 - [Red White &amp; Royal Blue &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Malayalam + Kannada + Eng&rpar; - 4.9GB - 3.4GB &amp; 1.9GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174783-red-white-royal-blue-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-malayalam-kannada-eng-49gb-34gb-19gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=351665)
 - [Por Thozhil &lpar;2023&rpar; SONYLIV WEB-DL - [1080p &amp; 720p - 2.8GB - 2.4GB - 2.3GB - 1.7GB - 1.4GB &amp; 900MB] - &lpar;AAC2.0 - 128Kbps&rpar; -  [Tamil + Telugu + Malayalam + Kannada + Hindi] - H.264/265 - ESub - Leyon](https://www.1tamilmv.mov/index.php?/forums/topic/169040-por-thozhil-2023-sonyliv-web-dl-1080p-720p-28gb-24gb-23gb-17gb-14gb-900mb-aac20-128kbps-tamil-telugu-malayalam-kannada-hindi-h264265-esub-leyon/&do=findComment&comment=351664)
-- [Naan &lpar;2012&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 4.5GB - ESub - GDFlix](https://www.1tamilmv.mov/index.php?/forums/topic/174782-naan-2012-tamil-true-web-dl-1080p-hq-avc-untouched-dd51-45gb-esub-gdflix/&do=findComment&comment=351663)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
