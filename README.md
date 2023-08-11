@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Adipurush &lpar;2023&rpar; 1080p AMZN WEB-DL Multi DDP5.1 Esubs x264 - 12 GB](https://www.1tamilmv.mov/index.php?/forums/topic/174781-adipurush-2023-1080p-amzn-web-dl-multi-ddp51-esubs-x264-12-gb/&do=findComment&comment=351662)
+- [Maaveeran &lpar;2023&rpar; WEB-DL DDP5.1 Atmos Esubs x264 - 2160p | 1080p - 9 GB | 8.4 GB](https://www.1tamilmv.mov/index.php?/forums/topic/174780-maaveeran-2023-web-dl-ddp51-atmos-esubs-x264-2160p-1080p-9-gb-84-gb/&do=findComment&comment=351661)
+- [Maaveeran &lpar;2023&rpar; TRUE WEB-DL - 1080p - AVC - UNTOUCHED - [Tamil + Telugu] - [DD+5.1&lpar;448kbps&rpar; Atmos + DD+5.1&lpar;640kbps&rpar;] - 9.5GB - ESub.mkv](https://www.1tamilmv.mov/index.php?/forums/topic/174779-maaveeran-2023-true-web-dl-1080p-avc-untouched-tamil-telugu-dd51448kbps-atmos-dd51640kbps-95gb-esubmkv/&do=findComment&comment=351660)
 - [Por Thozhil &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174754-por-thozhil-2023-tamil-true-web-dl-1080p-720p-avc-hevc-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351659)
 - [Adipurush &lpar;2023&rpar; TRUE WEB-DL - 1080p &amp; 720p - AVC - [Tam + Tel + Mal + Kan] - &lpar;DD+5.1 - 640Kbps&rpar; - 12GB &amp; 1.7GB - ESub - GDRIVE](https://www.1tamilmv.mov/index.php?/forums/topic/174778-adipurush-2023-true-web-dl-1080p-720p-avc-tam-tel-mal-kan-dd51-640kbps-12gb-17gb-esub-gdrive/&do=findComment&comment=351658)
-- [Maayon &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174766-maayon-2022-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351657)
-- [Adipurush &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174775-adipurush-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351656)
-- [Maaveeran &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 7GB - 5.3GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174764-maaveeran-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-7gb-53gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351655)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
