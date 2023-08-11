@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പണ്ടു കേട്ട് മതി മറന്ന് ഇപ്പോൾ വീണ്ടും ഓർമ്മയിലെത്തുന്ന മനോഹരഗാനങ്ങൾ | NISARI | EVERGREEN SONGS](https://www.youtube.com/watch?v=xBvFX8qA26c)
+- [Karukavayal Kuruvi | Dhruvam | SP Venkitesh | Shibu Chakravarthi | KS Chithra | Mammooty | Gauthami](https://www.youtube.com/watch?v=rywh8hdfqCw)
+- [Eriyunna Karalinte Video Song | Dileep | MG Sreekumar | S Ramesan Nair| Suresh Peters| Punjabi House](https://www.youtube.com/watch?v=v_p-6-HZf1U)
 - [Mazhamekha Jalakam - Lyric Video | Kopam Movie | Rajesh Vijay, Manjari | Saji Sreevalsam](https://www.youtube.com/watch?v=SMXaxxVis5c)
 - [Hook up for #Aadharanjali | #Romancham | #SushinShyam | #JithuMadhavan | #shorts](https://www.youtube.com/watch?v=TNy7e-VvHqY)
 - [Uthradapooviliyil | Onam Song by K J Yesudas #shorts](https://www.youtube.com/watch?v=sX4inY4UzHE)
-- [Aniyathipraavinu  | Aniyathipraavu 1997 | S. Ramesan Nair | K. S. Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=lu8H0MLtin0)
-- [Manassil Viriyunna  | Beautiful song sung by K J Yesudas from the movie Madhuchandralekha #shorts](https://www.youtube.com/watch?v=FzNS-rxMmxM)
-- [Nanni Nalla Daivamae | Sonichen CMI | Kings & Queens Band | Worship Song](https://www.youtube.com/watch?v=Y-8gmapdzp8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
