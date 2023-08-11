@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kudi Yedamaithe &lpar;2021&rpar; Complete S01 Merged HQ HDRip - [1080p - 720p - AVC - Telugu AAC 2.0 - 7.2GB - 2.6GB &amp; 1.5GB] [Google Drive]](https://www.1tamilmv.mov/index.php?/forums/topic/174795-kudi-yedamaithe-2021-complete-s01-merged-hq-hdrip-1080p-720p-avc-telugu-aac-20-72gb-26gb-15gb-google-drive/&do=findComment&comment=351701)
+- [Love Mocktail 2 &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Kannada] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174794-love-mocktail-2-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-kannada-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351700)
 - [📌 ADIPURUSH &lpar;2023&rpar; &lpar;Tel + Tam + Kan + Mal + Hin&rpar; MULTI &lpar;MUSIC VIDEO ALBUM&rpar; - AMZN - HQ 1080P - WEBDL - H264 - DDP 5.1 @ 640 Kbps - ESubs - 2.8GB](https://www.1tamilmv.mov/index.php?/forums/topic/174793-%F0%9F%93%8C-adipurush-2023-tel-tam-kan-mal-hin-multi-music-video-album-amzn-hq-1080p-webdl-h264-ddp-51-640-kbps-esubs-28gb/&do=findComment&comment=351699)
 - [📌 ADIPURUSH &lpar;2023&rpar; [Tel + Tam + Kan + Mal + Hin] MULTI &lpar;Music Video Album&rpar; - NF - HQ 1080P - WEBDL - AVC - DDP 5.1 @ 640 Kbps - ESubs - 2GB](https://www.1tamilmv.mov/index.php?/forums/topic/174792-%F0%9F%93%8C-adipurush-2023-tel-tam-kan-mal-hin-multi-music-video-album-nf-hq-1080p-webdl-avc-ddp-51-640-kbps-esubs-2gb/&do=findComment&comment=351698)
 - [Jailer &lpar;2023&rpar; Telugu - FLAC - 24Bit &amp; 16Bit - Sony Music - Anirudh Ravichander](https://www.1tamilmv.mov/index.php?/forums/topic/174791-jailer-2023-telugu-flac-24bit-16bit-sony-music-anirudh-ravichander/&do=findComment&comment=351697)
-- [Piriyatha Varam Vendum &lpar;2001&rpar;.Tamil.1080p.HDTV.x265.AAC2.0 - 4GB - GDRIVE](https://www.1tamilmv.mov/index.php?/forums/topic/106063-piriyatha-varam-vendum-2001tamil1080phdtvx265aac20-4gb-gdrive/&do=findComment&comment=351696)
-- [Heart of Stone &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Malayalam + Kannada + Eng&rpar; - 7.6GB - 2.8GB - 1.6GB &amp; 900MB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174787-heart-of-stone-2023-hd-original-audios-1080p-720p-avc-dd51-640kbps-tamil-telugu-hindi-malayalam-kannada-eng-76gb-28gb-16gb-900mb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=351695)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
