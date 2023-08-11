@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [📌 ADIPURUSH &lpar;2023&rpar; &lpar;Tel + Tam + Kan + Mal + Hin&rpar; MULTI &lpar;MUSIC VIDEO ALBUM&rpar; - AMZN - HQ 1080P - WEBDL - H264 - DDP 5.1 @ 640 Kbps - ESubs - 2.8GB](https://www.1tamilmv.mov/index.php?/forums/topic/174793-%F0%9F%93%8C-adipurush-2023-tel-tam-kan-mal-hin-multi-music-video-album-amzn-hq-1080p-webdl-h264-ddp-51-640-kbps-esubs-28gb/&do=findComment&comment=351699)
+- [📌 ADIPURUSH &lpar;2023&rpar; [Tel + Tam + Kan + Mal + Hin] MULTI &lpar;Music Video Album&rpar; - NF - HQ 1080P - WEBDL - AVC - DDP 5.1 @ 640 Kbps - ESubs - 2GB](https://www.1tamilmv.mov/index.php?/forums/topic/174792-%F0%9F%93%8C-adipurush-2023-tel-tam-kan-mal-hin-multi-music-video-album-nf-hq-1080p-webdl-avc-ddp-51-640-kbps-esubs-2gb/&do=findComment&comment=351698)
 - [Jailer &lpar;2023&rpar; Telugu - FLAC - 24Bit &amp; 16Bit - Sony Music - Anirudh Ravichander](https://www.1tamilmv.mov/index.php?/forums/topic/174791-jailer-2023-telugu-flac-24bit-16bit-sony-music-anirudh-ravichander/&do=findComment&comment=351697)
 - [Piriyatha Varam Vendum &lpar;2001&rpar;.Tamil.1080p.HDTV.x265.AAC2.0 - 4GB - GDRIVE](https://www.1tamilmv.mov/index.php?/forums/topic/106063-piriyatha-varam-vendum-2001tamil1080phdtvx265aac20-4gb-gdrive/&do=findComment&comment=351696)
 - [Heart of Stone &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Malayalam + Kannada + Eng&rpar; - 7.6GB - 2.8GB - 1.6GB &amp; 900MB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174787-heart-of-stone-2023-hd-original-audios-1080p-720p-avc-dd51-640kbps-tamil-telugu-hindi-malayalam-kannada-eng-76gb-28gb-16gb-900mb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=351695)
-- [Maaveeran &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 7GB - 5.3GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174764-maaveeran-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-7gb-53gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351694)
-- [Maayon &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174766-maayon-2022-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351693)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
