@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Yeshuvin Hridayam | Santhapamakattunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=G-cCKdf1SoU)
+- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=hkkPjiykiIs)
 - [Puthumazhaye Paadunnu | Vidhu Prathap | Sam Shiva | August 27 | Ajit Ravi Pegasus | Jebitha Ajit](https://www.youtube.com/watch?v=PplAVP4Q0nI)
 - [പണ്ടു കേട്ട് മതി മറന്ന് ഇപ്പോൾ വീണ്ടും ഓർമ്മയിലെത്തുന്ന മനോഹരഗാനങ്ങൾ | NISARI | EVERGREEN SONGS](https://www.youtube.com/watch?v=xBvFX8qA26c)
 - [Karukavayal Kuruvi | Dhruvam | SP Venkitesh | Shibu Chakravarthi | KS Chithra | Mammooty | Gauthami](https://www.youtube.com/watch?v=rywh8hdfqCw)
 - [Eriyunna Karalinte Video Song | Dileep | MG Sreekumar | S Ramesan Nair| Suresh Peters| Punjabi House](https://www.youtube.com/watch?v=v_p-6-HZf1U)
-- [Mazhamekha Jalakam - Lyric Video | Kopam Movie | Rajesh Vijay, Manjari | Saji Sreevalsam](https://www.youtube.com/watch?v=SMXaxxVis5c)
-- [Hook up for #Aadharanjali | #Romancham | #SushinShyam | #JithuMadhavan | #shorts](https://www.youtube.com/watch?v=TNy7e-VvHqY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
