@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഓക്സിജൻ ഓണം ഓഫർ 2023 | Oxygen Special Onam Offer 2023 | ONAM SPECIAL OFFER 2023  | DULQUER SALMAAN](https://www.youtube.com/watch?v=8G0Pru02wN0)
+- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=P9_oR6l2j0c)
 - [ഒരു പാട്ട് കേൾക്കണമെന്ന് മനസിൽ തോന്നുമ്പോൾ ആദ്യം ഓടിയെത്തുന്ന പുതിയ സിനിമകളിലെ തകർപ്പൻ ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=rULd-Zmm11w)
 - [മഴത്തുള്ളി കിലുക്കം പോൽ മനസിൽ ശ്രുതിയുണർത്തും മലയാളസിനിമയിലെ കുളിരുകോരും ഗാനങ്ങൾ | EVERGREEN HITS](https://www.youtube.com/watch?v=ldbzbxPtD78)
 - [Muthumani Palunkuvallam | Aromalunni | Vayalar | G Devarajan | KJ Yesudas | Prem Nazir | Old is Gold](https://www.youtube.com/watch?v=lldPD-TlaTo)
 - [Maine Pyar Kiya Video Song | Dileep | Vidyasagar | SP Balasubrahmanyam | Nadirsha | CID Moosa](https://www.youtube.com/watch?v=c03vO1zmDC4)
-- [Chenthamara Theno | Karaoke Video | 916 | Asif Ali | Haricharan  | M Jayachandran | Rafeeque Ahammed](https://www.youtube.com/watch?v=F1MgT0p3pTk)
-- [Step up for #Aadharanjali | #Romancham | #SushinShyam | #JithuMadhavan | #shorts](https://www.youtube.com/watch?v=BvUVVs7unKU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
