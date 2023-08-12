@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aakasham Pole | Elizabeth Raju #manoramachristiandevotionalsongs #christiandevotionalsongs](https://www.youtube.com/watch?v=Pu2bjz8JHhQ)
+- [Aakashangalil | Elizabeth Raju #manoramachristiandevotionalsongs #christiandevotionalsongs](https://www.youtube.com/watch?v=SqRbqXBzee0)
+- [Malayalam Christian Songs | Songs of Faith | Non Stop Evergreen Christian Devotional Songs](https://www.youtube.com/watch?v=2-eAir8nHqk)
 - [Christian Video Song Malayalam | Rithuraj | Shibu Antony | Christian Melody Songs | Joji Johns](https://www.youtube.com/watch?v=iE1oFWRtMks)
 - [Japamala 12th of August  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 12th of August 23](https://www.youtube.com/watch?v=iWSJGi-qPjQ)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #August 12th mother mary christian devotionl songs](https://www.youtube.com/watch?v=rES7S7-0t-0)
-- [രാവിലെ പ്രാര്‍ത്ഥന 12th of August shorts  # Athiravile Prarthana 12th of August 2023 shorts](https://www.youtube.com/watch?v=buxdcpJfIqY)
-- [പ്രഭാത പ്രാര്‍ത്ഥന August 12 # Athiravile Prarthana 12th of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=XQ4jeX2voEE)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 12th August 2023](https://www.youtube.com/watch?v=SbUwf5C0m8U)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
