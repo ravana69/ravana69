@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മഴത്തുള്ളി കിലുക്കം പോൽ മനസിൽ ശ്രുതിയുണർത്തും മലയാളസിനിമയിലെ കുളിരുകോരും ഗാനങ്ങൾ | EVERGREEN HITS](https://www.youtube.com/watch?v=ldbzbxPtD78)
+- [Muthumani Palunkuvallam | Aromalunni | Vayalar | G Devarajan | KJ Yesudas | Prem Nazir | Old is Gold](https://www.youtube.com/watch?v=lldPD-TlaTo)
 - [Maine Pyar Kiya Video Song | Dileep | Vidyasagar | SP Balasubrahmanyam | Nadirsha | CID Moosa](https://www.youtube.com/watch?v=c03vO1zmDC4)
 - [Chenthamara Theno | Karaoke Video | 916 | Asif Ali | Haricharan  | M Jayachandran | Rafeeque Ahammed](https://www.youtube.com/watch?v=F1MgT0p3pTk)
 - [Step up for #Aadharanjali | #Romancham | #SushinShyam | #JithuMadhavan | #shorts](https://www.youtube.com/watch?v=BvUVVs7unKU)
 - [Uyartheedum Njan Ente Kankal | Shorts Video | Nithya Mammen](https://www.youtube.com/watch?v=u_jkraCsFwQ)
-- [Aniyathipraavinu  | Aniyathipraavu 1997 | S. Ramesan Nair | K. S. Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=qkRvtTcfMoc)
-- [Puthuvettam Thedi | Mazhathullikilukkam | Dileep | Bharathi | Suresh Peters | MG Sreekumar | Sharada](https://www.youtube.com/watch?v=XewJro2CX78)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
