@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 13th August 2023](https://www.youtube.com/watch?v=r0rD2MZO-ok)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=heRIA-YwVOk)
 - [ഓമനയായൊരു കുഞ്ഞോമൽ പൈതലെ മാറോടണക്കും സ്നേഹ വാത്സല്യമേ...](https://www.youtube.com/watch?v=BZhRfCqyhU4)
 - [Padakali Chandi | Yodha | Mohanlal | Jagathy | A.R.Rahman | Yesuadas | Sangeeth Sivan](https://www.youtube.com/watch?v=YUIaAWHB9Ag)
 - [Poomaariyil|Jhonnie walker|Jeet Upendra|Rani|Mammotty|](https://www.youtube.com/watch?v=r0TX4eyUP34)
 - [Christian Superhit Songs | Wilson Piravom | Midhila Michael | Christian Melody Songs | Joji Johns](https://www.youtube.com/watch?v=6zRSBXrwesE)
-- [ഓക്സിജൻ സ്പെഷ്യൽ ഓണം ഓഫർ 2023 | Oxygen Special Onam Offer 2023 | ONAM 2023 | Dulquer Salmaan](https://www.youtube.com/watch?v=hlxK_WnlOwg)
-- [നിലയ്ക്കാത്ത ഗാനമാകട്ടെ ഈ ജീവിതം | Rev. Aneesh P Joseph | #jesus #shorts #shortvideostatus](https://www.youtube.com/watch?v=jsryXhn7l2E)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
