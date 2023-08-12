@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chenthamara Theno | Karaoke Video | 916 | Asif Ali | Haricharan  | M Jayachandran | Rafeeque Ahammed](https://www.youtube.com/watch?v=F1MgT0p3pTk)
+- [Step up for #Aadharanjali | #Romancham | #SushinShyam | #JithuMadhavan | #shorts](https://www.youtube.com/watch?v=BvUVVs7unKU)
 - [Aniyathipraavinu  | Aniyathipraavu 1997 | S. Ramesan Nair | K. S. Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=qkRvtTcfMoc)
 - [Puthuvettam Thedi | Mazhathullikilukkam | Dileep | Bharathi | Suresh Peters | MG Sreekumar | Sharada](https://www.youtube.com/watch?v=XewJro2CX78)
 - [Ee Theruvile | Achanoru Vazha Vechu | Vineeth Sreenivasan  #shorts](https://www.youtube.com/watch?v=-Z7rvTVIg2o)
 - [Nee Ente Jeevanam | Christian Devotional Shorts  #christiandevotionalsongs #manoramamusic](https://www.youtube.com/watch?v=BCJ2nHGq5qc)
-- [Aakasham Pole | Elizabeth Raju #manoramachristiandevotionalsongs #christiandevotionalsongs](https://www.youtube.com/watch?v=Pu2bjz8JHhQ)
-- [Aakashangalil | Elizabeth Raju #manoramachristiandevotionalsongs #christiandevotionalsongs](https://www.youtube.com/watch?v=SqRbqXBzee0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
