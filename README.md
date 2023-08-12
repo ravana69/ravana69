@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Maaveeran &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174286-maaveeran-2023-hindi-true-web-dl-1080p-720p-avc-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=351705)
 - [[144FPS|60FPS].Spider-Man: Across the Spider-Verse &lpar;2023&rpar; 1080p  iT WEBRip Multi DDP5.1.Atmos H.265 - 1080p [144FPS|60FPS] - 23.4 GB | 14.8 GB](https://www.1tamilmv.mov/index.php?/forums/topic/174797-144fps60fpsspider-man-across-the-spider-verse-2023-1080p-it-webrip-multi-ddp51atmos-h265-1080p-144fps60fps-234-gb-148-gb/&do=findComment&comment=351704)
 - [Maayon &lpar;2022&rpar; 1080p AMZN WEB-DL DDP5.1 Esubs x264 - 7.87 GB](https://www.1tamilmv.mov/index.php?/forums/topic/174796-maayon-2022-1080p-amzn-web-dl-ddp51-esubs-x264-787-gb/&do=findComment&comment=351703)
 - [Adipurush 2023 AMZN/NF WEB DL Multi - [Tamil + Telugu + Hindi + Malayalam + Kannada] - H264/H265 - DDP5.1&lpar;640kbps&rpar; - [1080p &amp; 720p - 11GB - 7GB - 4.5GB - 1.7GB] [GDrive]](https://www.1tamilmv.mov/index.php?/forums/topic/164966-adipurush-2023-amznnf-web-dl-multi-tamil-telugu-hindi-malayalam-kannada-h264h265-ddp51640kbps-1080p-720p-11gb-7gb-45gb-17gb-gdrive/&do=findComment&comment=351702)
 - [Kudi Yedamaithe &lpar;2021&rpar; Complete S01 Merged HQ HDRip - [1080p - 720p - AVC - Telugu AAC 2.0 - 7.2GB - 2.6GB &amp; 1.5GB] [Google Drive]](https://www.1tamilmv.mov/index.php?/forums/topic/174795-kudi-yedamaithe-2021-complete-s01-merged-hq-hdrip-1080p-720p-avc-telugu-aac-20-72gb-26gb-15gb-google-drive/&do=findComment&comment=351701)
-- [Love Mocktail 2 &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Kannada] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174794-love-mocktail-2-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-kannada-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351700)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
