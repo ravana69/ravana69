@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Adipurush 2023 AMZN/NF WEB DL Multi - [Tamil + Telugu + Hindi + Malayalam + Kannada] - H264/H265 - DDP5.1&lpar;640kbps&rpar; - [1080p &amp; 720p - 11GB - 7GB - 4.5GB - 1.7GB] [GDrive]](https://www.1tamilmv.mov/index.php?/forums/topic/164966-adipurush-2023-amznnf-web-dl-multi-tamil-telugu-hindi-malayalam-kannada-h264h265-ddp51640kbps-1080p-720p-11gb-7gb-45gb-17gb-gdrive/&do=findComment&comment=351702)
 - [Kudi Yedamaithe &lpar;2021&rpar; Complete S01 Merged HQ HDRip - [1080p - 720p - AVC - Telugu AAC 2.0 - 7.2GB - 2.6GB &amp; 1.5GB] [Google Drive]](https://www.1tamilmv.mov/index.php?/forums/topic/174795-kudi-yedamaithe-2021-complete-s01-merged-hq-hdrip-1080p-720p-avc-telugu-aac-20-72gb-26gb-15gb-google-drive/&do=findComment&comment=351701)
 - [Love Mocktail 2 &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Kannada] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174794-love-mocktail-2-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-kannada-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351700)
 - [📌 ADIPURUSH &lpar;2023&rpar; &lpar;Tel + Tam + Kan + Mal + Hin&rpar; MULTI &lpar;MUSIC VIDEO ALBUM&rpar; - AMZN - HQ 1080P - WEBDL - H264 - DDP 5.1 @ 640 Kbps - ESubs - 2.8GB](https://www.1tamilmv.mov/index.php?/forums/topic/174793-%F0%9F%93%8C-adipurush-2023-tel-tam-kan-mal-hin-multi-music-video-album-amzn-hq-1080p-webdl-h264-ddp-51-640-kbps-esubs-28gb/&do=findComment&comment=351699)
 - [📌 ADIPURUSH &lpar;2023&rpar; [Tel + Tam + Kan + Mal + Hin] MULTI &lpar;Music Video Album&rpar; - NF - HQ 1080P - WEBDL - AVC - DDP 5.1 @ 640 Kbps - ESubs - 2GB](https://www.1tamilmv.mov/index.php?/forums/topic/174792-%F0%9F%93%8C-adipurush-2023-tel-tam-kan-mal-hin-multi-music-video-album-nf-hq-1080p-webdl-avc-ddp-51-640-kbps-esubs-2gb/&do=findComment&comment=351698)
-- [Jailer &lpar;2023&rpar; Telugu - FLAC - 24Bit &amp; 16Bit - Sony Music - Anirudh Ravichander](https://www.1tamilmv.mov/index.php?/forums/topic/174791-jailer-2023-telugu-flac-24bit-16bit-sony-music-anirudh-ravichander/&do=findComment&comment=351697)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
