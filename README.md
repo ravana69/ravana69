@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Poomaariyil|Jhonnie walker|Jeet Upendra|Rani|Mammotty|](https://www.youtube.com/watch?v=r0TX4eyUP34)
+- [Christian Superhit Songs | Wilson Piravom | Midhila Michael | Christian Melody Songs | Joji Johns](https://www.youtube.com/watch?v=6zRSBXrwesE)
 - [ഓക്സിജൻ സ്പെഷ്യൽ ഓണം ഓഫർ 2023 | Oxygen Special Onam Offer 2023 | ONAM 2023 | Dulquer Salmaan](https://www.youtube.com/watch?v=hlxK_WnlOwg)
 - [നിലയ്ക്കാത്ത ഗാനമാകട്ടെ ഈ ജീവിതം | Rev. Aneesh P Joseph | #jesus #shorts #shortvideostatus](https://www.youtube.com/watch?v=jsryXhn7l2E)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 12th of August 2023](https://www.youtube.com/watch?v=7skH9RT4PR8)
 - [Araliyum kadaliyum Video Song | Jaathakam | KS Chithra |Jayaram | Sithara |](https://www.youtube.com/watch?v=aWGKOCINCyU)
-- [Manimaran Porum | Suresh Gopi | Vijayasanthi | Mano | ONV Kurupp | Ilaiyaraja | Kallu Kondoru Pennu](https://www.youtube.com/watch?v=Zlq6I6-bAnU)
-- [Shubha Vibhathamayi | Kurukkan | KS Harisankar | Unni Elayaraja | Manu Manjith](https://www.youtube.com/watch?v=_5Iyx8JeFeo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
