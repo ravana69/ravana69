@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Fabelmans &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 256Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.8GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174757-the-fabelmans-2022-bluray-original-audios-1080p-720p-x264-dd51-256kbps-tamil-telugu-hindi-eng-28gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=351736)
 - [Gadar 2  &lpar;2023&rpar; Hindi HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.mov/index.php?/forums/topic/174751-gadar-2-2023-hindi-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=351735)
 - [OMG 2 &lpar;2023&rpar; Hindi HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.mov/index.php?/forums/topic/174750-omg-2-2023-hindi-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=351734)
 - [Love Mocktail 2 &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Kannada] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174794-love-mocktail-2-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-kannada-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351733)
 - [Katha Kanchiki Manam Intiki &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174801-katha-kanchiki-manam-intiki-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351732)
-- [[18+] &lpar;Culpa Mia&rpar; No Hard Feelings &lpar;2023&rpar;  Web-DL 1080p, 720p &amp; 480p - DD5.1 - [ English + Hindi ] - 5.60GB - 2.1GB, 1GB &amp; 450MB ~ Jacksparrow063 - MSub](https://www.1tamilmv.mov/index.php?/forums/topic/174753-18-culpa-mia-no-hard-feelings-2023-web-dl-1080p-720p-480p-dd51-english-hindi-560gb-21gb-1gb-450mb-~-jacksparrow063-msub/&do=findComment&comment=351731)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
