@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Jailer &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.mov/index.php?/forums/topic/174746-jailer-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=351745)
+- [Heart of Stone &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Malayalam + Kannada + Eng&rpar; - 7.6GB - 2.8GB - 1.6GB &amp; 900MB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174787-heart-of-stone-2023-hd-original-audios-1080p-720p-avc-dd51-640kbps-tamil-telugu-hindi-malayalam-kannada-eng-76gb-28gb-16gb-900mb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=351744)
 - [Jailer &lpar;2023&rpar; Telugu - FLAC - 24Bit &amp; 16Bit - Sony Music - Anirudh Ravichander](https://www.1tamilmv.mov/index.php?/forums/topic/174791-jailer-2023-telugu-flac-24bit-16bit-sony-music-anirudh-ravichander/&do=findComment&comment=351743)
 - [Cobweb &lpar;2023&rpar; English - TRUE WEB-DL - 4K &amp; 1080p - HEVC / AVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 9.5GB &amp; 4.6GB - MSub](https://www.1tamilmv.mov/index.php?/forums/topic/174813-cobweb-2023-english-true-web-dl-4k-1080p-hevc-avc-untouched-dd51640kbps-95gb-46gb-msub/&do=findComment&comment=351742)
 - [Swagathaanjali &lpar;From &quot;Chandramukhi&quot; 2&rpar; Master Quality 24bit - FLAC - M. M. Keeravani Musical - 48 MB](https://www.1tamilmv.mov/index.php?/forums/topic/174811-swagathaanjali-from-chandramukhi-2-master-quality-24bit-flac-m-m-keeravani-musical-48-mb/&do=findComment&comment=351741)
-- [Sethu &lpar;1999&rpar; Tamil - PYD DVD - 1080p 10bit - HEVC - x265 - DD2.0&lpar;128kbps&rpar; - 1.5GB - HC-ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174812-sethu-1999-tamil-pyd-dvd-1080p-10bit-hevc-x265-dd20128kbps-15gb-hc-esub/&do=findComment&comment=351740)
-- [Swagathaanjali &lpar;From &quot;Chandramukhi&quot; 2&rpar; Master Quality 24bit - FLAC - M. M. Keeravani Musical - 48 MB](https://www.1tamilmv.mov/index.php?/forums/topic/174811-swagathaanjali-from-chandramukhi-2-master-quality-24bit-flac-m-m-keeravani-musical-48-mb/&do=findComment&comment=351739)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
