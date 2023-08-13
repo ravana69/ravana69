@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Sethu &lpar;1999&rpar; Tamil - PYD DVD - 1080p 10bit - HEVC - x265 - DD2.0&lpar;128kbps&rpar; - 1.5GB - HC-ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174812-sethu-1999-tamil-pyd-dvd-1080p-10bit-hevc-x265-dd20128kbps-15gb-hc-esub/&do=findComment&comment=351740)
 - [Swagathaanjali &lpar;From &quot;Chandramukhi&quot; 2&rpar; Master Quality 24bit - FLAC - M. M. Keeravani Musical - 48 MB](https://www.1tamilmv.mov/index.php?/forums/topic/174811-swagathaanjali-from-chandramukhi-2-master-quality-24bit-flac-m-m-keeravani-musical-48-mb/&do=findComment&comment=351739)
 - [[4K] Por Thozhil &lpar;2023&rpar; 2160p Sony WEB-DL Multi DDP5.1 Atmos Esubs x265 HEVC - HDR10-DV | SDR - 10.1 GB | 8.9 GB](https://www.1tamilmv.mov/index.php?/forums/topic/174810-4k-por-thozhil-2023-2160p-sony-web-dl-multi-ddp51-atmos-esubs-x265-hevc-hdr10-dv-sdr-101-gb-89-gb/&do=findComment&comment=351738)
 - [Invincible &lpar;2021&rpar; Complete S01 EP &lpar;01-08&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada + Eng] - &lpar;DD5.1 - 192Kbps&rpar; - 6.9GB - 3GB &amp; 900MB] - ESub [Google Drive]](https://www.1tamilmv.mov/index.php?/forums/topic/174809-invincible-2021-complete-s01-ep-01-08-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-eng-dd51-192kbps-69gb-3gb-900mb-esub-google-drive/&do=findComment&comment=351737)
 - [The Fabelmans &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 256Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.8GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174757-the-fabelmans-2022-bluray-original-audios-1080p-720p-x264-dd51-256kbps-tamil-telugu-hindi-eng-28gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=351736)
-- [Gadar 2  &lpar;2023&rpar; Hindi HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.mov/index.php?/forums/topic/174751-gadar-2-2023-hindi-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=351735)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
