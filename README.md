@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Priyathame Shakunthale | Beautifu Song by K J Yesudas #shorts](https://www.youtube.com/watch?v=R6s5bl4x10s)
+- [Ennum Ninne | Aniyathipraavu 1997 | S. Ramesan Nair | Yesudas, Sujatha Mohan | Malayalam Movie Song](https://www.youtube.com/watch?v=H6RFb0utgek)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം August 13th daily mother Mary songs](https://www.youtube.com/watch?v=_KOGielZj_k)
 - [Japamala 13th of August 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 13th of August 2023](https://www.youtube.com/watch?v=__NAIHzw4_w)
 - [എല്ലാ ദിവസവും കേട്ട് പ്രാർത്ഥിക്കുന്ന ഗാനങ്ങൾ | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=I8GkQaQfnTc)
 - [രാവിലെ പ്രാര്‍ത്ഥന 13th of August shorts  # Athiravile Prarthana 13th of August 2023 shorts](https://www.youtube.com/watch?v=gBlWf23VJ1Y)
-- [രാവിലെ പ്രാര്‍ത്ഥന August 13 # Athiravile Prarthana 13th of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=GuZ25r0jGXs)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 13th August 2023](https://www.youtube.com/watch?v=r0rD2MZO-ok)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
