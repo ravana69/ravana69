@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Simhadri &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.4GB - MMI Video](https://www.1tamilmv.mov/index.php?/forums/topic/174819-simhadri-2003-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-64gb-mmi-video/&do=findComment&comment=351759)
+- [Petta &lpar;2019&rpar; Original Motion Picture Soundtrack - 16Bit - FLAC - 200MB](https://www.1tamilmv.mov/index.php?/forums/topic/174820-petta-2019-original-motion-picture-soundtrack-16bit-flac-200mb/&do=findComment&comment=351758)
 - [Simhadri &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.4GB - MMI Video](https://www.1tamilmv.mov/index.php?/forums/topic/174819-simhadri-2003-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-64gb-mmi-video/&do=findComment&comment=351757)
 - [Simhadri &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.4GB - MMI Video](https://www.1tamilmv.mov/index.php?/forums/topic/174819-simhadri-2003-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-64gb-mmi-video/&do=findComment&comment=351756)
 - [Bahubali - The Beginning &lpar;2015&rpar; Telugu - 1080p - German Limited Edition - Complete - BluRay - AVC - DTS - HD - 43GB](https://www.1tamilmv.mov/index.php?/forums/topic/164761-bahubali-the-beginning-2015-telugu-1080p-german-limited-edition-complete-bluray-avc-dts-hd-43gb/&do=findComment&comment=351755)
-- [Dark &lpar;2017 - 2020&rpar; Complete S01 - S03 Merged WEB-Rip - [1080p - 720p - HEVC - [Germany + English] - &lpar;HE-AAC 6CH&rpar; - x265 ESub [Google Drive]](https://www.1tamilmv.mov/index.php?/forums/topic/174818-dark-2017-2020-complete-s01-s03-merged-web-rip-1080p-720p-hevc-germany-english-he-aac-6ch-x265-esub-google-drive/&do=findComment&comment=351754)
-- [The Kashmir Files Unreported &lpar;2023&rpar; S01 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi] - &lpar;AAC 2.0&rpar; - 2.9GB - 1.5GB &amp; 1GB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174814-the-kashmir-files-unreported-2023-s01-ep-01-07-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-aac-20-29gb-15gb-1gb-esub/&do=findComment&comment=351753)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
