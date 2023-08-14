@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Naan &lpar;2012&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 4.5GB - ESub - GDFlix](https://www.1tamilmv.mov/index.php?/forums/topic/174782-naan-2012-tamil-true-web-dl-1080p-hq-avc-untouched-dd51-45gb-esub-gdflix/&do=findComment&comment=351773)
+- [Demonte Colony &lpar;2015&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 3.7GB - ESub - GDFlix](https://www.1tamilmv.mov/index.php?/forums/topic/174816-demonte-colony-2015-tamil-true-web-dl-1080p-avc-untouched-dd51-37gb-esub-gdflix/&do=findComment&comment=351772)
+- [Invincible &lpar;2021&rpar; Complete S01 EP &lpar;01-08&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada + Eng] - &lpar;DD5.1 - 192Kbps&rpar; - 6.9GB - 3GB &amp; 900MB] - ESub [Google Drive]](https://www.1tamilmv.mov/index.php?/forums/topic/174809-invincible-2021-complete-s01-ep-01-08-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-eng-dd51-192kbps-69gb-3gb-900mb-esub-google-drive/&do=findComment&comment=351771)
+- [Amala &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174821-amala-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-25gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=351770)
 - [Jeem Boom Bhaa &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 2.5GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.mov/index.php?/forums/topic/174823-jeem-boom-bhaa-2023-tamil-true-web-dl-1080p-720p-avc-hevc-aac-20-25gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=351769)
-- [📌 IRANDAM ULAGAM &lpar;Varna&rpar; &lpar;2013&rpar; &lpar;Music Video Album&rpar; - 1080P - UNTOUCHED BluRay REMUX  - AVC - DTS-HD® MA 5.1 - ESubs - 6GB](https://www.1tamilmv.mov/index.php?/forums/topic/174826-%F0%9F%93%8C-irandam-ulagam-varna-2013-music-video-album-1080p-untouched-bluray-remux-avc-dts-hd%C2%AE-ma-51-esubs-6gb/&do=findComment&comment=351768)
-- [Jhonny &lpar;1984&rpar; Tamil 576p AMZN WEB-DL DDP2.0 X265 HEVC - 1.66 GB](https://www.1tamilmv.mov/index.php?/forums/topic/174825-jhonny-1984-tamil-576p-amzn-web-dl-ddp20-x265-hevc-166-gb/&do=findComment&comment=351767)
-- [Amala &lpar;2023&rpar; AMZN WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 5.4 GB | 1.6 GB](https://www.1tamilmv.mov/index.php?/forums/topic/174824-amala-2023-amzn-web-dl-ddp51-esubs-x264-1080p-720p-54-gb-16-gb/&do=findComment&comment=351766)
-- [Demonte Colony &lpar;2015&rpar; Tamil JIO/ SUNXT WEB-DL - [1080p - 720p - H.264 - &lpar;DD+5.1 / AAC2.0&rpar; - 6.2GB - 3.6GB - 1.9GB - 1GB] - ESub - Leyon](https://www.1tamilmv.mov/index.php?/forums/topic/168402-demonte-colony-2015-tamil-jio-sunxt-web-dl-1080p-720p-h264-dd51-aac20-62gb-36gb-19gb-1gb-esub-leyon/&do=findComment&comment=351765)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
