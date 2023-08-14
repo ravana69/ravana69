@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കനിവിൻ ഉറവയാം നാഥേ|kanivin uravayam nadhe|OWN MEDIA MUSIC|BASTIN AUGUSTIN|JOY CHERUVATHOOR|GOVIND |](https://www.youtube.com/watch?v=X9jUzmsk5Ag)
+- [ഭാരതമെന്നാല്‍ പാരിന്‍ നടുവില്‍ | Independence Day Greetings | Mohanlal, Mammootty | Bharathamennal](https://www.youtube.com/watch?v=8R9PRRqhIrw)
+- [Sonare Sonare Video Song | Punjabi House | Dileep | MG Sreekumar | Suresh Peters | S Ramesan Nair](https://www.youtube.com/watch?v=4oK5WJ_MWTM)
 - [Swargaloka Nayakan | Souhrudham | Chunakkara Ramankutty | Shyam | KJ Yesudas | Mukesh | Urvashi](https://www.youtube.com/watch?v=zvkmraammC4)
 - [Thamburu Kulir Choodiyo  | Soorya Gayathri | Mohanlal | Urvashi | Anu Anand - Raveendran Hits](https://www.youtube.com/watch?v=gX84Jqd9yUs)
 - [മാതാവിന്റെ സ്വർഗ്ഗാരോപണ തിരുനാൾ സ്പെഷ്യൽ ഗാനങ്ങൾ | Kester | Mariyan Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=1dcqBqlsEL0)
-- [Oru Nooru Ninavukal  | Anuragam | Najeem Arshad | Bhadra Rejin | Joel Johns  | Titto P Thankachen](https://www.youtube.com/watch?v=xDtcQj1Cr68)
-- [സ്വർഗ്ഗാരോപണ തിരുനാൾ ഗാനങ്ങൾ # Feast of the Assumption of the Virgin Mary 15th August 2023 Songs](https://www.youtube.com/watch?v=eD2xFoHOXNY)
-- [മനുഷ്യന്റെ നൊമ്പരങ്ങളെ മനസ്സിലാക്കുക | Rev. Aneesh P Joseph | #shortvideo #shorts #jesusshorts](https://www.youtube.com/watch?v=aU7KB1TMmKo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
