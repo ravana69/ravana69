@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Swarnamukiloru | Mr.Marumakan | Dileep | Sanusha | Suresh Peters | Khusbu | Nedumudi Venu](https://www.youtube.com/watch?v=2pBxTpmVKg0)
 - [Christian Morning Prayer Songs | Kester | Vani jayaram | Prabhatha Geethangal | Christian SOngs](https://www.youtube.com/watch?v=maOKcsy9o-Q)
 - [Japamala 14th of August  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 14th of August 23](https://www.youtube.com/watch?v=9IkfXlS5zZM)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #August 14th 2023 #mother Mary devotional songs](https://www.youtube.com/watch?v=zA_Ue1VszV8)
 - [രാവിലെ പ്രാര്‍ത്ഥന 14th of August shorts  # Athiravile Prarthana 14th of August 2023 shorts](https://www.youtube.com/watch?v=HZw4vA5_Vv0)
 - [പ്രഭാത പ്രാര്‍ത്ഥന August 14 # Athiravile Prarthana 14th of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=iTRLaAW8hPc)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 14th August 2023](https://www.youtube.com/watch?v=Loi_Sis3_1M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
