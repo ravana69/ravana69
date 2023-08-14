@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Taali &lpar;2023&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;AAC 2.0&rpar; - 3.9GB - 1.7GB &amp; 900MB]](https://www.1tamilmv.mov/index.php?/forums/topic/174833-taali-2023-s01-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-aac-20-39gb-17gb-900mb/&do=findComment&comment=351806)
 - [Jailer &lpar;2023&rpar; Tamil New HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.mov/index.php?/forums/topic/174786-jailer-2023-tamil-new-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=351805)
 - [Jackie Chan&#39;s Adventures Season 1 Complete 480p Tamil + English 2.5GB [Gdrive]](https://www.1tamilmv.mov/index.php?/forums/topic/138539-jackie-chans-adventures-season-1-complete-480p-tamil-english-25gb-gdrive/&do=findComment&comment=351802)
 - [Khadgam &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6GB - ESub - 🇮🇳 Happy Independence Day](https://www.1tamilmv.mov/index.php?/forums/topic/174832-khadgam-2002-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-6gb-esub-%F0%9F%87%AE%F0%9F%87%B3-happy-independence-day/&do=findComment&comment=351801)
 - [Jailer &lpar;2023&rpar; Tamil New HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.mov/index.php?/forums/topic/174786-jailer-2023-tamil-new-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=351800)
-- [Sathyaa &lpar;1988&rpar; Tamil - ASTRO WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - AAC2.0&lpar;64kbps&rpar; - 4.6GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB](https://www.1tamilmv.mov/index.php?/forums/topic/174827-sathyaa-1988-tamil-astro-web-dl-1080p-720p-avc-hevc-untouched-aac2064kbps-46gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb/&do=findComment&comment=351797)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
