@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Maayon &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174766-maayon-2022-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351775)
+- [Por Thozhil &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 7.9GB - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174754-por-thozhil-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-atmos-448kbps-79gb-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351774)
 - [Naan &lpar;2012&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 4.5GB - ESub - GDFlix](https://www.1tamilmv.mov/index.php?/forums/topic/174782-naan-2012-tamil-true-web-dl-1080p-hq-avc-untouched-dd51-45gb-esub-gdflix/&do=findComment&comment=351773)
 - [Demonte Colony &lpar;2015&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 3.7GB - ESub - GDFlix](https://www.1tamilmv.mov/index.php?/forums/topic/174816-demonte-colony-2015-tamil-true-web-dl-1080p-avc-untouched-dd51-37gb-esub-gdflix/&do=findComment&comment=351772)
 - [Invincible &lpar;2021&rpar; Complete S01 EP &lpar;01-08&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada + Eng] - &lpar;DD5.1 - 192Kbps&rpar; - 6.9GB - 3GB &amp; 900MB] - ESub [Google Drive]](https://www.1tamilmv.mov/index.php?/forums/topic/174809-invincible-2021-complete-s01-ep-01-08-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-eng-dd51-192kbps-69gb-3gb-900mb-esub-google-drive/&do=findComment&comment=351771)
-- [Amala &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174821-amala-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-25gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=351770)
-- [Jeem Boom Bhaa &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 2.5GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.mov/index.php?/forums/topic/174823-jeem-boom-bhaa-2023-tamil-true-web-dl-1080p-720p-avc-hevc-aac-20-25gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=351769)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
