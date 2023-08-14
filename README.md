@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Vibe for the trend #Aadharanjali | #Romancham | #SushinShyam | #JithuMadhavan | #shorts](https://www.youtube.com/watch?v=dgfgV5wn0as)
-- [Thandodinja Thamara | Lyrical Video | Aaha | Vijay Yesudas | Sayanora | Indrajith |Bibin Paul Samuel](https://www.youtube.com/watch?v=CJCiFnQxHWY)
-- [O Priye |  Aniyathipraavu 1997 | S. Ramesan Nair | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=YQivJwO_-xk)
-- [Paalappoovithalil | Thirakadha | Anoop Menon | Priyamani | Shewtha Mohan | Sharreth](https://www.youtube.com/watch?v=nOAvBScYk7E)
-- [Vannallo Ponnonam | Onam song by M G Sreekumar #shorts](https://www.youtube.com/watch?v=0XhalCfQ4Fk)
-- [Swarnamukiloru | Mr.Marumakan | Dileep | Sanusha | Suresh Peters | Khusbu | Nedumudi Venu](https://www.youtube.com/watch?v=2pBxTpmVKg0)
+- [Pedi Thonni Aadyam Kandappol | Dileep | KJ Yesudas | KS Chithra | Mohan Sithara | Yusufali Kecheri](https://www.youtube.com/watch?v=RiYr_fM4VSE)
+- [ഉന്നം മറന്നു തെന്നിപ്പറന്ന HD | Unnam Marannu | In Harihar Nagar | Malayalam Film Song |Siddique Lal](https://www.youtube.com/watch?v=ZGDFCtiGb7w)
+- [മനസ്സിൽ ഒരായിരം നന്മകൾ നിറക്കും ആനന്ദഭരിതമാം ചലച്ചിത്രഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=9UQqAakKZlY)
+- [Vietnam Colony - Pavanarachezhuthunna Lyric Version 2 | S. Balakrishanan | Mohanlal](https://www.youtube.com/watch?v=oEDtVW85Cj4)
+- [Vietnam Colony - Pavanarachezhuthunna Lyric | S. Balakrishanan | Mohanlal, Kanaka](https://www.youtube.com/watch?v=0QogCxJlPns)
+- [Varnappakittu - Okkela Okkela Lyric | Vidyasagar | Mohanlal, Meena](https://www.youtube.com/watch?v=DVbnBRpJdro)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
