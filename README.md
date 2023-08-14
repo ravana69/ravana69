@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Scorpion King &lpar;2002&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174828-the-scorpion-king-2002-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-2gb-1gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=351787)
 - [Sathyaa &lpar;1988&rpar; Tamil - ASTRO WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - AAC2.0&lpar;64kbps&rpar; - 4.6GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB](https://www.1tamilmv.mov/index.php?/forums/topic/174827-sathyaa-1988-tamil-astro-web-dl-1080p-720p-avc-hevc-untouched-aac2064kbps-46gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb/&do=findComment&comment=351786)
 - [Ustaad &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.mov/index.php?/forums/topic/174815-ustaad-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=351785)
 - [Jeem Boom Bhaa &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 2.5GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.mov/index.php?/forums/topic/174823-jeem-boom-bhaa-2023-tamil-true-web-dl-1080p-720p-avc-hevc-aac-20-25gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=351784)
 - [Heart of Stone &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Malayalam + Kannada + Eng&rpar; - 7.6GB - 2.8GB - 1.6GB &amp; 900MB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174787-heart-of-stone-2023-hd-original-audios-1080p-720p-avc-dd51-640kbps-tamil-telugu-hindi-malayalam-kannada-eng-76gb-28gb-16gb-900mb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=351783)
-- [Amala &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174821-amala-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-25gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=351782)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
