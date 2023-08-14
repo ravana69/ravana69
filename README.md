@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vibe for the trend #Aadharanjali | #Romancham | #SushinShyam | #JithuMadhavan | #shorts](https://www.youtube.com/watch?v=dgfgV5wn0as)
+- [Thandodinja Thamara | Lyrical Video | Aaha | Vijay Yesudas | Sayanora | Indrajith |Bibin Paul Samuel](https://www.youtube.com/watch?v=CJCiFnQxHWY)
 - [O Priye |  Aniyathipraavu 1997 | S. Ramesan Nair | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=YQivJwO_-xk)
 - [Paalappoovithalil | Thirakadha | Anoop Menon | Priyamani | Shewtha Mohan | Sharreth](https://www.youtube.com/watch?v=nOAvBScYk7E)
 - [Vannallo Ponnonam | Onam song by M G Sreekumar #shorts](https://www.youtube.com/watch?v=0XhalCfQ4Fk)
 - [Swarnamukiloru | Mr.Marumakan | Dileep | Sanusha | Suresh Peters | Khusbu | Nedumudi Venu](https://www.youtube.com/watch?v=2pBxTpmVKg0)
-- [Christian Morning Prayer Songs | Kester | Vani jayaram | Prabhatha Geethangal | Christian SOngs](https://www.youtube.com/watch?v=maOKcsy9o-Q)
-- [Japamala 14th of August  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 14th of August 23](https://www.youtube.com/watch?v=9IkfXlS5zZM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
