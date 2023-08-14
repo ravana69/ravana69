@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Good morning](https://www.youtube.com/watch?v=cyvRFPQRnlM)
 - [കനിവിൻ ഉറവയാം നാഥേ|kanivin uravayam nadhe|OWN MEDIA MUSIC|BASTIN AUGUSTIN|JOY CHERUVATHOOR|GOVIND |](https://www.youtube.com/watch?v=X9jUzmsk5Ag)
 - [ഭാരതമെന്നാല്‍ പാരിന്‍ നടുവില്‍ | Independence Day Greetings | Mohanlal, Mammootty | Bharathamennal](https://www.youtube.com/watch?v=8R9PRRqhIrw)
 - [Sonare Sonare Video Song | Punjabi House | Dileep | MG Sreekumar | Suresh Peters | S Ramesan Nair](https://www.youtube.com/watch?v=4oK5WJ_MWTM)
 - [Swargaloka Nayakan | Souhrudham | Chunakkara Ramankutty | Shyam | KJ Yesudas | Mukesh | Urvashi](https://www.youtube.com/watch?v=zvkmraammC4)
 - [Thamburu Kulir Choodiyo  | Soorya Gayathri | Mohanlal | Urvashi | Anu Anand - Raveendran Hits](https://www.youtube.com/watch?v=gX84Jqd9yUs)
-- [മാതാവിന്റെ സ്വർഗ്ഗാരോപണ തിരുനാൾ സ്പെഷ്യൽ ഗാനങ്ങൾ | Kester | Mariyan Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=1dcqBqlsEL0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
