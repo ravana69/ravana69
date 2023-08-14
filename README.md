@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Kashmir Files Unreported &lpar;2023&rpar; Complete S01 EP &lpar;01-07&rpar; Merged TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi] - 2.9GB - 1.5GB &amp; 1GB] [Google Drive]](https://www.1tamilmv.mov/index.php?/forums/topic/174822-the-kashmir-files-unreported-2023-complete-s01-ep-01-07-merged-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-29gb-15gb-1gb-google-drive/&do=findComment&comment=351761)
+- [Amala &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174821-amala-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-25gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=351760)
 - [Simhadri &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.4GB - MMI Video](https://www.1tamilmv.mov/index.php?/forums/topic/174819-simhadri-2003-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-64gb-mmi-video/&do=findComment&comment=351759)
 - [Petta &lpar;2019&rpar; Original Motion Picture Soundtrack - 16Bit - FLAC - 200MB](https://www.1tamilmv.mov/index.php?/forums/topic/174820-petta-2019-original-motion-picture-soundtrack-16bit-flac-200mb/&do=findComment&comment=351758)
 - [Simhadri &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.4GB - MMI Video](https://www.1tamilmv.mov/index.php?/forums/topic/174819-simhadri-2003-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-64gb-mmi-video/&do=findComment&comment=351757)
-- [Simhadri &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.4GB - MMI Video](https://www.1tamilmv.mov/index.php?/forums/topic/174819-simhadri-2003-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-64gb-mmi-video/&do=findComment&comment=351756)
-- [Bahubali - The Beginning &lpar;2015&rpar; Telugu - 1080p - German Limited Edition - Complete - BluRay - AVC - DTS - HD - 43GB](https://www.1tamilmv.mov/index.php?/forums/topic/164761-bahubali-the-beginning-2015-telugu-1080p-german-limited-edition-complete-bluray-avc-dts-hd-43gb/&do=findComment&comment=351755)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
