@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oru Nooru Ninavukal  | Anuragam | Najeem Arshad | Bhadra Rejin | Joel Johns  | Titto P Thankachen](https://www.youtube.com/watch?v=xDtcQj1Cr68)
 - [സ്വർഗ്ഗാരോപണ തിരുനാൾ ഗാനങ്ങൾ # Feast of the Assumption of the Virgin Mary 15th August 2023 Songs](https://www.youtube.com/watch?v=eD2xFoHOXNY)
 - [മനുഷ്യന്റെ നൊമ്പരങ്ങളെ മനസ്സിലാക്കുക | Rev. Aneesh P Joseph | #shortvideo #shorts #jesusshorts](https://www.youtube.com/watch?v=aU7KB1TMmKo)
 - [Kilimake Nee | Udumbu Movie Song | Najim Arshad | Saanand George | Kannan Thamarakkulam](https://www.youtube.com/watch?v=_4cWjBMJfXc)
 - [Kannuneerthulliye Video Song | Panitheeratha Veedu | M. S. Viswanathan | Prem Nazir](https://www.youtube.com/watch?v=eeTWh-9mcZY)
 - [Arabic Song | Kurukkan | Gireesh Thiruvali | Unni Elayaraja | Kollam Shafi](https://www.youtube.com/watch?v=kJFY6MDdbdQ)
-- [Mazhamani Ithalukal | August 27 | Nazeer Minnale | Ajit Ravi Pegasus | Malayalam Film Songs](https://www.youtube.com/watch?v=kIYrHDDdh6s)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
