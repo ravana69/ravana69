@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [വന്ദേമാതരം..| ഓരോ ഭാരതീയൻറെയും മനസ്സിൽ ജ്വലിക്കുന്ന സ്വാതന്ത്ര്യസമരചരിത്രം ഗാനങ്ങളായ്..| Remastered](https://www.youtube.com/watch?v=xbxWqnZeBmk)
+- [Ithra Madhurikkumo | Five Star Hospital | KJ Yesudas | Siddique | Kaveri | Bomaby Ravi](https://www.youtube.com/watch?v=rNIeBLb8QYU)
+- [Vennila Kadappurathu |  Aniyathipraavu 1997 | S. Ramesan Nair | Malayalam Movie Song](https://www.youtube.com/watch?v=OzQ28RsWyNY)
 - [Onamaayi Onamaayi |Onam Song by Madhu Balakrishnan &Manju Menon #onam #onamsongs #madhubalakrishnan](https://www.youtube.com/watch?v=AiJp-Q9IR-o)
 - [76th Independence Day Special (Malayalam) | Ente Gurunathan | Mamalakalkkapurathu | Chorathilkkan](https://www.youtube.com/watch?v=t4WlUCUjFnE)
 - [Super Hit Marian Songs Jukebox | Malayalam Marian Devotional Songs 2023 | Non Stop Marian Songs](https://www.youtube.com/watch?v=dmV78kAj77Q)
-- [Singer Of The Week | Sujatha | Christian Devotional Songs Malayalam | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=NQtwikpZa84)
-- [ABHAYAM NEE # New Marian Song Malayalam Ft. Sonychen CMI, Asha Rony, Fr Linto Kanjuthara, Oviatess](https://www.youtube.com/watch?v=eUhLrS9nxTc)
-- [മനം അറിയാതെ എപ്പോഴും ഏറ്റുപാടുന്ന സ്തുതിഗീതങ്ങൾ ethratholam jayam tanna | Kester | christian songs](https://www.youtube.com/watch?v=9Be2uaJT5Qg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
