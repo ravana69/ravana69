@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [📌 KHADGAM &lpar;2002&rpar; &lpar;Music Video Album&rpar; - JC - 1080P - WEBDL - AVC - DD® 5.1 @ 448 Kbps - Dvd9 Sync - 1.7GB](https://www.1tamilmv.mov/index.php?/forums/topic/174843-%F0%9F%93%8C-khadgam-2002-music-video-album-jc-1080p-webdl-avc-dd%C2%AE-51-448-kbps-dvd9-sync-17gb/&do=findComment&comment=351858)
 - [Elemental &lpar;2023&rpar; HQ HDRip - 720p - [Tamil + Telugu + Hindi] - x264 - AAC - 800MB &amp; 350MB - Fan Dub](https://www.1tamilmv.mov/index.php?/forums/topic/174842-elemental-2023-hq-hdrip-720p-tamil-telugu-hindi-x264-aac-800mb-350mb-fan-dub/&do=findComment&comment=351857)
 - [Bharateeyudu &lpar;1996&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 384Kbps &lpar;Dolby Digital® 5.0&rpar; - 3.6GB - Happy Independence Day](https://www.1tamilmv.mov/index.php?/forums/topic/174839-bharateeyudu-1996-telugu-dvd5-untouched-480p-384kbps-dolby-digital%C2%AE-50-36gb-happy%C2%A0independence%C2%A0day/&do=findComment&comment=351856)
 - [LEO - Glimpse of Harold Das | Thalapathy Vijay | Lokesh Kanagaraj | Anirudh Ravichander](https://www.1tamilmv.mov/index.php?/forums/topic/174841-leo-glimpse-of-harold-das-thalapathy-vijay-lokesh-kanagaraj-anirudh-ravichander/&do=findComment&comment=351855)
 - [Yennai Arindhaal &lpar;2015&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 320Kbps&rpar; - 5.2GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.mov/index.php?/forums/topic/174837-yennai-arindhaal-2015-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-320kbps-52gb-26gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=351854)
-- [Yennai Arindhaal &lpar;2015&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 320Kbps&rpar; - 5.2GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.mov/index.php?/forums/topic/174837-yennai-arindhaal-2015-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-320kbps-52gb-26gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=351852)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
