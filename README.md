@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Shawshank Redemption &lpar;1994&rpar; REMASTERED - BluRay - 4K , 1080p &amp; 720p - HEVC / AVC - [Tamil + Telugu + Hindi + English&lpar;DTS5.1&lpar;1509kbps&rpar;] - AAC - 7.9GB - 4.4GB - 2.6GB &amp; 1.2GB - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174834-the-shawshank-redemption-1994-remastered-bluray-4k-1080p-720p-hevc-avc-tamil-telugu-hindi-englishdts511509kbps-aac-79gb-44gb-26gb-12gb-esub/&do=findComment&comment=351809)
 - [Taali &lpar;2023&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;AAC 2.0&rpar; - 3.9GB - 1.7GB &amp; 900MB]](https://www.1tamilmv.mov/index.php?/forums/topic/174833-taali-2023-s01-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-aac-20-39gb-17gb-900mb/&do=findComment&comment=351808)
 - [Jailer &lpar;2023&rpar; Tamil New HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.mov/index.php?/forums/topic/174786-jailer-2023-tamil-new-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=351807)
 - [Taali &lpar;2023&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;AAC 2.0&rpar; - 3.9GB - 1.7GB &amp; 900MB]](https://www.1tamilmv.mov/index.php?/forums/topic/174833-taali-2023-s01-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-aac-20-39gb-17gb-900mb/&do=findComment&comment=351806)
 - [Jailer &lpar;2023&rpar; Tamil New HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.mov/index.php?/forums/topic/174786-jailer-2023-tamil-new-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=351805)
-- [Jackie Chan&#39;s Adventures Season 1 Complete 480p Tamil + English 2.5GB [Gdrive]](https://www.1tamilmv.mov/index.php?/forums/topic/138539-jackie-chans-adventures-season-1-complete-480p-tamil-english-25gb-gdrive/&do=findComment&comment=351802)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
