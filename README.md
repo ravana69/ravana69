@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മനസിന് എന്തെന്നില്ലാത്ത ആനന്ദം പകരുന്ന മലയാളസിനിമയിലെ എവർഗ്രീൻ സോങ്‌സ് | EVERGREEN FILM SONGS](https://www.youtube.com/watch?v=xL4qIcktWX4)
+- [വിശ്രമവേളകൾ ആനന്ദകരമാക്കുന്ന രസകരമായ മലയാളസിനിമയിലെ വ്യത്യസ്തഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=XKrjRGTpRIs)
+- [Oru Shilpa Gopurathil | Souhrudham | Chunkkara Ramankutty | Shyam | KJ Yesudas | Mukesh | Urvashi](https://www.youtube.com/watch?v=6p_LwXZtAVQ)
 - [Trendy #Aadharanjali | #Romancham | #SushinShyam | #JithuMadhavan | #shorts](https://www.youtube.com/watch?v=XYWrPrGkyCg)
 - [വന്ദേമാതരം..| ഓരോ ഭാരതീയൻറെയും മനസ്സിൽ ജ്വലിക്കുന്ന സ്വാതന്ത്ര്യസമരചരിത്രം ഗാനങ്ങളായ്..| Remastered](https://www.youtube.com/watch?v=xbxWqnZeBmk)
 - [Ithra Madhurikkumo | Five Star Hospital | KJ Yesudas | Siddique | Kaveri | Bomaby Ravi](https://www.youtube.com/watch?v=rNIeBLb8QYU)
-- [Vennila Kadappurathu |  Aniyathipraavu 1997 | S. Ramesan Nair | Malayalam Movie Song](https://www.youtube.com/watch?v=OzQ28RsWyNY)
-- [Onamaayi Onamaayi |Onam Song by Madhu Balakrishnan &Manju Menon #onam #onamsongs #madhubalakrishnan](https://www.youtube.com/watch?v=AiJp-Q9IR-o)
-- [76th Independence Day Special (Malayalam) | Ente Gurunathan | Mamalakalkkapurathu | Chorathilkkan](https://www.youtube.com/watch?v=t4WlUCUjFnE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
