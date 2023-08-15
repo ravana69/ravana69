@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മെർക്കുറി ലാമ്പ് വീണു HD | Malayalam Evergreen Song | MERCURI LAMP | SAINYAM | Vikram & Priya Raman](https://www.youtube.com/watch?v=Wn00ZmwdBhg)
+- [Aathmanadhan | Punyamekunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=vn56KpRbO1o)
+- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=dH4wbUHKZro)
 - [മനസിന് എന്തെന്നില്ലാത്ത ആനന്ദം പകരുന്ന മലയാളസിനിമയിലെ എവർഗ്രീൻ സോങ്‌സ് | EVERGREEN FILM SONGS](https://www.youtube.com/watch?v=xL4qIcktWX4)
 - [വിശ്രമവേളകൾ ആനന്ദകരമാക്കുന്ന രസകരമായ മലയാളസിനിമയിലെ വ്യത്യസ്തഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=XKrjRGTpRIs)
 - [Oru Shilpa Gopurathil | Souhrudham | Chunkkara Ramankutty | Shyam | KJ Yesudas | Mukesh | Urvashi](https://www.youtube.com/watch?v=6p_LwXZtAVQ)
-- [Trendy #Aadharanjali | #Romancham | #SushinShyam | #JithuMadhavan | #shorts](https://www.youtube.com/watch?v=XYWrPrGkyCg)
-- [വന്ദേമാതരം..| ഓരോ ഭാരതീയൻറെയും മനസ്സിൽ ജ്വലിക്കുന്ന സ്വാതന്ത്ര്യസമരചരിത്രം ഗാനങ്ങളായ്..| Remastered](https://www.youtube.com/watch?v=xbxWqnZeBmk)
-- [Ithra Madhurikkumo | Five Star Hospital | KJ Yesudas | Siddique | Kaveri | Bomaby Ravi](https://www.youtube.com/watch?v=rNIeBLb8QYU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
