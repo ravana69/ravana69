@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Super Hit Marian Songs Jukebox | Malayalam Marian Devotional Songs 2023 | Non Stop Marian Songs](https://www.youtube.com/watch?v=dmV78kAj77Q)
 - [Singer Of The Week | Sujatha | Christian Devotional Songs Malayalam | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=NQtwikpZa84)
 - [ABHAYAM NEE # New Marian Song Malayalam Ft. Sonychen CMI, Asha Rony, Fr Linto Kanjuthara, Oviatess](https://www.youtube.com/watch?v=eUhLrS9nxTc)
 - [മനം അറിയാതെ എപ്പോഴും ഏറ്റുപാടുന്ന സ്തുതിഗീതങ്ങൾ ethratholam jayam tanna | Kester | christian songs](https://www.youtube.com/watch?v=9Be2uaJT5Qg)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #August 15th 2023 #mother mary devotional songs](https://www.youtube.com/watch?v=HUTvem0Sys4)
 - [Japamala 15th of August 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 15th of August 2023](https://www.youtube.com/watch?v=mH0V8u1vsrw)
-- [രാവിലെ പ്രാര്‍ത്ഥന 15th of August shorts  # Athiravile Prarthana 15th of August 2023 shorts](https://www.youtube.com/watch?v=s0DNgeJyUhU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
