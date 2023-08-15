@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Annapurna Photo Studio &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.mov/index.php?/forums/topic/174838-annapurna-photo-studio-2023-telugu-true-web-dl-1080p-720p-avc-aac-20-28gb-14gb-x264-700mb-400mb-250mb/&do=findComment&comment=351847)
 - [Yennai Arindhaal &lpar;2015&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 320Kbps&rpar; - 5.2GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.mov/index.php?/forums/topic/174837-yennai-arindhaal-2015-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-320kbps-52gb-26gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=351846)
 - [Bharateeyudu &lpar;1996&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 384Kbps &lpar;Dolby Digital® 5.0&rpar; - 3.6GB - Happy Independence Day](https://www.1tamilmv.mov/index.php?/forums/topic/174839-bharateeyudu-1996-telugu-dvd5-untouched-480p-384kbps-dolby-digital%C2%AE-50-36gb-happy%C2%A0independence%C2%A0day/&do=findComment&comment=351845)
 - [Elemental &lpar;2023&rpar; English HQ HDRip - 720p - x264 - &lpar;DD5.1 - 192Kbps &amp; AAC&rpar; - 950MB - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174831-elemental-2023-english-hq-hdrip-720p-x264-dd51-192kbps-aac-950mb-esub/&do=findComment&comment=351844)
 - [Hidimbha &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.8GB - 2.4GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174760-hidimbha-2023-telugu-true-web-dl-4k-1080p-720p-avc-dd51-384kbps-38gb-24gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351843)
-- [Bharateeyudu &lpar;1996&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 384Kbps &lpar;Dolby Digital® 5.0&rpar; - 3.6GB - Happy Independence Day](https://www.1tamilmv.mov/index.php?/forums/topic/174839-bharateeyudu-1996-telugu-dvd5-untouched-480p-384kbps-dolby-digital%C2%AE-50-36gb-happy%C2%A0independence%C2%A0day/&do=findComment&comment=351842)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
