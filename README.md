@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Singer Of The Week | Sujatha | Christian Devotional Songs Malayalam | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=NQtwikpZa84)
+- [ABHAYAM NEE # New Marian Song Malayalam Ft. Sonychen CMI, Asha Rony, Fr Linto Kanjuthara, Oviatess](https://www.youtube.com/watch?v=eUhLrS9nxTc)
+- [മനം അറിയാതെ എപ്പോഴും ഏറ്റുപാടുന്ന സ്തുതിഗീതങ്ങൾ ethratholam jayam tanna | Kester | christian songs](https://www.youtube.com/watch?v=9Be2uaJT5Qg)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #August 15th 2023 #mother mary devotional songs](https://www.youtube.com/watch?v=HUTvem0Sys4)
+- [Japamala 15th of August 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 15th of August 2023](https://www.youtube.com/watch?v=mH0V8u1vsrw)
 - [രാവിലെ പ്രാര്‍ത്ഥന 15th of August shorts  # Athiravile Prarthana 15th of August 2023 shorts](https://www.youtube.com/watch?v=s0DNgeJyUhU)
-- [രാവിലെ പ്രാര്‍ത്ഥന August 15 # Athiravile Prarthana 15th of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=_18Ne8dqyg8)
-- [August 15 wishes](https://www.youtube.com/watch?v=OR82EsE0Muo)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 15th August 2023](https://www.youtube.com/watch?v=Uzo5UY0_ACk)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=RrMZrnE2sdM)
-- [Good morning](https://www.youtube.com/watch?v=cyvRFPQRnlM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
