@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [YOGI &lpar;2007&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6GB - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174852-yogi-2007-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-6gb-esub/&do=findComment&comment=351877)
-- [Citizen &lpar;2001&rpar;.Tamil.1080p.HDTV.HEVC.AAC2.0 - 2.7GB](https://www.1tamilmv.mov/index.php?/forums/topic/174853-citizen-2001tamil1080phdtvhevcaac20-27gb/&do=findComment&comment=351876)
-- [YOGI &lpar;2007&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6GB - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174852-yogi-2007-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-6gb-esub/&do=findComment&comment=351875)
-- [Naan &lpar;2012&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 4.5GB - ESub - GDFlix](https://www.1tamilmv.mov/index.php?/forums/topic/174782-naan-2012-tamil-true-web-dl-1080p-hq-avc-untouched-dd51-45gb-esub-gdflix/&do=findComment&comment=351874)
-- [Puncture Ramendran &lpar;2023&rpar; TamilTRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Malayalam] - 2.3GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174847-puncture-ramendran-2023-tamiltrue-web-dl-1080p-720p-avc-hevc-tamil-original-audio-malayalam-23gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351873)
+- [Satyaprem Ki Katha &lpar;2023&rpar; 720p 10bit DS4K AMZN WEBRip x265 HEVC Hindi AAC 5.1 ESub ~ Immortal](https://www.1tamilmv.mov/index.php?/forums/topic/174858-satyaprem-ki-katha-2023-720p-10bit-ds4k-amzn-webrip-x265-hevc-hindi-aac-51-esub-~-immortal/&do=findComment&comment=351884)
+- [Kaalkoot S01 720p 10bit DS4K JC WEBRip x265 HEVC Hindi AAC 5.1 ESub ~ Immortal](https://www.1tamilmv.mov/index.php?/forums/topic/174857-kaalkoot-s01-720p-10bit-ds4k-jc-webrip-x265-hevc-hindi-aac-51-esub-~-immortal/&do=findComment&comment=351883)
+- [Commando S01 720p 10bit DS4K DSNP WEBRip x265 HEVC Hindi AAC 5.1 ESub ~ Immortal](https://www.1tamilmv.mov/index.php?/forums/topic/174856-commando-s01-720p-10bit-ds4k-dsnp-webrip-x265-hevc-hindi-aac-51-esub-~-immortal/&do=findComment&comment=351882)
+- [Por Thozhil &lpar;2023&rpar; 1080p 10bit DS4K SONYLIV WEBRip x265 HEVC [Hindi DDP 5.1 + Tamil DDP 5.1] ESub ~ Immortal](https://www.1tamilmv.mov/index.php?/forums/topic/174855-por-thozhil-2023-1080p-10bit-ds4k-sonyliv-webrip-x265-hevc-hindi-ddp-51-tamil-ddp-51-esub-~-immortal/&do=findComment&comment=351881)
+- [Por Thozhil &lpar;2023&rpar; 720p 10bit SONYLIV WEBRip x265 HEVC [Hindi AAC 2.0 + Tamil AAC 2.0] ESub ~ Immortal](https://www.1tamilmv.mov/index.php?/forums/topic/174854-por-thozhil-2023-720p-10bit-sonyliv-webrip-x265-hevc-hindi-aac-20-tamil-aac-20-esub-~-immortal/&do=findComment&comment=351880)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
