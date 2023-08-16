@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pokiri &lpar;2006&rpar;.Telugu.1080p.DVD9Rip.HEVC.DD5.1 448Kbps - 2.9GB](https://www.1tamilmv.mov/index.php?/forums/topic/174860-pokiri-2006telugu1080pdvd9riphevcdd51-448kbps-29gb/&do=findComment&comment=351889)
 - [Aana &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu + Hindi + Kannada] - 2.4GB &amp; 1.5GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174845-aana-2023-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-24gb-15gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351888)
 - [Puncture Ramendran &lpar;2023&rpar; TamilTRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Malayalam] - 2.3GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174847-puncture-ramendran-2023-tamiltrue-web-dl-1080p-720p-avc-hevc-tamil-original-audio-malayalam-23gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351887)
 - [Pokiri &lpar;2006&rpar;.Telugu.1080p.DVD9Rip.HEVC.DD5.1 448Kbps - 2.9GB](https://www.1tamilmv.mov/index.php?/forums/topic/174860-pokiri-2006telugu1080pdvd9riphevcdd51-448kbps-29gb/&do=findComment&comment=351886)
 - [Imaikkaa Nodigal &lpar;2018&rpar; 720p 10bit AMZN WEBRip x265 HEVC Tamil DDP 5.1 MSubs ~ Immortal](https://www.1tamilmv.mov/index.php?/forums/topic/174859-imaikkaa-nodigal-2018-720p-10bit-amzn-webrip-x265-hevc-tamil-ddp-51-msubs-~-immortal/&do=findComment&comment=351885)
-- [Satyaprem Ki Katha &lpar;2023&rpar; 720p 10bit DS4K AMZN WEBRip x265 HEVC Hindi AAC 5.1 ESub ~ Immortal](https://www.1tamilmv.mov/index.php?/forums/topic/174858-satyaprem-ki-katha-2023-720p-10bit-ds4k-amzn-webrip-x265-hevc-hindi-aac-51-esub-~-immortal/&do=findComment&comment=351884)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
