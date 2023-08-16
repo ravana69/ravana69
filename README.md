@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [35 Telugu Movies - SS / JC / AMZN WEB DL - H264 - DDP5.1/DD5.1/AAC2.0 - ESubs - [1080p &amp; 720p - 200GB] [GDrive]](https://www.1tamilmv.foo/index.php?/forums/topic/167938-35-telugu-movies-ss-jc-amzn-web-dl-h264-ddp51dd51aac20-esubs-1080p-720p-200gb-gdrive/&do=findComment&comment=351901)
+- [35 Telugu Movies - SS / JC / AMZN WEB DL - H264 - DDP5.1/DD5.1/AAC2.0 - ESubs - [1080p &amp; 720p - 200GB] [GDrive]](https://www.1tamilmv.foo/index.php?/forums/topic/167938-35-telugu-movies-ss-jc-amzn-web-dl-h264-ddp51dd51aac20-esubs-1080p-720p-200gb-gdrive/&do=findComment&comment=351900)
+- [Nuvvu Nenu &lpar;2001&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 5.5GB - ESub](https://www.1tamilmv.foo/index.php?/forums/topic/174865-nuvvu-nenu-2001-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-55gb-esub/&do=findComment&comment=351899)
 - [Silambarasan Movies Collections &lpar;1994 - 2023&rpar; HD / DVDRip / ZEE5 / TK / JC / SS / AMZN /SNXT - WEB DL - H264/H265 [4k &amp; 1080p &amp; 720p] [GDRIVE &amp; Telegram]Esubs](https://www.1tamilmv.foo/index.php?/forums/topic/160377-silambarasan-movies-collections-1994-2023-hd-dvdrip-zee5-tk-jc-ss-amzn-snxt-web-dl-h264h265-4k-1080p-720p-gdrive-telegramesubs/&do=findComment&comment=351898)
 - [Ugram &lpar;2023&rpar; UNCUT 1080p AMZN WEB-DL x264 [Org YT Hindi DDP 2.0 ~192Kbps + Telugu DDP 5.1] ESub - 10.1GB](https://www.1tamilmv.foo/index.php?/forums/topic/174867-ugram-2023-uncut-1080p-amzn-web-dl-x264-org-yt-hindi-ddp-20-~192kbps-telugu-ddp-51-esub-101gb/&do=findComment&comment=351897)
-- [Aana &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu + Hindi + Kannada] - 2.4GB &amp; 1.5GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.foo/index.php?/forums/topic/174845-aana-2023-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-24gb-15gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351896)
-- [Lift &lpar;2021&rpar; UNCUT 1080p DSNP WEB-DL x264 [Org TV-DL Hindi AAC 2.0 ~192Kbps + Tamil DDP 5.1] ESub - 3.4GB](https://www.1tamilmv.foo/index.php?/forums/topic/174866-lift-2021-uncut-1080p-dsnp-web-dl-x264-org-tv-dl-hindi-aac-20-~192kbps-tamil-ddp-51-esub-34gb/&do=findComment&comment=351895)
-- [Nuvvu Nenu &lpar;2001&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 5.5GB - ESub](https://www.1tamilmv.foo/index.php?/forums/topic/174865-nuvvu-nenu-2001-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-55gb-esub/&do=findComment&comment=351894)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
