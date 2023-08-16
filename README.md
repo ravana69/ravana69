@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [എൻ പ്രിയനേ യേശുവേ രക്ഷകാ | Kester #manoramachristiandevotionalsongs #christianshortsvideo](https://www.youtube.com/watch?v=YXo3LDYfqg8)
+- [Kan Munnilaay | Digital Village | Shorts #latestmalayalam #malayalammoviesongs #manoramamusic](https://www.youtube.com/watch?v=uW7Aceux-BM)
+- [Chilla Aane | Anuragam | Renjith Govind | Anuj Sekhar | Joel Johns | Manu Manjith | #AK](https://www.youtube.com/watch?v=EaAa6vFXzKc)
 - [Varika | Sharreth | Sumi Sunny #latestmalayalam #malayalammoviesongs #manoramamusic](https://www.youtube.com/watch?v=7V7JZrogBt4)
 - [Kan Munnilai | Digital Village | Hari S R | Vineeth Sreenivasan](https://www.youtube.com/watch?v=35BLRC5qY6E)
 - [Vanashalabhame Lyrical Video | Sithara Krishnakumar | Sadanandan MV | Innalekal Thalirkkumbol](https://www.youtube.com/watch?v=NmP3peb7tKE)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=vDhz4Ik_zXY)
-- [Pavizhamalli Poovurangi | Vazhiyorakazhchakal | Mohanlal | Ratheesh | Ambika | KS Chithra](https://www.youtube.com/watch?v=ebc6YHFcEGA)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=FJRb8b_w5-g)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
