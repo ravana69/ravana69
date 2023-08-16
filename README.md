@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [O Saathiya &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174864-o-saathiya-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351893)
+- [Pathaan &lpar;2023&rpar; 720p 10bit BluRay x265 HEVC Hindi DDP 5.1 ESub ~ Immortal](https://www.1tamilmv.mov/index.php?/forums/topic/174863-pathaan-2023-720p-10bit-bluray-x265-hevc-hindi-ddp-51-esub-~-immortal/&do=findComment&comment=351892)
+- [Pathaan &lpar;2023&rpar; 720p 10bit BluRay x265 HEVC Telugu DDP 5.1 ESub ~ Immortal](https://www.1tamilmv.mov/index.php?/forums/topic/174862-pathaan-2023-720p-10bit-bluray-x265-hevc-telugu-ddp-51-esub-~-immortal/&do=findComment&comment=351891)
+- [Pathaan &lpar;2023&rpar; 720p 10bit BluRay x265 HEVC Tamil DDP 5.1 ESub ~ Immortal](https://www.1tamilmv.mov/index.php?/forums/topic/174861-pathaan-2023-720p-10bit-bluray-x265-hevc-tamil-ddp-51-esub-~-immortal/&do=findComment&comment=351890)
 - [Pokiri &lpar;2006&rpar;.Telugu.1080p.DVD9Rip.HEVC.DD5.1 448Kbps - 2.9GB](https://www.1tamilmv.mov/index.php?/forums/topic/174860-pokiri-2006telugu1080pdvd9riphevcdd51-448kbps-29gb/&do=findComment&comment=351889)
-- [Aana &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu + Hindi + Kannada] - 2.4GB &amp; 1.5GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174845-aana-2023-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-24gb-15gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351888)
-- [Puncture Ramendran &lpar;2023&rpar; TamilTRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Malayalam] - 2.3GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174847-puncture-ramendran-2023-tamiltrue-web-dl-1080p-720p-avc-hevc-tamil-original-audio-malayalam-23gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351887)
-- [Pokiri &lpar;2006&rpar;.Telugu.1080p.DVD9Rip.HEVC.DD5.1 448Kbps - 2.9GB](https://www.1tamilmv.mov/index.php?/forums/topic/174860-pokiri-2006telugu1080pdvd9riphevcdd51-448kbps-29gb/&do=findComment&comment=351886)
-- [Imaikkaa Nodigal &lpar;2018&rpar; 720p 10bit AMZN WEBRip x265 HEVC Tamil DDP 5.1 MSubs ~ Immortal](https://www.1tamilmv.mov/index.php?/forums/topic/174859-imaikkaa-nodigal-2018-720p-10bit-amzn-webrip-x265-hevc-tamil-ddp-51-msubs-~-immortal/&do=findComment&comment=351885)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
