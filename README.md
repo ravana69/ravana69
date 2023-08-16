@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vannallo Pononam | Onam Song by M G Sreekumar #shorts](https://www.youtube.com/watch?v=1dO8xgo8dGs)
 - [Sneham | Christian Devotional Shorts  #christiandevotionalsongs #manoramamusic #christianshortsvideo](https://www.youtube.com/watch?v=ZswOqALzRC0)
 - [Njanennil Kanunennum | Christian Video Song | Kester | Chittor Gopi | Joji Johns | Christian Song](https://www.youtube.com/watch?v=Pc1G3gLkFQ8)
 - [Japamala 16th of August 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 16th of August 2023](https://www.youtube.com/watch?v=8UVLLHJJ7AY)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #August 16th 2023 #mother mary devotional songs](https://www.youtube.com/watch?v=LOWV0b4VaGQ)
 - [രാവിലെ പ്രാര്‍ത്ഥന 16th of August shorts  # Athiravile Prarthana 16th of August 2023 shorts](https://www.youtube.com/watch?v=Y9TD9vZ1zIw)
-- [പ്രഭാത പ്രാര്‍ത്ഥന August 16 # Athiravile Prarthana 16th of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=SVHjCzGgbLU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
