@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aalundo Anjaravandi | Pappachan Olivilanu | Shorts #malayalammoviesongs #manoramamusic](https://www.youtube.com/watch?v=x7Gwh66LGhw)
+- [Aalundo Anjaravandi | Pappachan Olivilanu | Shorts  #malayalammoviesongs #manoramamusic](https://www.youtube.com/watch?v=fCMJzkdbGR8)
 - [Nee Thanna Janmam | Daiva Snehathe Pukazhthunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=5njyyLr2iq0)
 - [മനസറിഞ്ഞു മനസ്സ് നിറയെ  ഗായകർ പാടിയ മലയാളസിനിമയിലെ മനോഹരഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=LqQuhTFgadc)
 - [Ambarappoo Veethiyil Video Song | Irupatham Noottandu | Mohanlal | Urvashi | K. Madhu | KJ Yesudas](https://www.youtube.com/watch?v=immefS6n70U)
 - [Gaanamanu Njan Video Song | BR Prasad | Kunchacko Boban | Kavya Madhavan | Sujatha Mohan | Sreenivas](https://www.youtube.com/watch?v=3NWn-14sQEQ)
-- [ചങ്കിൽ കുരുങ്ങിയ ചോദ്യത്തുണ്ട് | Vidyadharan Master | Rekha Anand #latestmalayalam #manoramamusic](https://www.youtube.com/watch?v=u8s2cqtgp6o)
-- [Minnadi Minnadi |വാനമ്പാടി @ 60| Celebratinbg 60 Musical Years of K S Chithra |Deepak Dev|Kaithapram](https://www.youtube.com/watch?v=2ATMGiOx2D4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
