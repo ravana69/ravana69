@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Priyamanavale &lpar;2000&rpar; 480p AYN DVD9 REMUXED DD5.1 x264 - 6.5 GB](https://www.1tamilmv.mov/index.php?/forums/topic/174851-priyamanavale-2000-480p-ayn-dvd9-remuxed-dd51-x264-65-gb/&do=findComment&comment=351872)
+- [Roja &lpar;1992&rpar; 1080p AMZN WEB-DL Multi DDP2.0 x264 - 9.6 GB](https://www.1tamilmv.mov/index.php?/forums/topic/174850-roja-1992-1080p-amzn-web-dl-multi-ddp20-x264-96-gb/&do=findComment&comment=351871)
+- [Kannamoochi Yenada &lpar;2007&rpar;.Tamil.1080p.Web-dl.HEVC.AAC2.0 - 2.3GB](https://www.1tamilmv.mov/index.php?/forums/topic/174849-kannamoochi-yenada-2007tamil1080pweb-dlhevcaac20-23gb/&do=findComment&comment=351870)
 - [Aayudham Seivom &lpar;2008&rpar;.Tamil.1080p.Web-dl.HEVC.AAC2.0 - 2.5GB](https://www.1tamilmv.mov/index.php?/forums/topic/174848-aayudham-seivom-2008tamil1080pweb-dlhevcaac20-25gb/&do=findComment&comment=351869)
 - [Mahatma &lpar;2009&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.6GB - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174844-mahatma-2009-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-66gb-esub/&do=findComment&comment=351868)
-- [Puncture Ramendran &lpar;2023&rpar; TamilTRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Malayalam] - 2.3GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174847-puncture-ramendran-2023-tamiltrue-web-dl-1080p-720p-avc-hevc-tamil-original-audio-malayalam-23gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351867)
-- [Jailer &lpar;2023&rpar; Tamil New HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.mov/index.php?/forums/topic/174786-jailer-2023-tamil-new-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=351866)
-- [Elemental &lpar;2023&rpar; HQ HDRip - 720p - [Tamil + Telugu + Hindi] - x264 - AAC - 800MB &amp; 350MB - Fan Dub](https://www.1tamilmv.mov/index.php?/forums/topic/174842-elemental-2023-hq-hdrip-720p-tamil-telugu-hindi-x264-aac-800mb-350mb-fan-dub/&do=findComment&comment=351865)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
