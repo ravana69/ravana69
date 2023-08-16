@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [O Saathiya &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.mov/index.php?/forums/topic/174864-o-saathiya-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351893)
-- [Pathaan &lpar;2023&rpar; 720p 10bit BluRay x265 HEVC Hindi DDP 5.1 ESub ~ Immortal](https://www.1tamilmv.mov/index.php?/forums/topic/174863-pathaan-2023-720p-10bit-bluray-x265-hevc-hindi-ddp-51-esub-~-immortal/&do=findComment&comment=351892)
-- [Pathaan &lpar;2023&rpar; 720p 10bit BluRay x265 HEVC Telugu DDP 5.1 ESub ~ Immortal](https://www.1tamilmv.mov/index.php?/forums/topic/174862-pathaan-2023-720p-10bit-bluray-x265-hevc-telugu-ddp-51-esub-~-immortal/&do=findComment&comment=351891)
-- [Pathaan &lpar;2023&rpar; 720p 10bit BluRay x265 HEVC Tamil DDP 5.1 ESub ~ Immortal](https://www.1tamilmv.mov/index.php?/forums/topic/174861-pathaan-2023-720p-10bit-bluray-x265-hevc-tamil-ddp-51-esub-~-immortal/&do=findComment&comment=351890)
-- [Pokiri &lpar;2006&rpar;.Telugu.1080p.DVD9Rip.HEVC.DD5.1 448Kbps - 2.9GB](https://www.1tamilmv.mov/index.php?/forums/topic/174860-pokiri-2006telugu1080pdvd9riphevcdd51-448kbps-29gb/&do=findComment&comment=351889)
+- [Ugram &lpar;2023&rpar; UNCUT 1080p AMZN WEB-DL x264 [Org YT Hindi DDP 2.0 ~192Kbps + Telugu DDP 5.1] ESub - 10.1GB](https://www.1tamilmv.foo/index.php?/forums/topic/174867-ugram-2023-uncut-1080p-amzn-web-dl-x264-org-yt-hindi-ddp-20-~192kbps-telugu-ddp-51-esub-101gb/&do=findComment&comment=351897)
+- [Aana &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu + Hindi + Kannada] - 2.4GB &amp; 1.5GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.foo/index.php?/forums/topic/174845-aana-2023-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-24gb-15gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351896)
+- [Lift &lpar;2021&rpar; UNCUT 1080p DSNP WEB-DL x264 [Org TV-DL Hindi AAC 2.0 ~192Kbps + Tamil DDP 5.1] ESub - 3.4GB](https://www.1tamilmv.foo/index.php?/forums/topic/174866-lift-2021-uncut-1080p-dsnp-web-dl-x264-org-tv-dl-hindi-aac-20-~192kbps-tamil-ddp-51-esub-34gb/&do=findComment&comment=351895)
+- [Nuvvu Nenu &lpar;2001&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 5.5GB - ESub](https://www.1tamilmv.foo/index.php?/forums/topic/174865-nuvvu-nenu-2001-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-55gb-esub/&do=findComment&comment=351894)
+- [O Saathiya &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.foo/index.php?/forums/topic/174864-o-saathiya-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351893)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
