@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [സ്നേഹത്തോടെ നസ്രായേൻ കാത്തിരിപ്പുണ്ട് |  Rev. Aneesh P Joseph | #shortvideo #jesus #jesusshorts](https://www.youtube.com/watch?v=CrR5FlvH9ks)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 16th of August 2023](https://www.youtube.com/watch?v=-9C3utV1tUk)
+- [Padam Vanamali Video Song | Kakkakuyil | Mohanlal | Mukesh | Sucheta Khanna](https://www.youtube.com/watch?v=0DoOlvdx83w)
+- [Am I Dreaming | Manjupoloru Penkutti | Sayanora Philip | Alphons Joseph | Shelton Pinheiro](https://www.youtube.com/watch?v=mQJ38bzX8QU)
+- [Mazha Pattu - Slowed and Reverbed | Padavettu | Nivin Pauly | Aditi Balan | Anwar Ali | AJX](https://www.youtube.com/watch?v=tFCB6PdHIhA)
 - [എൻ പ്രിയനേ യേശുവേ രക്ഷകാ | Kester #manoramachristiandevotionalsongs #christianshortsvideo](https://www.youtube.com/watch?v=YXo3LDYfqg8)
-- [Kan Munnilaay | Digital Village | Shorts #latestmalayalam #malayalammoviesongs #manoramamusic](https://www.youtube.com/watch?v=uW7Aceux-BM)
-- [Chilla Aane | Anuragam | Renjith Govind | Anuj Sekhar | Joel Johns | Manu Manjith | #AK](https://www.youtube.com/watch?v=EaAa6vFXzKc)
-- [Varika | Sharreth | Sumi Sunny #latestmalayalam #malayalammoviesongs #manoramamusic](https://www.youtube.com/watch?v=7V7JZrogBt4)
-- [Kan Munnilai | Digital Village | Hari S R | Vineeth Sreenivasan](https://www.youtube.com/watch?v=35BLRC5qY6E)
-- [Vanashalabhame Lyrical Video | Sithara Krishnakumar | Sadanandan MV | Innalekal Thalirkkumbol](https://www.youtube.com/watch?v=NmP3peb7tKE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
