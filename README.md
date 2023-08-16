@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ചങ്കിൽ കുരുങ്ങിയ ചോദ്യത്തുണ്ട് | Vidyadharan Master | Rekha Anand #latestmalayalam #manoramamusic](https://www.youtube.com/watch?v=u8s2cqtgp6o)
+- [Minnadi Minnadi |വാനമ്പാടി @ 60| Celebratinbg 60 Musical Years of K S Chithra |Deepak Dev|Kaithapram](https://www.youtube.com/watch?v=2ATMGiOx2D4)
 - [Sheethalamaam Vennilaavu | Arayannam 1981 | P. Bhaskaran |  K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=KSanGa9tkas)
 - [Manikyakallal | Varnappakittu | Mohanlal | Divya Unni | Vidyasagar | I V Sasi | Swarnalatha](https://www.youtube.com/watch?v=kxy_DkyVY9c)
 - [Vannallo Pononam | Onam Song by M G Sreekumar #shorts](https://www.youtube.com/watch?v=1dO8xgo8dGs)
 - [Sneham | Christian Devotional Shorts  #christiandevotionalsongs #manoramamusic #christianshortsvideo](https://www.youtube.com/watch?v=ZswOqALzRC0)
-- [Njanennil Kanunennum | Christian Video Song | Kester | Chittor Gopi | Joji Johns | Christian Song](https://www.youtube.com/watch?v=Pc1G3gLkFQ8)
-- [Japamala 16th of August 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 16th of August 2023](https://www.youtube.com/watch?v=8UVLLHJJ7AY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
