@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Doore Doore Doore | Arayannam 1981 | P. Bhaskaran |  P. Jayachandran | Malayalam Movie Song](https://www.youtube.com/watch?v=GWHo3Ts7IfE)
+- [മാഘമാസം മല്ലികപ്പൂ കോർക്കും കാവിൽ | Magha Masam Mallikappoo | ENTE PONNU THAMPURAN #malayalamsongs](https://www.youtube.com/watch?v=QFp6fikFHWo)
 - [പവിഴമലർപ്പെൺകൊടീ കനകനിലാക്കണ്മണീ...  താലി ചാർത്തി നിൽക്കുമെന്റെ വിണ്ണഴകിൻ ദേവതേ അഗ്നിസാക്ഷിയായ് നീ..](https://www.youtube.com/watch?v=pb06lh131ZI)
 - [Unniyamma Chirutheyi | Aayiram Navulla Ananthan | Mammootty | Gouthami | Yesudas | Johnson](https://www.youtube.com/watch?v=ao_WETLOSVA)
 - [Vannallo Ponninam | Onam Song by M G Sreekumar  #shorts](https://www.youtube.com/watch?v=db4kBOQ2FH4)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #August 17th daily mother Mary prayer and songs](https://www.youtube.com/watch?v=2GCa7aM3rHU)
-- [കേൾക്കാൻ സുഖമുള്ള ഏറ്റവും നല്ല പ്രഭാത ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Kester](https://www.youtube.com/watch?v=taIEFISG5xE)
-- [Japamala 17th of August 2023 # Mathavinte Japamala # Prakashathinte Rahasyangal 17th of August 2023](https://www.youtube.com/watch?v=eTxdEK2nAic)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
