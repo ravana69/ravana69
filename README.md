@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [എൺപതുകളിലെ എവർഗ്രീൻ പ്രണയനായകൻ ശങ്കർ അഭിനയിച്ച മനോഹര ഗാനങ്ങൾ | HITS OF SHANKAR | EVERGREEN HITS](https://www.youtube.com/watch?v=Q4PtyhhqMQA)
+- [എല്ലാ മലയാളികളും ഒരുപോലെ ആവശ്യപ്പെടുന്ന മലയാളസിനിമയിലെ എണ്ണം പറഞ്ഞ ഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=2khTsbRto8k)
 - [മാനേ....   മലരമ്പന്‍ വളര്‍ത്തുന്ന കന്നി മാനേ ..മെരുക്കിയാല്‍ മെരുങ്ങാത്ത കസ്തൂരിമാനെ...](https://www.youtube.com/watch?v=rBchibxWyFQ)
 - [Swapnam Oru Chakku | Remix | DJ Savyo |  Best Actor | #shorts #remix #djsaviofficial #mammootty](https://www.youtube.com/watch?v=ULxfgtb0KAc)
 - [Doore Doore Doore | Arayannam 1981 | P. Bhaskaran |  P. Jayachandran | Malayalam Movie Song](https://www.youtube.com/watch?v=GWHo3Ts7IfE)
 - [മാഘമാസം മല്ലികപ്പൂ കോർക്കും കാവിൽ | Magha Masam Mallikappoo | ENTE PONNU THAMPURAN #malayalamsongs](https://www.youtube.com/watch?v=QFp6fikFHWo)
-- [പവിഴമലർപ്പെൺകൊടീ കനകനിലാക്കണ്മണീ...  താലി ചാർത്തി നിൽക്കുമെന്റെ വിണ്ണഴകിൻ ദേവതേ അഗ്നിസാക്ഷിയായ് നീ..](https://www.youtube.com/watch?v=pb06lh131ZI)
-- [Unniyamma Chirutheyi | Aayiram Navulla Ananthan | Mammootty | Gouthami | Yesudas | Johnson](https://www.youtube.com/watch?v=ao_WETLOSVA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
