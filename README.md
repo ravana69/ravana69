@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Scene Mone - Music Video | RDX | Neeraj Madhav, Shane Nigam,Antony Varghese | Nahas Hidhayath | Rzee](https://www.youtube.com/watch?v=_tTqDraIzzY)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 17th of August 2023](https://www.youtube.com/watch?v=XGPkU5SBeFs)
 - [ഇരുൾ വഴികളിൽ പ്രഭ ചൊരിയുന്നവൻ | Rev. Aneesh P Joseph | #shortvideo #jesus #jesusshorts](https://www.youtube.com/watch?v=UrajeExc2lg)
 - [Karthikappoo - Lyric Video | Kopam Movie | Manjari, Rajesh Vijay | Saji Sreevalsam](https://www.youtube.com/watch?v=wB1qKJTxudo)
 - [August 27 | Official Trailer | Ajit Ravi Pegasus | Kumbalath Padmakumar | Jebitha Ajit](https://www.youtube.com/watch?v=oGDqa10IVKk)
 - [Then Ezhuthave Mazhamukil Samad Sulaiman | Drishya | Harishankar | Sumesh Somasundar](https://www.youtube.com/watch?v=_TIXEOxiXv8)
-- [Aadikkarin Manjal |  Thapasya | Sweet Melody by K J Yesudas #shorts](https://www.youtube.com/watch?v=hygleRJ4YyU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
