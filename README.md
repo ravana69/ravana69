@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 17th of August 2023](https://www.youtube.com/watch?v=XGPkU5SBeFs)
+- [ഇരുൾ വഴികളിൽ പ്രഭ ചൊരിയുന്നവൻ | Rev. Aneesh P Joseph | #shortvideo #jesus #jesusshorts](https://www.youtube.com/watch?v=UrajeExc2lg)
+- [Karthikappoo - Lyric Video | Kopam Movie | Manjari, Rajesh Vijay | Saji Sreevalsam](https://www.youtube.com/watch?v=wB1qKJTxudo)
+- [August 27 | Official Trailer | Ajit Ravi Pegasus | Kumbalath Padmakumar | Jebitha Ajit](https://www.youtube.com/watch?v=oGDqa10IVKk)
+- [Then Ezhuthave Mazhamukil Samad Sulaiman | Drishya | Harishankar | Sumesh Somasundar](https://www.youtube.com/watch?v=_TIXEOxiXv8)
 - [Aadikkarin Manjal |  Thapasya | Sweet Melody by K J Yesudas #shorts](https://www.youtube.com/watch?v=hygleRJ4YyU)
-- [പൂവനഹങ്കാരം ഇവിടിനി ഞാന്‍ കൊക്കരകോകൂവുകയില്ലെങ്കില്‍ എതുവഴിയേ പുലരിവരും  #malayalamsongs#mgsreekumar](https://www.youtube.com/watch?v=IV1Yn5beWpE)
-- [Uthradapooviliyil | Onam Song By K J Yesudas #shorts #kjyesudas #onamsongs #onam #festivalsongs](https://www.youtube.com/watch?v=NCShzWY0wiU)
-- [Dance it up for #KanniluKannilu | #Ayisha  | #Shorts #YTshorts kannilu 01](https://www.youtube.com/watch?v=OPmpHmzKs9U)
-- [Karunya Roopan | Sarva Paapangalumakattunna Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=F17YnKqsq_g)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=q2t2AQfmh60)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
