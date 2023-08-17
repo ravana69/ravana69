@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aadikkarin Manjal |  Thapasya | Sweet Melody by K J Yesudas #shorts](https://www.youtube.com/watch?v=hygleRJ4YyU)
+- [പൂവനഹങ്കാരം ഇവിടിനി ഞാന്‍ കൊക്കരകോകൂവുകയില്ലെങ്കില്‍ എതുവഴിയേ പുലരിവരും  #malayalamsongs#mgsreekumar](https://www.youtube.com/watch?v=IV1Yn5beWpE)
+- [Uthradapooviliyil | Onam Song By K J Yesudas #shorts #kjyesudas #onamsongs #onam #festivalsongs](https://www.youtube.com/watch?v=NCShzWY0wiU)
 - [Dance it up for #KanniluKannilu | #Ayisha  | #Shorts #YTshorts kannilu 01](https://www.youtube.com/watch?v=OPmpHmzKs9U)
 - [Karunya Roopan | Sarva Paapangalumakattunna Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=F17YnKqsq_g)
 - [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=q2t2AQfmh60)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=ZGnph4rg0Hg)
-- [ചെറുകുഴിയാനകളും മദമിളകും കനവുകളില്‍ കനലിലരിക്കരുതേ ഇനി വെറുതേ ചിതലുകളേ |  #evergeeenmalayalamhits](https://www.youtube.com/watch?v=5YtnmijdvH4)
-- [Kalabham Tharaam Video Song | Kavya | Vineeth | Raveendran | KS Chithra | Gireesh Puthenchery](https://www.youtube.com/watch?v=vOlBiFgA_D4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
