@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [JAILER - Hukum Lyric Video - 1080P &amp; 4K - DD5.1 + DTSHDMA5.1 &lpar;Lossless FLAC Upmix&rpar; + Untouched FLAC &lpar;Ultimate Sound Quality&rpar;](https://www.1tamilmv.foo/index.php?/forums/topic/174392-jailer-hukum-lyric-video-1080p-4k-dd51-dtshdma51-lossless-flac-upmix-untouched-flac-ultimate-sound-quality/&do=findComment&comment=351913)
 - [Man vs. Wild with Sunny Leone &lpar;2023&rpar; S01 EP&lpar;01-05&rpar; TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 2.8GB &amp; 1.5GB] - [x264 - &lpar;Tam + Tel&rpar; - 600MB]](https://www.1tamilmv.foo/index.php?/forums/topic/174874-man-vs-wild-with-sunny-leone-2023-s01-ep01-05-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-28gb-15gb-x264-tam-tel-600mb/&do=findComment&comment=351912)
 - [O Saathiya &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.foo/index.php?/forums/topic/174864-o-saathiya-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351911)
 - [Raghuvaran B.Tech &lpar;2014&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD5.1 - 448Kbps&rpar; - 6.6GB - ESub](https://www.1tamilmv.foo/index.php?/forums/topic/174871-raghuvaran-btech-2014-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-66gb-esub/&do=findComment&comment=351910)
 - [Van Helsing &lpar;2004&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.foo/index.php?/forums/topic/174627-van-helsing-2004-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-24gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=351909)
-- [📌 MR. CHANDRAMOULI &lpar;2018&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - NF - 1080P - WEBDL - AVC - DDP 5.1 @ 640 Kbps - ESubs - 1.2GB](https://www.1tamilmv.foo/index.php?/forums/topic/174873-%F0%9F%93%8C-mr-chandramouli-2018-music-video-album-nf-1080p-webdl-avc-ddp-51-640-kbps-esubs-12gb/&do=findComment&comment=351908)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
