@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പവിഴമലർപ്പെൺകൊടീ കനകനിലാക്കണ്മണീ...  താലി ചാർത്തി നിൽക്കുമെന്റെ വിണ്ണഴകിൻ ദേവതേ അഗ്നിസാക്ഷിയായ് നീ..](https://www.youtube.com/watch?v=pb06lh131ZI)
+- [Unniyamma Chirutheyi | Aayiram Navulla Ananthan | Mammootty | Gouthami | Yesudas | Johnson](https://www.youtube.com/watch?v=ao_WETLOSVA)
+- [Vannallo Ponninam | Onam Song by M G Sreekumar  #shorts](https://www.youtube.com/watch?v=db4kBOQ2FH4)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #August 17th daily mother Mary prayer and songs](https://www.youtube.com/watch?v=2GCa7aM3rHU)
 - [കേൾക്കാൻ സുഖമുള്ള ഏറ്റവും നല്ല പ്രഭാത ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Kester](https://www.youtube.com/watch?v=taIEFISG5xE)
 - [Japamala 17th of August 2023 # Mathavinte Japamala # Prakashathinte Rahasyangal 17th of August 2023](https://www.youtube.com/watch?v=eTxdEK2nAic)
-- [രാവിലെ പ്രാര്‍ത്ഥന 17th of August shorts  # Athiravile Prarthana 17th of August 2023 shorts](https://www.youtube.com/watch?v=M5a6NQJW5Ss)
-- [പ്രഭാത പ്രാര്‍ത്ഥന August 17 # Athiravile Prarthana 17th of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=p72t4eI2odk)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 17th August 2023](https://www.youtube.com/watch?v=Dy7WZ3HeCS0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
