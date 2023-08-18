@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന 18th of August shorts  # Athiravile Prarthana 18th of August 2023 shorts](https://www.youtube.com/watch?v=qmWQx57AioA)
 - [പ്രഭാത പ്രാര്‍ത്ഥന August 18 # Athiravile Prarthana 18th of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=cNFXPMrbtks)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 18th August 2023](https://www.youtube.com/watch?v=ThPcMQHo5nM)
 - [വീണ്ടുമൊരു ഓണക്കാലം കൂടി വരവായി..ദാസേട്ടൻറെ ഓണപ്പാട്ടുകളും..| FESTIVAL SONGS | Original Remastered](https://www.youtube.com/watch?v=K6VM0jGs_wU)
 - [നിന്റെ കൽപ്പന കാത്തിടാനായ് ഞാനൊരുങ്ങുന്നു.](https://www.youtube.com/watch?v=WzQfuqhDQj0)
 - [Vijanamoru Theeram - Lyrical | Kushi (Malayalam) | Vijay Deverakonda,Samantha| Hesham Abdul Wahab](https://www.youtube.com/watch?v=j1oOgs4LJ5A)
-- [Vellinilaa Thullikalo Video Song| Mohanlal | Vidyasagar-Gireesh Puthenchery| KS Chithra-MG Sreekumar](https://www.youtube.com/watch?v=b7BjWrg9XHA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
