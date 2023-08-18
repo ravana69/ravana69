@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [വെറുതെ വെറുതെ പരതും മിഴികൾ വേഴാമ്പലായ് നിൻ നടകാത്തു... ആവണിപൊന്നൂഞ്ഞാലാടിക്കാം നിന്നെ ഞാൻ...](https://www.youtube.com/watch?v=n5CFNHdi_IM)
+- [ഹൃദയം തകര്‍ക്കും നൊമ്പരഗാനങ്ങള്‍ | Heart Broken Songs | Sad Songs Malayalam | Video Jukebox | HD |](https://www.youtube.com/watch?v=g68Lz1enA7Q)
+- [Pottuthotta | Alice In Wonderland | Jayaram | Sandhya | Vidyasagar | Yesudas | Sibi Malayil](https://www.youtube.com/watch?v=L07kJL5vGZU)
 - [Njan Ninne Kaividumo | KS Chithra | Christian Devotional | Shorts #christiandevotional #shortsvideo](https://www.youtube.com/watch?v=_a9VlRdzLj8)
 - [Japamala 18th of August 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 18th of August 2023](https://www.youtube.com/watch?v=OIaLZzWi2oY)
 - [കാലങ്ങളായി മനസ്സിൽ പതിഞ്ഞുപോയ പരമ്പരാഗത ക്രിസ്തീയ ഗാനങ്ങൾ |Traditional Songs|Malayalam Christian](https://www.youtube.com/watch?v=ExEMvv41NMg)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #August 18th daily mother Mary prayer and songs](https://www.youtube.com/watch?v=81R-LsPt73E)
-- [രാവിലെ പ്രാര്‍ത്ഥന 18th of August shorts  # Athiravile Prarthana 18th of August 2023 shorts](https://www.youtube.com/watch?v=qmWQx57AioA)
-- [പ്രഭാത പ്രാര്‍ത്ഥന August 18 # Athiravile Prarthana 18th of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=cNFXPMrbtks)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
