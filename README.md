@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Saranam Nee Saranam Nee Saranam Ayyane - Lyrical | Bumper | Vetri | Harisankar | Govind Vasantha](https://www.youtube.com/watch?v=Bp5872wc9ts)
+- [Oro Kanavum | Aagathan | Lyrical Video | Vijay Yesudas | Shweta Mohan |  Ouseppachan | Kaithapram](https://www.youtube.com/watch?v=dIWaFfBtn3A)
+- [Shake it for #KanniluKannilu | #Ayisha  | #Shorts #YTshorts kannilu 02](https://www.youtube.com/watch?v=JLjZU5WKmxQ)
+- [Sandhye Shaarada Sandhye | Ambadi Thannilorunni 1986  | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=sd33NQ-siEc)
 - [വെറുതെ വെറുതെ പരതും മിഴികൾ വേഴാമ്പലായ് നിൻ നടകാത്തു... ആവണിപൊന്നൂഞ്ഞാലാടിക്കാം നിന്നെ ഞാൻ...](https://www.youtube.com/watch?v=n5CFNHdi_IM)
 - [ഹൃദയം തകര്‍ക്കും നൊമ്പരഗാനങ്ങള്‍ | Heart Broken Songs | Sad Songs Malayalam | Video Jukebox | HD |](https://www.youtube.com/watch?v=g68Lz1enA7Q)
-- [Pottuthotta | Alice In Wonderland | Jayaram | Sandhya | Vidyasagar | Yesudas | Sibi Malayil](https://www.youtube.com/watch?v=L07kJL5vGZU)
-- [Njan Ninne Kaividumo | KS Chithra | Christian Devotional | Shorts #christiandevotional #shortsvideo](https://www.youtube.com/watch?v=_a9VlRdzLj8)
-- [Japamala 18th of August 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 18th of August 2023](https://www.youtube.com/watch?v=OIaLZzWi2oY)
-- [കാലങ്ങളായി മനസ്സിൽ പതിഞ്ഞുപോയ പരമ്പരാഗത ക്രിസ്തീയ ഗാനങ്ങൾ |Traditional Songs|Malayalam Christian](https://www.youtube.com/watch?v=ExEMvv41NMg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
