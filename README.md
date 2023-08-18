@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Mathagam &lpar;2023&rpar; S01 EP &lpar;01-08&rpar; DSNP WEB-DL - [4K 2160p - 1080p - 720p - H.264/265 - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - DD5.1 - [19.7GB - 6.2GB - 3.5GB - 2.3GB - 1.3GB] - ESub - Leyon](https://www.1tamilmv.foo/index.php?/forums/topic/168334-mathagam-2023-s01-ep-01-08-dsnp-web-dl-4k-2160p-1080p-720p-h264265-tamil-telugu-hindi-malayalam-kannnada-dd51-197gb-62gb-35gb-23gb-13gb-esub-leyon/&do=findComment&comment=351955)
+- [Aayirathonnu Nunakal &lpar;2023&rpar; SONY WEB-DL Multi DDP5.1 Esubs - 2160p [HDR10-DoVi] | 1080p - 8.3 GB | 3.8 GB](https://www.1tamilmv.foo/index.php?/forums/topic/174893-aayirathonnu-nunakal-2023-sony-web-dl-multi-ddp51-esubs-2160p-hdr10-dovi-1080p-83-gb-38-gb/&do=findComment&comment=351954)
 - [Kolai &lpar;2023&rpar; WEB-DL DDP5.1 Esubs - 2160p [HDR-DoVi] | 1080p - 13.5 GB | 11 GB | 9.7 GB](https://www.1tamilmv.foo/index.php?/forums/topic/174892-kolai-2023-web-dl-ddp51-esubs-2160p-hdr-dovi-1080p-135-gb-11-gb-97-gb/&do=findComment&comment=351953)
 - [Hidimbha &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.4GB - 1.6GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.foo/index.php?/forums/topic/174880-hidimbha-2023-tamil-true-web-dl-4k-1080p-720p-avc-dd51-384kbps-24gb-16gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=351952)
 - [35 Telugu Movies - SS / JC / AMZN WEB DL - H264 - DDP5.1/DD5.1/AAC2.0 - ESubs - [1080p &amp; 720p - 200GB] [GDrive]](https://www.1tamilmv.foo/index.php?/forums/topic/167938-35-telugu-movies-ss-jc-amzn-web-dl-h264-ddp51dd51aac20-esubs-1080p-720p-200gb-gdrive/&do=findComment&comment=351951)
-- [35 Telugu Movies - SS / JC / AMZN WEB DL - H264 - DDP5.1/DD5.1/AAC2.0 - ESubs - [1080p &amp; 720p - 200GB] [GDrive]](https://www.1tamilmv.foo/index.php?/forums/topic/167938-35-telugu-movies-ss-jc-amzn-web-dl-h264-ddp51dd51aac20-esubs-1080p-720p-200gb-gdrive/&do=findComment&comment=351950)
-- [Mathagam &lpar;2023&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [4K ,1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 18GB - 3.5GB &amp; 1GB] - ESub](https://www.1tamilmv.foo/index.php?/forums/topic/174885-mathagam-2023-s01-ep-01-08-true-web-dl-4k-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-18gb-35gb-1gb-esub/&do=findComment&comment=351949)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
