@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vera Maari Office &lpar;2023&rpar; S01 EP 04 - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174912-vera-maari-office-2023-s01-ep-04-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=352006)
 - [Van Helsing &lpar;2004&rpar; Open Matte BluRay 4K SDR - 2160p - HEVC - Multi Original Audios - &lpar;Org JC DD2.0 - 192Kbps&rpar; [Tamil + Telugu + Hindi + English &lpar;DD5.1&rpar;]  - ESub.mkv - 6.43 GB](https://www.1tamilmv.dad/index.php?/forums/topic/174877-van-helsing-2004-open-matte-bluray-4k-sdr-2160p-hevc-multi-original-audios-org-jc-dd20-192kbps-tamil-telugu-hindi-english-dd51-esubmkv-643-gb/&do=findComment&comment=352005)
 - [Guns &amp; Gulaabs &lpar;2023&rpar; S01 EP&lpar;01-07&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam] - 11GB - 6GB - 1.4GB &amp; 700MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174896-guns-gulaabs-2023-s01-ep01-07-true-web-dl-1080p-720p-avc-dd51-192kbps-tamil-telugu-hindi-malayalam-11gb-6gb-14gb-700mb-esub/&do=findComment&comment=352004)
 - [Vera Maari Office &lpar;2023&rpar; S01 EP 04 - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174912-vera-maari-office-2023-s01-ep-04-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=352003)
 - [Blue Beetle &lpar;2023&rpar; Telugu HQ HDCAM - [1080p &amp; 720p - x264 - 2.6GB &amp; 1.3GB | x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.dad/index.php?/forums/topic/174898-blue-beetle-2023-telugu-hq-hdcam-1080p-720p-x264-26gb-13gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=352002)
-- [Rudrangi &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Malayalam + Kannada] - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174909-rudrangi-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-malayalam-kannada-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352001)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
