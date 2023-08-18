@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 19th August 2023](https://www.youtube.com/watch?v=t478uKLOY6A)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=ErlOhPNCmmg)
 - [Pottuthotta Ponnumani Video Song | Jayaram | KJ Yesudas | Vidyasagar | Gireesh Puthenchery](https://www.youtube.com/watch?v=z-I6wT5kLuU)
 - [പൊന്നുപോലെയീ ജീവൻ , തന്നെനിക്കെൻ നാഥൻ :](https://www.youtube.com/watch?v=FfgN-g0NsN4)
 - [O Priye Priye | Aniyathipravu | Kunchacko Boban | Shalini | Fazil | Ouseppachan | Yesudas](https://www.youtube.com/watch?v=keWR6soGQJk)
 - [Christian Superhit Songs | Rajkumar Radhakrishnan | Wilson Piravom |Christian Melody Songs Malayalam](https://www.youtube.com/watch?v=2waDXBHDIzg)
-- [Periyathor Virunthrandru...Musical Movie | Mounamana Azhukaikal | Vidyadharan Master | Zia Ul Haq](https://www.youtube.com/watch?v=8U0B_eFi__E)
-- [യേശു ശരിക്കും നമുക്കാരാണ്? |  Rev. Aneesh P Joseph | #shortvideo #jesus #jesusshorts](https://www.youtube.com/watch?v=s3FZzzszD5c)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
