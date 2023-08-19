@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Goa &lpar;2010&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 3.8GB - GDFlix](https://www.1tamilmv.dad/index.php?/forums/topic/174916-goa-2010-tamil-true-web-dl-1080p-avc-untouched-aac20-38gb-gdflix/&do=findComment&comment=352020)
+- [Darling &lpar;2015&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 6.6GB - ESub - GDFlix](https://www.1tamilmv.dad/index.php?/forums/topic/174915-darling-2015-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-66gb-esub-gdflix/&do=findComment&comment=352019)
 - [Sex Education &lpar;2019&rpar; Complete S01 Merged 1080p &amp; 720p NF WEB-DL &lpar;Telugu DDP5.1 - 640Kbps&rpar; x264 ESub [Google Drive]](https://www.1tamilmv.dad/index.php?/forums/topic/174520-sex-education-2019-complete-s01-merged-1080p-720p-nf-web-dl-telugu-ddp51-640kbps-x264-esub-google-drive/&do=findComment&comment=352018)
 - [Guns &amp; Gulaabs &lpar;2023&rpar; S01 EP&lpar;01-07&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam] - 11GB - 6GB - 1.4GB &amp; 700MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174896-guns-gulaabs-2023-s01-ep01-07-true-web-dl-1080p-720p-avc-dd51-192kbps-tamil-telugu-hindi-malayalam-11gb-6gb-14gb-700mb-esub/&do=findComment&comment=352017)
 - [1920: Horrors of the Heart &lpar;2023&rpar; Telugu HD - [1080p &amp; 720p - x264 - 2.2GB &amp; 1.3GB| x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.dad/index.php?/forums/topic/174034-1920-horrors-of-the-heart-2023-telugu-hd-1080p-720p-x264-22gb-13gb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352016)
-- [Man vs. Wild with Sunny Leone &lpar;2023&rpar; Complete S01 EP&lpar;01-05&rpar; Merged TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 2.8GB &amp; 1.5GB] - [x264 - &lpar;Tam + Tel&rpar; - 600MB] [Google Drive]](https://www.1tamilmv.dad/index.php?/forums/topic/174914-man-vs-wild-with-sunny-leone-2023-complete-s01-ep01-05-merged-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-28gb-15gb-x264-tam-tel-600mb-google-drive/&do=findComment&comment=352015)
-- [The Monkey King &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.2GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174895-the-monkey-king-2023-hd-original-audios-1080p-720p-avc-dd51-640kbps-tamil-telugu-hindi-eng-32gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=352014)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
