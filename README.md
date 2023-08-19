@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=OgbF5S6SL6Q)
+- [Mazhamukil – Cloud of Love | Music Video |Amal K Joby | Dayyana Hameed | Jaison J Nair | Harikumar R](https://www.youtube.com/watch?v=dSARoCzZ6Ck)
 - [മലയാള സിനിമയിലെ ദൃശ്യഭംഗിയും ശ്രവ്യഭംഗിയും ഒത്തുചേർന്ന   പ്രശസ്ത ഗാനങ്ങൾ | Re Mastered Video Songs](https://www.youtube.com/watch?v=eiAqIqF3J6Y)
 - [വീട്ടിലെ വിശേഷദിവസങ്ങൾ ഉത്സവ സുദിനമാക്കുന്ന മലയാള സിനിമ ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=OF9zvluZ3sQ)
 - [Varthinkalal  Maril | Mammootty | Raveendran | KJ Yesudas, KS Chithra | Gireesh Puthenchery](https://www.youtube.com/watch?v=2Qo7S94E6hI)
 - [Njan Ente Soukhyavum | Christian Devotional Shorts  #christiandevotionalsongs #manoramamusic](https://www.youtube.com/watch?v=wr7TYAZITxA)
-- [Thathamma Peru Video Song | Dosth | Kunchacko Boban - Kavya | Vidyasagar | KJ Yesudas -Sujatha Mohan](https://www.youtube.com/watch?v=xu8V6tKW4jc)
-- [May Masam Junoday | Alice In Wonderland | Vidyasagar | Jayaram | Kathal Sandya | Vineeth](https://www.youtube.com/watch?v=yTMtVwf6Nj0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
