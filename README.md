@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Puliyilakkarayolum | Jaathakam | KJ Yesudas |Jayaram | Shari |#shorts](https://www.youtube.com/watch?v=7oilS95KFeg)
+- [Pottuthottu Ponnumani | Alice in Wonderland | Cicily | Vidyasagar | Gireesh Puthenchery](https://www.youtube.com/watch?v=U9SM_-sS6sw)
+- [എൻ പ്രിയൻ വലംകരത്തിൽ | Thomas Mathew Karunagappally | KG Markose #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=EwBG0lu-BBI)
 - [Karineela Kannilenthadi |Romantic Melody by Vineeth Sreenivasan&Sujatha #shorts #vineethsreenivasan](https://www.youtube.com/watch?v=OC06a5dFEAw)
 - [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=OgbF5S6SL6Q)
 - [Mazhamukil – Cloud of Love | Music Video |Amal K Joby | Dayyana Hameed | Jaison J Nair | Harikumar R](https://www.youtube.com/watch?v=dSARoCzZ6Ck)
-- [മലയാള സിനിമയിലെ ദൃശ്യഭംഗിയും ശ്രവ്യഭംഗിയും ഒത്തുചേർന്ന   പ്രശസ്ത ഗാനങ്ങൾ | Re Mastered Video Songs](https://www.youtube.com/watch?v=eiAqIqF3J6Y)
-- [വീട്ടിലെ വിശേഷദിവസങ്ങൾ ഉത്സവ സുദിനമാക്കുന്ന മലയാള സിനിമ ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=OF9zvluZ3sQ)
-- [Varthinkalal  Maril | Mammootty | Raveendran | KJ Yesudas, KS Chithra | Gireesh Puthenchery](https://www.youtube.com/watch?v=2Qo7S94E6hI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
