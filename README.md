@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Shobhayerrum | Shorts | Nithya Mammen #manoramachristiandevotionalsongs #christiandevotionalsongs](https://www.youtube.com/watch?v=1hD20SyHCKI)
+- [Christian Melody Songs | Kester | Abhijith Kollam | Christian Devotional Songs Malayalam |Joji Johns](https://www.youtube.com/watch?v=IB1qdH7Fqgk)
 - [Pon Kanavu Minukkum | Pandippada | Mano | Renjini Jose | Timy | Suresh Peters | Santhosh Varma](https://www.youtube.com/watch?v=jV4Hm6kEWlY)
 - [യേശുവെന്ന നല്ല ഇടയൻ |  Rev. Aneesh P Joseph | #shortvideo #jesus #jesusshorts](https://www.youtube.com/watch?v=kECHZzOand0)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 19th of August 2023](https://www.youtube.com/watch?v=PrhiXUSpwso)
 - [Puliyilakkarayolum | Jaathakam | KJ Yesudas |Jayaram | Shari |#shorts](https://www.youtube.com/watch?v=7oilS95KFeg)
-- [Pottuthottu Ponnumani | Alice in Wonderland | Cicily | Vidyasagar | Gireesh Puthenchery](https://www.youtube.com/watch?v=U9SM_-sS6sw)
-- [എൻ പ്രിയൻ വലംകരത്തിൽ | Thomas Mathew Karunagappally | KG Markose #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=EwBG0lu-BBI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
