@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Guns &amp; Gulaabs &lpar;2023&rpar; S01 EP&lpar;01-07&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam] - 11GB - 6GB - 1.4GB &amp; 700MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174896-guns-gulaabs-2023-s01-ep01-07-true-web-dl-1080p-720p-avc-dd51-192kbps-tamil-telugu-hindi-malayalam-11gb-6gb-14gb-700mb-esub/&do=findComment&comment=352027)
+- [Rudrangi &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Malayalam + Kannada] - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174909-rudrangi-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-malayalam-kannada-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352026)
+- [Thalainagaram 2 &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.4GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174913-thalainagaram-2-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-54gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352025)
 - [Goa &lpar;2010&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 3.8GB - GDFlix](https://www.1tamilmv.dad/index.php?/forums/topic/174916-goa-2010-tamil-true-web-dl-1080p-avc-untouched-aac20-38gb-gdflix/&do=findComment&comment=352024)
 - [Sex Education &lpar;2020&rpar; Complete S02 Merged [1080p &amp; 720p] NF WEB-DL &lpar;Telugu DDP5.1 - 640Kbps&rpar; - x264 ESub [Google Drive]](https://www.1tamilmv.dad/index.php?/forums/topic/174917-sex-education-2020-complete-s02-merged-1080p-720p-nf-web-dl-telugu-ddp51-640kbps-x264-esub-google-drive/&do=findComment&comment=352023)
-- [Sex Education &lpar;2020&rpar; Complete S02 Merged [1080p &amp; 720p] NF WEB-DL &lpar;Telugu DDP5.1 - 640Kbps&rpar; - x264 ESub [Google Drive]](https://www.1tamilmv.dad/index.php?/forums/topic/174917-sex-education-2020-complete-s02-merged-1080p-720p-nf-web-dl-telugu-ddp51-640kbps-x264-esub-google-drive/&do=findComment&comment=352022)
-- [Thalainagaram 2 &lpar;2023&rpar; Tamil HQ True WEB DL H264 DD5.1&lpar;640Kbps&rpar; - ESub - [1080p &amp; 720p - 5.3GB - 3GB - 1.3GB] [GDRIVE]](https://www.1tamilmv.dad/index.php?/forums/topic/167508-thalainagaram-2-2023-tamil-hq-true-web-dl-h264-dd51640kbps-esub-1080p-720p-53gb-3gb-13gb-gdrive/&do=findComment&comment=352021)
-- [Goa &lpar;2010&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 3.8GB - GDFlix](https://www.1tamilmv.dad/index.php?/forums/topic/174916-goa-2010-tamil-true-web-dl-1080p-avc-untouched-aac20-38gb-gdflix/&do=findComment&comment=352020)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
