@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Junile Nilaamazhayil Video Song | KJ Yesudas | Sujatha Mohan | Gireesh Puthenchery | M Jayachandran](https://www.youtube.com/watch?v=SkhaREDhV64)
+- [ഏതു രാവിലും പിരിയാത്ത സ്നേഹം, ഏതു നോവിലും അകലാത്ത സ്നേഹം .](https://www.youtube.com/watch?v=ErJcv5hcdF0)
 - [Shobhayerrum | Shorts | Nithya Mammen #manoramachristiandevotionalsongs #christiandevotionalsongs](https://www.youtube.com/watch?v=1hD20SyHCKI)
 - [Christian Melody Songs | Kester | Abhijith Kollam | Christian Devotional Songs Malayalam |Joji Johns](https://www.youtube.com/watch?v=IB1qdH7Fqgk)
 - [Pon Kanavu Minukkum | Pandippada | Mano | Renjini Jose | Timy | Suresh Peters | Santhosh Varma](https://www.youtube.com/watch?v=jV4Hm6kEWlY)
 - [യേശുവെന്ന നല്ല ഇടയൻ |  Rev. Aneesh P Joseph | #shortvideo #jesus #jesusshorts](https://www.youtube.com/watch?v=kECHZzOand0)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 19th of August 2023](https://www.youtube.com/watch?v=PrhiXUSpwso)
-- [Puliyilakkarayolum | Jaathakam | KJ Yesudas |Jayaram | Shari |#shorts](https://www.youtube.com/watch?v=7oilS95KFeg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
