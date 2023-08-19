@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Chandni Chowk To China &lpar;2009&rpar; 720p 10bit AMZN WEBRip x265 HEVC Hindi AAC 5.1 ESub ~ Immortal](https://www.1tamilmv.dad/index.php?/forums/topic/174920-chandni-chowk-to-china-2009-720p-10bit-amzn-webrip-x265-hevc-hindi-aac-51-esub-~-immortal/&do=findComment&comment=352032)
-- [Idam Jagath &lpar;2018&rpar; UNCUT 720p 10bit AMZN WEBRip x265 HEVC [Org YT Hindi DDP 2.0 ~192Kbps + Telugu DDP 2.0] ESub ~ Immortal](https://www.1tamilmv.dad/index.php?/forums/topic/174919-idam-jagath-2018-uncut-720p-10bit-amzn-webrip-x265-hevc-org-yt-hindi-ddp-20-~192kbps-telugu-ddp-20-esub-~-immortal/&do=findComment&comment=352031)
-- [Guns and Gulaabs S01 720p 10bit NF WEBRip x265 HEVC Hindi AAC 5.1 ESub ~ Immortal](https://www.1tamilmv.dad/index.php?/forums/topic/174918-guns-and-gulaabs-s01-720p-10bit-nf-webrip-x265-hevc-hindi-aac-51-esub-~-immortal/&do=findComment&comment=352030)
-- [Raghuvaran B.Tech &lpar;2014&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD5.1 - 448Kbps&rpar; - 6.6GB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174871-raghuvaran-btech-2014-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-66gb-esub/&do=findComment&comment=352029)
-- [The Monkey King &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.2GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174895-the-monkey-king-2023-hd-original-audios-1080p-720p-avc-dd51-640kbps-tamil-telugu-hindi-eng-32gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=352028)
+- [Darling &lpar;2015&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 6.6GB - ESub - GDFlix](https://www.1tamilmv.dad/index.php?/forums/topic/174915-darling-2015-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-66gb-esub-gdflix/&do=findComment&comment=352037)
+- [Goa &lpar;2010&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 3.8GB - GDFlix](https://www.1tamilmv.dad/index.php?/forums/topic/174916-goa-2010-tamil-true-web-dl-1080p-avc-untouched-aac20-38gb-gdflix/&do=findComment&comment=352036)
+- [Guns &amp; Gulaabs &lpar;2023&rpar; S01 EP&lpar;01-07&rpar; NF WEB-DL - [1080p &amp; 720p - H.264/265 - DD5.1 - [Tamil + Telugu + Hindi + Malayalam + English] - 31GB - 21GB - 13.4GB - 12GB -  10.8GB - 6GB - 5.2GB - 1.8GB - 900MB] - ESub - Leyon](https://www.1tamilmv.dad/index.php?/forums/topic/168053-guns-gulaabs-2023-s01-ep01-07-nf-web-dl-1080p-720p-h264265-dd51-tamil-telugu-hindi-malayalam-english-31gb-21gb-134gb-12gb-108gb-6gb-52gb-18gb-900mb-esub-leyon/&do=findComment&comment=352035)
+- [Guns and Gulaabs S01 720p 10bit NF WEBRip x265 HEVC Telugu DDP 5.1 ESub ~ Immortal](https://www.1tamilmv.dad/index.php?/forums/topic/174922-guns-and-gulaabs-s01-720p-10bit-nf-webrip-x265-hevc-telugu-ddp-51-esub-~-immortal/&do=findComment&comment=352034)
+- [Guns and Gulaabs S01 720p 10bit NF WEBRip x265 HEVC Tamil DDP 5.1 ESub ~ Immortal](https://www.1tamilmv.dad/index.php?/forums/topic/174921-guns-and-gulaabs-s01-720p-10bit-nf-webrip-x265-hevc-tamil-ddp-51-esub-~-immortal/&do=findComment&comment=352033)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
