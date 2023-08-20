@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പാട്ടുപെട്ടി - Paattupetti Vol 21 | Malayalam Film Songs](https://www.youtube.com/watch?v=XgSMSrVsVBw)
+- [Kannare Kannare Video Song | Mammootty | Meena | Dileep | KS Chithra | MG Sreekumar | Mohan Sithara](https://www.youtube.com/watch?v=_zdpy1tFrZA)
+- [Show your steps for #KanniluKannilu | #Ayisha  | #Shorts #YTshorts kannila 05](https://www.youtube.com/watch?v=hy6YnRVcF2Y)
+- [Thirubalithaarayil | Pappachan Olivilanu | Ouseppachan | Sinto Sunny |  Deva Reghuchandran Nair](https://www.youtube.com/watch?v=enzQxDqx7dw)
+- [Manassilayiram |Karaoke Video| Bhaskar The Rascal | Mammootty |Afsal| Hari Narayanan BK | Deepak Dev](https://www.youtube.com/watch?v=QLu5jShG3f0)
 - [Uthradapooviliyil  | Onam Song by K J Yesudas  #shorts](https://www.youtube.com/watch?v=DlDv5OwdN3g)
-- [Thankatheril | Vadhu Doctoraanu | Jayaram | Nadiya Moidu | Kannur Rajan | Yesudas | Chithra](https://www.youtube.com/watch?v=zFJQgsXskbU)
-- [കണ്ടു കണ്ടു കണ്ടില്ല കേട്ടു കേട്ടു കേട്ടില്ല .. എന്തെല്ലാം എന്തെല്ലാം സ്വപ്നങ്ങളാണെന്നോ....](https://www.youtube.com/watch?v=QBb4uCkxLAE)
-- [O Priye |  Aniyathipraavu 1997 | M.G. Sreekumar, Sujatha Mohan & B.Arundhathi | Malayalam Movie Song](https://www.youtube.com/watch?v=A3Ss0teu2vE)
-- [തകർന്ന മനസുകൾക്ക് ആശ്വാസമായെത്തുന്ന ക്രിസ്തീയ ഗാനങ്ങൾ | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=rhxFLzdWsMY)
-- [Japamala 20th of August 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 20th of August 2023](https://www.youtube.com/watch?v=GRQNcU1oZoM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
