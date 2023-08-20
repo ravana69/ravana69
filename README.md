@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Padaippalan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.1GB - 1.1GB &amp; 850MB] - [x264 - 600MB &amp; 300MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174883-padaippalan-2023-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-21gb-11gb-850mb-x264-600mb-300mb-esub/&do=findComment&comment=352069)
+- [Katchikkaaran &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.4GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174884-katchikkaaran-2023-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-24gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=352068)
 - [Sex Education &lpar;2020&rpar; S02 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.2GB - 2.4GB &amp; 1.2GB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174927-sex-education-2020-s02-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-52gb-24gb-12gb-esub/&do=findComment&comment=352066)
 - [@Benzmovies - Pokiri &lpar;2006&rpar; Telugu 4K Remastered Print original H265 Dolby Atmos 5.1 Benz.mkv 25GB](https://www.1tamilmv.dad/index.php?/forums/topic/168032-benzmovies-pokiri-2006-telugu-4k-remastered-print-original-h265-dolby-atmos-51-benzmkv-25gb/&do=findComment&comment=352065)
 - [Sex Education &lpar;2020&rpar; S02 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.2GB - 2.4GB &amp; 1.2GB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174927-sex-education-2020-s02-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-52gb-24gb-12gb-esub/&do=findComment&comment=352064)
-- [MARVEL CINEMATIC UNIVERSE MOVIES COLLECTION  [2160P &amp; 1080p &amp; 720p ] HDRip IMAX x264 Multi Audio DD5.1 Dloby Atmos ESubs[GDrive &amp; Telegram]](https://www.1tamilmv.dad/index.php?/forums/topic/160376-marvel-cinematic-universe-movies-collection-2160p-1080p-720p-hdrip-imax-x264-multi-audio-dd51-dloby-atmos-esubsgdrive-telegram/&do=findComment&comment=352063)
-- [Sex Education &lpar;2020&rpar; S02 EP &lpar;01-08&rpar; - HQ HDRip - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - [1080p &amp; 720p - 5.6GB - 2.4GB] - ESub [GDrive]](https://www.1tamilmv.dad/index.php?/forums/topic/165004-sex-education-2020-s02-ep-01-08-hq-hdrip-tamil-telugu-hindi-eng-dd51-192kbps-1080p-720p-56gb-24gb-esub-gdrive/&do=findComment&comment=352062)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
