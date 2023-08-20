@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന August 21 # Athiravile Prarthana 21st of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=N7gW7N828Yo)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 21st August 2023](https://www.youtube.com/watch?v=XU6K9v0Czts)
 - [നിന്നെ മാത്രം ധ്യാനിച്ചു ധ്യാനിച്ചു മനസു തളർന്നാൽ തളർന്നിടട്ടെ !](https://www.youtube.com/watch?v=8NeZxBWbRGE)
 - [Varika | Sharreth | Sumi Sunny #latestmalayalam #malayalammoviesongs #manoramamusic](https://www.youtube.com/watch?v=cQ_WnKZcEt0)
 - [Swapnam Oru Chakku | Remix | DJ Savyo |  Best Actor | #shorts #remix #djsaviofficial #mammootty](https://www.youtube.com/watch?v=9QOlbg_roM4)
 - [നസ്രായേൻ എന്ന പ്രാണനാഥനെ  അതുല്യനാക്കുന്ന ഒന്നുണ്ട്? |  Rev. Aneesh P Joseph | #shortvideo #jesus](https://www.youtube.com/watch?v=m5SryKmlqKQ)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 20th of August 2023](https://www.youtube.com/watch?v=6EuKYD16sYo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
