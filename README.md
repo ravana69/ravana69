@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Poomanam Poothu Niranju | Video | Madhu Balakrishnan | Kaithapram | മധുബാലകൃഷ്ണൻ ആലപിച്ച ഓണപ്പാട്ട്](https://www.youtube.com/watch?v=WefWxxOE9Z8)
+- [Ponchinga Chillayilaaro | Onam Song by K J Yesudas #shorts #kjyesudas #onam #yesudasonamsong](https://www.youtube.com/watch?v=ADeQDVMPUbs)
 - [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=MXFauw4WkEs)
 - [Ragam Thaanam  | Soorya Gayathri | ONV Kurup | Raveendran | Mohanlal | KJ Yesudas  | Urvashi](https://www.youtube.com/watch?v=4OtzCo6pgtA)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #August 20th daily mother Mary prayer and songs](https://www.youtube.com/watch?v=QfolUy03j7I)
 - [Kalakkatha  | Remix |DJ Savyo| Ayyappanum Koshiyum  #shorts #djsaviofficial #jakesbejoy #prithviraj](https://www.youtube.com/watch?v=FQRTbuySGcY)
-- [പാട്ടുപെട്ടി - Paattupetti Vol 21 | Malayalam Film Songs](https://www.youtube.com/watch?v=XgSMSrVsVBw)
-- [Kannare Kannare Video Song | Mammootty | Meena | Dileep | KS Chithra | MG Sreekumar | Mohan Sithara](https://www.youtube.com/watch?v=_zdpy1tFrZA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
