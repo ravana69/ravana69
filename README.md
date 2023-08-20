@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pizza 3: The Mummy &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.dad/index.php?/forums/topic/174905-pizza-3-the-mummy-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352040)
+- [Mr. Pregnant &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.dad/index.php?/forums/topic/174904-mr-pregnant-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352039)
 - [Cheran Chozhan Pandia &lpar;1998&rpar;.Tamil.1080p.Web-dl.HEVC.AAC2.0 - 2.5GB](https://www.1tamilmv.dad/index.php?/forums/topic/174923-cheran-chozhan-pandia-1998tamil1080pweb-dlhevcaac20-25gb/&do=findComment&comment=352038)
 - [Darling &lpar;2015&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 6.6GB - ESub - GDFlix](https://www.1tamilmv.dad/index.php?/forums/topic/174915-darling-2015-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-66gb-esub-gdflix/&do=findComment&comment=352037)
 - [Goa &lpar;2010&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 3.8GB - GDFlix](https://www.1tamilmv.dad/index.php?/forums/topic/174916-goa-2010-tamil-true-web-dl-1080p-avc-untouched-aac20-38gb-gdflix/&do=findComment&comment=352036)
-- [Guns &amp; Gulaabs &lpar;2023&rpar; S01 EP&lpar;01-07&rpar; NF WEB-DL - [1080p &amp; 720p - H.264/265 - DD5.1 - [Tamil + Telugu + Hindi + Malayalam + English] - 31GB - 21GB - 13.4GB - 12GB -  10.8GB - 6GB - 5.2GB - 1.8GB - 900MB] - ESub - Leyon](https://www.1tamilmv.dad/index.php?/forums/topic/168053-guns-gulaabs-2023-s01-ep01-07-nf-web-dl-1080p-720p-h264265-dd51-tamil-telugu-hindi-malayalam-english-31gb-21gb-134gb-12gb-108gb-6gb-52gb-18gb-900mb-esub-leyon/&do=findComment&comment=352035)
-- [Guns and Gulaabs S01 720p 10bit NF WEBRip x265 HEVC Telugu DDP 5.1 ESub ~ Immortal](https://www.1tamilmv.dad/index.php?/forums/topic/174922-guns-and-gulaabs-s01-720p-10bit-nf-webrip-x265-hevc-telugu-ddp-51-esub-~-immortal/&do=findComment&comment=352034)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
