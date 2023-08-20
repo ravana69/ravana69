@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Thalainagaram 2 &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - H.264/265 - DD5.1 - 5.4GB - 2.8GB - 1.4GB &amp; 850MB] - ESub - Leyon](https://www.1tamilmv.dad/index.php?/forums/topic/168289-thalainagaram-2-2023-tamil-true-web-dl-1080p-720p-h264265-dd51-54gb-28gb-14gb-850mb-esub-leyon/&do=findComment&comment=352044)
+- [Thalainagaram 2 &lpar;2023&rpar; WEB.DL DD5.1 Esubs - 2160p | 1080p - 12.2 GB | 9.4 GB](https://www.1tamilmv.dad/index.php?/forums/topic/174925-thalainagaram-2-2023-webdl-dd51-esubs-2160p-1080p-122-gb-94-gb/&do=findComment&comment=352043)
+- [Ko &lpar;2011&rpar; AMZN WEB-DL DDP2.0 Esubs x264 - 1080p | 720p - 10.8 GB | 6.4 GB](https://www.1tamilmv.dad/index.php?/forums/topic/174924-ko-2011-amzn-web-dl-ddp20-esubs-x264-1080p-720p-108-gb-64-gb/&do=findComment&comment=352042)
 - [Sex Education &lpar;2020&rpar; Complete S02 Merged [1080p &amp; 720p] NF WEB-DL &lpar;Telugu DDP5.1 - 640Kbps&rpar; - x264 ESub [Google Drive]](https://www.1tamilmv.dad/index.php?/forums/topic/174917-sex-education-2020-complete-s02-merged-1080p-720p-nf-web-dl-telugu-ddp51-640kbps-x264-esub-google-drive/&do=findComment&comment=352041)
 - [Pizza 3: The Mummy &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.dad/index.php?/forums/topic/174905-pizza-3-the-mummy-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352040)
-- [Mr. Pregnant &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.dad/index.php?/forums/topic/174904-mr-pregnant-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352039)
-- [Cheran Chozhan Pandia &lpar;1998&rpar;.Tamil.1080p.Web-dl.HEVC.AAC2.0 - 2.5GB](https://www.1tamilmv.dad/index.php?/forums/topic/174923-cheran-chozhan-pandia-1998tamil1080pweb-dlhevcaac20-25gb/&do=findComment&comment=352038)
-- [Darling &lpar;2015&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 6.6GB - ESub - GDFlix](https://www.1tamilmv.dad/index.php?/forums/topic/174915-darling-2015-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-66gb-esub-gdflix/&do=findComment&comment=352037)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
