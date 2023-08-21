@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Olikannum Neetti Video Song | Prabhu | Indraja | KS Chithra | MG Sreekumar | Mohan Sithara |Yusufali](https://www.youtube.com/watch?v=0QjBq0-tNec)
+- [Mazhamani Ithalukal | August 27 | Nazeer Minnale | Shorts](https://www.youtube.com/watch?v=9b7LGqdcwSU)
+- [പുതുമഴയേ പാടുന്നോ | Vidhu Prathap | Sam Shiva | August 27 #malayalammoviesongs #latestmalayalam](https://www.youtube.com/watch?v=AGv8bv27Yfo)
 - [Filming Lovely 🎥⚡ #BehindTheScenes](https://www.youtube.com/watch?v=umqc3jxGYYw)
 - [അഷ്ടപദീ ഗാനങ്ങൾ അലയിളക്കീ അനുരാഗം ഈണത്തിൽ വീണ മീട്ടി #malayalamsongs #evergeeenmalayalamhits](https://www.youtube.com/watch?v=rMsi6gryiDE)
 - [Step up for #KanniluKannilu | #Ayisha  | #Shorts #YTshorts kannilu 06](https://www.youtube.com/watch?v=TJaa1yfAhiI)
-- [Pookkal Vidarnnu |  Aalippazhangal 1987  | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=kO5jscC8s4Y)
-- [Uthradapulariyil | Onam Song by G Venugopal #shorts #onam #onamsongs #gvenugopal #manoramamusic](https://www.youtube.com/watch?v=4Eq9UzZAU6Y)
-- [Halleluah | Shorts | Nithya Mammen #christiandevotionalsongs #manoramamusic](https://www.youtube.com/watch?v=Bprf6cqCimY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
