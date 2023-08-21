@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [ചെറുകുഴിയാനകളും മദമിളകും കനവുകളില്‍കനലിലരിക്കരുതേ ഇനി വെറുതേ ചിതലുകളേ... #malayalamsongs  #malayalam](https://www.youtube.com/watch?v=M6BT8Ku5ROY)
-- [കാറൊഴിഞ്ഞേ കോളൊഴിഞ്ഞേ കാറ്റൊഴിഞ്ഞേ കരയണഞ്ഞേ  ... കൈ തുടി താളം തട്ടി തെയ് തക മേളമിട്ട്...](https://www.youtube.com/watch?v=HvR_zY_izhQ)
-- [Poopoli Poli | Varshakalam | Onapattu by Kanipayyur Kaikottikali Sangam | ഓണപ്പാട്ട് തിരുവാതിര](https://www.youtube.com/watch?v=c-IN-n729Rc)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=8iriLyyQztY)
-- [Puzhayarikiletho | Zha Movie Song |  Vineeth Sreenivasan | Amal  C Ajith | Rajesh Babu K](https://www.youtube.com/watch?v=FTJFaI_7f4A)
-- [PRAAVU FILM MAKING VIDEO | NAVAZ ALI | P R RAJASEKHARAN | CET CINEMA](https://www.youtube.com/watch?v=blfL0HfO84w)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 21st of August 2023](https://www.youtube.com/watch?v=ocF5qEwai_c)
+- [Ange Vazhthunnu | Elton Binoy | Sabin Jose | Binoy Cherian | Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=7XBeRYA2eJI)
+- [Shwasame | Santhosham | Video Song | K S Harisankar | Nithya Mammen | Vinayak Sasikumar | PS Jayhari](https://www.youtube.com/watch?v=DCkbfmyRQZA)
+- [പ്രാണനാഥനെ അങ്ങ് ശരിക്കും ആരാണ്?  |  Rev. Aneesh P Joseph | #shortvideo #jesus #jesusshorts](https://www.youtube.com/watch?v=C2_KX_i7jIM)
+- [Sivamalli Kaavil | Ananthabhadram | KS Chithra | M G Radhakrishnan | Gireesh Puthenchery](https://www.youtube.com/watch?v=kqE0XHTXD1s)
+- [മതിമുഖി മാലതിയണിഞ്ഞൊരുങ്ങ് | Mathimukhi Malathi | Vazhunnor | KS Chithra | Sreenivas | Ouseppachan](https://www.youtube.com/watch?v=_zIA2OJFzbI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
