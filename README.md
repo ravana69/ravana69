@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Japamala 21st of August  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 21st of August 23](https://www.youtube.com/watch?v=cfF8vUTx1Rg)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #August 21st mother Mary songs Malayalam 2023](https://www.youtube.com/watch?v=BpPprBSyLNo)
 - [രാവിലെ പ്രാര്‍ത്ഥന 21st of August shorts  # Athiravile Prarthana 21st of August 2023 shorts](https://www.youtube.com/watch?v=FTUXCwSJu84)
 - [പ്രഭാത പ്രാര്‍ത്ഥന August 21 # Athiravile Prarthana 21st of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=N7gW7N828Yo)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 21st August 2023](https://www.youtube.com/watch?v=XU6K9v0Czts)
 - [നിന്നെ മാത്രം ധ്യാനിച്ചു ധ്യാനിച്ചു മനസു തളർന്നാൽ തളർന്നിടട്ടെ !](https://www.youtube.com/watch?v=8NeZxBWbRGE)
-- [Varika | Sharreth | Sumi Sunny #latestmalayalam #malayalammoviesongs #manoramamusic](https://www.youtube.com/watch?v=cQ_WnKZcEt0)
-- [Swapnam Oru Chakku | Remix | DJ Savyo |  Best Actor | #shorts #remix #djsaviofficial #mammootty](https://www.youtube.com/watch?v=9QOlbg_roM4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
