@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ചെറുകുഴിയാനകളും മദമിളകും കനവുകളില്‍കനലിലരിക്കരുതേ ഇനി വെറുതേ ചിതലുകളേ... #malayalamsongs  #malayalam](https://www.youtube.com/watch?v=M6BT8Ku5ROY)
+- [കാറൊഴിഞ്ഞേ കോളൊഴിഞ്ഞേ കാറ്റൊഴിഞ്ഞേ കരയണഞ്ഞേ  ... കൈ തുടി താളം തട്ടി തെയ് തക മേളമിട്ട്...](https://www.youtube.com/watch?v=HvR_zY_izhQ)
+- [Poopoli Poli | Varshakalam | Onapattu by Kanipayyur Kaikottikali Sangam | ഓണപ്പാട്ട് തിരുവാതിര](https://www.youtube.com/watch?v=c-IN-n729Rc)
 - [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=8iriLyyQztY)
 - [Puzhayarikiletho | Zha Movie Song |  Vineeth Sreenivasan | Amal  C Ajith | Rajesh Babu K](https://www.youtube.com/watch?v=FTJFaI_7f4A)
 - [PRAAVU FILM MAKING VIDEO | NAVAZ ALI | P R RAJASEKHARAN | CET CINEMA](https://www.youtube.com/watch?v=blfL0HfO84w)
-- [Varadanangal Music Video | Lalu Ambalamukku | Sam Thomas | Jijeesh Ushanadarajan](https://www.youtube.com/watch?v=yDahIWrW9FI)
-- [Olikannum Neetti Video Song | Prabhu | Indraja | KS Chithra | MG Sreekumar | Mohan Sithara |Yusufali](https://www.youtube.com/watch?v=0QjBq0-tNec)
-- [Mazhamani Ithalukal | August 27 | Nazeer Minnale | Shorts](https://www.youtube.com/watch?v=9b7LGqdcwSU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
