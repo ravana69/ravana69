@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=8iriLyyQztY)
+- [Puzhayarikiletho | Zha Movie Song |  Vineeth Sreenivasan | Amal  C Ajith | Rajesh Babu K](https://www.youtube.com/watch?v=FTJFaI_7f4A)
+- [PRAAVU FILM MAKING VIDEO | NAVAZ ALI | P R RAJASEKHARAN | CET CINEMA](https://www.youtube.com/watch?v=blfL0HfO84w)
+- [Varadanangal Music Video | Lalu Ambalamukku | Sam Thomas | Jijeesh Ushanadarajan](https://www.youtube.com/watch?v=yDahIWrW9FI)
 - [Olikannum Neetti Video Song | Prabhu | Indraja | KS Chithra | MG Sreekumar | Mohan Sithara |Yusufali](https://www.youtube.com/watch?v=0QjBq0-tNec)
 - [Mazhamani Ithalukal | August 27 | Nazeer Minnale | Shorts](https://www.youtube.com/watch?v=9b7LGqdcwSU)
-- [പുതുമഴയേ പാടുന്നോ | Vidhu Prathap | Sam Shiva | August 27 #malayalammoviesongs #latestmalayalam](https://www.youtube.com/watch?v=AGv8bv27Yfo)
-- [Filming Lovely 🎥⚡ #BehindTheScenes](https://www.youtube.com/watch?v=umqc3jxGYYw)
-- [അഷ്ടപദീ ഗാനങ്ങൾ അലയിളക്കീ അനുരാഗം ഈണത്തിൽ വീണ മീട്ടി #malayalamsongs #evergeeenmalayalamhits](https://www.youtube.com/watch?v=rMsi6gryiDE)
-- [Step up for #KanniluKannilu | #Ayisha  | #Shorts #YTshorts kannilu 06](https://www.youtube.com/watch?v=TJaa1yfAhiI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
