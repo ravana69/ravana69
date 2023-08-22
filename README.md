@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Japamala 22nd of August 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 22nd of August 2023](https://www.youtube.com/watch?v=bpmuSKv5GAQ)
-- [Visudhatmave | Christian Devotional Songs Malayalam | Kester | Praise and Worship Songs](https://www.youtube.com/watch?v=-QNsxxSuyB0)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം August 22nd daily mother mary songs](https://www.youtube.com/watch?v=rlRQtq3-4JM)
-- [രാവിലെ പ്രാര്‍ത്ഥന 22nd of August shorts  # Athiravile Prarthana 22nd of August 2023 shorts](https://www.youtube.com/watch?v=ikqw-WOO-CE)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=kgEuSJt9oW8)
-- [രാവിലെ പ്രാര്‍ത്ഥന August 22 # Athiravile Prarthana 22nd of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=wQIrcKUxA2E)
+- [Mazhamani Ithalukal | August 27 | Nazeer Minnale | Shorts #malayalammoviesongs #manoramamusic](https://www.youtube.com/watch?v=PXS0YpWe9tg)
+- [Onathumbi | Onam Songs 2023 #manoramamusic #latestmalayalam](https://www.youtube.com/watch?v=UzrnqkpwMJM)
+- [Onathumbi | Onam Songs 2023 | Shorts](https://www.youtube.com/watch?v=KcsbRX7bAfw)
+- [അഞ്ജന ടീച്ചറും അഭിജിത്തും | Njandu Pudikkanu | Tribal Song | Shorts #latestmalayalam](https://www.youtube.com/watch?v=x-Gp-O2rQMg)
+- [Thirubalithaarayil - Pappachan Olivilanu  #manoramamusic #malayalammoviesongs #latestmalayalam](https://www.youtube.com/watch?v=5sAEEOixkGY)
+- [Thirubalithaarayil - Pappachan Olivilanu #manoramamusic #malayalammoviesongs #latestmalayalamsong](https://www.youtube.com/watch?v=4vGpHMtfoWA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
