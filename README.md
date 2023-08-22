@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [വാഴ്ത്തിപ്പാടിടാം നാഥാ... വാഴ്ത്തിപ്പാടിടാം .](https://www.youtube.com/watch?v=OVr9DEyqMpw)
 - [പുതുമഴയേ പാടുന്നോ | Vidhu Prathap | Sam Shiva | August 27 #malayalammoviesongs #latestmalayalam](https://www.youtube.com/watch?v=Ekwaa4Xfpjc)
 - [ദിനം ദിനം ദിനം നീ വാഴ്ത്തുക | Rev. ART Athisayam | Mithila Michael #christiandevotionalsongs #shorts](https://www.youtube.com/watch?v=Tl_QqZgGbnI)
 - [Ente Ellam Ellam Alle | Dileep | Kavya | KJ Yesudas | Sujatha Mohan | Vidyasagar-Gireesh Puthenchery](https://www.youtube.com/watch?v=Keq2-fPQD3s)
 - [Christian Superhit Songs | Jayachandran | Kester | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=6H0zVNRa__0)
 - [Mayilin Kondal  Remix Version| Pandippada | Afsal | Vidhu Prathap | Sujatha Mohan | Suresh Peters](https://www.youtube.com/watch?v=Vd4addURnuI)
-- [Thudarkinakalil|Gandhinagar 2nd Street|Mohanlal|Karthika|](https://www.youtube.com/watch?v=kdp0RMlp060)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
