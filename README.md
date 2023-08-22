@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Poovalikkuruvi | Gopika Krishnakumar | Biju Priyadarshan | Rajesh Raj | Onam Songs 2023](https://www.youtube.com/watch?v=B3-TFjI4-Pk)
+- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=U6F-2jPJqk8)
 - [Enneshuve | Nombaramakattunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=zhL_9MhcVeQ)
 - [Pathiye Pathiye Padivathilil Full Video Song | Nariman Movie Song | Shibu Chakravarthi](https://www.youtube.com/watch?v=OiHh23MkPjA)
 - [Nanni Nalla Daivamae | Sonychen CMI | Kings & Queens Band | Worship Song Karoke](https://www.youtube.com/watch?v=zzkS0HjAXlQ)
 - [മലയാളികളുടെ തീരാനഷ്ടം രവീന്ദ്രൻ മാസ്റ്റർ ഈണമിട്ട എക്കാലത്തെയും മികച്ച ഓണപ്പാട്ടുകൾ | ONAM SONGS 2023](https://www.youtube.com/watch?v=fbJksPuQYFY)
-- [Aalila manjalil neeyadumbol | Sooryagayathri | ONV | Raveendran | KS Chithra | Mohanlal | Urvashi](https://www.youtube.com/watch?v=aLMh-HzrXj8)
-- [Thinkalurangum Neramaayal | Onnam Sakshi Parethan| Dheeraj Sukumaran| Arun Vanaja Raju|  PS Jayahari](https://www.youtube.com/watch?v=FB92defgSgM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
