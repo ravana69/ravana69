@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പുതുമഴയേ പാടുന്നോ | Vidhu Prathap | Sam Shiva | August 27 #malayalammoviesongs #latestmalayalam](https://www.youtube.com/watch?v=Ekwaa4Xfpjc)
+- [ദിനം ദിനം ദിനം നീ വാഴ്ത്തുക | Rev. ART Athisayam | Mithila Michael #christiandevotionalsongs #shorts](https://www.youtube.com/watch?v=Tl_QqZgGbnI)
 - [Ente Ellam Ellam Alle | Dileep | Kavya | KJ Yesudas | Sujatha Mohan | Vidyasagar-Gireesh Puthenchery](https://www.youtube.com/watch?v=Keq2-fPQD3s)
 - [Christian Superhit Songs | Jayachandran | Kester | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=6H0zVNRa__0)
 - [Mayilin Kondal  Remix Version| Pandippada | Afsal | Vidhu Prathap | Sujatha Mohan | Suresh Peters](https://www.youtube.com/watch?v=Vd4addURnuI)
 - [Thudarkinakalil|Gandhinagar 2nd Street|Mohanlal|Karthika|](https://www.youtube.com/watch?v=kdp0RMlp060)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 22nd of August 2023](https://www.youtube.com/watch?v=mPzHOnGARRY)
-- [കൈയ്യിലുള്ള അൽപ്പത്തെ യേശുവിന്റെ കരത്തിലേക്ക് കൊടുക്കുന്നു. | Rev. Aneesh P Joseph | #shortvideo](https://www.youtube.com/watch?v=Sj-hXNgAgFM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
