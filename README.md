@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Shambo Shiva Shambo &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.8GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174949-shambo-shiva-shambo-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-28gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352131)
+- [ANAND &lpar;2004&rpar; &lpar;Director&#39;s Cut&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.3GB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174954-anand-2004-directors-cut-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-73gb-esub/&do=findComment&comment=352130)
+- [ANAND &lpar;2004&rpar; &lpar;Director&#39;s Cut&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.3GB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174954-anand-2004-directors-cut-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-73gb-esub/&do=findComment&comment=352129)
 - [Madhura Manohara Moham &lpar;2023&rpar;.Tamil.1080p.Web-dl.x264.DD5.1 640Kbps Upmixed - 3.5GB](https://www.1tamilmv.dad/index.php?/forums/topic/174953-madhura-manohara-moham-2023tamil1080pweb-dlx264dd51-640kbps-upmixed-35gb/&do=findComment&comment=352128)
 - [Vegam &lpar;2007&rpar;.Tamil.1080p.Web-dl.HEVC.AAC2.0 - 2GB](https://www.1tamilmv.dad/index.php?/forums/topic/174952-vegam-2007tamil1080pweb-dlhevcaac20-2gb/&do=findComment&comment=352127)
-- [Shambo Shiva Shambo &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.8GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174949-shambo-shiva-shambo-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-28gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352126)
-- [Mahanadhi &lpar;1994&rpar; 480p AMZN WEB-DL DDP2.0 x264 - 2.2 GB](https://www.1tamilmv.dad/index.php?/forums/topic/174951-mahanadhi-1994-480p-amzn-web-dl-ddp20-x264-22-gb/&do=findComment&comment=352125)
-- [Leo Da Vinci: Mission Mona Lisa &lpar;2018&rpar; 1080p AMZN WEB-DL Multi DDP2.0 Esubs x264 - 3 GB](https://www.1tamilmv.dad/index.php?/forums/topic/174950-leo-da-vinci-mission-mona-lisa-2018-1080p-amzn-web-dl-multi-ddp20-esubs-x264-3-gb/&do=findComment&comment=352124)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
