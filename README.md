@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Vellithinkal | Meleparambil Aanveedu | Jayaram | Sobhana | Yesudas | Johnson | Rajasenan](https://www.youtube.com/watch?v=XXeWEAQ5yLY)
-- [Poovalikkuruvi | Gopika Krishnakumar | Biju Priyadarshan | Rajesh Raj | Onam Songs 2023](https://www.youtube.com/watch?v=B3-TFjI4-Pk)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=U6F-2jPJqk8)
-- [Enneshuve | Nombaramakattunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=zhL_9MhcVeQ)
-- [Pathiye Pathiye Padivathilil Full Video Song | Nariman Movie Song | Shibu Chakravarthi](https://www.youtube.com/watch?v=OiHh23MkPjA)
-- [Nanni Nalla Daivamae | Sonychen CMI | Kings & Queens Band | Worship Song Karoke](https://www.youtube.com/watch?v=zzkS0HjAXlQ)
+- [Thudarkinakalil|Gandhinagar 2nd Street|Mohanlal|Karthika|](https://www.youtube.com/watch?v=kdp0RMlp060)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 22nd of August 2023](https://www.youtube.com/watch?v=mPzHOnGARRY)
+- [കൈയ്യിലുള്ള അൽപ്പത്തെ യേശുവിന്റെ കരത്തിലേക്ക് കൊടുക്കുന്നു. | Rev. Aneesh P Joseph | #shortvideo](https://www.youtube.com/watch?v=Sj-hXNgAgFM)
+- [Violettin Pookkal - Lyrical Video | Asthra | Amith Chakkalakal, Suhasini Kumaran | Mohan Sithara](https://www.youtube.com/watch?v=8ZS9z-iPp_I)
+- [Maraalike Video Song | Azhakulla Saleena | K. J. Yesudas](https://www.youtube.com/watch?v=_pQKtrdP-xc)
+- [ആയിരം കണ്ണുമായ്കാത്തിരുന്നൂ നിന്നെ ഞാൻ #malayalamsongs #mohanlal #aayiramkannumay #yesudas](https://www.youtube.com/watch?v=fb5X_iu39OM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
