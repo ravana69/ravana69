@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vinnile Gandharva Veenakal Video Song | Mohanlal | Ambika | Unni Menon | SP Venkitesh |Romantic Song](https://www.youtube.com/watch?v=s5xD1R3BbW8)
 - [ഒരുനുള്ള് കാക്കപ്പൂ കടം തരുമോ | #onam | #kjyesudas | #lyrics | #viral | #ytshorts | #tharangini](https://www.youtube.com/watch?v=vGmPwDxgALA)
 - [Thumbappoo Kodiyuduthu Song | Sandesam 1991 | Malayalam Movie Song](https://www.youtube.com/watch?v=UcDN6DveeTk)
 - [Bounce for #KanniluKannilu | #Ayisha  | #Shorts #YTshorts kannilu 07](https://www.youtube.com/watch?v=H8hz_e2z0Yg)
 - [Onnanam Kunninmel Onam Song by Sujatha&M G Sreekumar #shorts #mgsreekumar #onam #sujatha #onamsongs](https://www.youtube.com/watch?v=MGhRP2ndQR0)
 - [Njanoru Rajavayal | Kabadi Kabadi | Kalabhavan Mani | Rambha | Mukesh | Vineeth Sreenivasan](https://www.youtube.com/watch?v=5yiv9p9fhdw)
-- [Mazhamani Ithalukal | August 27 | Nazeer Minnale | Shorts #malayalammoviesongs #manoramamusic](https://www.youtube.com/watch?v=PXS0YpWe9tg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
