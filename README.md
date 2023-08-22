@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [60 Hollywood Movies - BluRay - H264/H265 - [Tamil + Telugu + Hindi + Eng] - ESub - [4K, 1080p &amp; 720p - 400GB] [GDRIVE]](https://www.1tamilmv.dad/index.php?/forums/topic/168182-60-hollywood-movies-bluray-h264h265-tamil-telugu-hindi-eng-esub-4k-1080p-720p-400gb-gdrive/&do=findComment&comment=352132)
 - [Shambo Shiva Shambo &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.8GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174949-shambo-shiva-shambo-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-28gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352131)
 - [ANAND &lpar;2004&rpar; &lpar;Director&#39;s Cut&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.3GB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174954-anand-2004-directors-cut-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-73gb-esub/&do=findComment&comment=352130)
 - [ANAND &lpar;2004&rpar; &lpar;Director&#39;s Cut&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.3GB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174954-anand-2004-directors-cut-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-73gb-esub/&do=findComment&comment=352129)
 - [Madhura Manohara Moham &lpar;2023&rpar;.Tamil.1080p.Web-dl.x264.DD5.1 640Kbps Upmixed - 3.5GB](https://www.1tamilmv.dad/index.php?/forums/topic/174953-madhura-manohara-moham-2023tamil1080pweb-dlx264dd51-640kbps-upmixed-35gb/&do=findComment&comment=352128)
-- [Vegam &lpar;2007&rpar;.Tamil.1080p.Web-dl.HEVC.AAC2.0 - 2GB](https://www.1tamilmv.dad/index.php?/forums/topic/174952-vegam-2007tamil1080pweb-dlhevcaac20-2gb/&do=findComment&comment=352127)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
