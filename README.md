@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Punnami Naagu &lpar;1980&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 384Kbps &lpar;Dolby Digital® 5.0&rpar; - 4GB](https://www.1tamilmv.dad/index.php?/forums/topic/174964-punnami-naagu-1980-telugu-dvd5-untouched-480p-384kbps-dolby-digital%C2%AE-50-4gb/&do=findComment&comment=352157)
+- [Punnami Naagu &lpar;1980&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 384Kbps &lpar;Dolby Digital® 5.0&rpar; - 4GB](https://www.1tamilmv.dad/index.php?/forums/topic/174964-punnami-naagu-1980-telugu-dvd5-untouched-480p-384kbps-dolby-digital%C2%AE-50-4gb/&do=findComment&comment=352156)
+- [Padachone Ingalu Katholi &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174962-padachone-ingalu-katholi-2022-malayalam-true-web-dl-1080p-720p-avc-aac-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=352155)
+- [Kaakki Sattai &lpar;1985&rpar;.Tamil.REMASTERED.1080p.HDTV.HEVC.AA2.0 - 2.2GB](https://www.1tamilmv.dad/index.php?/forums/topic/174963-kaakki-sattai-1985tamilremastered1080phdtvhevcaa20-22gb/&do=findComment&comment=352154)
 - [Padachone Ingalu Katholi &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174962-padachone-ingalu-katholi-2022-malayalam-true-web-dl-1080p-720p-avc-aac-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=352153)
-- [Sex Education &lpar;2020&rpar; S02 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.2GB - 2.4GB &amp; 1.2GB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174927-sex-education-2020-s02-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-52gb-24gb-12gb-esub/&do=findComment&comment=352152)
-- [Sex Education &lpar;2020&rpar; Complete S02 EP &lpar;01-08&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.2GB - 2.4GB &amp; 1.2GB] - ESub [Google Drive]](https://www.1tamilmv.dad/index.php?/forums/topic/174957-sex-education-2020-complete-s02-ep-01-08-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-52gb-24gb-12gb-esub-google-drive/&do=findComment&comment=352151)
-- [Past Lives &lpar;2023&rpar; English - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 9.4GB - 2.1GB - 1.4GB &amp; 950MB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174961-past-lives-2023-english-true-web-dl-1080p-720p-avc-untouched-dd51640kbps-94gb-21gb-14gb-950mb-esub/&do=findComment&comment=352150)
-- [Shankar Dada Zindabad &lpar;2007&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174960-shankar-dada-zindabad-2007-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=352149)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
