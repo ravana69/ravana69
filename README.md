@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vannallo Ponnonam | M.G.Sreekumar | Chittoor Gopi | Kannan | Onam Songs](https://www.youtube.com/watch?v=bJhw0nQVGLU)
+- [Chembavu | Salt N Pepper | Remix | DJ Savyo | Bijibal #shortsvideo #remix #bijibal #shorts](https://www.youtube.com/watch?v=6UnUlKQ803w)
 - [Ennamme Onnu Kaanan Video Song | Nammal | KJ Yesudas | Mohan Sithara | Kaithapram | Suhasini](https://www.youtube.com/watch?v=EsfRQ3_YwHQ)
 - [Pularithuruthil | Onam Video Song |  Sujatha Mohan  | Chittoor Gopi | Kannan](https://www.youtube.com/watch?v=oZLKiRQha8A)
 - [Aaro Nilaavayi |Karaoke Video| Pattanathil Bhootham| Mammootty | Shaan Rahman | Gireesh Puthencherry](https://www.youtube.com/watch?v=Qms3j8nNqeo)
 - [Chithira Thoniyil Akkarepokan | Malayalam Movie Songs | Kayalum Kayarum  #malayalamsongs #evergreen](https://www.youtube.com/watch?v=xsj8PJGt34o)
-- [Oru Janmamaam Ushasandhyayaay | Sundhari Kakka 1991 | Johnson | K.S. Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=TzrznKDrKkE)
-- [ചങ്കിൽ കുരുങ്ങിയ ചോദ്യത്തുണ്ട് | Vidyadharan Master | Rekha Anand #latestmalayalam #manoramamusic](https://www.youtube.com/watch?v=otSpvl8hqQo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
