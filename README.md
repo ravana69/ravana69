@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Atham Pathonam Onam| Onam Song by Radhika Thilak #shorts](https://www.youtube.com/watch?v=mT143mMeVns)
+- [Uthradapooviliyil  | Karaoke Video | K.J.Yesudas | Kaithapram | Sunny Stephen | Super Hit Onam Songs](https://www.youtube.com/watch?v=HTwXEkOLf4c)
+- [Johny Mone Johny | Remix Video | ABCD | DJ Savyo | Dulquer Salmaan | Gopi Sundar | Santhosh Varma](https://www.youtube.com/watch?v=Ip4T9phlbiM)
+- [Malamma Lullooya | Ananthabhadram | Kalabhan Mani | M G Radhakrishnan | Gireesh Puthenchery](https://www.youtube.com/watch?v=EmNqMLs3hUM)
+- [Uthradapooviliyil | Onam Song by K J Yesudas #shorts #onam #onamsongs #kjyesudas](https://www.youtube.com/watch?v=D9COm_ytYuI)
 - [Neelamizhippeelikale - Lyrical Video | Baba Kalyani | Jyotsna, Vidhu Prathap | Alex Paul](https://www.youtube.com/watch?v=vJIcQbYjtYk)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=nuGKpwiVGkc)
-- [മലയാളികളുടെ സ്വകാര്യ സ്വത്ത് ഭാരതത്തിന്റെ അഭിമാനം മോഹൻലാൽ അഭിനയിച്ച ജനപ്രിയ ഗാനങ്ങൾ | MOHANLAL HITS](https://www.youtube.com/watch?v=r8Anbkc0JPI)
-- [Daivaputhran Eesho | Evarkkum Aashrayamarulunna Eeshoyude Kelkkan Kothikkunna Gananagal](https://www.youtube.com/watch?v=hyGPCcQQYNk)
-- [Aro Pinneyum | Maharaja Talkies | Prakash Marar | Thej Mervin | Santhosh Kottayam | Mukesh | Urvashi](https://www.youtube.com/watch?v=_JFY_2MV0L8)
-- [മലയാളത്തിലെ മഹാഗായകർ ഒന്നിച്ചണിനിരക്കുന്ന കേൾക്കാൻ കൊതിക്കുന്ന ഓണപ്പാട്ടുകൾ | ONAM SPECIAL SONGS](https://www.youtube.com/watch?v=0dj1W75ajSE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
