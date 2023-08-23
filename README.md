@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ennamme Onnu Kaanan Video Song | Nammal | KJ Yesudas | Mohan Sithara | Kaithapram | Suhasini](https://www.youtube.com/watch?v=EsfRQ3_YwHQ)
+- [Pularithuruthil | Onam Video Song |  Sujatha Mohan  | Chittoor Gopi | Kannan](https://www.youtube.com/watch?v=oZLKiRQha8A)
+- [Aaro Nilaavayi |Karaoke Video| Pattanathil Bhootham| Mammootty | Shaan Rahman | Gireesh Puthencherry](https://www.youtube.com/watch?v=Qms3j8nNqeo)
 - [Chithira Thoniyil Akkarepokan | Malayalam Movie Songs | Kayalum Kayarum  #malayalamsongs #evergreen](https://www.youtube.com/watch?v=xsj8PJGt34o)
 - [Oru Janmamaam Ushasandhyayaay | Sundhari Kakka 1991 | Johnson | K.S. Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=TzrznKDrKkE)
 - [ചങ്കിൽ കുരുങ്ങിയ ചോദ്യത്തുണ്ട് | Vidyadharan Master | Rekha Anand #latestmalayalam #manoramamusic](https://www.youtube.com/watch?v=otSpvl8hqQo)
-- [Vazhikaattiyakuvan | Christian Video Song | Shibu Antony Mavelikara | Joji Johns | Shine Kumar](https://www.youtube.com/watch?v=_-P-VWdD89Q)
-- [Japamala 23rd of August 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 23rd of August 2023](https://www.youtube.com/watch?v=I5ERxvX8fdA)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം August 23rd daily mother Mary songs](https://www.youtube.com/watch?v=Of9zB7Ui9x8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
