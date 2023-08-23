@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Tow Tow Vibe for #Halaballoo | #RDX | #ShaneNigam, #AntonyVarghese, #NeerajMadhav | #SamCS | #shorts](https://www.youtube.com/watch?v=qf6M9OvX23s)
+- [Maranno Nee Nilavil Video Song | KJ Yesudas | Bombay Ravi | Yusufali Kecheri | Five Star Hospital](https://www.youtube.com/watch?v=bLBIrx_0M2c)
+- [Vaanasena | Shorts Video | Nithya Mammen #manoramachristiandevotionalsongs #christiandevotionalsongs](https://www.youtube.com/watch?v=1gCq-WLqqKw)
+- [Christian Melody Songs | Jessy Raju | KG Markose | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=qNLEXNOjiDI)
 - [ദൈവമേ എന്റെ ജീവിതത്തിൽ എന്ത് സംഭവിച്ചാലും അതങ്ങയുടെ തീരുമാനമാണെന്ന് തിരിച്ചറിയുന്നു](https://www.youtube.com/watch?v=eXWosYPM4PI)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 23rd of August 2023](https://www.youtube.com/watch?v=-A0NkEtOHm0)
-- [Poo Pookkum Osai | Minsara Kanavu | Sujatha Mohan | Kajol | #shorts](https://www.youtube.com/watch?v=qM7Dt-H_V7o)
-- [Karimukilin | Thaskaraveeran | Franko | Balu | Ouseppachan | ONV Kurup](https://www.youtube.com/watch?v=pvCyGJ8-mPw)
-- [ചിത്തിരത്തോണിയിൽ അക്കരെ പോകാൻ | Chithira thoniyil akkarepokan | Kayalum Kayarum Movie | Jayabarathi](https://www.youtube.com/watch?v=kULepu6PyHI)
-- [Atham Pathonam Onam| Onam Song by Radhika Thilak #shorts](https://www.youtube.com/watch?v=mT143mMeVns)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
