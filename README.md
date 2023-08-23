@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ദൈവമേ എന്റെ ജീവിതത്തിൽ എന്ത് സംഭവിച്ചാലും അതങ്ങയുടെ തീരുമാനമാണെന്ന് തിരിച്ചറിയുന്നു](https://www.youtube.com/watch?v=eXWosYPM4PI)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 23rd of August 2023](https://www.youtube.com/watch?v=-A0NkEtOHm0)
+- [Poo Pookkum Osai | Minsara Kanavu | Sujatha Mohan | Kajol | #shorts](https://www.youtube.com/watch?v=qM7Dt-H_V7o)
+- [Karimukilin | Thaskaraveeran | Franko | Balu | Ouseppachan | ONV Kurup](https://www.youtube.com/watch?v=pvCyGJ8-mPw)
+- [ചിത്തിരത്തോണിയിൽ അക്കരെ പോകാൻ | Chithira thoniyil akkarepokan | Kayalum Kayarum Movie | Jayabarathi](https://www.youtube.com/watch?v=kULepu6PyHI)
 - [Atham Pathonam Onam| Onam Song by Radhika Thilak #shorts](https://www.youtube.com/watch?v=mT143mMeVns)
-- [Uthradapooviliyil  | Karaoke Video | K.J.Yesudas | Kaithapram | Sunny Stephen | Super Hit Onam Songs](https://www.youtube.com/watch?v=HTwXEkOLf4c)
-- [Johny Mone Johny | Remix Video | ABCD | DJ Savyo | Dulquer Salmaan | Gopi Sundar | Santhosh Varma](https://www.youtube.com/watch?v=Ip4T9phlbiM)
-- [Malamma Lullooya | Ananthabhadram | Kalabhan Mani | M G Radhakrishnan | Gireesh Puthenchery](https://www.youtube.com/watch?v=EmNqMLs3hUM)
-- [Uthradapooviliyil | Onam Song by K J Yesudas #shorts #onam #onamsongs #kjyesudas](https://www.youtube.com/watch?v=D9COm_ytYuI)
-- [Neelamizhippeelikale - Lyrical Video | Baba Kalyani | Jyotsna, Vidhu Prathap | Alex Paul](https://www.youtube.com/watch?v=vJIcQbYjtYk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
