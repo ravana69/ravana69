@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Glimpse of Harold Das &lpar;From&quot;Leo&quot;&rpar; Master Quality 24bit - FLAC - Anirudh Ravichander Musical - 9.21 MB](https://www.1tamilmv.dad/index.php?/forums/topic/174969-glimpse-of-harold-das-fromleo-master-quality-24bit-flac-anirudh-ravichander-musical-921-mb/&do=findComment&comment=352163)
-- [Made in heaven &lpar;2023&rpar; Complete S02 Merged HQ HDRip - [1080p - 720p - 576p - AVC - &lpar;Hindi DD+5.1 - 192Kbps&rpar; - 15GB - 3.4GB - 950MB] - ESub [Google Drive]](https://www.1tamilmv.dad/index.php?/forums/topic/174968-made-in-heaven-2023-complete-s02-merged-hq-hdrip-1080p-720p-576p-avc-hindi-dd51-192kbps-15gb-34gb-950mb-esub-google-drive/&do=findComment&comment=352162)
-- [Made in heaven &lpar;2019&rpar; Complete S01 Merged HQ HDRip - [1080p - 720p - 576p - AVC - [Tel + Tam + Hin + Mal + Kan] - &lpar;DD+5.1 - 192Kbps&rpar; - 21GB - 5.1GB - 1.6GB] - ESub [Google Drive]](https://www.1tamilmv.dad/index.php?/forums/topic/174967-made-in-heaven-2019-complete-s01-merged-hq-hdrip-1080p-720p-576p-avc-tel-tam-hin-mal-kan-dd51-192kbps-21gb-51gb-16gb-esub-google-drive/&do=findComment&comment=352161)
-- [Punnami Naagu &lpar;1980&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 384Kbps &lpar;Dolby Digital® 5.0&rpar; - 4GB](https://www.1tamilmv.dad/index.php?/forums/topic/174964-punnami-naagu-1980-telugu-dvd5-untouched-480p-384kbps-dolby-digital%C2%AE-50-4gb/&do=findComment&comment=352160)
-- [Maattrraan &lpar;2012&rpar; 1080p SS WEB-DL DDP5.1 x264 - 3.7 GB](https://www.1tamilmv.dad/index.php?/forums/topic/174966-maattrraan-2012-1080p-ss-web-dl-ddp51-x264-37-gb/&do=findComment&comment=352159)
+- [RANAM &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174971-ranam-2006-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=352168)
+- [📌 &lpar;A&rpar; GEHRAIYAAN &lpar;2022&rpar; &lpar;Music Video Album&rpar; - HQ 2160P - AMZN - CBR WEBDL - HEVC - DDP 5.1 @ 640 Kbps - MSubs - 3GB](https://www.1tamilmv.dad/index.php?/forums/topic/174973-%F0%9F%93%8C-a-gehraiyaan-2022-music-video-album-hq-2160p-amzn-cbr-webdl-hevc-ddp-51-640-kbps-msubs-3gb/&do=findComment&comment=352167)
+- [Pariyerum Perumal &lpar;2018&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 9.9GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - MSub](https://www.1tamilmv.dad/index.php?/forums/topic/174972-pariyerum-perumal-2018-tamil-true-web-dl-1080p-720p-avc-hevc-untouched-dd51640kbps-99gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-msub/&do=findComment&comment=352166)
+- [RANAM &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174971-ranam-2006-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=352165)
+- [Alex Pandian &lpar;2014&rpar;.Tamil.1080p.ITunes.HEVC.AAC5.1.ESub - 2GB](https://www.1tamilmv.dad/index.php?/forums/topic/174970-alex-pandian-2014tamil1080pituneshevcaac51esub-2gb/&do=findComment&comment=352164)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
