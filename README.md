@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [RANAM &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174971-ranam-2006-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=352168)
-- [📌 &lpar;A&rpar; GEHRAIYAAN &lpar;2022&rpar; &lpar;Music Video Album&rpar; - HQ 2160P - AMZN - CBR WEBDL - HEVC - DDP 5.1 @ 640 Kbps - MSubs - 3GB](https://www.1tamilmv.dad/index.php?/forums/topic/174973-%F0%9F%93%8C-a-gehraiyaan-2022-music-video-album-hq-2160p-amzn-cbr-webdl-hevc-ddp-51-640-kbps-msubs-3gb/&do=findComment&comment=352167)
-- [Pariyerum Perumal &lpar;2018&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 9.9GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - MSub](https://www.1tamilmv.dad/index.php?/forums/topic/174972-pariyerum-perumal-2018-tamil-true-web-dl-1080p-720p-avc-hevc-untouched-dd51640kbps-99gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-msub/&do=findComment&comment=352166)
-- [RANAM &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174971-ranam-2006-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=352165)
-- [Alex Pandian &lpar;2014&rpar;.Tamil.1080p.ITunes.HEVC.AAC5.1.ESub - 2GB](https://www.1tamilmv.dad/index.php?/forums/topic/174970-alex-pandian-2014tamil1080pituneshevcaac51esub-2gb/&do=findComment&comment=352164)
+- [Sivappathigaram &lpar;2006&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 4.4GB - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.dad/index.php?/forums/topic/174974-sivappathigaram-2006-tamil-true-web-dl-1080p-720p-avc-aac-20-44gb-25gb-14gb-x264-700mb-400mb/&do=findComment&comment=352175)
+- [RANAM &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174971-ranam-2006-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=352174)
+- [Punnami Naagu &lpar;1980&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 384Kbps &lpar;Dolby Digital® 5.0&rpar; - 4GB](https://www.1tamilmv.dad/index.php?/forums/topic/174964-punnami-naagu-1980-telugu-dvd5-untouched-480p-384kbps-dolby-digital%C2%AE-50-4gb/&do=findComment&comment=352173)
+- [Punnami Naagu &lpar;1980&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 384Kbps &lpar;Dolby Digital® 5.0&rpar; - 4GB](https://www.1tamilmv.dad/index.php?/forums/topic/174964-punnami-naagu-1980-telugu-dvd5-untouched-480p-384kbps-dolby-digital%C2%AE-50-4gb/&do=findComment&comment=352172)
+- [RANAM &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174971-ranam-2006-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=352171)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
