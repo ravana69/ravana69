@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vazhikaattiyakuvan | Christian Video Song | Shibu Antony Mavelikara | Joji Johns | Shine Kumar](https://www.youtube.com/watch?v=_-P-VWdD89Q)
+- [Japamala 23rd of August 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 23rd of August 2023](https://www.youtube.com/watch?v=I5ERxvX8fdA)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം August 23rd daily mother Mary songs](https://www.youtube.com/watch?v=Of9zB7Ui9x8)
 - [രാവിലെ പ്രാര്‍ത്ഥന 23rd of August shorts  # Athiravile Prarthana 23rd of August 2023 shorts](https://www.youtube.com/watch?v=w9CBvqoCmvc)
 - [പ്രഭാത പ്രാര്‍ത്ഥന August 23 # Athiravile Prarthana 23rd of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=rKe1ThTz_kY)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 23rd August 2023](https://www.youtube.com/watch?v=sNVLEMhOoro)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=BK-y9goxHss)
-- [വാഴ്ത്തിപ്പാടിടാം നാഥാ... വാഴ്ത്തിപ്പാടിടാം .](https://www.youtube.com/watch?v=OVr9DEyqMpw)
-- [പുതുമഴയേ പാടുന്നോ | Vidhu Prathap | Sam Shiva | August 27 #malayalammoviesongs #latestmalayalam](https://www.youtube.com/watch?v=Ekwaa4Xfpjc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
