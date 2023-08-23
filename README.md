@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Sivappathigaram &lpar;2006&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 4.4GB - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.dad/index.php?/forums/topic/174974-sivappathigaram-2006-tamil-true-web-dl-1080p-720p-avc-aac-20-44gb-25gb-14gb-x264-700mb-400mb/&do=findComment&comment=352177)
+- [55 Tamil Movies - 1080p - WEB DL - HEVC x265 - DD5.1 / AAC5.1 / AAC2.0 - Esub - 75GB [GDrive]](https://www.1tamilmv.dad/index.php?/forums/topic/164468-55-tamil-movies-1080p-web-dl-hevc-x265-dd51-aac51-aac20-esub-75gb-gdrive/&do=findComment&comment=352176)
 - [Sivappathigaram &lpar;2006&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 4.4GB - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.dad/index.php?/forums/topic/174974-sivappathigaram-2006-tamil-true-web-dl-1080p-720p-avc-aac-20-44gb-25gb-14gb-x264-700mb-400mb/&do=findComment&comment=352175)
 - [RANAM &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174971-ranam-2006-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=352174)
 - [Punnami Naagu &lpar;1980&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 384Kbps &lpar;Dolby Digital® 5.0&rpar; - 4GB](https://www.1tamilmv.dad/index.php?/forums/topic/174964-punnami-naagu-1980-telugu-dvd5-untouched-480p-384kbps-dolby-digital%C2%AE-50-4gb/&do=findComment&comment=352173)
-- [Punnami Naagu &lpar;1980&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 384Kbps &lpar;Dolby Digital® 5.0&rpar; - 4GB](https://www.1tamilmv.dad/index.php?/forums/topic/174964-punnami-naagu-1980-telugu-dvd5-untouched-480p-384kbps-dolby-digital%C2%AE-50-4gb/&do=findComment&comment=352172)
-- [RANAM &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174971-ranam-2006-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=352171)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
