@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ത്യാഗത്തിൻ പാഥയിൽ നീങ്ങി ഞങ്ങൾ യാഗത്തിൻ വേദിയിൽ ഒന്നു ചേർന്നു .](https://www.youtube.com/watch?v=dMdF26E3IfE)
 - [Njan KArayumbozhum | Christian Melody Songs | Bindhu Thomas | Joji Johns | Rajesh Athikayam](https://www.youtube.com/watch?v=LdIdXem5kXA)
 - [Vasanthamundo  | Ananthabhadram | M Radhakrishnan | Hema | M G Radhakrishnan | Gireesh Puthenchery](https://www.youtube.com/watch?v=MtWNGUP7yaI)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 24th of August 2023](https://www.youtube.com/watch?v=Za8xxeQp-Hw)
 - [നിന്റെ കണ്ണുനീരിന് ദൈവം പ്രതിഫലം തരും | Rev. Aneesh P Joseph | #shortvideo #jesus](https://www.youtube.com/watch?v=Gl7og_wUs7o)
 - [Baby - O Rendu Prema Meghaalila Video | Anand Deverakonda, Vijai Bulganin](https://www.youtube.com/watch?v=wz5BIbhqhTI)
-- [Aniyam Maniyam Video Song | Panitheeraatha Veedu | P Susheela |](https://www.youtube.com/watch?v=CnRm3HnUg1A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
