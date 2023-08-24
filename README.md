@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മുമ്പിൽ ചെങ്കടൽ ആർത്തിരച്ചാൽ | Thomas Mathew Karunagappally #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=oEVIkrDXJyc)
+- [കാൽവറി രക്തമേ യേശുവിൻ രക്തമേ | Mithila Michael | Rev.ART Athisayam #christiandevotionalsongs #shorts](https://www.youtube.com/watch?v=kS6FuKrnxPg)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം August 24th daily mother mary songs](https://www.youtube.com/watch?v=HzjIgyi6bLI)
 - [ഹൃദയം പൊട്ടി കരയുന്നവരെ ഈ ഗാനങ്ങൾ സ്പർശിക്കും | Christian Devotional Songs malayalam](https://www.youtube.com/watch?v=sVu7DmcUmH0)
 - [Japamala 24th of August 2023 # Mathavinte Japamala # Prakashathinte Rahasyangal 24th of August 2023](https://www.youtube.com/watch?v=HNUIFSk_nfQ)
 - [രാവിലെ പ്രാര്‍ത്ഥന 24th of August shorts  # Athiravile Prarthana 24th of August 2023 shorts](https://www.youtube.com/watch?v=1_j9dixywA4)
-- [രാവിലെ പ്രാര്‍ത്ഥന August 24 # Athiravile Prarthana 24th of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=4-6ZnPAHwk0)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 24th August 2023](https://www.youtube.com/watch?v=2tbcQ6d_GcU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
