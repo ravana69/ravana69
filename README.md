@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BRO &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.2GB - 2.8GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175014-bro-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-52gb-28gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352277)
 - [Fantastica: A Boonie Bears Adventure &lpar;2017&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+2.0 - 224Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175017-fantastica-a-boonie-bears-adventure-2017-hd-original-audios-1080p-720p-x264-dd20-224kbps-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-400mb-esub/&do=findComment&comment=352276)
 - [BRO &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.2GB - 2.8GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175014-bro-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-52gb-28gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352273)
 - [Kadhal Rewind &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.4GB - 1.6GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175011-kadhal-rewind-2023-tamil-true-web-dl-4k-1080p-720p-avc-dd51-384kbps-24gb-16gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352270)
 - [Kurukkan &lpar;2023&rpar; Malayalam TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 8.5GB - 2.9GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175010-kurukkan-2023-malayalam-true-web-dl-4k-1080p-720p-avc-dd51-192kbps-85gb-29gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=352269)
-- [Kurukkan &lpar;2023&rpar;.Malayalam.1080p.Web-dl.DD+5.1 - 3GB](https://www.1tamilmv.dad/index.php?/forums/topic/175008-kurukkan-2023malayalam1080pweb-dldd51-3gb/&do=findComment&comment=352267)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
