@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന August 25 # Athiravile Prarthana 25th of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=hT_15I0crLI)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 25th August 2023](https://www.youtube.com/watch?v=tojzQrp9ing)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=K4_rvlEJ8yE)
 - [ത്യാഗത്തിൻ പാഥയിൽ നീങ്ങി ഞങ്ങൾ യാഗത്തിൻ വേദിയിൽ ഒന്നു ചേർന്നു .](https://www.youtube.com/watch?v=dMdF26E3IfE)
 - [Njan KArayumbozhum | Christian Melody Songs | Bindhu Thomas | Joji Johns | Rajesh Athikayam](https://www.youtube.com/watch?v=LdIdXem5kXA)
 - [Vasanthamundo  | Ananthabhadram | M Radhakrishnan | Hema | M G Radhakrishnan | Gireesh Puthenchery](https://www.youtube.com/watch?v=MtWNGUP7yaI)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 24th of August 2023](https://www.youtube.com/watch?v=Za8xxeQp-Hw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
