@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Onam Vannnnonam | Onam Song by K J Yesudas & P Jayachandran #shorts #kjyesudas #pjayachandran](https://www.youtube.com/watch?v=DjYG919xNj8)
 - [മുമ്പിൽ ചെങ്കടൽ ആർത്തിരച്ചാൽ | Thomas Mathew Karunagappally #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=oEVIkrDXJyc)
 - [കാൽവറി രക്തമേ യേശുവിൻ രക്തമേ | Mithila Michael | Rev.ART Athisayam #christiandevotionalsongs #shorts](https://www.youtube.com/watch?v=kS6FuKrnxPg)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം August 24th daily mother mary songs](https://www.youtube.com/watch?v=HzjIgyi6bLI)
 - [ഹൃദയം പൊട്ടി കരയുന്നവരെ ഈ ഗാനങ്ങൾ സ്പർശിക്കും | Christian Devotional Songs malayalam](https://www.youtube.com/watch?v=sVu7DmcUmH0)
 - [Japamala 24th of August 2023 # Mathavinte Japamala # Prakashathinte Rahasyangal 24th of August 2023](https://www.youtube.com/watch?v=HNUIFSk_nfQ)
-- [രാവിലെ പ്രാര്‍ത്ഥന 24th of August shorts  # Athiravile Prarthana 24th of August 2023 shorts](https://www.youtube.com/watch?v=1_j9dixywA4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
