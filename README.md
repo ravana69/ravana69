@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [അഞ്ജന ടീച്ചറും അഭിജിത്തും | Njandu Pudikkanu | Folk Song | Shorts #latestmalayalam](https://www.youtube.com/watch?v=vn2LFJSYK2g)
+- [PRAAVU TEASER | NAVAZ ALI | P R RAJASEKHARAN | CET CINEMA | MANJU MOLE](https://www.youtube.com/watch?v=YT3BEDlmevs)
 - [ചിറകൊടിഞ്ഞ കിനാക്കളിൽ..ഇതൾ പൊഴിഞ്ഞ സുമങ്ങളിൽ..  #malayalamsongs #ilammanjil #mohanlal #romantic](https://www.youtube.com/watch?v=IM-CKKa7Q-I)
 - [Thekku Thekku Thekke Paadam Video Song | Mammootty | Vidyasagar | KJ Yesudas | Gireesh Puthenchery](https://www.youtube.com/watch?v=VTu99YxZYuU)
 - [ഹിറ്റ് ഗാനങ്ങൾ മലയാളത്തിന് സമ്മാനിച്ച സംഗീത സംവിധായകൻ നിസരി ഉമ്മറിന്റെ ഏറ്റവും നല്ല ഓണപ്പാട്ടുകൾ !](https://www.youtube.com/watch?v=KkltEXeLpD0)
 - [Shake it up for #Halaballoo | #RDX | #ShaneNigam, #AntonyVarghese, #NeerajMadhav | #SamCS | #shorts](https://www.youtube.com/watch?v=AjienDLzL_0)
-- [Johny Mone Johny | Remix | DJ Savyo #shorts #dulquersalmaan #gopisundar #djsaviofficial #remix](https://www.youtube.com/watch?v=mHsHDrp-DcU)
-- [Onam Days | Suguna Nandakumar | Akhil G. Babu | Lalu Menon | Onam Songs 2023](https://www.youtube.com/watch?v=HIFoGHSVW2U)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
