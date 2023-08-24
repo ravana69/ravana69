@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BRO &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.2GB - 2.8GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175014-bro-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-52gb-28gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352273)
+- [Kadhal Rewind &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.4GB - 1.6GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175011-kadhal-rewind-2023-tamil-true-web-dl-4k-1080p-720p-avc-dd51-384kbps-24gb-16gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352270)
 - [Kurukkan &lpar;2023&rpar; Malayalam TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 8.5GB - 2.9GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175010-kurukkan-2023-malayalam-true-web-dl-4k-1080p-720p-avc-dd51-192kbps-85gb-29gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=352269)
 - [Kurukkan &lpar;2023&rpar;.Malayalam.1080p.Web-dl.DD+5.1 - 3GB](https://www.1tamilmv.dad/index.php?/forums/topic/175008-kurukkan-2023malayalam1080pweb-dldd51-3gb/&do=findComment&comment=352267)
 - [📌 KHADGAM &lpar;2002&rpar; &lpar;Music Video Album&rpar; - JC - 1080P - WEBDL - AVC - DD® 5.1 @ 448 Kbps - Dvd9 Sync - 1.7GB](https://www.1tamilmv.dad/index.php?/forums/topic/174843-%F0%9F%93%8C-khadgam-2002-music-video-album-jc-1080p-webdl-avc-dd%C2%AE-51-448-kbps-dvd9-sync-17gb/&do=findComment&comment=352266)
-- [Leonardo DiCaprio&#39;s Gangs of New York &lpar;2002&rpar; BluRay ReMastered 2160p 4K SDR  Multi Original Audios &lpar;DD5.1 ~ 448Kbps&rpar; [Telugu + Tamil + Hindi + English ] - AC3 - x264 - ESubs.mkv - 12.47 GB](https://www.1tamilmv.dad/index.php?/forums/topic/175002-leonardo-dicaprios-gangs-of-new-york-2002-bluray-remastered-2160p-4k-sdr-multi-original-audios-dd51-~-448kbps-telugu-tamil-hindi-english-ac3-x264-esubsmkv-1247-gb/&do=findComment&comment=352265)
-- [Made in heaven &lpar;2023&rpar; Complete S02 Merged HQ HDRip - [1080p - 720p - 576p - AVC - &lpar;Hindi DD+5.1 - 192Kbps&rpar; - 15GB - 3.4GB - 950MB] - ESub [Google Drive]](https://www.1tamilmv.dad/index.php?/forums/topic/174968-made-in-heaven-2023-complete-s02-merged-hq-hdrip-1080p-720p-576p-avc-hindi-dd51-192kbps-15gb-34gb-950mb-esub-google-drive/&do=findComment&comment=352264)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
