@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Baby &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.8GB - 2.4GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174988-baby-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-38gb-24gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352213)
-- [Mr. Bharath &lpar;1986&rpar;.Tamil.1080p.HDTV.x264.AAC2.0 - 4GB - GDRIVE](https://www.1tamilmv.dad/index.php?/forums/topic/106247-mr-bharath-1986tamil1080phdtvx264aac20-4gb-gdrive/&do=findComment&comment=352212)
-- [🔰Mr.Bharath &lpar;1986&rpar; Tamil Proper AMZN - WEB-DL 1080p - Tamil - DDP2.0 - H.264 - 13.56GB](https://www.1tamilmv.dad/index.php?/forums/topic/154708-%F0%9F%94%B0mrbharath-1986-tamil-proper-amzn-web-dl-1080p-tamil-ddp20-h264-1356gb/&do=findComment&comment=352211)
-- [MANTRA &lpar;2007&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 5GB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174980-mantra-2007-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-5gb-esub/&do=findComment&comment=352210)
-- [Slum Dog Husband &lpar;2023&rpar; AMZN WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 8.5 GB | 5 GB](https://www.1tamilmv.dad/index.php?/forums/topic/174987-slum-dog-husband-2023-amzn-web-dl-ddp51-esubs-x264-1080p-720p-85-gb-5-gb/&do=findComment&comment=352209)
+- [Baby &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 5GB - 3GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174988-baby-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-5gb-3gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352227)
+- [Baby &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 5GB - 3GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174988-baby-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-5gb-3gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352226)
+- [Velaikaran &lpar;1987&rpar;.Tamil.1080p.Web-dl.x264.AAC2.0 - 4GB - GDRIVE](https://www.1tamilmv.dad/index.php?/forums/topic/110472-velaikaran-1987tamil1080pweb-dlx264aac20-4gb-gdrive/&do=findComment&comment=352220)
+- [King of Kotha &lpar;2023&rpar; Malayalam Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.dad/index.php?/forums/topic/174990-king-of-kotha-2023-malayalam-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352215)
+- [Baby &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 5GB - 3GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174988-baby-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-5gb-3gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352213)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
