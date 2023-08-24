@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Johny Mone Johny | Remix | DJ Savyo #shorts #dulquersalmaan #gopisundar #djsaviofficial #remix](https://www.youtube.com/watch?v=mHsHDrp-DcU)
+- [Onam Days | Suguna Nandakumar | Akhil G. Babu | Lalu Menon | Onam Songs 2023](https://www.youtube.com/watch?v=HIFoGHSVW2U)
+- [Maanathu Vethaykkana | Abhayam Thedi 1986 | Shyam | Unni Menon, Lathika | Malayalam Movie Song](https://www.youtube.com/watch?v=5ts7ISCwhWs)
 - [Onanilavilu|Onam Song Madhu Balakrishnan #shorts #madhubalakrishnan #onam #festivalmusic #onamsong](https://www.youtube.com/watch?v=zBvn_2P2e_c)
 - [Vannallo Ponnonam | Karaoke Video | M G Sreekumar |Chittoor Gopi |Kannan |ഓണപ്പാട്ട് കരോക്കെ വീഡിയോ](https://www.youtube.com/watch?v=OBYsGmsy7dY)
 - [Kanmaniye Punyam | Annan Thampi | Mammootty | Lakshmi Rai | Vineeth Sreenivasan | Rahulraj](https://www.youtube.com/watch?v=h06B4ZdBziE)
-- [Onam Vannnnonam | Onam Song by K J Yesudas & P Jayachandran #shorts #kjyesudas #pjayachandran](https://www.youtube.com/watch?v=DjYG919xNj8)
-- [മുമ്പിൽ ചെങ്കടൽ ആർത്തിരച്ചാൽ | Thomas Mathew Karunagappally #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=oEVIkrDXJyc)
-- [കാൽവറി രക്തമേ യേശുവിൻ രക്തമേ | Mithila Michael | Rev.ART Athisayam #christiandevotionalsongs #shorts](https://www.youtube.com/watch?v=kS6FuKrnxPg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
