@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Azhake Kanmaniye Video Song | Kunchacko Boban | Meera Jasmine | P Jayachandran | Sujatha Mohan](https://www.youtube.com/watch?v=zc5NwO1rGuo)
+- [Thumbikinnaram | Romantic Duet by K J Yesudas & Gayathri #shorts #kjyesudas #deepakdev #mohanlal](https://www.youtube.com/watch?v=XcvBq47QHpU)
 - [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=3w1dCXRg9UY)
 - [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=ai92LIgVYJg)
 - [പൊന്നോണ പൂക്കാലത്തിൻ ചാരുത ചോരാത്ത വസന്ത ഗീതങ്ങൾ | ONAM SPECIAL SONGS MALAYALAM | NISARI MUSIC](https://www.youtube.com/watch?v=O234zg2yEic)
 - [Kavalam Chundanvallam | PV Jaikumar | Joji Johns | Madhu Balakrishnan | Inshad Nazim | ONAM 2023](https://www.youtube.com/watch?v=CxwtytmbNMo)
-- [ഈ പാട്ട് ഇല്ലാത്ത ഓണത്തെക്കുറിച്ച് ചിന്തിക്കാനാവില്ല 🎶✨😇 പൂവിളി പൂവിളി പൊന്നോണമായി #malayalam #onam](https://www.youtube.com/watch?v=N_E0_UXaACk)
-- [Oru Pennithaa - Song Promo | Kushi (Malayalam) | Vijay Deverakonda,Samantha| Hesham Abdul Wahab](https://www.youtube.com/watch?v=39WTc2tXPzQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
