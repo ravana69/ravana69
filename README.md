@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Azhake Kanmaniye Video Song | Kunchacko Boban | Meera Jasmine | P Jayachandran | Sujatha Mohan](https://www.youtube.com/watch?v=zc5NwO1rGuo)
-- [Thumbikinnaram | Romantic Duet by K J Yesudas & Gayathri #shorts #kjyesudas #deepakdev #mohanlal](https://www.youtube.com/watch?v=XcvBq47QHpU)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=3w1dCXRg9UY)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=ai92LIgVYJg)
-- [പൊന്നോണ പൂക്കാലത്തിൻ ചാരുത ചോരാത്ത വസന്ത ഗീതങ്ങൾ | ONAM SPECIAL SONGS MALAYALAM | NISARI MUSIC](https://www.youtube.com/watch?v=O234zg2yEic)
-- [Kavalam Chundanvallam | PV Jaikumar | Joji Johns | Madhu Balakrishnan | Inshad Nazim | ONAM 2023](https://www.youtube.com/watch?v=CxwtytmbNMo)
+- [ദൈവം കനിഞ്ഞ്  നൽകിയ വരദാനമാണ് ഈ ജീവിതം | Rev. Aneesh P Joseph | #shortvideo #jesus](https://www.youtube.com/watch?v=l-TXWzfuvZI)
+- [Maanmizhi Poovu | Mahasamudram | PV Preetha | M Jayachandran | Kaithapram](https://www.youtube.com/watch?v=9XQL-iLyYG0)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 25th of August 2023](https://www.youtube.com/watch?v=5ytFKt-ctno)
+- [Kavalam Chundanvallam | PV Jaikumar | Joji Johns | Madhu Balakrishnan | Inshad Nazim | ONAM 2023](https://www.youtube.com/watch?v=2dJieE8mV9Y)
+- [Soora Thenga | Ghilli | Na. Muthukumar | Tippu | #shorts](https://www.youtube.com/watch?v=K57q8qzxtok)
+- [Kokkokko Kozhi Remix Version |  Speed Track | Vineeth Sreenivasan | Rimi Tomy | Deepak Dev](https://www.youtube.com/watch?v=dNHvdRYumos)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
