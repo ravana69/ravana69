@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oru Pennithaa - Song Promo | Kushi (Malayalam) | Vijay Deverakonda,Samantha| Hesham Abdul Wahab](https://www.youtube.com/watch?v=39WTc2tXPzQ)
+- [Group Vibes for #Halaballoo | #RDX | #ShaneNigam, #AntonyVarghese, #NeerajMadhav | #SamCS | #shorts](https://www.youtube.com/watch?v=jxskb4P6IG8)
 - [St. Euphrasia Song | സ്നേഹത്തിൻ മണവാട്ടി  | Bro. Jaison Kizhakkechira CMI | Serah Miya Ison | KQ](https://www.youtube.com/watch?v=FnLfA6roBoY)
 - [Advaithaamritha Varshini | Chandra Bimbam 1980 | Vani Jairam | Malayalam Movie Song](https://www.youtube.com/watch?v=POa7oAxJyw4)
 - [Snehavaram | Novukalilaaswasamekunna Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=l55Q8dpXmis)
 - [Ponchinga Chillayilaaro | Onam Song by K J Yesudas #shorts  #kjyesudas #onamsongs #manoramamusic](https://www.youtube.com/watch?v=hQyMmEsq2Lw)
-- [Onangal Oronnum | Onam Song Video  |  Jithesh Narayanan |  Manoj Kiliyil](https://www.youtube.com/watch?v=Wr90opHpe3U)
-- [Onanilavilu Onam | Onam Song by Madhu Balakrishnan #shorts #madhubalakrishnan #onam #onamsongs](https://www.youtube.com/watch?v=1YyCHlf2Okk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
