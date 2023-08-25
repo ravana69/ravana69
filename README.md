@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pizza 3: The Mummy &lpar;2023&rpar; AMZN WEB-DL MULTI DDP5.1 Esubs - 2160p | 1080p - 17.1 GB | 8 GB](https://www.1tamilmv.dad/index.php?/forums/topic/175018-pizza-3-the-mummy-2023-amzn-web-dl-multi-ddp51-esubs-2160p-1080p-171-gb-8-gb/&do=findComment&comment=352280)
 - [Fantastica: A Boonie Bears Adventure &lpar;2017&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+2.0 - 224Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175017-fantastica-a-boonie-bears-adventure-2017-hd-original-audios-1080p-720p-x264-dd20-224kbps-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-400mb-esub/&do=findComment&comment=352279)
 - [Pizza 3: The Mummy &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 17GB - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/174982-pizza-3-the-mummy-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-17gb-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352278)
 - [BRO &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.2GB - 2.8GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175014-bro-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-52gb-28gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352277)
 - [Fantastica: A Boonie Bears Adventure &lpar;2017&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+2.0 - 224Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175017-fantastica-a-boonie-bears-adventure-2017-hd-original-audios-1080p-720p-x264-dd20-224kbps-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-400mb-esub/&do=findComment&comment=352276)
-- [BRO &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.2GB - 2.8GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175014-bro-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-52gb-28gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352273)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
