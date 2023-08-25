@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പൊന്നോണ പൂക്കാലത്തിൻ ചാരുത ചോരാത്ത വസന്ത ഗീതങ്ങൾ | ONAM SPECIAL SONGS MALAYALAM | NISARI MUSIC](https://www.youtube.com/watch?v=O234zg2yEic)
+- [Kavalam Chundanvallam | PV Jaikumar | Joji Johns | Madhu Balakrishnan | Inshad Nazim | ONAM 2023](https://www.youtube.com/watch?v=CxwtytmbNMo)
+- [ഈ പാട്ട് ഇല്ലാത്ത ഓണത്തെക്കുറിച്ച് ചിന്തിക്കാനാവില്ല 🎶✨😇 പൂവിളി പൂവിളി പൊന്നോണമായി #malayalam #onam](https://www.youtube.com/watch?v=N_E0_UXaACk)
 - [Oru Pennithaa - Song Promo | Kushi (Malayalam) | Vijay Deverakonda,Samantha| Hesham Abdul Wahab](https://www.youtube.com/watch?v=39WTc2tXPzQ)
 - [Group Vibes for #Halaballoo | #RDX | #ShaneNigam, #AntonyVarghese, #NeerajMadhav | #SamCS | #shorts](https://www.youtube.com/watch?v=jxskb4P6IG8)
 - [St. Euphrasia Song | സ്നേഹത്തിൻ മണവാട്ടി  | Bro. Jaison Kizhakkechira CMI | Serah Miya Ison | KQ](https://www.youtube.com/watch?v=FnLfA6roBoY)
-- [Advaithaamritha Varshini | Chandra Bimbam 1980 | Vani Jairam | Malayalam Movie Song](https://www.youtube.com/watch?v=POa7oAxJyw4)
-- [Snehavaram | Novukalilaaswasamekunna Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=l55Q8dpXmis)
-- [Ponchinga Chillayilaaro | Onam Song by K J Yesudas #shorts  #kjyesudas #onamsongs #manoramamusic](https://www.youtube.com/watch?v=hQyMmEsq2Lw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
