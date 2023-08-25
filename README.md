@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [St. Euphrasia Song | സ്നേഹത്തിൻ മണവാട്ടി  | Bro. Jaison Kizhakkechira CMI | Serah Miya Ison | KQ](https://www.youtube.com/watch?v=FnLfA6roBoY)
+- [Advaithaamritha Varshini | Chandra Bimbam 1980 | Vani Jairam | Malayalam Movie Song](https://www.youtube.com/watch?v=POa7oAxJyw4)
 - [Snehavaram | Novukalilaaswasamekunna Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=l55Q8dpXmis)
 - [Ponchinga Chillayilaaro | Onam Song by K J Yesudas #shorts  #kjyesudas #onamsongs #manoramamusic](https://www.youtube.com/watch?v=hQyMmEsq2Lw)
 - [Onangal Oronnum | Onam Song Video  |  Jithesh Narayanan |  Manoj Kiliyil](https://www.youtube.com/watch?v=Wr90opHpe3U)
 - [Onanilavilu Onam | Onam Song by Madhu Balakrishnan #shorts #madhubalakrishnan #onam #onamsongs](https://www.youtube.com/watch?v=1YyCHlf2Okk)
-- [Japamala 25th of August 2023 # Mathavinte Japamala # Dhukhathinte Rahasyangal 25th of August 2023](https://www.youtube.com/watch?v=h_usGMvo730)
-- [Songs Of The Week | Manjeri | Christian Devotional Songs Malayalam | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=YQSbvP29myg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
