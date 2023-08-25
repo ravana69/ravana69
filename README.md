@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oru Raathri Koodi Video Song | Manju Warrier | Suresh Gopi | Gireesh Puthenchery | Vidyasagar](https://www.youtube.com/watch?v=iDQEhpZPwGg)
 - [Christian Melody Songs |  P jayachandran | Praise and Worship Songs | Markose | Christian Songs](https://www.youtube.com/watch?v=3bCmjCpR-Vc)
 - [ദൈവം കനിഞ്ഞ്  നൽകിയ വരദാനമാണ് ഈ ജീവിതം | Rev. Aneesh P Joseph | #shortvideo #jesus](https://www.youtube.com/watch?v=l-TXWzfuvZI)
 - [Maanmizhi Poovu | Mahasamudram | PV Preetha | M Jayachandran | Kaithapram](https://www.youtube.com/watch?v=9XQL-iLyYG0)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 25th of August 2023](https://www.youtube.com/watch?v=5ytFKt-ctno)
 - [Kavalam Chundanvallam | PV Jaikumar | Joji Johns | Madhu Balakrishnan | Inshad Nazim | ONAM 2023](https://www.youtube.com/watch?v=2dJieE8mV9Y)
-- [Soora Thenga | Ghilli | Na. Muthukumar | Tippu | #shorts](https://www.youtube.com/watch?v=K57q8qzxtok)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
