@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം August 26th daily mother Mary songs #daily mother m](https://www.youtube.com/watch?v=-HmAR_srEyo)
+- [രാവിലെ പ്രാര്‍ത്ഥന 26th of August shorts  # Athiravile Prarthana 26th of August 2023 shorts](https://www.youtube.com/watch?v=nhNbg9-R_ps)
 - [പ്രഭാത പ്രാര്‍ത്ഥന August 26 # Athiravile Prarthana 26th of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=Kg5LvWIXVKI)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 26th August 2023](https://www.youtube.com/watch?v=cTfPxCN2WSo)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=R6Xo1aS3mpI)
 - [ഇവിടെ ഈ തണലിൽ അമ്മതൻ വാത്സല്യ തണലിൽ, ഇത്തിരി നേരം ഇരിക്കാൻ മോഹം .](https://www.youtube.com/watch?v=RFMNmCN5fII)
-- [Oru Raathri Koodi Video Song | Manju Warrier | Suresh Gopi | Gireesh Puthenchery | Vidyasagar](https://www.youtube.com/watch?v=iDQEhpZPwGg)
-- [Christian Melody Songs |  P jayachandran | Praise and Worship Songs | Markose | Christian Songs](https://www.youtube.com/watch?v=3bCmjCpR-Vc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
