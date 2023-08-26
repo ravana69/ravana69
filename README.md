@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Choolamadichu Karangi | Summer In Bethlahem | Manju Warrier | Sureshgopi | Vidyasagar | Sibi Malayil](https://www.youtube.com/watch?v=8AV1mZwgEYE)
 - [Onam Vannonam |Onam Song by K j Yesudas & P Jayachandran  #shorts  #kjyesudas #onam #pjayachandran](https://www.youtube.com/watch?v=lCmy70svRBM)
 - [Mullappoomanamo | Mukkuvane Snehicha Bhootham 1978| P.Susheela, P.Jayachandran |Malayalam Movie Song](https://www.youtube.com/watch?v=dow6KPOZBSw)
 - [Peru Chollam | Agninakshathram | Biju Menon | Indraja | Chithra | Raveendran](https://www.youtube.com/watch?v=fuwypTCLzyY)
 - [Poove Poli | Radhika Thilak & Madhu Balakrishnan | Chowalloor Krishnankutty| K.Raghavan](https://www.youtube.com/watch?v=q-k5BuANFEU)
 - [Mukalparappu | Official Trailer | Siby Padiyara | JP Thavarool | Sunil Surya |Aparna J |Chithra Nair](https://www.youtube.com/watch?v=tbnLyfcPV5A)
-- [Onnanam Kunninmel | Onam Song by M G Sreekumar & Sujatha #shorts #mgsreekumar #sujathamohan #onam](https://www.youtube.com/watch?v=GsM4r89H4Ak)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
