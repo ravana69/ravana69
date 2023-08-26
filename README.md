@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Toby &lpar;2023&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.dad/index.php?/forums/topic/174999-toby-2023-kannada-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352315)
 - [Uyyala Jampala &lpar;2013&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 5.5GB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175024-uyyala-jampala-2013-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-55gb-esub/&do=findComment&comment=352314)
 - [Meg 2: The Trench &lpar;2023&rpar; MA WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p - 20.1 GB | 6.8 GB](https://www.1tamilmv.dad/index.php?/forums/topic/175025-meg-2-the-trench-2023-ma-web-dl-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-201-gb-68-gb/&do=findComment&comment=352313)
 - [Pizza 3 - The Mummy &lpar;2023&rpar; AMZN WEB-DL 2160p, 1080p, 720p - H.264/265  [Tamil + Telugu + Kannada + Malayalam] - &lpar;DDP5.1 - 640Kbps&rpar; - [17GB, 8GB, 6.3GB, 4GB, 1.2GB] - ESub - Leyon](https://www.1tamilmv.dad/index.php?/forums/topic/162573-pizza-3-the-mummy-2023-amzn-web-dl-2160p-1080p-720p-h264265-tamil-telugu-kannada-malayalam-ddp51-640kbps-17gb-8gb-63gb-4gb-12gb-esub-leyon/&do=findComment&comment=352312)
 - [Uyyala Jampala &lpar;2013&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 5.5GB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175024-uyyala-jampala-2013-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-55gb-esub/&do=findComment&comment=352311)
-- [Uyyala Jampala &lpar;2013&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 5.5GB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175024-uyyala-jampala-2013-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-55gb-esub/&do=findComment&comment=352310)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
