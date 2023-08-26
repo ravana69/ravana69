@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Onam Vannonam |Onam Song by K j Yesudas & P Jayachandran  #shorts  #kjyesudas #onam #pjayachandran](https://www.youtube.com/watch?v=lCmy70svRBM)
+- [Mullappoomanamo | Mukkuvane Snehicha Bhootham 1978| P.Susheela, P.Jayachandran |Malayalam Movie Song](https://www.youtube.com/watch?v=dow6KPOZBSw)
+- [Peru Chollam | Agninakshathram | Biju Menon | Indraja | Chithra | Raveendran](https://www.youtube.com/watch?v=fuwypTCLzyY)
+- [Poove Poli | Radhika Thilak & Madhu Balakrishnan | Chowalloor Krishnankutty| K.Raghavan](https://www.youtube.com/watch?v=q-k5BuANFEU)
+- [Mukalparappu | Official Trailer | Siby Padiyara | JP Thavarool | Sunil Surya |Aparna J |Chithra Nair](https://www.youtube.com/watch?v=tbnLyfcPV5A)
 - [Onnanam Kunninmel | Onam Song by M G Sreekumar & Sujatha #shorts #mgsreekumar #sujathamohan #onam](https://www.youtube.com/watch?v=GsM4r89H4Ak)
-- [Njan Ninne Kaividumo | KS Chithra | Christian Devotional | Shorts #christiandevotional #shortsvideo](https://www.youtube.com/watch?v=NQsre8EWePA)
-- [മനം അറിയാതെ എപ്പോഴും ഏറ്റുപാടുന്ന സ്തുതിഗീതങ്ങൾ aayirangal veenalum | Kester | christian songs](https://www.youtube.com/watch?v=gaURXcrV1rQ)
-- [Christian Video Songs Malayalam | Manoj Christy | Rithuraj | Christian Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=RAZLKjUeI84)
-- [Japamala 26th of August  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 26th of August 23](https://www.youtube.com/watch?v=Dn_DAI6okOI)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം August 26th daily mother Mary songs #daily mother m](https://www.youtube.com/watch?v=-HmAR_srEyo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
