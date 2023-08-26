@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Darling Darling Video Song | Azhakulla Saleena | KJ Yesudas | Vayalar | Prem Nazir](https://www.youtube.com/watch?v=jc0wyxSTqtU)
+- [Maveli Naadu Vanidum Kalam | Non Stop  Onam Video  Songs | മാവേലി നാട് വാണീടും കാലം | Music Video](https://www.youtube.com/watch?v=UKegqipNX-8)
+- [Vidhi Than Kanalay | Lyric Video | Colossians | Shamalraj | Priya Jerson | Murali Shankar](https://www.youtube.com/watch?v=A5m4WtCqU0c)
 - [Oru Pennithaa - Lyrical | Kushi (Malayalam) | Vijay Deverakonda,Samantha| Hesham Abdul Wahab](https://www.youtube.com/watch?v=vF9PzrIwZPs)
 - [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=4n09hdavSlc)
 - [Oru Raathri Koodi Video Song | Manju Warrier | Suresh Gopi | Gireesh Puthenchery | Vidyasagar](https://www.youtube.com/watch?v=ohU8W38AsXg)
-- [പൂവിളി പൂവിളി പൊന്നോണമായി | Poovili Poovili Ponnonamayi - Vishukkani(1977) | #onam  Special Songs](https://www.youtube.com/watch?v=niT3J-LPS68)
-- [Aa Nimisham | Ulviliyekunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=SIrf5OwR_Q4)
-- [Ponnonathin Pookkalamidan | Onam Songs 2023 | PV Jaikumar | Joji Johns | Shymol Alex | Inshad Nazim](https://www.youtube.com/watch?v=QEnu_lYqO50)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
