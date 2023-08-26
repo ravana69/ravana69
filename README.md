@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oru Raathri Koodi Video Song | Manju Warrier | Suresh Gopi | Gireesh Puthenchery | Vidyasagar](https://www.youtube.com/watch?v=ohU8W38AsXg)
+- [പൂവിളി പൂവിളി പൊന്നോണമായി | Poovili Poovili Ponnonamayi - Vishukkani(1977) | #onam  Special Songs](https://www.youtube.com/watch?v=niT3J-LPS68)
 - [Aa Nimisham | Ulviliyekunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=SIrf5OwR_Q4)
 - [Ponnonathin Pookkalamidan | Onam Songs 2023 | PV Jaikumar | Joji Johns | Shymol Alex | Inshad Nazim](https://www.youtube.com/watch?v=QEnu_lYqO50)
 - [ഓണകാലത്തിന്റെ മനോഹാരിതയും ഗ്രാമീണ സംസ്കാരവും ഒത്തു ചേർന്ന് കേൾക്കാൻ സുഖമുള്ള നാടൻപാട്ടുകൾ !](https://www.youtube.com/watch?v=IQViU1g8fbU)
 - [ചേച്ചി ആ മൊബൈൽ ഒന്ന് മാറ്റിവെക്ക് . വാ നമുക്ക് ബെഡ്‌റൂമിൽ പോകാം | Malayalam Comedy Skit Comedy Scene](https://www.youtube.com/watch?v=3Y93COOvQ-Y)
-- [Move ur hips for #Halaballoo | #RDX | #ShaneNigam, #AntonyVarghese, #NeerajMadhav | #SamCS | #shorts](https://www.youtube.com/watch?v=GTS1pCZfm54)
-- [Johny Mone Johny | Remix | DJ Savyo #shorts #dulquersalmaan #gopisundar #djsaviofficial #remix](https://www.youtube.com/watch?v=AJRyNTocfC8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
