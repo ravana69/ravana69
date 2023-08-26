@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 26th of August 2023](https://www.youtube.com/watch?v=lmNs4rwXu9Y)
+- [ആത്മീയത മൗനമായിരിപ്പാനുള്ള ക്ഷണം കൂടിയാണ് | Rev. Aneesh P Joseph | #shortvideo #jesus](https://www.youtube.com/watch?v=YcTgBwud5Vg)
 - [Darling Darling Video Song | Azhakulla Saleena | KJ Yesudas | Vayalar | Prem Nazir](https://www.youtube.com/watch?v=jc0wyxSTqtU)
 - [Maveli Naadu Vanidum Kalam | Non Stop  Onam Video  Songs | മാവേലി നാട് വാണീടും കാലം | Music Video](https://www.youtube.com/watch?v=UKegqipNX-8)
 - [Vidhi Than Kanalay | Lyric Video | Colossians | Shamalraj | Priya Jerson | Murali Shankar](https://www.youtube.com/watch?v=A5m4WtCqU0c)
 - [Oru Pennithaa - Lyrical | Kushi (Malayalam) | Vijay Deverakonda,Samantha| Hesham Abdul Wahab](https://www.youtube.com/watch?v=vF9PzrIwZPs)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=4n09hdavSlc)
-- [Oru Raathri Koodi Video Song | Manju Warrier | Suresh Gopi | Gireesh Puthenchery | Vidyasagar](https://www.youtube.com/watch?v=ohU8W38AsXg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
