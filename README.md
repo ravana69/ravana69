@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [90's Favourite സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | Dance Hits | Malayalam Film Songs | Franco | Afsal](https://www.youtube.com/watch?v=tZwtVncj9UE)
+- [Poove Poove Video Song | Devadoothan | Mohanlal | Vidyasagar| KS Chithra| P Jayachandran| Kaithapram](https://www.youtube.com/watch?v=EHuMxrtAkbU)
 - [Christian Superhit Songs | Wilson Piravom | Christian Songs Malayalam | Joji Johns | Sujatha](https://www.youtube.com/watch?v=50zCkJLec2s)
 - [Sree Padmanabhante |Rajesh Athikkayam | Joji Johns | Chithra Arun | Inshad Nazim | Onam Special 2023](https://www.youtube.com/watch?v=-qNEhnPNuWY)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 26th of August 2023](https://www.youtube.com/watch?v=lmNs4rwXu9Y)
 - [ആത്മീയത മൗനമായിരിപ്പാനുള്ള ക്ഷണം കൂടിയാണ് | Rev. Aneesh P Joseph | #shortvideo #jesus](https://www.youtube.com/watch?v=YcTgBwud5Vg)
-- [Darling Darling Video Song | Azhakulla Saleena | KJ Yesudas | Vayalar | Prem Nazir](https://www.youtube.com/watch?v=jc0wyxSTqtU)
-- [Maveli Naadu Vanidum Kalam | Non Stop  Onam Video  Songs | മാവേലി നാട് വാണീടും കാലം | Music Video](https://www.youtube.com/watch?v=UKegqipNX-8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
