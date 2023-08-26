@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [📌 BRO &lpar;2023&rpar; MULTI &lpar;Music Video Album&rpar; - HQ 1080P - WEBDL - AVC - DDP 5.1 @ 640 Kbps - ESubs - 2GB](https://www.1tamilmv.dad/index.php?/forums/topic/175031-%F0%9F%93%8C-bro-2023-multi-music-video-album-hq-1080p-webdl-avc-ddp-51-640-kbps-esubs-2gb/&do=findComment&comment=352346)
 - [Kshana Kshanam &lpar;1991&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 5.5GB](https://www.1tamilmv.dad/index.php?/forums/topic/175026-kshana-kshanam-1991-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-55gb/&do=findComment&comment=352345)
 - [Ramachandra Boss &amp; Co &lpar;2023&rpar; Malayalam Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.dad/index.php?/forums/topic/174998-ramachandra-boss-co-2023-malayalam-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352344)
 - [O Saathiya &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Hindi + Malayalam + Kannada] - 2.9GB - 1.8GB &amp; 850MB] - [x264 - 800MB &amp; 450MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175027-o-saathiya-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-hindi-malayalam-kannada-29gb-18gb-850mb-x264-800mb-450mb-esub/&do=findComment&comment=352343)
 - [RDX &lpar;2023&rpar; Malayalam Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.dad/index.php?/forums/topic/174997-rdx-2023-malayalam-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352342)
-- [Parthudu &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.dad/index.php?/forums/topic/175030-parthudu-2023-telugu-true-web-dl-1080p-720p-avc-aac-20-28gb-14gb-x264-700mb-400mb-250mb/&do=findComment&comment=352341)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
