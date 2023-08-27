@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Aayirathil Oruvan &lpar;2010&rpar; UNCUT - Tamil - AYN DVD - 1080p &amp; 720p - AVC / HEVC - DD5.1&lpar;448kbps&rpar; - 4GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175039-aayirathil-oruvan-2010-uncut-tamil-ayn-dvd-1080p-720p-avc-hevc-dd51448kbps-4gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352368)
+- [Sex Education &lpar;2021&rpar; S03 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.4GB - 2.4GB &amp; 1.2GB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175036-sex-education-2021-s03-ep-01-08-true-web-dl-1080p-720p-avc-tamil-hindi-eng-dd51-192kbps-54gb-24gb-12gb-esub/&do=findComment&comment=352367)
 - [Sex Education &lpar;2021&rpar; S03 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.4GB - 2.4GB &amp; 1.2GB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175036-sex-education-2021-s03-ep-01-08-true-web-dl-1080p-720p-avc-tamil-hindi-eng-dd51-192kbps-54gb-24gb-12gb-esub/&do=findComment&comment=352365)
 - [Thaalam &lpar;Taal&rpar; &lpar;1999&rpar; HYBRID WEB-HD - 1080p HQ - AVC - UNTOUCHED - [ Tamil &lpar;MP3.2.0&rpar; + Telugu &lpar;MP3.2.0&rpar; + Hindi &lpar;DD.5.1&rpar; ] - 4.9GB - ESub - GDFlix](https://www.1tamilmv.dad/index.php?/forums/topic/175037-thaalam-taal-1999-hybrid-web-hd-1080p-hq-avc-untouched-tamil-mp320-telugu-mp320-hindi-dd51-49gb-esub-gdflix/&do=findComment&comment=352364)
 - [Sex Education &lpar;2021&rpar; S03 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.4GB - 2.4GB &amp; 1.2GB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175036-sex-education-2021-s03-ep-01-08-true-web-dl-1080p-720p-avc-tamil-hindi-eng-dd51-192kbps-54gb-24gb-12gb-esub/&do=findComment&comment=352363)
-- [Maattrraan &lpar;2012&rpar; 1080p SS WEB-DL DDP5.1 x264 - 3.7 GB](https://www.1tamilmv.dad/index.php?/forums/topic/174966-maattrraan-2012-1080p-ss-web-dl-ddp51-x264-37-gb/&do=findComment&comment=352362)
-- [Killer Book Club &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3GB - 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175012-killer-book-club-2023-hd-original-audios-1080p-720p-avc-dd51-640kbps-tamil-telugu-hindi-eng-3gb-12gb-x264-tam-tel-hin-400mb-esub/&do=findComment&comment=352361)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
