@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aaro Nee Aaro | Beautiful Romantic Duet by K J Yesudas&Shweta Mohan  #shorts #kjyesudas #shwetamohan](https://www.youtube.com/watch?v=VroFz7uv6gc)
+- [Medakkonnaykku | Abhayam Thedi 1986 | Shyam | Unni Menon, Lathika | Malayalam Movie Song](https://www.youtube.com/watch?v=KTl-0nwIN28)
+- [Payippattattile | Onam Song by M G Sreekumar #shorts #mgsreekumar #onam #festivalmusic #onamsongs](https://www.youtube.com/watch?v=EvesIngSFOg)
 - [Payippattattile | Onas song by M G Sreekumar #shorts #mgsreekumar #onamsongs #onam #festivalsongs](https://www.youtube.com/watch?v=glrJM0rADzo)
 - [Karale Nin | Devadoothan | Yesudas | Preetha | Vineeth Kumar | Vidyasagar | Sibi Malayil](https://www.youtube.com/watch?v=dUA54XYZ91Q)
 - [UNNI MENON HITS/CHRISTIAN DEVOTIONAL SONGS/OWN MEDIA MUSIC/](https://www.youtube.com/watch?v=lH8LUyqNWV0)
-- [ദേവാലയങ്ങളിൽ സ്ഥിരംപാടുന്ന ദിവ്യഗാനങ്ങൾ | Christian Melody Songs Malayalam | Kester |Christian Songs](https://www.youtube.com/watch?v=zjpkB_qCZwc)
-- [Japamala 27th of August 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 27th of August 2023](https://www.youtube.com/watch?v=NUmxwQumUTo)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം August 27th daily mother Mary songs #daily mother m](https://www.youtube.com/watch?v=A5Fa8db9FTk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
