@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [തിരുവോണ പാട്ടുകൾ  | Superhit Onam Songs | Audio Jukebox | M G Sreekumar | Sujatha Mohan](https://www.youtube.com/watch?v=dvcmysCV3t8)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 27th of August 2023](https://www.youtube.com/watch?v=vkABpi5j_tY)
+- [Onapattin Thalam Thullum...| Quotation | #music #song #melody #happy #religion #songoftheday  #love](https://www.youtube.com/watch?v=0d8jgs76yss)
+- [ഞാൻ ഏറ്റവും കുറയണം ദൈവമേ എന്ന് പ്രാർത്ഥിക്കാം | Rev. Aneesh P Joseph | #shortvideo #jesus](https://www.youtube.com/watch?v=atet1VeKUzo)
 - [Thumbikale | Pathamudayam | S Ramesan Nair | KJ Yesudas | KS Chithra | #shorts](https://www.youtube.com/watch?v=omzY8j_1RwI)
 - [Sree Padmanabhante |Rajesh Athikkayam | Joji Johns | Chithra Arun | Inshad Nazim | Onam Special 2023](https://www.youtube.com/watch?v=j30JUAbat4I)
-- [Kombukuzhalmelam | Ponnonamelam | Onam Video Songs 2023 | Santhosh Pandit | New Onam Album Songs](https://www.youtube.com/watch?v=WZBkCvR8PH4)
-- [Gang up for #Halaballoo | #RDX | #ShaneNigam, #AntonyVarghese, #NeerajMadhav | #SamCS | #shorts](https://www.youtube.com/watch?v=r38zoQXM-YE)
-- [പാട്ടുപെട്ടി - Paattupetti Vol 22 | Malayalam Film Songs](https://www.youtube.com/watch?v=kjV7Z4yUuhY)
-- [Aaro Nee Aaro | Beautiful Romantic Duet by K J Yesudas&Shweta Mohan  #shorts #kjyesudas #shwetamohan](https://www.youtube.com/watch?v=VroFz7uv6gc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
