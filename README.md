@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Mandhaarame | Onam Song 2023 | Prasanth Mohan M P | Amrutha Varsha | Hishma Fathima | Rajesh](https://www.youtube.com/watch?v=XhgcgJ6qv-E)
-- [ഓണപ്പാട്ടുമായ് | Onappattumaay | M G Sreekumar, Sujatha | Ouseppachan | Gireesh Puthenchery](https://www.youtube.com/watch?v=C4JSBcMN9RQ)
-- [Attumanal Payayil | Lyrical  Video  | Mohanalal | Run Baby Run | Rafeeque Ahammed | Ratheesh Vegha](https://www.youtube.com/watch?v=zMKfLVysZgc)
-- [Manjilkkulichu Nilkkum | Chandra Bimbam 1980 | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=RTRvQCFlXyE)
-- [എന്നേശുസന്നിധി എനിക്കെത്രയാശ്വാസം | Mithila Michael | Rev.ART Athisayam #christiandevotional #shorts](https://www.youtube.com/watch?v=o6YZU646f0k)
-- [Minnum Minnaminni | Mammootty | Priyaraman | Chithra | Jerry Amaldev | Fazil](https://www.youtube.com/watch?v=sCVDhE_BqeI)
+- [Poovili Poovili Ponnonamaayi | Vishukkani  | 1080p Remastered Song | Onam Special Song | K J Yesudas](https://www.youtube.com/watch?v=kwGElm8Upvs)
+- [മലയാളത്തിന്റെ തനതു സംസ്‍കാരം മലയാളികൾക്ക് പകർന്നേകിയ ആഘോഷപ്പൊലിമ യേകും ഓണപ്പാട്ടുകൾ !](https://www.youtube.com/watch?v=mO1rG_C5JVY)
+- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=wHhN4ErQE1w)
+- [Ponnonathin Pookkalamidan | Onam Songs 2023 | PV Jaikumar | Joji Johns | Shymol Alex | Inshad Nazim](https://www.youtube.com/watch?v=QwToXSb3bSc)
+- [Thambrane Aaapaadham | Rajesh Athikkayam |  Joji Johns | Sudeep Kumar |  Onam 2023 | Onam New Songs](https://www.youtube.com/watch?v=567KrCjT7fg)
+- [Poo Venam Pooppada Venam Video Song | Parvathy | Nedumudi Venu| Sarada| Johnson | KJ Yesudas-Lathika](https://www.youtube.com/watch?v=ZFtguVVdlcQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
