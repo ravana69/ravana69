@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mandhaarame | Onam Song 2023 | Prasanth Mohan M P | Amrutha Varsha | Hishma Fathima | Rajesh](https://www.youtube.com/watch?v=XhgcgJ6qv-E)
+- [ഓണപ്പാട്ടുമായ് | Onappattumaay | M G Sreekumar, Sujatha | Ouseppachan | Gireesh Puthenchery](https://www.youtube.com/watch?v=C4JSBcMN9RQ)
+- [Attumanal Payayil | Lyrical  Video  | Mohanalal | Run Baby Run | Rafeeque Ahammed | Ratheesh Vegha](https://www.youtube.com/watch?v=zMKfLVysZgc)
 - [Manjilkkulichu Nilkkum | Chandra Bimbam 1980 | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=RTRvQCFlXyE)
 - [എന്നേശുസന്നിധി എനിക്കെത്രയാശ്വാസം | Mithila Michael | Rev.ART Athisayam #christiandevotional #shorts](https://www.youtube.com/watch?v=o6YZU646f0k)
 - [Minnum Minnaminni | Mammootty | Priyaraman | Chithra | Jerry Amaldev | Fazil](https://www.youtube.com/watch?v=sCVDhE_BqeI)
-- [Kalyanappalakkil| Kaliyoonjalu | Dileep | Shalini | Ilayaraja | Bhavatharani | Anil Babu](https://www.youtube.com/watch?v=IwSj_p62nBQ)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mother mary daily prayer and songs malayalam Aug28](https://www.youtube.com/watch?v=pGOT_FmlqsQ)
-- [Japamala 28th of August  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 28th of August 23](https://www.youtube.com/watch?v=l09jO9-x3ks)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
