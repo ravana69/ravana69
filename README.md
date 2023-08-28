@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;07-09&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175004-vera-maari-office-2023-s01-ep-07-09-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=352416)
+- [Shivaji Surathkal 2 &lpar;2023&rpar; Kannada HQ HDTV - [1080p &amp; 720p - x264 - 2.5GB &amp; 1.4GB] - [x264 - 700MB - 400MB]](https://www.1tamilmv.dad/index.php?/forums/topic/175052-shivaji-surathkal-2-2023-kannada-hq-hdtv-1080p-720p-x264-25gb-14gb-x264-700mb-400mb/&do=findComment&comment=352415)
 - [Baasha &lpar;1995&rpar;.Tamil.1080p.HDTV.HEVC.AAC2.0 - 2GB](https://www.1tamilmv.dad/index.php?/forums/topic/175051-baasha-1995tamil1080phdtvhevcaac20-2gb/&do=findComment&comment=352414)
 - [Hey Ram &lpar;2000&rpar;  AMZN WEB-DL DDP5.1 x264 - 1080p | 720p - 14.5 GB | 8.3 GB](https://www.1tamilmv.dad/index.php?/forums/topic/175049-hey-ram-2000-amzn-web-dl-ddp51-x264-1080p-720p-145-gb-83-gb/&do=findComment&comment=352412)
 - [Aparichithudu &lpar;2005&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 3GB](https://www.1tamilmv.dad/index.php?/forums/topic/175041-aparichithudu-2005-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-3gb/&do=findComment&comment=352411)
-- [Sex Education &lpar;2021&rpar; Complete S03 Merged TRUE WEB-DL - [1080p - 720p - AVC - [Telugu + Tamil] - &lpar;DD+5.1 - 192Kbps &amp; AAC 2.0&rpar; - 4.2GB - 2.5GB] [480p - &lpar;Telugu&rpar; - 1GB] - ESub [Google Drive]](https://www.1tamilmv.dad/index.php?/forums/topic/175048-sex-education-2021-complete-s03-merged-true-web-dl-1080p-720p-avc-telugu-tamil-dd51-192kbps-aac-20-42gb-25gb-480p-telugu-1gb-esub-google-drive/&do=findComment&comment=352410)
-- [ROBOT &lpar;2010&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7.2GB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175046-robot-2010-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-72gb-esub/&do=findComment&comment=352409)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
