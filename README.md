@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mother mary daily prayer and songs malayalam Aug28](https://www.youtube.com/watch?v=pGOT_FmlqsQ)
+- [Japamala 28th of August  2023 # Mathavinte Japamala # Santhoshathinte Rahasyangal 28th of August 23](https://www.youtube.com/watch?v=l09jO9-x3ks)
+- [Morning Prayer Songs | Cicily | Prabhatha Geethangal | Joji Johns | Christian Melody Songs](https://www.youtube.com/watch?v=4FWkvFBNZ-g)
 - [രാവിലെ പ്രാര്‍ത്ഥന 28th of August shorts  # Athiravile Prarthana 28th of August 2023 shorts](https://www.youtube.com/watch?v=M7J6twSA4vE)
 - [പ്രഭാത പ്രാര്‍ത്ഥന August 28 # Athiravile Prarthana 28th of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=_GX70KjsFN0)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 28th August 2023](https://www.youtube.com/watch?v=KqcYQ0D2VUY)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=gFeDxxPThUY)
-- [വ്യർത്ഥമായി പോയൊരെന്റെ ജീവൻ - അർത്ഥവും രൂപവും നീയേകി .](https://www.youtube.com/watch?v=HANOncOflPY)
-- [Sundariye Sundariye | Oru Maravathoor Kanavu | Mammootty | Vidyasagar | Biju Menon | Mohini](https://www.youtube.com/watch?v=dZMrmkjqUJE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
