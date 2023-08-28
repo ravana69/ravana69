@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Shivaji Surathkal 2 &lpar;2023&rpar; Kannada HQ HDTV - [1080p &amp; 720p - x264 - 2.5GB &amp; 1.4GB] - [x264 - 700MB - 400MB]](https://www.1tamilmv.dad/index.php?/forums/topic/175052-shivaji-surathkal-2-2023-kannada-hq-hdtv-1080p-720p-x264-25gb-14gb-x264-700mb-400mb/&do=findComment&comment=352420)
+- [Black &#39;n&#39; White &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - AAC - 1.7GB &amp; 1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175050-black-n-white-2023-tamil-web-dl-1080p-720p-avc-aac-17gb-1gb-x264-700mb-400mb-esub/&do=findComment&comment=352419)
+- [Manmadhudu &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.2GB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175053-manmadhudu-2002-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-62gb-esub/&do=findComment&comment=352418)
+- [Manmadhudu &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.2GB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175053-manmadhudu-2002-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-62gb-esub/&do=findComment&comment=352417)
 - [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;07-09&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175004-vera-maari-office-2023-s01-ep-07-09-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=352416)
-- [Shivaji Surathkal 2 &lpar;2023&rpar; Kannada HQ HDTV - [1080p &amp; 720p - x264 - 2.5GB &amp; 1.4GB] - [x264 - 700MB - 400MB]](https://www.1tamilmv.dad/index.php?/forums/topic/175052-shivaji-surathkal-2-2023-kannada-hq-hdtv-1080p-720p-x264-25gb-14gb-x264-700mb-400mb/&do=findComment&comment=352415)
-- [Baasha &lpar;1995&rpar;.Tamil.1080p.HDTV.HEVC.AAC2.0 - 2GB](https://www.1tamilmv.dad/index.php?/forums/topic/175051-baasha-1995tamil1080phdtvhevcaac20-2gb/&do=findComment&comment=352414)
-- [Hey Ram &lpar;2000&rpar;  AMZN WEB-DL DDP5.1 x264 - 1080p | 720p - 14.5 GB | 8.3 GB](https://www.1tamilmv.dad/index.php?/forums/topic/175049-hey-ram-2000-amzn-web-dl-ddp51-x264-1080p-720p-145-gb-83-gb/&do=findComment&comment=352412)
-- [Aparichithudu &lpar;2005&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 3GB](https://www.1tamilmv.dad/index.php?/forums/topic/175041-aparichithudu-2005-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-3gb/&do=findComment&comment=352411)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
