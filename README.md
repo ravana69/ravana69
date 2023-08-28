@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Baasha &lpar;1995&rpar;.Tamil.1080p.HDTV.HEVC.AAC2.0 - 2GB](https://www.1tamilmv.dad/index.php?/forums/topic/175051-baasha-1995tamil1080phdtvhevcaac20-2gb/&do=findComment&comment=352414)
+- [Hey Ram &lpar;2000&rpar;  AMZN WEB-DL DDP5.1 x264 - 1080p | 720p - 14.5 GB | 8.3 GB](https://www.1tamilmv.dad/index.php?/forums/topic/175049-hey-ram-2000-amzn-web-dl-ddp51-x264-1080p-720p-145-gb-83-gb/&do=findComment&comment=352412)
+- [Aparichithudu &lpar;2005&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 3GB](https://www.1tamilmv.dad/index.php?/forums/topic/175041-aparichithudu-2005-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-3gb/&do=findComment&comment=352411)
+- [Sex Education &lpar;2021&rpar; Complete S03 Merged TRUE WEB-DL - [1080p - 720p - AVC - [Telugu + Tamil] - &lpar;DD+5.1 - 192Kbps &amp; AAC 2.0&rpar; - 4.2GB - 2.5GB] [480p - &lpar;Telugu&rpar; - 1GB] - ESub [Google Drive]](https://www.1tamilmv.dad/index.php?/forums/topic/175048-sex-education-2021-complete-s03-merged-true-web-dl-1080p-720p-avc-telugu-tamil-dd51-192kbps-aac-20-42gb-25gb-480p-telugu-1gb-esub-google-drive/&do=findComment&comment=352410)
 - [ROBOT &lpar;2010&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7.2GB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175046-robot-2010-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-72gb-esub/&do=findComment&comment=352409)
-- [Ambikapathy &lpar;2013&rpar;.Tamil.1080p.DVD5Rip.HEVC.AAC5.1 - 2.2GB](https://www.1tamilmv.dad/index.php?/forums/topic/175045-ambikapathy-2013tamil1080pdvd5riphevcaac51-22gb/&do=findComment&comment=352408)
-- [Nepaali &lpar;2008&rpar;.Tamil.1080p.Web-dl.HEVC.AAC5.1 - 2.5GB](https://www.1tamilmv.dad/index.php?/forums/topic/175044-nepaali-2008tamil1080pweb-dlhevcaac51-25gb/&do=findComment&comment=352407)
-- [Spider-Man Across The Spider-Verse &lpar;2023&rpar; Original Motion Picture Soundtrack - 24bit - FLAC - 950MB](https://www.1tamilmv.dad/index.php?/forums/topic/175047-spider-man-across-the-spider-verse-2023-original-motion-picture-soundtrack-24bit-flac-950mb/&do=findComment&comment=352406)
-- [Aparichithudu &lpar;2005&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 3GB](https://www.1tamilmv.dad/index.php?/forums/topic/175041-aparichithudu-2005-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-3gb/&do=findComment&comment=352405)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
