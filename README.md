@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Shivaji Surathkal 2 &lpar;2023&rpar; Kannada HQ HDTV - [1080p &amp; 720p - x264 - 2.5GB &amp; 1.4GB] - [x264 - 700MB - 400MB]](https://www.1tamilmv.dad/index.php?/forums/topic/175052-shivaji-surathkal-2-2023-kannada-hq-hdtv-1080p-720p-x264-25gb-14gb-x264-700mb-400mb/&do=findComment&comment=352423)
+- [Black &#39;n&#39; White &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - AAC - 1.7GB &amp; 1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175050-black-n-white-2023-tamil-web-dl-1080p-720p-avc-aac-17gb-1gb-x264-700mb-400mb-esub/&do=findComment&comment=352422)
 - [Manmadhudu &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.2GB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175053-manmadhudu-2002-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-62gb-esub/&do=findComment&comment=352421)
 - [Shivaji Surathkal 2 &lpar;2023&rpar; Kannada HQ HDTV - [1080p &amp; 720p - x264 - 2.5GB &amp; 1.4GB] - [x264 - 700MB - 400MB]](https://www.1tamilmv.dad/index.php?/forums/topic/175052-shivaji-surathkal-2-2023-kannada-hq-hdtv-1080p-720p-x264-25gb-14gb-x264-700mb-400mb/&do=findComment&comment=352420)
 - [Black &#39;n&#39; White &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - AAC - 1.7GB &amp; 1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175050-black-n-white-2023-tamil-web-dl-1080p-720p-avc-aac-17gb-1gb-x264-700mb-400mb-esub/&do=findComment&comment=352419)
-- [Manmadhudu &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.2GB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175053-manmadhudu-2002-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-62gb-esub/&do=findComment&comment=352418)
-- [Manmadhudu &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.2GB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175053-manmadhudu-2002-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-62gb-esub/&do=findComment&comment=352417)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
