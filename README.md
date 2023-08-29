@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Santosham &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 6.2GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175078-santosham-2002-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-50-62gb/&do=findComment&comment=352507)
-- [Jailer &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 11GB - 5.8GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175077-jailer-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-11gb-58gb-26gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=352506)
-- [Jailer &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 11GB - 5.8GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175077-jailer-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-11gb-58gb-26gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=352505)
-- [Jailer &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 11GB - 5.8GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175077-jailer-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-11gb-58gb-26gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=352504)
-- [Santosham &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 6.2GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175078-santosham-2002-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-50-62gb/&do=findComment&comment=352503)
+- [Santosham &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 6.2GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175078-santosham-2002-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-50-62gb/&do=findComment&comment=352513)
+- [Njanum Pinnoru Njanum &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 5.1 - 256Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175080-njanum-pinnoru-njanum-2023-malayalam-true-web-dl-1080p-720p-avc-aac-51-256kbps-26gb-14gb-x264-700mb-400mb/&do=findComment&comment=352512)
+- [Santosham &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 6.2GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175078-santosham-2002-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-50-62gb/&do=findComment&comment=352511)
+- [Jailer &lpar;2023&rpar; Tamil HQ HDRip - 1080p - HEVC - x265 - &lpar;DD+5.1 - 192Kbps &amp; AAC 2.0&rpar; - 1.7GB - TMV](https://www.1tamilmv.nexus/index.php?/forums/topic/175079-jailer-2023-tamil-hq-hdrip-1080p-hevc-x265-dd51-192kbps-aac-20-17gb-tmv/&do=findComment&comment=352510)
+- [Santosham &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 6.2GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175078-santosham-2002-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-50-62gb/&do=findComment&comment=352509)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
