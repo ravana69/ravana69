@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [POKIRI &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.8GB - ESub - iDream DVD](https://www.1tamilmv.dad/index.php?/forums/topic/175064-pokiri-2006-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-68gb-esub-idream-dvd/&do=findComment&comment=352453)
+- [Vallavan &lpar;2006&rpar; 480p AYN DVD9 REMUX DTS5.1 x264 - 7 GB](https://www.1tamilmv.dad/index.php?/forums/topic/175063-vallavan-2006-480p-ayn-dvd9-remux-dts51-x264-7-gb/&do=findComment&comment=352452)
 - [Theri &lpar;2016&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 10.3GB - 7.8GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - MSub](https://www.1tamilmv.dad/index.php?/forums/topic/175062-theri-2016-tamil-true-web-dl-1080p-720p-avc-hevc-untouched-dd51640kbps-103gb-78gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-msub/&do=findComment&comment=352451)
 - [Lovefully Yours Veda &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 5.1 - 256Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.dad/index.php?/forums/topic/175058-lovefully-yours-veda-2023-malayalam-true-web-dl-1080p-720p-avc-aac-51-256kbps-28gb-14gb-x264-700mb-400mb/&do=findComment&comment=352450)
 - [The Boogeyman &lpar;2023&rpar; English - TRUE WEB-DL - 4K &amp; 1080p - HEVC / AVC - UNTOUCHED - DD+5.1&lpar;768kbps&rpar; Atmos - 8.9GB &amp; 5.2GB - MSub](https://www.1tamilmv.dad/index.php?/forums/topic/175061-the-boogeyman-2023-english-true-web-dl-4k-1080p-hevc-avc-untouched-dd51768kbps-atmos-89gb-52gb-msub/&do=findComment&comment=352449)
-- [Manmadhudu &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.2GB - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175053-manmadhudu-2002-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-62gb-esub/&do=findComment&comment=352448)
-- [Dhilluku Dhuddu 2 &lpar;2019&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 448Kbps&rpar; - 6.5GB - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.dad/index.php?/forums/topic/175060-dhilluku-dhuddu-2-2019-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-448kbps-65gb-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=352447)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
