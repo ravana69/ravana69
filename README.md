@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഭക്തന്റെ വേദനയിൽ ഇടപെടുന്ന ദൈവം  | Rev. Aneesh P Joseph | #shortvideo #jesus](https://www.youtube.com/watch?v=bXkFvg5ERR0)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 29th of August 2023](https://www.youtube.com/watch?v=LrBEeeRro4E)
+- [Tajmahal Nirmicha  | Azhakulla Saleena | KJ Yesudas | P Susheela | #shorts](https://www.youtube.com/watch?v=D5kS1eEEG4U)
+- [Mozhiyazhakum | Kalippattam | Mohanlal | Urvashi | Raveendran | KJ Yesudas | KS Chithra](https://www.youtube.com/watch?v=2jzbDjyM86w)
+- [Happy Onam  | Onam Special Song | #Thanaro | #Kasargold | #shorts | #ytshorts](https://www.youtube.com/watch?v=9IKPX_GeWzg)
 - [Ona Nilavoli | J. Anitha Devi | Mahesh Mangalassery | Vivekanandan | Onam Festival Song 2023](https://www.youtube.com/watch?v=x70W1x1NH0Y)
-- [Ponnavani - Onam Song | Sangeeth KR | Renjith Ramesh | Vipin Sivadas KP | SKR Productions](https://www.youtube.com/watch?v=5y5BPoqDTqc)
-- [Aathira Varavaayi Video Song | Madoo | Sai Kumar | KS Chithra| MG Sreekumar| SP Venkitesh| ONV Kurup](https://www.youtube.com/watch?v=VGSMldUE-JY)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=ZbD7XFxHoXY)
-- [ഓണക്കാലത്തും വരും കാലം വരെയും മനസിൽ ഉത്സവമേളം തുടികൊട്ടും ഓണപ്പാട്ടുകൾ ! ONAM SONGS MALAYALAM](https://www.youtube.com/watch?v=9yoki8gzwvs)
-- [Captain Miller (Malayalam) - Teaser | Dhanush | Shivarajkumar | Arun Matheswaran | GV Prakash Kumar](https://www.youtube.com/watch?v=LnFqsF1Yrw4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
