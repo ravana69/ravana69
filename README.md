@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 30th August 2023](https://www.youtube.com/watch?v=OJyx9h2fFA4)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=UBv4KFRZA4M)
 - [വഴി മറന്നതിദൂരെയായ് തീരുമെങ്കിലും ...](https://www.youtube.com/watch?v=2r0IU60Srgc)
 - [Beautiful Song🤩💕 #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=Yfn4DMwhra8)
 - [Confusion Theerkkaname Video Song | Jayaram | Vidyasagar | Gireesh Puthenchery | MG Sreekumar](https://www.youtube.com/watch?v=g--dmRDzFIg)
 - [Innente Kannerellam | Christian Devotional Songs Malayalam | Manoj Christy | Fr.Mathew Kareethara](https://www.youtube.com/watch?v=4TIMI2DW6qM)
-- [Kalyaanapaattu Remix - Lyrical | Ntikkakkakoru Premandaarnnu | Sharafudheen | Bhavana | Adhil](https://www.youtube.com/watch?v=mgLczEsd5IE)
-- [ഭക്തന്റെ വേദനയിൽ ഇടപെടുന്ന ദൈവം  | Rev. Aneesh P Joseph | #shortvideo #jesus](https://www.youtube.com/watch?v=bXkFvg5ERR0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
