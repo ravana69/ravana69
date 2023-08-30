@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Muthu &lpar;1995&rpar;.Tamil.1080p.Japan.REMASTERED.BD50Rip.x265.AAC2.0.ESub - 3.7GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175084-muthu-1995tamil1080pjapanremasteredbd50ripx265aac20esub-37gb/&do=findComment&comment=352532)
-- [RAKHI &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175082-rakhi-2006-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-7gb/&do=findComment&comment=352530)
-- [RAKHI &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175082-rakhi-2006-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-7gb/&do=findComment&comment=352529)
-- [RAKHI &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175082-rakhi-2006-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-7gb/&do=findComment&comment=352528)
-- [Titanic &lpar;1997&rpar;: Original Motion Picture Soundtrack - Collector&#39;s Anniversary Edition - FLAC - Various Artists - FLAC [24bit|16bit] - 1.9 GB | 1.1 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/165864-titanic-1997-original-motion-picture-soundtrack-collectors-anniversary-edition-flac-various-artists-flac-24bit16bit-19-gb-11-gb/&do=findComment&comment=352527)
+- [Maaveeran.2023.1080p.SNXT.WEB-DL.SDR.DDP5.1.Atmos.H.265 - 2.6GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175088-maaveeran20231080psnxtweb-dlsdrddp51atmosh265-26gb/&do=findComment&comment=352539)
+- [Bharateeyudu &lpar;1996&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 384Kbps &lpar;Dolby Digital® 5.0&rpar; - 3.6GB - Happy Independence Day](https://www.1tamilmv.nexus/index.php?/forums/topic/174839-bharateeyudu-1996-telugu-dvd5-untouched-480p-384kbps-dolby-digital%C2%AE-50-36gb-happy%C2%A0independence%C2%A0day/&do=findComment&comment=352538)
+- [ROBO &lpar;2010&rpar; Telugu TRUE WEB-DL &lpar;Remastered&rpar; - [4K, 1080p &amp; 720p - HEVC / AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 13GB - 12.8GB - 6GB - 4.7GB - 3.8GB &amp; 2.9GB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175087-robo-2010-telugu-true-web-dl-remastered-4k-1080p-720p-hevc-avc-dd51-640kbps-13gb-128gb-6gb-47gb-38gb-29gb-esub/&do=findComment&comment=352537)
+- [Jailer &lpar;2023&rpar; Tamil &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [AAC 5.1 &lpar;590Kbps&rpar;] By-Beast UK](https://www.1tamilmv.nexus/index.php?/forums/topic/175086-jailer-2023-tamil-music-video-album-1080p-web-hd-untouched-avc-aac-51-590kbps-by-beast-uk/&do=findComment&comment=352536)
+- [Jailer &lpar;2023&rpar; Tamil &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [AAC 5.1 &lpar;590Kbps&rpar;] By-Beast UK](https://www.1tamilmv.nexus/index.php?/forums/topic/175085-jailer-2023-tamil-music-video-album-1080p-web-hd-untouched-avc-aac-51-590kbps-by-beast-uk/&do=findComment&comment=352535)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
