@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 31st August 2023](https://www.youtube.com/watch?v=htPVM3AWI3A)
+- [🩵Happy Birthday🩵AUGUST 31🩵](https://www.youtube.com/watch?v=ZJLuQ2D0_xc)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=Qvw0O7PcQnM)
 - [കദനങ്ങൾ മായ്ക്കും മൃദു കാരണ്യമേകും.](https://www.youtube.com/watch?v=mftnmvIg2gc)
 - [Dayana |  Ring Master | Remix | DJ Savyo #shorts #djsaviofficial #gopisundar #dileep #remix](https://www.youtube.com/watch?v=hvBNc-4VONo)
 - [Christian Superhit Songs | Jayachandran | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=4Enu8l3TTcY)
-- [ആകാശത്തോട് ദൈവത്തെ ചോദിച്ചപ്പോഴാണ് സൂര്യനുദിച്ചത് | Rev. Aneesh P Joseph | #shortvideo #jesus](https://www.youtube.com/watch?v=xjkYyRSw_Xs)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 30th of August 2023](https://www.youtube.com/watch?v=KFCvosSaH-A)
-- [Tajmahal Nirmicha  Video Song | Azhakulla Saleena | KJ Yesudas | P Susheela](https://www.youtube.com/watch?v=aTkU96nYLc0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
