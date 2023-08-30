@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [RAKHI &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175082-rakhi-2006-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-7gb/&do=findComment&comment=352524)
+- [RAKHI &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175082-rakhi-2006-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-7gb/&do=findComment&comment=352523)
+- [Baba Black Sheep &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+2.0 - 224Kbps &amp; AAC 2.0&rpar; - 7.2GB - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175074-baba-black-sheep-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd20-224kbps-aac-20-72gb-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352522)
 - [Njanum Pinnoru Njanum &lpar;2023&rpar; HR OTT WEB-DL AAC5.1 Esubs x264 - 1080p | 720p - 4 GB | 1.9 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175081-njanum-pinnoru-njanum-2023-hr-ott-web-dl-aac51-esubs-x264-1080p-720p-4-gb-19-gb/&do=findComment&comment=352521)
 - [Jailer &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 11GB - 5.8GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175077-jailer-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-11gb-58gb-26gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=352520)
-- [Stranger Things Complete S01 - S04 Merged All Episodes In One File NETFLIX WEB-DL [Telugu + Tamil + Hindi + English] | 1080p, 720p, 480p | AVC, HEVC | DDP 5.1 | ESub [Google Drive]](https://www.1tamilmv.nexus/index.php?/forums/topic/165433-stranger-things-complete-s01-s04-merged-all-episodes-in-one-file-netflix-web-dl-telugu-tamil-hindi-english-1080p-720p-480p-avc-hevc-ddp-51-esub-google-drive/&do=findComment&comment=352519)
-- [Jailer &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 11GB - 5.8GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175077-jailer-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-11gb-58gb-26gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=352518)
-- [Santosham &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 6.2GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175078-santosham-2002-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-50-62gb/&do=findComment&comment=352517)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
