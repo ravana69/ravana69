@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [80 Tamil Movies - AMZN / SUN NXT / JC / NF / TK WEB DL - H264 / H265 - DD5.1 / DD2.0 - [2160p &amp; 1080p &amp; 720p - 600GB] - Esub [Google Drive]](https://www.1tamilmv.nexus/index.php?/forums/topic/136729-80-tamil-movies-amzn-sun-nxt-jc-nf-tk-web-dl-h264-h265-dd51-dd20-2160p-1080p-720p-600gb-esub-google-drive/&do=findComment&comment=352542)
+- [Made In Heaven &lpar;2023&rpar; S02 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.3GB - 3.3GB &amp; 1.2GB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175083-made-in-heaven-2023-s02-ep-01-07-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-dd51-192kbps-53gb-33gb-12gb-esub/&do=findComment&comment=352541)
 - [Jailer 2023 Tamil HQ True WEB DL H264 UNTOUCHED DD5.1&lpar;640Kbps&rpar; - [1080p &amp; 720p - 11.1GB - 5.9GB - 3.1GB - 1.4GB] [GDRIVE]](https://www.1tamilmv.nexus/index.php?/forums/topic/167508-jailer-2023-tamil-hq-true-web-dl-h264-untouched-dd51640kbps-1080p-720p-111gb-59gb-31gb-14gb-gdrive/&do=findComment&comment=352540)
 - [Maaveeran.2023.1080p.SNXT.WEB-DL.SDR.DDP5.1.Atmos.H.265 - 2.6GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175088-maaveeran20231080psnxtweb-dlsdrddp51atmosh265-26gb/&do=findComment&comment=352539)
 - [Bharateeyudu &lpar;1996&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 384Kbps &lpar;Dolby Digital® 5.0&rpar; - 3.6GB - Happy Independence Day](https://www.1tamilmv.nexus/index.php?/forums/topic/174839-bharateeyudu-1996-telugu-dvd5-untouched-480p-384kbps-dolby-digital%C2%AE-50-36gb-happy%C2%A0independence%C2%A0day/&do=findComment&comment=352538)
-- [ROBO &lpar;2010&rpar; Telugu TRUE WEB-DL &lpar;Remastered&rpar; - [4K, 1080p &amp; 720p - HEVC / AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 13GB - 12.8GB - 6GB - 4.7GB - 3.8GB &amp; 2.9GB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175087-robo-2010-telugu-true-web-dl-remastered-4k-1080p-720p-hevc-avc-dd51-640kbps-13gb-128gb-6gb-47gb-38gb-29gb-esub/&do=findComment&comment=352537)
-- [Jailer &lpar;2023&rpar; Tamil &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [AAC 5.1 &lpar;590Kbps&rpar;] By-Beast UK](https://www.1tamilmv.nexus/index.php?/forums/topic/175086-jailer-2023-tamil-music-video-album-1080p-web-hd-untouched-avc-aac-51-590kbps-by-beast-uk/&do=findComment&comment=352536)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
