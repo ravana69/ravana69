@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Nuvvu Nenu Prema &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175092-nuvvu-nenu-prema-2006-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-7gb-esub/&do=findComment&comment=352559)
+- [Jailer &lpar;2023&rpar; Tamil &lpar;MUSIC VIDEO ALBUM&rpar; 1080p WEB-HD UNTOUCHED - AVC - [AAC 5.1 &lpar;590Kbps&rpar;] By-Beast UK](https://www.1tamilmv.nexus/index.php?/forums/topic/175086-jailer-2023-tamil-music-video-album-1080p-web-hd-untouched-avc-aac-51-590kbps-by-beast-uk/&do=findComment&comment=352558)
+- [Made In Heaven &lpar;2023&rpar; S02 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.3GB - 3.3GB &amp; 1.2GB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175083-made-in-heaven-2023-s02-ep-01-07-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-dd51-192kbps-53gb-33gb-12gb-esub/&do=findComment&comment=352557)
 - [Nuvvu Nenu Prema &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175092-nuvvu-nenu-prema-2006-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-7gb-esub/&do=findComment&comment=352556)
 - [Nuvvu Nenu Prema &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175092-nuvvu-nenu-prema-2006-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-7gb-esub/&do=findComment&comment=352555)
-- [Nuvvu Nenu Prema &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175092-nuvvu-nenu-prema-2006-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-7gb-esub/&do=findComment&comment=352554)
-- [Santosham &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 6.2GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175078-santosham-2002-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-50-62gb/&do=findComment&comment=352553)
-- [Arul &lpar;2004&rpar;.Tamil.1080p.DVD9Rip.HEVC.AAC5.1 - 2.7GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175091-arul-2004tamil1080pdvd9riphevcaac51-27gb/&do=findComment&comment=352552)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
