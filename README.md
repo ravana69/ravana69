@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [K.J. Yesudas - Vedaanudhdharathe - Slokam (Lyric Video)](https://www.youtube.com/watch?v=ul1okjWMmOI)
-- [Onnanam Kunninmel Video Song | Kunchacko Boban | Jomol | KJ Yesudas | KS Chithra | Berny Ignatius](https://www.youtube.com/watch?v=fWeg0P36xcc)
-- [മാവേലി തമ്പുരാനെ വരവേൽക്കാൻ ആവേശത്തോടെ കാത്തിരിക്കുന്ന മനോഹര ഓണപ്പാട്ടുകൾ ! ONAM SONGS MALAYALAM](https://www.youtube.com/watch?v=sNMJsK02k3E)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=PnDRUG61h_A)
-- [Ponnodu Poovayi | Beautiful Romantic Melody by K S Chithra #shorts #kschitra #kschithra #malayalam](https://www.youtube.com/watch?v=_AOU3Vmx1i4)
-- [Thaathintha They | Abhayam Thedi 1986 | Shyam | P. Jayachandran | Malayalam Movie Song](https://www.youtube.com/watch?v=Tq3UkrQicBQ)
+- [K.J. Yesudas, Poorna Chandra Rao - Aaradhaye Manamohana Raadhe (Lyric Video)](https://www.youtube.com/watch?v=tGbFENXc5x0)
+- [K.J. Yesudas, T.N. Sheshagopalan, K.S. Chithra, Manju Menon - Sadhinchane (Lyric Video)](https://www.youtube.com/watch?v=Ueh0IasT4IQ)
+- [K.J. Yesudas, T.N. Sheshagopalan - Paavanaguru (Lyric Video)](https://www.youtube.com/watch?v=dK2Yf9SMm_w)
+- [K.J. Yesudas, K.S. Chithra, Manju Menon - Sogasuga Mrudanga Thaalamu (Lyric Video)](https://www.youtube.com/watch?v=7iWcm5v16Eg)
+- [K.S. Chithra - Ponmekhame (Lyric Video)](https://www.youtube.com/watch?v=XOez2rncLUs)
+- [Deva Deva Kalayamite (Lyric Video)](https://www.youtube.com/watch?v=Wg7SOG5xDGo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
