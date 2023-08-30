@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [RAKHI &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175082-rakhi-2006-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-7gb/&do=findComment&comment=352524)
-- [RAKHI &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175082-rakhi-2006-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-7gb/&do=findComment&comment=352523)
-- [Baba Black Sheep &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+2.0 - 224Kbps &amp; AAC 2.0&rpar; - 7.2GB - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175074-baba-black-sheep-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd20-224kbps-aac-20-72gb-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352522)
-- [Njanum Pinnoru Njanum &lpar;2023&rpar; HR OTT WEB-DL AAC5.1 Esubs x264 - 1080p | 720p - 4 GB | 1.9 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175081-njanum-pinnoru-njanum-2023-hr-ott-web-dl-aac51-esubs-x264-1080p-720p-4-gb-19-gb/&do=findComment&comment=352521)
-- [Jailer &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 11GB - 5.8GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175077-jailer-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-11gb-58gb-26gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=352520)
+- [RAKHI &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175082-rakhi-2006-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-7gb/&do=findComment&comment=352530)
+- [RAKHI &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175082-rakhi-2006-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-7gb/&do=findComment&comment=352529)
+- [RAKHI &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175082-rakhi-2006-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-7gb/&do=findComment&comment=352528)
+- [Titanic &lpar;1997&rpar;: Original Motion Picture Soundtrack - Collector&#39;s Anniversary Edition - FLAC - Various Artists - FLAC [24bit|16bit] - 1.9 GB | 1.1 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/165864-titanic-1997-original-motion-picture-soundtrack-collectors-anniversary-edition-flac-various-artists-flac-24bit16bit-19-gb-11-gb/&do=findComment&comment=352527)
+- [Jailer &lpar;2023&rpar; Tamil WEB-DL - 1080p | 720p - AVC - &lpar;DD+5.1 - 640Kbps &amp; AAC&rpar; - 11GB, 10GB, 5GB, 3GB , 1.5GB - Leyon](https://www.1tamilmv.nexus/index.php?/forums/topic/164709-jailer-2023-tamil-web-dl-1080p-720p-avc-dd51-640kbps-aac-11gb-10gb-5gb-3gb-15gb-leyon/&do=findComment&comment=352526)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
