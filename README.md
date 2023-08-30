@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ponnodu Poovayi | Beautiful Romantic Melody by K S Chithra #shorts #kschitra #kschithra #malayalam](https://www.youtube.com/watch?v=_AOU3Vmx1i4)
+- [Thaathintha They | Abhayam Thedi 1986 | Shyam | P. Jayachandran | Malayalam Movie Song](https://www.youtube.com/watch?v=Tq3UkrQicBQ)
+- [Velippenninu Thalikku | Mazhathullikilukkam | Dileep | Navya Nair | Sarada | Sreenivas | Sujatha](https://www.youtube.com/watch?v=5zF8X6fsTKM)
 - [Japamala 30th of August 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 30th of August 2023](https://www.youtube.com/watch?v=lyXhFXK8NkQ)
 - [Chankinathoru Novunde | Surya Narayanan | Joji Johns | Christian Video Songs | Joby Kavalam](https://www.youtube.com/watch?v=8EXRv81gS50)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #August 30th mother mary songs malayalam 2023](https://www.youtube.com/watch?v=cpvFG_aNcTY)
-- [രാവിലെ പ്രാര്‍ത്ഥന 30th of August shorts  # Athiravile Prarthana 30th of August 2023 shorts](https://www.youtube.com/watch?v=vqkj4y3L1kA)
-- [പ്രഭാത പ്രാര്‍ത്ഥന August 30 # Athiravile Prarthana 30th of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=G-qMo-d4NUw)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 30th August 2023](https://www.youtube.com/watch?v=OJyx9h2fFA4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
