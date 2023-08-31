@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Simon Daniel &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.6GB - 2.5GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175108-simon-daniel-2023-tamil-true-web-dl-1080p-720p-avc-dd51-384kbps-36gb-25gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352597)
 - [Yaadhum Oore Yaavarum Kelir &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175107-yaadhum-oore-yaavarum-kelir-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352596)
 - [Jawan - Official Tamil Trailer - 1080P &amp; 4K - DD5.1 + DTS5.1 Upmixed](https://www.1tamilmv.nexus/index.php?/forums/topic/175101-jawan-official-tamil-trailer-1080p-4k-dd51-dts51-upmixed/&do=findComment&comment=352595)
 - [One Piece &lpar;2023&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.7GB - 2.5GB &amp; 1.2GB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175102-one-piece-2023-s01-ep-01-08-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-eng-dd51-192kbps-57gb-25gb-12gb-esub/&do=findComment&comment=352593)
 - [Kasethan Kadavulada &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Telugu + Malayalam + Kannada] - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175105-kasethan-kadavulada-2023-true-web-dl-1080p-720p-avc-dd51-192kbps-telugu-malayalam-kannada-28gb-14gb-x264-700mb-400mb-250mb/&do=findComment&comment=352592)
-- [📌 GHAJINI &lpar;2008&rpar; &lpar;Music Video Album&rpar; - 1080P - UNTOUEHD BLURAY - AVC - DTS-HD ® MA 5.1 @ 2.5 Mb/s - ESubs - BDREUMX - 6GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175104-%F0%9F%93%8C-ghajini-2008-music-video-album-1080p-untouehd-bluray-avc-dts-hd-%C2%AE-ma-51-25-mbs-esubs-bdreumx-6gb/&do=findComment&comment=352591)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
