@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Yaadhum Oore Yaavarum Kelir &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175107-yaadhum-oore-yaavarum-kelir-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352608)
+- [Jailer &lpar;2023&rpar; Tamil WEB-DL - 1080p | 720p - AVC - &lpar;DD+5.1 - 640Kbps &amp; AAC&rpar; - 11GB, 10GB, 5GB, 3GB , 1.5GB - Leyon](https://www.1tamilmv.nexus/index.php?/forums/topic/164709-jailer-2023-tamil-web-dl-1080p-720p-avc-dd51-640kbps-aac-11gb-10gb-5gb-3gb-15gb-leyon/&do=findComment&comment=352607)
 - [Vikramarkudu &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175100-vikramarkudu-2006-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-7gb/&do=findComment&comment=352606)
 - [Jailer &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 11GB - 5.8GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175077-jailer-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-11gb-58gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352605)
 - [Nuvvu Nenu Prema &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175092-nuvvu-nenu-prema-2006-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-7gb-esub/&do=findComment&comment=352604)
-- [Jailer &lpar;2023&rpar; Tamil WEB-DL - 1080p | 720p - AVC - &lpar;DD+5.1 - 640Kbps &amp; AAC&rpar; - 11GB, 10GB, 5GB, 3GB , 1.5GB - Leyon](https://www.1tamilmv.nexus/index.php?/forums/topic/164709-jailer-2023-tamil-web-dl-1080p-720p-avc-dd51-640kbps-aac-11gb-10gb-5gb-3gb-15gb-leyon/&do=findComment&comment=352603)
-- [Yaadhum Oore Yaavarum Kelir &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175107-yaadhum-oore-yaavarum-kelir-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352602)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
