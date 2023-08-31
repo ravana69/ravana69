@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Laxmi Narasimha &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 384Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.3GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175095-laxmi-narasimha-2004-telugu-dvd9-untouched-480p-384kbps-dolby-digital%C2%AE-51-63gb-esub/&do=findComment&comment=352570)
 - [Laxmi Narasimha &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 384Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.3GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175095-laxmi-narasimha-2004-telugu-dvd9-untouched-480p-384kbps-dolby-digital%C2%AE-51-63gb-esub/&do=findComment&comment=352569)
 - [Laxmi Narasimha &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 384Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.3GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175095-laxmi-narasimha-2004-telugu-dvd9-untouched-480p-384kbps-dolby-digital%C2%AE-51-63gb-esub/&do=findComment&comment=352568)
 - [Laxmi Narasimha &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 384Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.3GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175095-laxmi-narasimha-2004-telugu-dvd9-untouched-480p-384kbps-dolby-digital%C2%AE-51-63gb-esub/&do=findComment&comment=352567)
 - [Laxmi Narasimha &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 384Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.3GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175095-laxmi-narasimha-2004-telugu-dvd9-untouched-480p-384kbps-dolby-digital%C2%AE-51-63gb-esub/&do=findComment&comment=352566)
-- [Indiana Jones and the Dial of Destiny &lpar;2023&rpar; MA WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p - 27 GB | 11.7 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175094-indiana-jones-and-the-dial-of-destiny-2023-ma-web-dl-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-27-gb-117-gb/&do=findComment&comment=352565)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
