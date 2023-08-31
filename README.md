@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [📌 BRO &lpar;2023&rpar; &lpar;Tel + Tam + Kan + Mal + Hin&rpar; &lpar;Music Video Album&rpar; - HQ 1080P - NF WEBDL - AVC - DDP 5.1 @ 640 Kbps - ESubs - 2GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175097-%F0%9F%93%8C-bro-2023-tel-tam-kan-mal-hin-music-video-album-hq-1080p-nf-webdl-avc-ddp-51-640-kbps-esubs-2gb/&do=findComment&comment=352572)
 - [Laxmi Narasimha &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 384Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.3GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175095-laxmi-narasimha-2004-telugu-dvd9-untouched-480p-384kbps-dolby-digital%C2%AE-51-63gb-esub/&do=findComment&comment=352570)
 - [Laxmi Narasimha &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 384Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.3GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175095-laxmi-narasimha-2004-telugu-dvd9-untouched-480p-384kbps-dolby-digital%C2%AE-51-63gb-esub/&do=findComment&comment=352569)
 - [Laxmi Narasimha &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 384Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.3GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175095-laxmi-narasimha-2004-telugu-dvd9-untouched-480p-384kbps-dolby-digital%C2%AE-51-63gb-esub/&do=findComment&comment=352568)
 - [Laxmi Narasimha &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 384Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.3GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175095-laxmi-narasimha-2004-telugu-dvd9-untouched-480p-384kbps-dolby-digital%C2%AE-51-63gb-esub/&do=findComment&comment=352567)
-- [Laxmi Narasimha &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 384Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.3GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175095-laxmi-narasimha-2004-telugu-dvd9-untouched-480p-384kbps-dolby-digital%C2%AE-51-63gb-esub/&do=findComment&comment=352566)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
