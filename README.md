@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 1st SEP 2023](https://www.youtube.com/watch?v=53mY92pQKdI)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=WYh3Ple3Kuc)
 - [അഴലിൻ മേലെ അഴകു ധരിക്കും മരിയേ...](https://www.youtube.com/watch?v=gwKt8XNiE08)
 - [Kadalu Chirichenu | Mahasamudram | Kuttappan | M Jayachandran | Kaithapram](https://www.youtube.com/watch?v=K5ObZe9NKXQ)
 - [8 Nombu 8 Ganangal # 8 Nombu 8 Songs Mother Mary Songs Malayalam](https://www.youtube.com/watch?v=s4dXjo9QLeM)
 - [ദൈവം കൂടെയുണ്ടെന്നുള്ള തിരിച്ചറിവല്ലേ ജീവിതത്തിലെ ഏറ്റവും വലിയ നിധി  | Rev. Aneesh P Joseph |](https://www.youtube.com/watch?v=lWlXzzMhrZc)
-- [Suprabhaatham  | Panitheeratha Veedu | P. Jayachandran | Prem Nazir | #shorts](https://www.youtube.com/watch?v=B-1SS5LhbUM)
-- [Manase Padoo Nee | Paranju Theeratha Visheshangal | Arundhathi | M Jayachandran | ousafali Kechery](https://www.youtube.com/watch?v=_ewRZWObSZg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
