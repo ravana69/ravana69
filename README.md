@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vikramarkudu &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175100-vikramarkudu-2006-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-7gb/&do=findComment&comment=352606)
+- [Jailer &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 11GB - 5.8GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175077-jailer-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-11gb-58gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352605)
+- [Nuvvu Nenu Prema &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175092-nuvvu-nenu-prema-2006-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-7gb-esub/&do=findComment&comment=352604)
 - [Jailer &lpar;2023&rpar; Tamil WEB-DL - 1080p | 720p - AVC - &lpar;DD+5.1 - 640Kbps &amp; AAC&rpar; - 11GB, 10GB, 5GB, 3GB , 1.5GB - Leyon](https://www.1tamilmv.nexus/index.php?/forums/topic/164709-jailer-2023-tamil-web-dl-1080p-720p-avc-dd51-640kbps-aac-11gb-10gb-5gb-3gb-15gb-leyon/&do=findComment&comment=352603)
 - [Yaadhum Oore Yaavarum Kelir &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175107-yaadhum-oore-yaavarum-kelir-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352602)
-- [Simon Daniel &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.6GB - 2.5GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175108-simon-daniel-2023-tamil-true-web-dl-1080p-720p-avc-dd51-384kbps-36gb-25gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352601)
-- [📌 GOUTHAM NANDA &lpar;2017&rpar; UNCUT &lpar;MUSIC VIDEO ALBUM&rpar; - HQ 1080P - AMZN - UNTOUCHED WEBDL - H264 - DDP 5.1 - ESubs - 1.4GB](https://www.1tamilmv.nexus/index.php?/forums/topic/174377-%F0%9F%93%8C-goutham-nanda-2017-uncut-music-video-album-hq-1080p-amzn-untouched-webdl-h264-ddp-51-esubs-14gb/&do=findComment&comment=352600)
-- [📌 JAILER &lpar;2023&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - 1080P - WEBDL - AVC - DDP 5.1 @ 640 Kbps / AAC - ESubs - 2GB - Exclusive](https://www.1tamilmv.nexus/index.php?/forums/topic/175098-%F0%9F%93%8C-jailer-2023-music-video-album-1080p-webdl-avc-ddp-51-640-kbps-aac-esubs-2gb-exclusive/&do=findComment&comment=352599)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
