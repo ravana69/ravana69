@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന 31st of August shorts  # Athiravile Prarthana 31st of August 2023 shorts](https://www.youtube.com/watch?v=I941ggNiLnw)
 - [മണ്ണിൻ മണം ഈണമാക്കും | #onam | #kjyesudas | #lyrics | #viral | #ytshorts | #tharangini | #onamsongs](https://www.youtube.com/watch?v=PetBy_mXmQ8)
 - [പ്രഭാത പ്രാര്‍ത്ഥന August 31 # Athiravile Prarthana 31st of August 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=d49sBCEgoe8)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 31st August 2023](https://www.youtube.com/watch?v=htPVM3AWI3A)
 - [🩵Happy Birthday🩵AUGUST 31🩵](https://www.youtube.com/watch?v=ZJLuQ2D0_xc)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=Qvw0O7PcQnM)
-- [കദനങ്ങൾ മായ്ക്കും മൃദു കാരണ്യമേകും.](https://www.youtube.com/watch?v=mftnmvIg2gc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
