@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [One Piece &lpar;2023&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.7GB - 2.5GB &amp; 1.2GB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175102-one-piece-2023-s01-ep-01-08-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-eng-dd51-192kbps-57gb-25gb-12gb-esub/&do=findComment&comment=352593)
+- [Kasethan Kadavulada &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Telugu + Malayalam + Kannada] - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175105-kasethan-kadavulada-2023-true-web-dl-1080p-720p-avc-dd51-192kbps-telugu-malayalam-kannada-28gb-14gb-x264-700mb-400mb-250mb/&do=findComment&comment=352592)
 - [📌 GHAJINI &lpar;2008&rpar; &lpar;Music Video Album&rpar; - 1080P - UNTOUEHD BLURAY - AVC - DTS-HD ® MA 5.1 @ 2.5 Mb/s - ESubs - BDREUMX - 6GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175104-%F0%9F%93%8C-ghajini-2008-music-video-album-1080p-untouehd-bluray-avc-dts-hd-%C2%AE-ma-51-25-mbs-esubs-bdreumx-6gb/&do=findComment&comment=352591)
 - [Nuvvu Nenu Prema &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175092-nuvvu-nenu-prema-2006-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-7gb-esub/&do=findComment&comment=352590)
 - [Vikramarkudu &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175100-vikramarkudu-2006-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-7gb/&do=findComment&comment=352589)
-- [Back to the Future Trilogy Collection &lpar;1985 - 1990&rpar; REMASTERED - BluRay - 4K &amp; 1080p - HEVC / AVC - [Tamil + Telugu&lpar;2&rpar; + Hindi + English&lpar;TrueHD 7.1&lpar;4609kbps&rpar; Atmos&rpar;] - Stereo&lpar;128kbps&rpar; - 50GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175103-back-to-the-future-trilogy-collection-1985-1990-remastered-bluray-4k-1080p-hevc-avc-tamil-telugu2-hindi-englishtruehd-714609kbps-atmos-stereo128kbps-50gb-esub/&do=findComment&comment=352588)
-- [One Piece &lpar;2023&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.7GB - 2.5GB &amp; 1.2GB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175102-one-piece-2023-s01-ep-01-08-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-eng-dd51-192kbps-57gb-25gb-12gb-esub/&do=findComment&comment=352587)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
