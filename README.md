@@ -24,10 +24,10 @@
 
 <!-- BLOG-POST-LIST:START -->
 - [Gudumba Shankar &lpar;2004&rpar; Telugu JC TRUE WEBDL - [576p / 1080p / 720p / HDRip] - AVC - AAC - [7GB / 5GB / 2.6GB / 1.5GB / 700MB] - [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/124971-gudumba-shankar-2004-telugu-jc-true-webdl-576p-1080p-720p-hdrip-avc-aac-7gb-5gb-26gb-15gb-700mb-gdrive/&do=findComment&comment=352666)
-- [Kushi &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175124-kushi-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352665)
 - [Kushi &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175123-kushi-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352664)
 - [The Freelancer &lpar;2023&rpar; S01 EP &lpar;01-04&rpar; TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.5GB - 1.9GB &amp; 1GB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175111-the-freelancer-2023-s01-ep-01-04-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-dd51-192kbps-55gb-19gb-1gb-esub/&do=findComment&comment=352663)
 - [Scam 2003: The Telgi Story &lpar;2023&rpar; S01 EP &lpar;01-05&rpar; TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 7GB - 2.2GB &amp; 750MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175113-scam-2003-the-telgi-story-2023-s01-ep-01-05-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-7gb-22gb-750mb-esub/&do=findComment&comment=352662)
+- [DD Returns 2023 Tamil TRUE WEB DL - H264/H265 - UNTOUCHED DD5.1 - [1080p &amp; 720p - 2.1GB - 1.6GB - 1.4GB] [GDRIVE]](https://www.1tamilmv.nexus/index.php?/forums/topic/165003-dd-returns-2023-tamil-true-web-dl-h264h265-untouched-dd51-1080p-720p-21gb-16gb-14gb-gdrive/&do=findComment&comment=352661)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
