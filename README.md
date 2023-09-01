@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഞാൻ നിത്യം ചാരിടും എന്നേശു മാർവ്വതിൽ | Mithila Michael #christiandevotional #shorts](https://www.youtube.com/watch?v=JF_Qtw5UiRM)
 - [Maanathe Maamayile | Kusruthikuruppu | Jayaram | Meena | Yesudas | Johnson | Venugopan](https://www.youtube.com/watch?v=Lvty2LT5sRU)
 - [Manasile Dhukhangal | Parishudha Amma | Ft. Biju, Samji, Fr Moozhoor Mother Mary Song Malayalam](https://www.youtube.com/watch?v=B-wEISr0SNo)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #september 1st 2023 mother mary songs and prayer](https://www.youtube.com/watch?v=Hl2fk-WavhA)
 - [Amma Sukruthangal Day 1](https://www.youtube.com/watch?v=pEjWrmpqcGo)
 - [Japamala 1st of September 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 1st of September 2023](https://www.youtube.com/watch?v=pBssN-sdNrY)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=E0f3m1_IEMU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
