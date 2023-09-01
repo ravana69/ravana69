@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മരിയൻ വിശുദ്ധവാരത്തിൽ  ലോകമെങ്ങും കേൾക്കാൻ ആഗ്രഹിക്കുന്ന പ്രശസ്ത ഗാനങ്ങൾ |Mariyan Songs |Christian](https://www.youtube.com/watch?v=xe1XZryvquY)
+- [ജനപ്രിയ നായകന്റെ ജനസമ്മിതി വാനോളം ഉയർത്തിയ ദിലീപ് ചിത്രങ്ങളിലെ അടിപൊളി ഹിറ്റ് ഗാനങ്ങൾ | DILEEP HITS](https://www.youtube.com/watch?v=UlCYnDk55Kw)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 1st of September 2023](https://www.youtube.com/watch?v=uMSG-408rrA)
 - [എവിടെ നീ കരഞ്ഞ് തളർന്നിരുന്നോ അവിടെ നിന്നെ തൃപ്തിപ്പെടുത്തുന്ന ഒരു ദൈവമുണ്ട്  | Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=seRYBE_oCVE)
 - [Tharakamalarukal Viriyum | Arabikkatha | Vineeth Sreenivasan | Bijibal | Anil Panachooran](https://www.youtube.com/watch?v=-uFAMI-MkP0)
 - [സൂര്യ തേജസോടെ വാഴുന്ന സ്വർഗ്ഗീയ കാരുണ്യ മാതേ....](https://www.youtube.com/watch?v=XZuZ2D9S_lU)
-- [Mandanila Parilalithe | Poppins Movie Song | Ratheesh Vega | P Jayachandran | Shibu Chakravarthy](https://www.youtube.com/watch?v=Qyh-iFjXyOQ)
-- [Kandal Chirikkatha | Super Hit Malayalam Movie Song | Oru Muthassi Katha | Ft.Vineeth | Nirosha](https://www.youtube.com/watch?v=99IOmJVyO6Q)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
