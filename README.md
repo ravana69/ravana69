@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Gudumba Shankar &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175140-gudumba-shankar-2004-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=352685)
 - [Gudumba Shankar &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175140-gudumba-shankar-2004-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=352684)
 - [Gudumba Shankar &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175140-gudumba-shankar-2004-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=352683)
 - [Vikramarkudu &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175100-vikramarkudu-2006-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-7gb/&do=findComment&comment=352682)
 - [The Equalizer 3 &lpar;2023&rpar; HQ PreDVD - [1080p &amp; 720p - x264 - [Hindi + Eng] - AAC - 2GB - 1GB &amp; 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175126-the-equalizer-3-2023-hq-predvd-1080p-720p-x264-hindi-eng-aac-2gb-1gb-400mb/&do=findComment&comment=352681)
-- [Kick &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175125-kick-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352680)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
