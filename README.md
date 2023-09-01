@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kushi (Malayalam) - Full Album | | Vijay Devarakonda | Samantha | Hesham Abdul Wahab](https://www.youtube.com/watch?v=3Qn6ynQ8qJ4)
+- [Ananda Snehapravahame | Kristheeya Bhakthigaanangal | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=W21HjDToVKc)
 - [മനസ്സിൽ മായാത്ത മുറിവുകൾ നൽകിയ ഓര്മകളുണർത്തും മലയാളസിനിമാഗാനങ്ങൾ | SAD SONGS MALAYALAM](https://www.youtube.com/watch?v=4ujRyibGGuw)
 - [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=4mFmP3eHwqY)
 - [Vinoram Megangal | Charles Simon | Reshmi Sushil | Arvind Venugopal | Aromalinte Aadhyathe Pranayam](https://www.youtube.com/watch?v=YtWWXBV7flw)
-- [Trending Song🤟✨ #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=tKNDw0FQWV4)
-- [Ezhaamswargam | Sundhari Kakka 1991 | Johnson | M. G. Sreekumar | Malayalam Movie Song](https://www.youtube.com/watch?v=rI45Kw6L1hQ)
-- [Anayatha Oru Agniyaay | Rajesh Elappara | Malayalam Christian Songs | Worship Songs Malayalam](https://www.youtube.com/watch?v=jjTze0x8VRI)
+- [Thanaro - Video Song | Kasargold | Asif Ali, Sunny Wayne, Vinayakan | Niranj Suresh | Mridul Nair](https://www.youtube.com/watch?v=Epzle-snXAk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
