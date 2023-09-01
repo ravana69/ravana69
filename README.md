@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vivaha Avahanam &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 5.1 - 253Kbps&rpar; - 3GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175139-vivaha-avahanam-2023-malayalam-true-web-dl-1080p-720p-avc-aac-51-253kbps-3gb-14gb-x264-700mb-400mb/&do=findComment&comment=352679)
+- [Vikramarkudu &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175100-vikramarkudu-2006-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-7gb/&do=findComment&comment=352678)
 - [DD Returns &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.1GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175110-dd-returns-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-21gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352677)
 - [📌 JAILER &lpar;2023&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - 1080P - WEBDL - AVC - DDP 5.1 @ 640 Kbps / AAC - ESubs - 2GB - Exclusive](https://www.1tamilmv.nexus/index.php?/forums/topic/175098-%F0%9F%93%8C-jailer-2023-music-video-album-1080p-webdl-avc-ddp-51-640-kbps-aac-esubs-2gb-exclusive/&do=findComment&comment=352676)
 - [47 Ronin &lpar;2013&rpar; 4K HDR 2160p BluRay HEVC [Org Hindi &lpar;DTS ~ 5.1&rpar; + English &lpar;DD5.1&rpar; + Telugu &lpar;DD2.0 ~ 192Kbps&rpar; + Tamil &lpar;DD2.0 ~ 192Kbps&rpar;] - ESub.mkv - 5.3 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175138-47-ronin-2013-4k-hdr-2160p-bluray-hevc-org-hindi-dts-~-51-english-dd51-telugu-dd20-~-192kbps-tamil-dd20-~-192kbps-esubmkv-53-gb/&do=findComment&comment=352674)
-- [Rango &lpar;2011&rpar; Theatrical Cut BluRay [2160p &amp; &lpar;WEBRip 1080p Open Matte&rpar;]  SDR 4K Multi Original Audios &lpar;AMZN DD5.1&rpar; - [Hindi - English - Telugu - Tamil]  - ESub.mkv - [5.2GB &amp; 2.8GB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175137-rango-2011-theatrical-cut-bluray-2160p-webrip-1080p-open-matte-sdr-4k-multi-original-audios-amzn-dd51-hindi-english-telugu-tamil-esubmkv-52gb-28gb/&do=findComment&comment=352673)
-- [Kushi &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175124-kushi-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352672)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
