@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന September 2 # Athiravile Prarthana 2nd of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=2M_7I278KkQ)
+- [Happy Birthday #pawankalyan Garu #HariHaraVeeraMallu, #HBDJanaSenaniPawanKalyan 🎂💫 #tipsmalayalam](https://www.youtube.com/watch?v=EDHvmh8ylbc)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 2nd SEP 2023](https://www.youtube.com/watch?v=weZGaL7iVLE)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=ln_5HFMhgGM)
 - [K46 - Malayalam Title Teaser | Baadshah Kichcha Sudeep | Vijay Kartikeyaa | B. Ajaneesh](https://www.youtube.com/watch?v=GJNSydM2iqE)
 - [മരിയൻ വിശുദ്ധവാരത്തിൽ  ലോകമെങ്ങും കേൾക്കാൻ ആഗ്രഹിക്കുന്ന പ്രശസ്ത ഗാനങ്ങൾ |Mariyan Songs |Christian](https://www.youtube.com/watch?v=xe1XZryvquY)
-- [ജനപ്രിയ നായകന്റെ ജനസമ്മിതി വാനോളം ഉയർത്തിയ ദിലീപ് ചിത്രങ്ങളിലെ അടിപൊളി ഹിറ്റ് ഗാനങ്ങൾ | DILEEP HITS](https://www.youtube.com/watch?v=UlCYnDk55Kw)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 1st of September 2023](https://www.youtube.com/watch?v=uMSG-408rrA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
