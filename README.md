@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [ദൂരേ മാമലയിൽ പൂത്തൊരു ചെമ്പകത്തിൻപൂവാകെ നുള്ളി പൂമാല കോർക്കുന്നതാരോ  #love #malayalamsongs](https://www.youtube.com/watch?v=7i-DbZGVjkI)
-- [Kushi (Malayalam) - Full Album | | Vijay Devarakonda | Samantha | Hesham Abdul Wahab](https://www.youtube.com/watch?v=3Qn6ynQ8qJ4)
-- [Aa Kanum Pongiyirikkana | Mukalpparappu | Lyrical Video| JP Thavarool | Siby Padiyara | Geogy Thomas](https://www.youtube.com/watch?v=2WP2unABWkQ)
-- [Ananda Snehapravahame | Kristheeya Bhakthigaanangal | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=W21HjDToVKc)
-- [മനസ്സിൽ മായാത്ത മുറിവുകൾ നൽകിയ ഓര്മകളുണർത്തും മലയാളസിനിമാഗാനങ്ങൾ | SAD SONGS MALAYALAM](https://www.youtube.com/watch?v=4ujRyibGGuw)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=4mFmP3eHwqY)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 1st of September 2023](https://www.youtube.com/watch?v=uMSG-408rrA)
+- [എവിടെ നീ കരഞ്ഞ് തളർന്നിരുന്നോ അവിടെ നിന്നെ തൃപ്തിപ്പെടുത്തുന്ന ഒരു ദൈവമുണ്ട്  | Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=seRYBE_oCVE)
+- [Tharakamalarukal Viriyum | Arabikkatha | Vineeth Sreenivasan | Bijibal | Anil Panachooran](https://www.youtube.com/watch?v=-uFAMI-MkP0)
+- [സൂര്യ തേജസോടെ വാഴുന്ന സ്വർഗ്ഗീയ കാരുണ്യ മാതേ....](https://www.youtube.com/watch?v=XZuZ2D9S_lU)
+- [Mandanila Parilalithe | Poppins Movie Song | Ratheesh Vega | P Jayachandran | Shibu Chakravarthy](https://www.youtube.com/watch?v=Qyh-iFjXyOQ)
+- [Kandal Chirikkatha | Super Hit Malayalam Movie Song | Oru Muthassi Katha | Ft.Vineeth | Nirosha](https://www.youtube.com/watch?v=99IOmJVyO6Q)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
