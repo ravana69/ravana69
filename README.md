@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manasile Dhukhangal | Parishudha Amma | Ft. Biju, Samji, Fr Moozhoor Mother Mary Song Malayalam](https://www.youtube.com/watch?v=B-wEISr0SNo)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #september 1st 2023 mother mary songs and prayer](https://www.youtube.com/watch?v=Hl2fk-WavhA)
+- [Amma Sukruthangal Day 1](https://www.youtube.com/watch?v=pEjWrmpqcGo)
+- [Japamala 1st of September 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 1st of September 2023](https://www.youtube.com/watch?v=pBssN-sdNrY)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=E0f3m1_IEMU)
 - [8 നോമ്പ് പ്രാർത്ഥനയും ഗാനങ്ങളും  # 8 Nombu Mariyan Gaanangal # Mother Mary songs 1st September 2023](https://www.youtube.com/watch?v=8wIITDCrSHg)
-- [രാവിലെ പ്രാര്‍ത്ഥന September 1 # Athiravile Prarthana 1st of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=uS0b-HE3fYY)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 1st SEP 2023](https://www.youtube.com/watch?v=53mY92pQKdI)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=WYh3Ple3Kuc)
-- [അഴലിൻ മേലെ അഴകു ധരിക്കും മരിയേ...](https://www.youtube.com/watch?v=gwKt8XNiE08)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
