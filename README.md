@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manjum Thaazhvaaravum | Indriyam 2000 | Vijay Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=wW8JVbMAN48)
+- [Pavizhamalli Poothulanja | Mohanlal | Sanmanassullavarkk Samadhanam | Sreenivasan | Karthika](https://www.youtube.com/watch?v=VxRHFcE5jKI)
 - [Amma Sukruthangal Day 2](https://www.youtube.com/watch?v=jqfxgAG58mM)
 - [8 നോമ്പ് പ്രാർത്ഥനയും ഗാനങ്ങളും  # 8 Nombu Mariyan Gaanangal # Mother Mary songs 2nd September 2023](https://www.youtube.com/watch?v=p6k6HpQvipw)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mother Mary September special 2nd 2023 songs](https://www.youtube.com/watch?v=SPNU_napOJk)
 - [Japamala 2nd of September 2023 # Mathavinte Japamala Santhoshathinte Rahasyangal 2nd of September 23](https://www.youtube.com/watch?v=oLv1yebQKm0)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=at-zYiiydAk)
-- [പ്രഭാത പ്രാര്‍ത്ഥന September 2 # Athiravile Prarthana 2nd of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=2M_7I278KkQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
