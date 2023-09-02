@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന  September 3 # Athiravile Prarthana 3rd of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=lJnrPUcvyCA)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 3rd SEP 2023](https://www.youtube.com/watch?v=o_jdb_7_9OY)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=8i3RwHHNz-E)
 - [ഭൂവിൽ മക്കൾക്കമ്മയായി അരികിലണയൂ വാത്സല്യമായ് ...](https://www.youtube.com/watch?v=jXau_XqvkAM)
 - [Enikkayi Kalvari Yagamayimariya |Christian Video Song | Senu Joseph | Thejal Devassy |Christian Song](https://www.youtube.com/watch?v=0EFRzKUeTYE)
 - [Oru Penkidaavu | Prajapathi | Jassie Gift | Thej Mervin | Gireesh Puthenchery](https://www.youtube.com/watch?v=HZnrhIsw_gE)
-- [ഞാൻ നിങ്ങളെ സ്നേഹിച്ചതുപോലെ നിങ്ങളും തമ്മിൽ തമ്മിൽ സ്നേഹിക്കുക | Rev. Aneesh P Joseph #shorts #jesus](https://www.youtube.com/watch?v=Yk82f8CPrPg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
