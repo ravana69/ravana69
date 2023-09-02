@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Johnny &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7.3GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175150-johnny-2003-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-73gb-esub/&do=findComment&comment=352720)
+- [BADRI &lpar;2000&rpar; Telugu - DVD9 - UNTOUCHED - 576p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 6.1GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175147-badri-2000-telugu-dvd9-untouched-576p-448kbps-dolby-digital%C2%AE-50-61gb/&do=findComment&comment=352719)
 - [Suswagatham &lpar;1998&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 3.2GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175143-suswagatham-1998-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-32gb/&do=findComment&comment=352718)
 - [BADRI &lpar;2000&rpar; Telugu - DVD9 - UNTOUCHED - 576p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 6.1GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175147-badri-2000-telugu-dvd9-untouched-576p-448kbps-dolby-digital%C2%AE-50-61gb/&do=findComment&comment=352717)
 - [Thammudu &lpar;1999&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 4.1GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175144-thammudu-1999-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-41gb/&do=findComment&comment=352716)
-- [KUSHI &lpar;2001&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.5GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175148-kushi-2001-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-65gb-esub/&do=findComment&comment=352715)
-- [KUSHI &lpar;2001&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.5GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175148-kushi-2001-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-65gb-esub/&do=findComment&comment=352714)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
