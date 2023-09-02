@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BADRI &lpar;2000&rpar; Telugu - DVD9 - UNTOUCHED - 576p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 6.1GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175147-badri-2000-telugu-dvd9-untouched-576p-448kbps-dolby-digital%C2%AE-50-61gb/&do=findComment&comment=352702)
+- [Jailer &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 11GB - 5.8GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175077-jailer-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-11gb-58gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352701)
+- [BADRI &lpar;2000&rpar; Telugu - DVD9 - UNTOUCHED - 576p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 6.1GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175147-badri-2000-telugu-dvd9-untouched-576p-448kbps-dolby-digital%C2%AE-50-61gb/&do=findComment&comment=352700)
 - [Hungry Cheetah - OG Glimpse | Pawan Kalyan | Sujeeth | Thaman S | DVV Danayya](https://www.1tamilmv.nexus/index.php?/forums/topic/175146-hungry-cheetah-og-glimpse-pawan-kalyan-sujeeth-thaman-s-dvv-danayya/&do=findComment&comment=352699)
 - [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;10-12&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175145-vera-maari-office-2023-s01-ep-10-12-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=352698)
-- [Godzilla vs Kong &lpar;2021&rpar; BluRay [4K 2160p - 1080p - 720p - 560p - 480p] Original Auds [Hindi + Tamil + Telugu + English] - DD5.1 - Atmos 7.1 - AAC2.0 + DTS-HDMA - 52GB - 34GB - 22GB - 15GB - 12GB - 10GB - 9GB - 6GB - 5GB - 3GB - 2GB - 1.4GB] - ESub - Leyon](https://www.1tamilmv.nexus/index.php?/forums/topic/168102-godzilla-vs-kong-2021-bluray-4k-2160p-1080p-720p-560p-480p-original-auds-hindi-tamil-telugu-english-dd51-atmos-71-aac20-dts-hdma-52gb-34gb-22gb-15gb-12gb-10gb-9gb-6gb-5gb-3gb-2gb-14gb-esub-leyon/&do=findComment&comment=352697)
-- [Thammudu &lpar;1999&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 4.1GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175144-thammudu-1999-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-41gb/&do=findComment&comment=352696)
-- [Suswagatham &lpar;1998&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 3.2GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175143-suswagatham-1998-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-32gb/&do=findComment&comment=352695)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
