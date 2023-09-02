@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Godzilla vs Kong &lpar;2021&rpar; BluRay [4K 2160p - 1080p - 720p - 560p - 480p] Original Auds [Hindi + Tamil + Telugu + English] - DD5.1 - Atmos 7.1 - AAC2.0 + DTS-HDMA - 52GB - 34GB - 22GB - 15GB - 12GB - 10GB - 9GB - 6GB - 5GB - 3GB - 2GB - 1.4GB] - ESub - Leyon](https://www.1tamilmv.nexus/index.php?/forums/topic/168102-godzilla-vs-kong-2021-bluray-4k-2160p-1080p-720p-560p-480p-original-auds-hindi-tamil-telugu-english-dd51-atmos-71-aac20-dts-hdma-52gb-34gb-22gb-15gb-12gb-10gb-9gb-6gb-5gb-3gb-2gb-14gb-esub-leyon/&do=findComment&comment=352697)
 - [Thammudu &lpar;1999&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 4.1GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175144-thammudu-1999-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-41gb/&do=findComment&comment=352696)
 - [Suswagatham &lpar;1998&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 3.2GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175143-suswagatham-1998-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-32gb/&do=findComment&comment=352695)
 - [Kushi &lpar;2023&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175130-kushi-2023-kannada-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352694)
 - [Thammudu &lpar;1999&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 4.1GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175144-thammudu-1999-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-41gb/&do=findComment&comment=352693)
-- [Suswagatham &lpar;1998&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 3.2GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175143-suswagatham-1998-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-32gb/&do=findComment&comment=352692)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
