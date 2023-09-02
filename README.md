@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [JALSA &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7.4GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175151-jalsa-2008-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-74gb-esub/&do=findComment&comment=352728)
 - [Barbie &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.1GB - 1GB &amp; 400MB] - HC-KorSub](https://www.1tamilmv.nexus/index.php?/forums/topic/175153-barbie-2023-english-true-web-dl-1080p-720p-avc-aac-20-21gb-1gb-400mb-hc-korsub/&do=findComment&comment=352727)
 - [📌 JALSA &lpar;2008&rpar; &lpar;Music Video Album&rpar; - 1080P - JC - WEBDL - H264 - DD® 5.1 @ 448 Kbps - DVD Sync - ESubs - 1.5GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175152-%F0%9F%93%8C-jalsa-2008-music-video-album-1080p-jc-webdl-h264-dd%C2%AE-51-448-kbps-dvd-sync-esubs-15gb/&do=findComment&comment=352726)
 - [JALSA &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7.4GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175151-jalsa-2008-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-74gb-esub/&do=findComment&comment=352725)
 - [Vivaha Avahanam &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 5.1 - 253Kbps&rpar; - 3GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175139-vivaha-avahanam-2023-malayalam-true-web-dl-1080p-720p-avc-aac-51-253kbps-3gb-14gb-x264-700mb-400mb/&do=findComment&comment=352724)
-- [Scam 2003: The Telgi Story &lpar;2023&rpar; S01 EP &lpar;01-05&rpar; TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 7GB - 2.2GB &amp; 750MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175113-scam-2003-the-telgi-story-2023-s01-ep-01-05-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-7gb-22gb-750mb-esub/&do=findComment&comment=352723)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
