@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Thammudu &lpar;1999&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 4.1GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175144-thammudu-1999-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-41gb/&do=findComment&comment=352696)
+- [Suswagatham &lpar;1998&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 3.2GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175143-suswagatham-1998-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-32gb/&do=findComment&comment=352695)
+- [Kushi &lpar;2023&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175130-kushi-2023-kannada-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352694)
+- [Thammudu &lpar;1999&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 4.1GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175144-thammudu-1999-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-41gb/&do=findComment&comment=352693)
 - [Suswagatham &lpar;1998&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 3.2GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175143-suswagatham-1998-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-32gb/&do=findComment&comment=352692)
-- [Gudumba Shankar &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175140-gudumba-shankar-2004-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=352691)
-- [Scam 2003: The Telgi Story S01 Complete SONY WEB-DL Multi DDP5.1 Atmos Esubs - 2160p [HDR10Plus-DV] | 1080p - 20.6 GB | 9.3 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175142-scam-2003-the-telgi-story-s01-complete-sony-web-dl-multi-ddp51-atmos-esubs-2160p-hdr10plus-dv-1080p-206-gb-93-gb/&do=findComment&comment=352690)
-- [ONE PIECE S01 Complete 1080p NF WEB-DL Multi DDP5.1 Esubs x265 HEVC - 14.2 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175141-one-piece-s01-complete-1080p-nf-web-dl-multi-ddp51-esubs-x265-hevc-142-gb/&do=findComment&comment=352689)
-- [Vivaha Avahanam &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 5.1 - 253Kbps&rpar; - 3GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175139-vivaha-avahanam-2023-malayalam-true-web-dl-1080p-720p-avc-aac-51-253kbps-3gb-14gb-x264-700mb-400mb/&do=findComment&comment=352688)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
