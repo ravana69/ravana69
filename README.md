@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Baba &lpar;2002&rpar; Tamil - AYN DVD - 1080p &amp; 720p - AVC / HEVC - [DTS5.1&lpar;768kbps&rpar; + DD5.1&lpar;448kbps&rpar;] - 5.8GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175149-baba-2002-tamil-ayn-dvd-1080p-720p-avc-hevc-dts51768kbps-dd51448kbps-58gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352713)
+- [The Wheel of Time S02 [E01-E03] 1080p AMZN WEB-DL Multi DDP5.1 Esubs x264 - [4.5 GB - 3.8 GB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175119-the-wheel-of-time-s02-e01-e03-1080p-amzn-web-dl-multi-ddp51-esubs-x264-45-gb-38-gb/&do=findComment&comment=352712)
 - [KUSHI &lpar;2001&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.5GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175148-kushi-2001-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-65gb-esub/&do=findComment&comment=352711)
 - [Vivaha Avahanam &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 5.1 - 253Kbps&rpar; - 3GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175139-vivaha-avahanam-2023-malayalam-true-web-dl-1080p-720p-avc-aac-51-253kbps-3gb-14gb-x264-700mb-400mb/&do=findComment&comment=352710)
 - [Kushi &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175123-kushi-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352709)
-- [Kick &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175125-kick-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352708)
-- [Lucky Man &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175127-lucky-man-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352707)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
