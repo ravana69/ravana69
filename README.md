@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Kushi &lpar;2023&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175130-kushi-2023-kannada-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352703)
-- [BADRI &lpar;2000&rpar; Telugu - DVD9 - UNTOUCHED - 576p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 6.1GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175147-badri-2000-telugu-dvd9-untouched-576p-448kbps-dolby-digital%C2%AE-50-61gb/&do=findComment&comment=352702)
-- [Jailer &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 11GB - 5.8GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175077-jailer-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-11gb-58gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352701)
-- [BADRI &lpar;2000&rpar; Telugu - DVD9 - UNTOUCHED - 576p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 6.1GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175147-badri-2000-telugu-dvd9-untouched-576p-448kbps-dolby-digital%C2%AE-50-61gb/&do=findComment&comment=352700)
-- [Hungry Cheetah - OG Glimpse | Pawan Kalyan | Sujeeth | Thaman S | DVV Danayya](https://www.1tamilmv.nexus/index.php?/forums/topic/175146-hungry-cheetah-og-glimpse-pawan-kalyan-sujeeth-thaman-s-dvv-danayya/&do=findComment&comment=352699)
+- [KUSHI &lpar;2001&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.5GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175148-kushi-2001-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-65gb-esub/&do=findComment&comment=352711)
+- [Vivaha Avahanam &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 5.1 - 253Kbps&rpar; - 3GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175139-vivaha-avahanam-2023-malayalam-true-web-dl-1080p-720p-avc-aac-51-253kbps-3gb-14gb-x264-700mb-400mb/&do=findComment&comment=352710)
+- [Kushi &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175123-kushi-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352709)
+- [Kick &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175125-kick-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352708)
+- [Lucky Man &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175127-lucky-man-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352707)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
