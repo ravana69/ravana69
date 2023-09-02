@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ലാത്തിരി പൂത്തിരി | Lathiri Poothiri Punchiri Cheppo | Nokketha Doorathu Kannum Nattu | Nadiya Moidu](https://www.youtube.com/watch?v=Ssu9VvNkv_M)
+- [Dhwadashiyil Mani | Madhuranombarakkattu | Biju Menon | Vidyasagar | DD 5.1 Audio | Kamal](https://www.youtube.com/watch?v=xCiail7jT94)
 - [മലയാള സിനിമയിലെ താരരാജാക്കന്മാരെ  ഒന്നിച്ചണിനിരത്തിയ സൂപ്പർഹിറ്റ് സിനിമ ഗാനങ്ങൾ |Re Mastered Songs](https://www.youtube.com/watch?v=fwCMCDyKUbI)
 - [അവധിക്കാലം കുടുംബസമേതം യാത്രയിൽ കൂടുതൽ കേട്ട മലയാള സിനിമ ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=bmiLszLggxg)
 - [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=wHbMwi5JKRA)
 - [Vibe with🤟💥 #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=TyHqDIAccsE)
-- [Choolamadichu Karangi Video Song | KS Chithra | Gireesh Puthenchery| Vidyasagar |Summer in Bethlehem](https://www.youtube.com/watch?v=eno8Mx-d404)
-- [ഏതോ ഹരിത നികുഞ്ജത്തിൽപല്ലവിയായതു നീയല്ലോ  | Shyaamameghame Nee | Adhipan Malayalam Movie Song #song](https://www.youtube.com/watch?v=5l2Yfl2tLNY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
