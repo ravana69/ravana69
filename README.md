@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kushi &lpar;2023&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175130-kushi-2023-kannada-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352703)
 - [BADRI &lpar;2000&rpar; Telugu - DVD9 - UNTOUCHED - 576p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 6.1GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175147-badri-2000-telugu-dvd9-untouched-576p-448kbps-dolby-digital%C2%AE-50-61gb/&do=findComment&comment=352702)
 - [Jailer &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 11GB - 5.8GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175077-jailer-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-11gb-58gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352701)
 - [BADRI &lpar;2000&rpar; Telugu - DVD9 - UNTOUCHED - 576p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 6.1GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175147-badri-2000-telugu-dvd9-untouched-576p-448kbps-dolby-digital%C2%AE-50-61gb/&do=findComment&comment=352700)
 - [Hungry Cheetah - OG Glimpse | Pawan Kalyan | Sujeeth | Thaman S | DVV Danayya](https://www.1tamilmv.nexus/index.php?/forums/topic/175146-hungry-cheetah-og-glimpse-pawan-kalyan-sujeeth-thaman-s-dvv-danayya/&do=findComment&comment=352699)
-- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;10-12&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175145-vera-maari-office-2023-s01-ep-10-12-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=352698)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
