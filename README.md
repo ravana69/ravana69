@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Thani Oruvan &lpar;2015&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - [DD+5.1&lpar;192kbps&rpar; + AAC2.0&lpar;192kbps&rpar;] - 8.7GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - ESub [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175155-thani-oruvan-2015-tamil-true-web-dl-1080p-720p-avc-hevc-untouched-dd51192kbps-aac20192kbps-87gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub-gdrive/&do=findComment&comment=352731)
 - [DD Returns &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.1GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175110-dd-returns-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-21gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352730)
 - [Sweet Tooth &lpar;2021 - 2023&rpar; Complete S01 &amp; S02 Merged BluRay - [1080p - 720p - HEVC - [Org Hindi DDP 5.1 + English AAC 5.1] - ESub [Google Drive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175154-sweet-tooth-2021-2023-complete-s01-s02-merged-bluray-1080p-720p-hevc-org-hindi-ddp-51-english-aac-51-esub-google-drive/&do=findComment&comment=352729)
 - [JALSA &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7.4GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175151-jalsa-2008-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-74gb-esub/&do=findComment&comment=352728)
 - [Barbie &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.1GB - 1GB &amp; 400MB] - HC-KorSub](https://www.1tamilmv.nexus/index.php?/forums/topic/175153-barbie-2023-english-true-web-dl-1080p-720p-avc-aac-20-21gb-1gb-400mb-hc-korsub/&do=findComment&comment=352727)
-- [📌 JALSA &lpar;2008&rpar; &lpar;Music Video Album&rpar; - 1080P - JC - WEBDL - H264 - DD® 5.1 @ 448 Kbps - DVD Sync - ESubs - 1.5GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175152-%F0%9F%93%8C-jalsa-2008-music-video-album-1080p-jc-webdl-h264-dd%C2%AE-51-448-kbps-dvd-sync-esubs-15gb/&do=findComment&comment=352726)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
