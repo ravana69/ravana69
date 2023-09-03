@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന September 4 # Athiravile Prarthana 4th of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=izbidx6UFkU)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 4th SEP 2023](https://www.youtube.com/watch?v=vDFgfTdjr6Q)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=QLVlymTf988)
 - [ക്രോവേൻമാർ പേറും മന്നാ പേടകമേ ...](https://www.youtube.com/watch?v=xX6juoAQqUw)
 - [Christian Melody Songs | Fr.Joshy Kannukaden | Kester | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=n4Zwdh1j2tk)
 - [Kusumavadana | Remix | DJ Savyo | M Jayachandran #remix #shorts #djsaviofficial #mjayachandran](https://www.youtube.com/watch?v=xpakA_xYvIw)
-- [ഉറ്റ സ്നേഹിതർ പോലും നമ്മുടെ ശരികളെ തിരിച്ചറിയണമെന്നില്ല | Rev. Aneesh P Joseph #shortvideo #jesus](https://www.youtube.com/watch?v=tkmgxhKyVdI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
