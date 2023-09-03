@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [അനുഗ്രഹീത ഗായകന്റെ അനുഗ്രഹം നിറഞ്ഞ ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Kester](https://www.youtube.com/watch?v=Ze9Mi83qDW4)
+- [8 നോമ്പ് പ്രാർത്ഥനയും ഗാനങ്ങളും  # 8 Nombu Mariyan Gaanangal # Mother Mary songs 3rd September 2023](https://www.youtube.com/watch?v=QxLzEEuy9Cw)
+- [മാതാവിൻറെ 8 നോമ്പ് ഗാനങ്ങൾ #8 nombu songs for september 2023](https://www.youtube.com/watch?v=yDkro_POte0)
+- [Japamala 3rd of September 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 3rd of September 2023](https://www.youtube.com/watch?v=ukTd08Tegnw)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=Bn5SJvKVM1g)
 - [രാവിലെ പ്രാര്‍ത്ഥന  September 3 # Athiravile Prarthana 3rd of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=lJnrPUcvyCA)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 3rd SEP 2023](https://www.youtube.com/watch?v=o_jdb_7_9OY)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=8i3RwHHNz-E)
-- [ഭൂവിൽ മക്കൾക്കമ്മയായി അരികിലണയൂ വാത്സല്യമായ് ...](https://www.youtube.com/watch?v=jXau_XqvkAM)
-- [Enikkayi Kalvari Yagamayimariya |Christian Video Song | Senu Joseph | Thejal Devassy |Christian Song](https://www.youtube.com/watch?v=0EFRzKUeTYE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
