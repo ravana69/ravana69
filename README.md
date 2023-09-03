@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Dhwadashiyil Mani | Madhuranombarakkattu | Biju Menon | DD 5.1 Audio | Vidyasagar | Samyukutha Varma](https://www.youtube.com/watch?v=eRVneFVHtug)
 - [Amma Sukruthangal Day 3](https://www.youtube.com/watch?v=kL60Gt_cZyY)
 - [അനുഗ്രഹീത ഗായകന്റെ അനുഗ്രഹം നിറഞ്ഞ ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Kester](https://www.youtube.com/watch?v=Ze9Mi83qDW4)
 - [8 നോമ്പ് പ്രാർത്ഥനയും ഗാനങ്ങളും  # 8 Nombu Mariyan Gaanangal # Mother Mary songs 3rd September 2023](https://www.youtube.com/watch?v=QxLzEEuy9Cw)
 - [മാതാവിൻറെ 8 നോമ്പ് ഗാനങ്ങൾ #8 nombu songs for september 2023](https://www.youtube.com/watch?v=yDkro_POte0)
 - [Japamala 3rd of September 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 3rd of September 2023](https://www.youtube.com/watch?v=ukTd08Tegnw)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=Bn5SJvKVM1g)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
