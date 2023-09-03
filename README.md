@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Viduthalai Part-1 &lpar;2023&rpar; DIRECTOR&#39;S CUT [UNCENSORED] - Tamil - PROPER - TRUE WEB-DL - 4K [2160p] 10bit SDR - AVC - UNTOUCHED - x264 - [DD+5.1&lpar;768kbps&rpar;UPMIXED + AAC] - 12GB - ESub [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175157-viduthalai-part-1-2023-directors-cut-uncensored-tamil-proper-true-web-dl-4k-2160p-10bit-sdr-avc-untouched-x264-dd51768kbpsupmixed-aac-12gb-esub-gdrive/&do=findComment&comment=352738)
 - [Bheemaa &lpar;2008&rpar;.Tamil.1080p.DVD9Rip.HEVC.AAC5.1 - 3GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175057-bheemaa-2008tamil1080pdvd9riphevcaac51-3gb/&do=findComment&comment=352736)
 - [Hey Ram &lpar;2000&rpar;  AMZN WEB-DL DDP5.1 x264 - 1080p | 720p - 14.5 GB | 8.3 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175049-hey-ram-2000-amzn-web-dl-ddp51-x264-1080p-720p-145-gb-83-gb/&do=findComment&comment=352735)
 - [Thani Oruvan &lpar;2015&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - [DD+5.1&lpar;192kbps&rpar; + AAC2.0&lpar;192kbps&rpar;] - 8.7GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - ESub [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175155-thani-oruvan-2015-tamil-true-web-dl-1080p-720p-avc-hevc-untouched-dd51192kbps-aac20192kbps-87gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub-gdrive/&do=findComment&comment=352734)
 - [Iraivan Trailer | Jayam Ravi | Nayanthara | Yuvan Shankar Raja | I. Ahmed | Passion Studios](https://www.1tamilmv.nexus/index.php?/forums/topic/175156-iraivan-trailer-jayam-ravi-nayanthara-yuvan-shankar-raja-i-ahmed-passion-studios/&do=findComment&comment=352733)
-- [Barbie &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.1GB - 1GB &amp; 400MB] - HC-KorSub](https://www.1tamilmv.nexus/index.php?/forums/topic/175153-barbie-2023-english-true-web-dl-1080p-720p-avc-aac-20-21gb-1gb-400mb-hc-korsub/&do=findComment&comment=352732)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
