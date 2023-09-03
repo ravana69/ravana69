@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [BIGG BOSS &lpar;Telugu&rpar; S07 EP01 DAY 00 HDTV - [1080p, 720p, 480p &amp; 360p - AVC - UNTOUCHED - 4GB - 3GB - 2GB &amp; 1GB | 03-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175163-bigg-boss-telugu-s07-ep01-day-00-hdtv-1080p-720p-480p-360p-avc-untouched-4gb-3gb-2gb-1gb-03-09-2023/&do=findComment&comment=352753)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP01 DAY 00 HDTV - [1080p, 720p, 480p &amp; 360p - AVC - UNTOUCHED - 3.4GB - 1.7GB - 732MB &amp; 481MB | 03-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175163-bigg-boss-telugu-s07-ep01-day-00-hdtv-1080p-720p-480p-360p-avc-untouched-34gb-17gb-732mb-481mb-03-09-2023/&do=findComment&comment=352754)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP01 DAY 00 HDTV - [1080p, 720p, 480p &amp; 360p - AVC - UNTOUCHED - 3.4GB - 1.7GB - 732MB &amp; 481MB | 03-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175163-bigg-boss-telugu-s07-ep01-day-00-hdtv-1080p-720p-480p-360p-avc-untouched-34gb-17gb-732mb-481mb-03-09-2023/&do=findComment&comment=352753)
 - [Jawan &lpar;2023&rpar; Tamil Audio launch - [1080p &amp; 720p - AVC - 2GB - 1GB &amp; 500MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175158-jawan-2023-tamil-audio-launch-1080p-720p-avc-2gb-1gb-500mb/&do=findComment&comment=352752)
 - [One Piece &lpar;2023&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.7GB - 2.5GB &amp; 1.2GB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175102-one-piece-2023-s01-ep-01-08-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-eng-dd51-192kbps-57gb-25gb-12gb-esub/&do=findComment&comment=352750)
 - [Vivaha Avahanam &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 5.1 - 253Kbps&rpar; - 3GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175139-vivaha-avahanam-2023-malayalam-true-web-dl-1080p-720p-avc-aac-51-253kbps-3gb-14gb-x264-700mb-400mb/&do=findComment&comment=352749)
-- [Barbie &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.1GB - 1GB &amp; 400MB] - HC-KorSub](https://www.1tamilmv.nexus/index.php?/forums/topic/175153-barbie-2023-english-true-web-dl-1080p-720p-avc-aac-20-21gb-1gb-400mb-hc-korsub/&do=findComment&comment=352748)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
