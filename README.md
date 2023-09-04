@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Amma Sukruthangal Day 4](https://www.youtube.com/watch?v=dBLpIr3qa-Q)
 - [Ithuvareyenne | Chithra Arun | M E Cherian  #malayalamchristiansongs](https://www.youtube.com/watch?v=UBHM9ln7_r8)
 - [8 നോമ്പ് പ്രാർത്ഥനയും ഗാനങ്ങളും  # 8 Nombu Mariyan Gaanangal # Mother Mary songs 4th September 2023](https://www.youtube.com/watch?v=ghH2Ye62Nug)
 - [Prabhatha Geethangal | Manjeri | Christian Melody Songs | Morning Prayer Songs | Wilson Piravom](https://www.youtube.com/watch?v=Iy4tPLJMlas)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #September 4th mother mary prayer malayalam 2023](https://www.youtube.com/watch?v=PZz_ijcCjeA)
 - [Japamala 4th of September 2023 # Mathavinte Japamala Santhoshathinte Rahasyangal 4th of September 23](https://www.youtube.com/watch?v=zOwpUDOvOao)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=EZGXXbRy7Yk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
