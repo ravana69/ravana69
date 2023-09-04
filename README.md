@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kadukittu Varuthoru | Hallo | Cochin Ibrahim | Sangeetha Prabhu | Alex Paul](https://www.youtube.com/watch?v=dixYFX5S2Hg)
+- [Kannanthaliyum|Anubandham|Seema|Mammootty|Master Vimal|](https://www.youtube.com/watch?v=ajOyaOFQ9FA)
 - [മനുഷ്യർ നിന്നെ താഴ്ത്തും തോറും ദൈവം നിന്നെ ഉയർത്തും. | Rev. Aneesh P Joseph | #shortvideo #jesus](https://www.youtube.com/watch?v=mLoNFmSFIf0)
 - [Varika | Sharreth | Sumi Sunny | Sherdin Thomas | Vishnu Gopan | Malayalam Video Album](https://www.youtube.com/watch?v=2eRDjaAvazg)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 4th of September 2023](https://www.youtube.com/watch?v=2aTYBvUZGUM)
 - [Poovarashin Kuda Nivarthi |  Dilliwala Rajakumaran | Jayaram | Manju Warrier |  #shorts](https://www.youtube.com/watch?v=tkzbvC004VQ)
-- [Tharakameda Thurakkunnu | Kristheeya Bhakthigaanangal | Christian Devotional Songs| Audio jukebox](https://www.youtube.com/watch?v=5RF7hBpoQII)
-- [Muttathe Mulle Chollu | Mayavi | Manjari | Alex Paul | Vayalar Sarathchandra Varma](https://www.youtube.com/watch?v=gZ1-7f_nhRw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
