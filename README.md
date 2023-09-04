@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kadavulukku Oru Kaditham &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175167-kadavulukku-oru-kaditham-2023-tamil-web-dl-1080p-720p-avc-dd51-384kbps-27gb-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=352762)
+- [Kadavulukku Oru Kaditham &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175167-kadavulukku-oru-kaditham-2023-tamil-web-dl-1080p-720p-avc-dd51-384kbps-27gb-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=352761)
 - [Kadavulukku Oru Kaditham &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175167-kadavulukku-oru-kaditham-2023-tamil-web-dl-1080p-720p-avc-dd51-384kbps-27gb-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=352760)
 - [Jawan &lpar;2023&rpar; Audio Launch 1080p SNXT WEB-DL AAC2.0 x264 - 3.2 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175166-jawan-2023-audio-launch-1080p-snxt-web-dl-aac20-x264-32-gb/&do=findComment&comment=352759)
 - [Barbie &lpar;2023&rpar; 1080p iT WEB-DL DD5.1 Esubs x264 - 8.1 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175165-barbie-2023-1080p-it-web-dl-dd51-esubs-x264-81-gb/&do=findComment&comment=352758)
-- [Parasakthi &lpar;1952&rpar; AMZN WEB-DL - [1080p &amp; 720p - x264 - [&lpar;Tamil&rpar; DD+ 2.0 - 224kbps &amp; AAC 2.0] - 8.4GB - 4.7GB &amp; 3.5GB] - [x264 - 1.6GB &amp; 900MB] - ESub [Google Drive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175164-parasakthi-1952-amzn-web-dl-1080p-720p-x264-tamil-dd-20-224kbps-aac-20-84gb-47gb-35gb-x264-16gb-900mb-esub-google-drive/&do=findComment&comment=352757)
-- [Johnny &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7.3GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175150-johnny-2003-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-73gb-esub/&do=findComment&comment=352756)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
