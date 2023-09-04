@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഇളം മഞ്ഞിൻ കുളിരുമായൊരു കുയിൽ..മിഴിചെപ്പിൽ വിരഹ കദന കടൽ..  #malayalamsongs #love](https://www.youtube.com/watch?v=z2r4CnZ0kKo)
+- [Ek Dum... Ek Dum - Song Promo | Tiger Nageswara Rao(Malayalam) | Ravi Teja, Gayatri | GV Prakash](https://www.youtube.com/watch?v=uN6Hi-Xnd4g)
 - [Priyathame Shakunthale | Beautiful Romantic Duet by K J Yesudas & K S Chithra #shorts](https://www.youtube.com/watch?v=Z0p1GpBiqNg)
 - [Nee Manassaay | Chandra Bimbam 1980 | S. P. Balasubrahmanyam | Malayalam Movie Song](https://www.youtube.com/watch?v=KtDcOMIRZKQ)
 - [Kannil Nin Meyyil | Innale | KS Chithra | Shobana | Jayaram | Sreevidya | KJ Yesudas | Kaithapram](https://www.youtube.com/watch?v=lPR7JkwZFCU)
-- [Amma Sukruthangal Day 4](https://www.youtube.com/watch?v=dBLpIr3qa-Q)
-- [Ithuvareyenne | Chithra Arun | M E Cherian  #malayalamchristiansongs](https://www.youtube.com/watch?v=UBHM9ln7_r8)
-- [8 നോമ്പ് പ്രാർത്ഥനയും ഗാനങ്ങളും  # 8 Nombu Mariyan Gaanangal # Mother Mary songs 4th September 2023](https://www.youtube.com/watch?v=ghH2Ye62Nug)
+- [Daivame Thriyekane Karaoke | P D John | Malayalam Christian Songs Karaoke | Christian Minus Tracks](https://www.youtube.com/watch?v=RZHEYrB-V_0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
