@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന  September 5 # Athiravile Prarthana 5th of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=YV_dziXu5FQ)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 5th SEP 2023](https://www.youtube.com/watch?v=EfZeJiDo-1c)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=urt2CjJFnK0)
 - [Hippity Hop for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=2q7uzkVfTsA)
 - [അമ്മയോളം സ്നേഹം തന്നവരില്ല ഇത്രയും കരുതലുള്ള മറ്റാരുമില്ല .](https://www.youtube.com/watch?v=wJnFl2xKRic)
 - [Kakkakarumban Video Song | Dileep | Manju Warrier | Gireesh Puthenchery | Johnson | Sujatha Mohan](https://www.youtube.com/watch?v=PvI1H_hvKu8)
-- [ഏവരും ഒരേപോലെ കേട്ടാസ്വദിക്കുന്ന സൂപ്പർഹിറ്റ് ക്രിസ്തീയ ഗാനങ്ങൾ | Manoj Christy | Superhit Songs](https://www.youtube.com/watch?v=GOsf3wmnhEs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
