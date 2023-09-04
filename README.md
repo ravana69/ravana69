@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aanandakkaneerin - Lyrical Video | Paradesi | Sujatha Mohan, Manjari | Shahabaz Aman | Rafeeq Ahamed](https://www.youtube.com/watch?v=bzk2NxomFqs)
 - [മനുഷ്യമനസ്സിനെ  ഏതോ മായാലോകത്തേക്ക് കൂട്ടിക്കൊണ്ടുപോകുന്ന അത്രമേൽ സുന്ദരമായ മെലഡി ഗാനങ്ങൾ !SUPERHITS](https://www.youtube.com/watch?v=dQPlYxUxLU8)
 - [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=pWrlrXfSKI0)
 - [എന്നും മനസ്സിൽ തുടി കൊട്ടി പാടും മലയാളസിനിമയിലെ പ്രശസ്തമായ സെമി ക്ലാസിക്കൽ ഗാനങ്ങൾ | MELODY HITS](https://www.youtube.com/watch?v=Hs-AILUeMSk)
 - [ഇളം മഞ്ഞിൻ കുളിരുമായൊരു കുയിൽ..മിഴിചെപ്പിൽ വിരഹ കദന കടൽ..  #malayalamsongs #love](https://www.youtube.com/watch?v=z2r4CnZ0kKo)
 - [Ek Dum... Ek Dum - Song Promo | Tiger Nageswara Rao(Malayalam) | Ravi Teja, Gayatri | GV Prakash](https://www.youtube.com/watch?v=uN6Hi-Xnd4g)
-- [Priyathame Shakunthale | Beautiful Romantic Duet by K J Yesudas & K S Chithra #shorts](https://www.youtube.com/watch?v=Z0p1GpBiqNg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
