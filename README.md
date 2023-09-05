@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Baadshah &lpar;2013&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD5.1 - 448Kbps&rpar; - 6.9GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175179-baadshah-2013-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-69gb-esub/&do=findComment&comment=352795)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP02 DAY 01 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 906MB - 443MB &amp; 193MB | 04-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175173-bigg-boss-telugu-s07-ep02-day-01-hdtv-1080p-720p-480p-avc-untouched-906mb-443mb-193mb-04-09-2023/&do=findComment&comment=352794)
 - [The Nun &lpar;2018&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.8GB &amp; 1.2GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175170-the-nun-2018-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-28gb-12gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=352793)
 - [Kaadhal Kondein Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 5GB - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175178-kaadhal-kondein-tamil-true-web-dl-1080p-720p-avc-5gb-25gb-14gb-x264-700mb-400mb/&do=findComment&comment=352792)
 - [DON &lpar;2006&rpar; TELUGU ALL VIDEO SONGS - UNTOUCHED 1080P WEBDL H264  - HYBRID DD &amp; DTS 5.1 - ESUBS - 1.8GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175174-don-2006-telugu-all-video-songs-untouched-1080p-webdl-h264%C2%A0-hybrid-dd-dts-51-esubs%C2%A0-18gb/&do=findComment&comment=352791)
-- [Kaadhal Kondein Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 5GB - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175178-kaadhal-kondein-tamil-true-web-dl-1080p-720p-avc-5gb-25gb-14gb-x264-700mb-400mb/&do=findComment&comment=352790)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
