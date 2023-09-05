@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഇന്ന് നാം അനുഭവിക്കുന്ന നോവുകൾ നാളെ ദൈവം ബലമായി തീർക്കും.| Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=_nN63mTtPIg)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 5th of September 2023](https://www.youtube.com/watch?v=B7vV8wCIEPQ)
+- [Chandramadathinte Video Song | Ormakal Marikkumo | KJ Yesudas | MS Viswanathan|](https://www.youtube.com/watch?v=QEmqjTYtW_M)
+- [Ettuvatta Kettum Ketti | Palunku | G Venugopal | Anwar Sadath | Mohan Sithara](https://www.youtube.com/watch?v=Rg5MQhkrcWI)
 - [Nandalala | Lord Sree Karishna Film Songs | Audio JukeBox | K J Yesudas, K S Chithra, M G Sreekumar](https://www.youtube.com/watch?v=AofOefKq_ew)
 - [PS 1 - Malayalam - Video Jukebox | Karthi, Vikram, Trisha | AR Rahman | Mani Ratnam](https://www.youtube.com/watch?v=heGuDxRljaM)
-- [PRAAVU TRAILER | WAYFARER FILMS| NAVAZ ALI |PR RAJASEKHARAN | CET CINEMA | MANJU MOLE | FILM TRAILER](https://www.youtube.com/watch?v=Z52BUpGmT6U)
-- [Nadha En Vili Kelkkename | Kelkkan Kothikkunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=wR7JTsTgLXY)
-- [Chankinu Chanke - Video Song | Mr Hacker | Harris, Devan, Bheeman | Sumesh Koottickal | Najim Arshad](https://www.youtube.com/watch?v=3uFm0Ciqxqc)
-- [Ek Dum Ek Dum - Lyrical | Tiger Nageswara Rao (Malayalam) | Ravi Teja, Nupur S | GV Prakash](https://www.youtube.com/watch?v=pnm9HAbJSaw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
