@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 6th SEP 2023](https://www.youtube.com/watch?v=rMwirnCaib4)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=_xhUFjOOCHY)
+- [എം ജി രാധാകൃഷ്ണൻറെ ഹിറ്റ് സിനിമാഗാനങ്ങൾ | M G Radhakrishnan Hits | കെ ജെ യേശുദാസ് | Remastered songs](https://www.youtube.com/watch?v=pCi4Yq9jmqE)
 - [നന്മ നിറഞ്ഞവളെ കന്യാമറിയമേ ....](https://www.youtube.com/watch?v=3qagH194V5E)
 - [Aradhikkumbol Viduthal | Kester | Praise and Worship Songs | Christian Songs Malayalam](https://www.youtube.com/watch?v=7u6WjwZW-6M)
 - [Nadhikalil Sundari Yamuna - Official Teaser | Dhyan Sreenivasan, Aju Varghese | Vijesh | Unni](https://www.youtube.com/watch?v=3LzzBvK4isw)
-- [Vaakamarathin | July 4 | Sayanora Philip | Ouseppachan | Shibu Chakravarthy](https://www.youtube.com/watch?v=Hh_pM-gRQ58)
-- [ഇന്ന് നാം അനുഭവിക്കുന്ന നോവുകൾ നാളെ ദൈവം ബലമായി തീർക്കും.| Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=_nN63mTtPIg)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 5th of September 2023](https://www.youtube.com/watch?v=B7vV8wCIEPQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
