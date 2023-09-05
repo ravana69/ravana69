@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nandalala | Lord Sree Karishna Film Songs | Audio JukeBox | K J Yesudas, K S Chithra, M G Sreekumar](https://www.youtube.com/watch?v=AofOefKq_ew)
+- [PS 1 - Malayalam - Video Jukebox | Karthi, Vikram, Trisha | AR Rahman | Mani Ratnam](https://www.youtube.com/watch?v=heGuDxRljaM)
+- [PRAAVU TRAILER | WAYFARER FILMS| NAVAZ ALI |PR RAJASEKHARAN | CET CINEMA | MANJU MOLE | FILM TRAILER](https://www.youtube.com/watch?v=Z52BUpGmT6U)
 - [Nadha En Vili Kelkkename | Kelkkan Kothikkunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=wR7JTsTgLXY)
+- [Chankinu Chanke - Video Song | Mr Hacker | Harris, Devan, Bheeman | Sumesh Koottickal | Najim Arshad](https://www.youtube.com/watch?v=3uFm0Ciqxqc)
 - [Ek Dum Ek Dum - Lyrical | Tiger Nageswara Rao (Malayalam) | Ravi Teja, Nupur S | GV Prakash](https://www.youtube.com/watch?v=pnm9HAbJSaw)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=20PKmoCW4UE)
-- [Ithra Madhurikkumo Video Song | KJ Yesudas | Bombay Ravi | Yusufali Kecheri | Five Star Hospital](https://www.youtube.com/watch?v=hhRpYDwSYSo)
-- [Kashmeeri Penne Va Va | Guru Shishyan | Gireesh Puthenchery | Johnson | MG Sreekumar | Swarnalatha](https://www.youtube.com/watch?v=lRbYcDASLKg)
-- [മനസ്സിൽ വർണ്ണമഴ പൊഴിച്ച മലയാളത്തിലെ നിത്യഹരിതഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=xVi7f24I0b4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
