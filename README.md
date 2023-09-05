@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Nun &lpar;2018&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.8GB &amp; 1.2GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175170-the-nun-2018-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-28gb-12gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=352793)
+- [Kaadhal Kondein Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 5GB - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175178-kaadhal-kondein-tamil-true-web-dl-1080p-720p-avc-5gb-25gb-14gb-x264-700mb-400mb/&do=findComment&comment=352792)
+- [DON &lpar;2006&rpar; TELUGU ALL VIDEO SONGS - UNTOUCHED 1080P WEBDL H264  - HYBRID DD &amp; DTS 5.1 - ESUBS - 1.8GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175174-don-2006-telugu-all-video-songs-untouched-1080p-webdl-h264%C2%A0-hybrid-dd-dts-51-esubs%C2%A0-18gb/&do=findComment&comment=352791)
+- [Kaadhal Kondein Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 5GB - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175178-kaadhal-kondein-tamil-true-web-dl-1080p-720p-avc-5gb-25gb-14gb-x264-700mb-400mb/&do=findComment&comment=352790)
 - [Kaadhal Kondein Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 5GB - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175178-kaadhal-kondein-tamil-true-web-dl-1080p-720p-avc-5gb-25gb-14gb-x264-700mb-400mb/&do=findComment&comment=352789)
-- [Virumaandi &lpar;2004&rpar; AMZN WEB-DL DDP2.0 Esubs x264 - 1080p | 720p - 12.3 GB | 7.2 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175177-virumaandi-2004-amzn-web-dl-ddp20-esubs-x264-1080p-720p-123-gb-72-gb/&do=findComment&comment=352788)
-- [Vikramarkudu &lpar;2006&rpar;.Tamil.1080p.DVD9Rip.HEVC.DD5.1 448Kbps - 3.9GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175176-vikramarkudu-2006tamil1080pdvd9riphevcdd51-448kbps-39gb/&do=findComment&comment=352787)
-- [Vivaha Avahanam &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 5.1 - 253Kbps&rpar; - 3GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175139-vivaha-avahanam-2023-malayalam-true-web-dl-1080p-720p-avc-aac-51-253kbps-3gb-14gb-x264-700mb-400mb/&do=findComment&comment=352786)
-- [Ghilli &lpar;2004&rpar; 1080p DSNP WEB-DL AAC.2.0 Esubs x264 - 3.8 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175175-ghilli-2004-1080p-dsnp-web-dl-aac20-esubs-x264-38-gb/&do=findComment&comment=352785)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
