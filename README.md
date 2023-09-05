@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chakkaramaavin Munthiri | Kanmashi | Vineeth Kumar | Nithya Das | Yesudas | M.Jayachandran](https://www.youtube.com/watch?v=sVlkCaCQMQs)
+- [Vrindavanam | Video | K S Sudeep Kumar | Anitha Devi J | Perumbavoor G Ravindranath](https://www.youtube.com/watch?v=ltgPDXE3IFs)
 - [Amma Sukruthangal day 5](https://www.youtube.com/watch?v=20xdcmVRrKY)
 - [ജനപ്രിയഗായകൻ കെ ജി മാർക്കോസിന്റെ ഏറെ ഇഷ്ടമുള്ള ഗാനങ്ങൾ |Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=kreCCdklvHo)
 - [8 നോമ്പ് പ്രാർത്ഥനയും ഗാനങ്ങളും  # 8 Nombu Mariyan Gaanangal # Mother Mary songs 5th September 2023](https://www.youtube.com/watch?v=c9wonZ92AJc)
 - [8 നോമ്പ് ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം  # 8 nombu songs malayalam September 4th  2023](https://www.youtube.com/watch?v=nkI4ZuKPuPQ)
-- [Japamala 5th of September 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 5th of September 2023](https://www.youtube.com/watch?v=9SpGYx6d_hk)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=sWDgXKolFRE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
