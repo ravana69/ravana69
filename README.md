@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ജനപ്രിയഗായകൻ കെ ജി മാർക്കോസിന്റെ ഏറെ ഇഷ്ടമുള്ള ഗാനങ്ങൾ |Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=kreCCdklvHo)
+- [8 നോമ്പ് പ്രാർത്ഥനയും ഗാനങ്ങളും  # 8 Nombu Mariyan Gaanangal # Mother Mary songs 5th September 2023](https://www.youtube.com/watch?v=c9wonZ92AJc)
+- [8 നോമ്പ് ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം  # 8 nombu songs malayalam September 4th  2023](https://www.youtube.com/watch?v=nkI4ZuKPuPQ)
+- [Japamala 5th of September 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 5th of September 2023](https://www.youtube.com/watch?v=9SpGYx6d_hk)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=sWDgXKolFRE)
 - [രാവിലെ പ്രാര്‍ത്ഥന  September 5 # Athiravile Prarthana 5th of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=YV_dziXu5FQ)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 5th SEP 2023](https://www.youtube.com/watch?v=EfZeJiDo-1c)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=urt2CjJFnK0)
-- [Hippity Hop for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=2q7uzkVfTsA)
-- [അമ്മയോളം സ്നേഹം തന്നവരില്ല ഇത്രയും കരുതലുള്ള മറ്റാരുമില്ല .](https://www.youtube.com/watch?v=wJnFl2xKRic)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
