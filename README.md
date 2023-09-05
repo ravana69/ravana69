@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP03 DAY 02 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 492MB &amp; 235MB | 05-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175182-bigg-boss-telugu-s07-ep03-day-02-hdtv-1080p-720p-480p-avc-untouched-1gb-492mb-235mb-05-09-2023/&do=findComment&comment=352818)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP02 DAY 01 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 906MB - 443MB &amp; 193MB | 04-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175173-bigg-boss-telugu-s07-ep02-day-01-hdtv-1080p-720p-480p-avc-untouched-906mb-443mb-193mb-04-09-2023/&do=findComment&comment=352817)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP01 DAY 00 HDTV - [1080p, 720p, 480p &amp; 360p - AVC - UNTOUCHED - 3.4GB - 1.7GB - 732MB &amp; 481MB | 03-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175163-bigg-boss-telugu-s07-ep01-day-00-hdtv-1080p-720p-480p-360p-avc-untouched-34gb-17gb-732mb-481mb-03-09-2023/&do=findComment&comment=352816)
 - [MANMADHUDU &lpar;2002&rpar; TELUGU &lpar;Music VIdeo Album&rpar; - 1080P - WEB-HD - AVC - DTS® 5.1 @ 1536Kbps - 600MB  〰️ [avatar]](https://www.1tamilmv.nexus/index.php?/forums/topic/171033-manmadhudu-2002-telugu-music-video-album-1080p-web-hd-avc-dts%C2%AE-51-1536kbps-600mb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=352815)
 - [[KING] Nagarjuna Birthday Special [MUSIC VIDEOS ALBUMS] 1080p AVC by Anil Kumar [Extraordinary]](https://www.1tamilmv.nexus/index.php?/forums/topic/168467-king-nagarjuna-birthday-special-music-videos-albums-1080p-avc-by-anil-kumar-extraordinary/&do=findComment&comment=352814)
-- [📌 JALSA &lpar;2008&rpar; &lpar;Music Video Album&rpar; - 1080P - JC - WEBDL - H264 - DD® 5.1 @ 448 Kbps - DVD Sync - ESubs - 1.5GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175152-%F0%9F%93%8C-jalsa-2008-music-video-album-1080p-jc-webdl-h264-dd%C2%AE-51-448-kbps-dvd-sync-esubs-15gb/&do=findComment&comment=352813)
-- [DON &lpar;2006&rpar; TELUGU ALL VIDEO SONGS - UNTOUCHED 1080P WEBDL H264  - HYBRID DD &amp; DTS 5.1 - ESUBS - 1.8GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175174-don-2006-telugu-all-video-songs-untouched-1080p-webdl-h264%C2%A0-hybrid-dd-dts-51-esubs%C2%A0-18gb/&do=findComment&comment=352812)
-- [50 Telugu Movies - BluRay/AMZN/SUN NXT/ZEE5 WEB DL - H264 - DD5.1/AAC2.0 - ESub [GDRIVE]](https://www.1tamilmv.nexus/index.php?/forums/topic/166971-50-telugu-movies-blurayamznsun-nxtzee5-web-dl-h264-dd51aac20-esub-gdrive/&do=findComment&comment=352811)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
