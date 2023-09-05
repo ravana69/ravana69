@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP03 DAY 02 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 492MB &amp; 235MB | 05-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175182-bigg-boss-telugu-s07-ep03-day-02-hdtv-1080p-720p-480p-avc-untouched-1gb-492mb-235mb-05-09-2023/&do=findComment&comment=352810)
 - [BUNNY &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 5.1GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175169-bunny-2005-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-51gb-esub/&do=findComment&comment=352809)
 - [Inspector Gadget &lpar;1999&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264- &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 1.5GB &amp; 900MB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175180-inspector-gadget-1999-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-15gb-900mb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=352808)
 - [Inspector Gadget &lpar;1999&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264- &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 1.5GB &amp; 900MB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175180-inspector-gadget-1999-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-15gb-900mb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=352807)
 - [Kaadhal Kondein Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 5GB - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175178-kaadhal-kondein-tamil-true-web-dl-1080p-720p-avc-5gb-25gb-14gb-x264-700mb-400mb/&do=findComment&comment=352806)
-- [Friday Night Plan &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Hindi] - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175122-friday-night-plan-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-hindi-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352805)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
