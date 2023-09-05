@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Love For #NeelaNilave Never Ends 💖🕺 | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=nOSDZAISzME)
-- [Ninnodenikkulla Pranayam.. | DR. Love | Bhavana](https://www.youtube.com/watch?v=gx6BbgGCBjo)
-- [Celebrating Akhil Marar's Epic Birthday Event in Dubai | #akhilmarar #ajmalkhan #birthdayspecial](https://www.youtube.com/watch?v=AaeNwunaQiU)
-- [Akhil Marar Birthday Special Event in Dubai  | Movie World Media | #akhilmarar #ajmalkhan #dubai](https://www.youtube.com/watch?v=Fuz2qn_wsos)
-- [Steppin' into the spotlight 💫 for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=3s1qUDCpGkw)
-- [പാത്താലും പാത്തെനടി പുള്ളിറങ്കുമ... | Tribal Song | Anjana Teacher | Abhijith | 4K Video | Folk Song](https://www.youtube.com/watch?v=cAKfitHa62s)
+- [Nadha En Vili Kelkkename | Kelkkan Kothikkunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=wR7JTsTgLXY)
+- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=20PKmoCW4UE)
+- [Ithra Madhurikkumo Video Song | KJ Yesudas | Bombay Ravi | Yusufali Kecheri | Five Star Hospital](https://www.youtube.com/watch?v=hhRpYDwSYSo)
+- [Kashmeeri Penne Va Va | Guru Shishyan | Gireesh Puthenchery | Johnson | MG Sreekumar | Swarnalatha](https://www.youtube.com/watch?v=lRbYcDASLKg)
+- [മനസ്സിൽ വർണ്ണമഴ പൊഴിച്ച മലയാളത്തിലെ നിത്യഹരിതഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=xVi7f24I0b4)
+- [Thulunadan Pattudutha | Paalattu Kunjikannan | Yusufali Kecheri | G Devarajan | P Susheela](https://www.youtube.com/watch?v=MaueoQIiXeU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
