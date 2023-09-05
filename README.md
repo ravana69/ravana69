@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Chakkaramaavin Munthiri | Kanmashi | Vineeth Kumar | Nithya Das | Yesudas | M.Jayachandran](https://www.youtube.com/watch?v=sVlkCaCQMQs)
-- [Vrindavanam | Video | K S Sudeep Kumar | Anitha Devi J | Perumbavoor G Ravindranath](https://www.youtube.com/watch?v=ltgPDXE3IFs)
-- [Amma Sukruthangal day 5](https://www.youtube.com/watch?v=20xdcmVRrKY)
-- [ജനപ്രിയഗായകൻ കെ ജി മാർക്കോസിന്റെ ഏറെ ഇഷ്ടമുള്ള ഗാനങ്ങൾ |Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=kreCCdklvHo)
-- [8 നോമ്പ് പ്രാർത്ഥനയും ഗാനങ്ങളും  # 8 Nombu Mariyan Gaanangal # Mother Mary songs 5th September 2023](https://www.youtube.com/watch?v=c9wonZ92AJc)
-- [8 നോമ്പ് ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം  # 8 nombu songs malayalam September 4th  2023](https://www.youtube.com/watch?v=nkI4ZuKPuPQ)
+- [Love For #NeelaNilave Never Ends 💖🕺 | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=nOSDZAISzME)
+- [Ninnodenikkulla Pranayam.. | DR. Love | Bhavana](https://www.youtube.com/watch?v=gx6BbgGCBjo)
+- [Celebrating Akhil Marar's Epic Birthday Event in Dubai | #akhilmarar #ajmalkhan #birthdayspecial](https://www.youtube.com/watch?v=AaeNwunaQiU)
+- [Akhil Marar Birthday Special Event in Dubai  | Movie World Media | #akhilmarar #ajmalkhan #dubai](https://www.youtube.com/watch?v=Fuz2qn_wsos)
+- [Steppin' into the spotlight 💫 for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=3s1qUDCpGkw)
+- [പാത്താലും പാത്തെനടി പുള്ളിറങ്കുമ... | Tribal Song | Anjana Teacher | Abhijith | 4K Video | Folk Song](https://www.youtube.com/watch?v=cAKfitHa62s)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
