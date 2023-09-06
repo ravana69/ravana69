@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നോവ് | NOVU | BASTIN AUGUSTIN JOY CHERUVATHOOR |OWN MEDIA MUSIC|](https://www.youtube.com/watch?v=ck1sjXR9e-I)
 - [Kolakuzhal Vili Ketto Video Song | Nivedyam | Vinu Mohan | Bhama | Shweta Mohan | Vijay Yesudas](https://www.youtube.com/watch?v=C4Ucyo4BLIg)
 - [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=A_Xp8ueWnrg)
 - [അത്രമേൽ പ്രിയമുള്ള മലയാളസിനിമാഗാനങ്ങൾ | EVEREGREEN MALAYALAM FILM SONGS | NISARI MUSIC | SUPERHITS](https://www.youtube.com/watch?v=9hCzMR4xPbk)
 - [Anthimukil Praavin | Guru Shishyan | Gireesh Puthenchery | Johnson | KJ Yesudas | Jagatheesh](https://www.youtube.com/watch?v=23zKfNtrtAU)
 - [Aazhithiramaalakal | Mukkuvane Snehicha Bhootham 1978| K.J. Joy | Vani Jairam | Malayalam Movie Song](https://www.youtube.com/watch?v=cgohUPoHTX4)
-- [Lavan Kashmalan | Karaoke Video | Malarvaadi Arts Club | Vineeth Sreenivasan | Shaan Rahman](https://www.youtube.com/watch?v=RMIOTxYqaII)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
