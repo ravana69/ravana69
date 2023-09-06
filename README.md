@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=Wo6q_DWW_gI)
 - [പ്രഭാത പ്രാര്‍ത്ഥന September 6 # Athiravile Prarthana 6th of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=1UHt-S0C-BU)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 6th SEP 2023](https://www.youtube.com/watch?v=rMwirnCaib4)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=_xhUFjOOCHY)
 - [എം ജി രാധാകൃഷ്ണൻറെ ഹിറ്റ് സിനിമാഗാനങ്ങൾ | M G Radhakrishnan Hits | കെ ജെ യേശുദാസ് | Remastered songs](https://www.youtube.com/watch?v=pCi4Yq9jmqE)
 - [നന്മ നിറഞ്ഞവളെ കന്യാമറിയമേ ....](https://www.youtube.com/watch?v=3qagH194V5E)
-- [Aradhikkumbol Viduthal | Kester | Praise and Worship Songs | Christian Songs Malayalam](https://www.youtube.com/watch?v=7u6WjwZW-6M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
