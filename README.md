@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=A_Xp8ueWnrg)
+- [അത്രമേൽ പ്രിയമുള്ള മലയാളസിനിമാഗാനങ്ങൾ | EVEREGREEN MALAYALAM FILM SONGS | NISARI MUSIC | SUPERHITS](https://www.youtube.com/watch?v=9hCzMR4xPbk)
+- [Anthimukil Praavin | Guru Shishyan | Gireesh Puthenchery | Johnson | KJ Yesudas | Jagatheesh](https://www.youtube.com/watch?v=23zKfNtrtAU)
 - [Aazhithiramaalakal | Mukkuvane Snehicha Bhootham 1978| K.J. Joy | Vani Jairam | Malayalam Movie Song](https://www.youtube.com/watch?v=cgohUPoHTX4)
 - [Lavan Kashmalan | Karaoke Video | Malarvaadi Arts Club | Vineeth Sreenivasan | Shaan Rahman](https://www.youtube.com/watch?v=RMIOTxYqaII)
 - [Amma Sukruthangal day 6](https://www.youtube.com/watch?v=ZvrJL2vaTSo)
-- [Ithuvareyenne | Chithra Arun | M E Cherian  #malayalamchristiansongs #devotionalsongs](https://www.youtube.com/watch?v=N-XGsh3fJcU)
-- [8 നോമ്പ് പ്രാർത്ഥനയും ഗാനങ്ങളും  # 8 Nombu Mariyan Gaanangal # Mother Mary songs 6th September 2023](https://www.youtube.com/watch?v=kVca1TjbGjo)
-- [Thiruhrudayathin Munpil | Alenia Mol | Baby John Kalayanthani | Christian Video Song | Joji Johns](https://www.youtube.com/watch?v=TvgZ3eMm7f0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
