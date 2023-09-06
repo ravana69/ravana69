@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Billa &lpar;2009&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.6GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/174713-billa-2009-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-76gb-esub/&do=findComment&comment=352826)
+- [Baadshah &lpar;2013&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD5.1 - 448Kbps&rpar; - 6.9GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175179-baadshah-2013-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-69gb-esub/&do=findComment&comment=352825)
+- [Hosa Dinachari &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB &amp; 1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175186-hosa-dinachari-2022-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-29gb-1gb-x264-700mb-400mb-esub/&do=findComment&comment=352824)
 - [The Flash &lpar;2023&rpar; 2160p 4K HDR10 - Bluray - HEVC - Multi Original Audios - [Tamil + Telugu + Hindi &lpar;DD5 1~ 640Kbps] + [English &lpar;TRUE HD 7.1&rpar;] - x265 - ESub.mkv - [10.44 GB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175185-the-flash-2023-2160p-4k-hdr10-bluray-hevc-multi-original-audios-tamil-telugu-hindi-dd5-1~-640kbps-english-true-hd-71-x265-esubmkv-1044-gb/&do=findComment&comment=352823)
 - [Jailer - Kaavaalaa &lpar;Full Video Song&rpar;.1080p.SUNNXT.Web-dl.x264.DD5.1 + DTSHD5.1 &lpar;24Bit FLAC Upmixed&rpar; - 203MB](https://www.1tamilmv.nexus/index.php?/forums/topic/175184-jailer-kaavaalaa-full-video-song1080psunnxtweb-dlx264dd51-dtshd51-24bit-flac-upmixed-203mb/&do=findComment&comment=352822)
-- [BUNNY &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 5.1GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175169-bunny-2005-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-51gb-esub/&do=findComment&comment=352821)
-- [Chandramukhi &lpar;2005&rpar; REMASTERED - Tamil - TRUE WEB-DL - 4K , 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - [DD5.1&lpar;320kbps&rpar; + AAC2.0&lpar;128kbps&rpar;] - 8.7GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175183-chandramukhi-2005-remastered-tamil-true-web-dl-4k-1080p-720p-avc-hevc-untouched-dd51320kbps-aac20128kbps-87gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-gdrive/&do=findComment&comment=352820)
-- [Captain Miller -Teaser | Dhanush | Shivarajkumar, Sundeep Kishan, Priyanka Mohan | Arun Matheswaran](https://www.1tamilmv.nexus/index.php?/forums/topic/174554-captain-miller-teaser-dhanush-shivarajkumar-sundeep-kishan-priyanka-mohan-arun-matheswaran/&do=findComment&comment=352819)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
