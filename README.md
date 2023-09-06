@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Chandramukhi &lpar;2005&rpar; REMASTERED - Tamil - TRUE WEB-DL - 4K , 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - [DD5.1&lpar;320kbps&rpar; + AAC2.0&lpar;128kbps&rpar;] - 8.7GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175183-chandramukhi-2005-remastered-tamil-true-web-dl-4k-1080p-720p-avc-hevc-untouched-dd51320kbps-aac20128kbps-87gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-gdrive/&do=findComment&comment=352820)
 - [Captain Miller -Teaser | Dhanush | Shivarajkumar, Sundeep Kishan, Priyanka Mohan | Arun Matheswaran](https://www.1tamilmv.nexus/index.php?/forums/topic/174554-captain-miller-teaser-dhanush-shivarajkumar-sundeep-kishan-priyanka-mohan-arun-matheswaran/&do=findComment&comment=352819)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP03 DAY 02 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 492MB &amp; 235MB | 05-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175182-bigg-boss-telugu-s07-ep03-day-02-hdtv-1080p-720p-480p-avc-untouched-1gb-492mb-235mb-05-09-2023/&do=findComment&comment=352818)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP02 DAY 01 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 906MB - 443MB &amp; 193MB | 04-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175173-bigg-boss-telugu-s07-ep02-day-01-hdtv-1080p-720p-480p-avc-untouched-906mb-443mb-193mb-04-09-2023/&do=findComment&comment=352817)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP01 DAY 00 HDTV - [1080p, 720p, 480p &amp; 360p - AVC - UNTOUCHED - 3.4GB - 1.7GB - 732MB &amp; 481MB | 03-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175163-bigg-boss-telugu-s07-ep01-day-00-hdtv-1080p-720p-480p-360p-avc-untouched-34gb-17gb-732mb-481mb-03-09-2023/&do=findComment&comment=352816)
-- [MANMADHUDU &lpar;2002&rpar; TELUGU &lpar;Music VIdeo Album&rpar; - 1080P - WEB-HD - AVC - DTS® 5.1 @ 1536Kbps - 600MB  〰️ [avatar]](https://www.1tamilmv.nexus/index.php?/forums/topic/171033-manmadhudu-2002-telugu-music-video-album-1080p-web-hd-avc-dts%C2%AE-51-1536kbps-600mb-%E3%80%B0%EF%B8%8F-avatar/&do=findComment&comment=352815)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
