@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [I Am Groot &lpar;2023&rpar; S02 EP &lpar;01-05&rpar; English HQ HDRip - 1080p &amp; 720p - x264 - &lpar;DD5.1 - 192Kbps&rpar; - 500MB - 180MB &amp; 80MB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175188-i-am-groot-2023-s02-ep-01-05-english-hq-hdrip-1080p-720p-x264-dd51-192kbps-500mb-180mb-80mb-esub/&do=findComment&comment=352834)
 - [Temper &lpar;2015&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175187-temper-2015-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-6gb-esub/&do=findComment&comment=352833)
 - [Chandramukhi &lpar;2005&rpar; REMASTERED - Tamil - TRUE WEB-DL - 4K , 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - [DD5.1&lpar;320kbps&rpar; + AAC2.0&lpar;128kbps&rpar;] - 8.7GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175183-chandramukhi-2005-remastered-tamil-true-web-dl-4k-1080p-720p-avc-hevc-untouched-dd51320kbps-aac20128kbps-87gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-gdrive/&do=findComment&comment=352832)
 - [JALSA &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7.4GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175151-jalsa-2008-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-74gb-esub/&do=findComment&comment=352831)
 - [Temper &lpar;2015&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175187-temper-2015-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-6gb-esub/&do=findComment&comment=352830)
-- [I Am Groot &lpar;2023&rpar; S02 EP &lpar;01-05&rpar; English HQ HDRip - 1080p &amp; 720p - x264 - &lpar;DD5.1 - 192Kbps&rpar; - 500MB - 180MB &amp; 80MB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175188-i-am-groot-2023-s02-ep-01-05-english-hq-hdrip-1080p-720p-x264-dd51-192kbps-500mb-180mb-80mb-esub/&do=findComment&comment=352829)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
