@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aazhithiramaalakal | Mukkuvane Snehicha Bhootham 1978| K.J. Joy | Vani Jairam | Malayalam Movie Song](https://www.youtube.com/watch?v=cgohUPoHTX4)
+- [Lavan Kashmalan | Karaoke Video | Malarvaadi Arts Club | Vineeth Sreenivasan | Shaan Rahman](https://www.youtube.com/watch?v=RMIOTxYqaII)
 - [Amma Sukruthangal day 6](https://www.youtube.com/watch?v=ZvrJL2vaTSo)
 - [Ithuvareyenne | Chithra Arun | M E Cherian  #malayalamchristiansongs #devotionalsongs](https://www.youtube.com/watch?v=N-XGsh3fJcU)
 - [8 നോമ്പ് പ്രാർത്ഥനയും ഗാനങ്ങളും  # 8 Nombu Mariyan Gaanangal # Mother Mary songs 6th September 2023](https://www.youtube.com/watch?v=kVca1TjbGjo)
 - [Thiruhrudayathin Munpil | Alenia Mol | Baby John Kalayanthani | Christian Video Song | Joji Johns](https://www.youtube.com/watch?v=TvgZ3eMm7f0)
-- [മാതാവിൻറെ 8 നോമ്പ് ഗാനങ്ങൾ #8 nombu songs for september 2023 #daily mother mary prayer and songs dev](https://www.youtube.com/watch?v=-nSIydSggtg)
-- [Japamala 6th of September 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 6th of September 2023](https://www.youtube.com/watch?v=pUHLBpKzpRk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
