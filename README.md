@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Naadam | Sindoorarekha | Suresh Gopi | Ranjitha | Sharreth | KJ Yesudas | Sobana | Kaithapram](https://www.youtube.com/watch?v=2XqLmZgsGPU)
+- [തലമുറകൾ തോറും പാടും ഭാഗ്യവതി അമ്മ...](https://www.youtube.com/watch?v=_e70sYMk79s)
 - [Christian Melody Songs | Jessy Raju | Christian Superhit Songs | Bindhu Thomas | Christian Songs](https://www.youtube.com/watch?v=nYVLulc0_iM)
 - [കേട്ടനാൾ തൊട്ട് മനസ്സിൽ കുടിയിരുത്തിയ മനസ്സ് മടുക്കാത്ത മലയാളസിനിമാഗാനങ്ങൾ | HIT SONGS MALAYALAM](https://www.youtube.com/watch?v=EiN4jGyHA7A)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 6th of September 2023](https://www.youtube.com/watch?v=MqE-4XU7zWQ)
 - [ഇതാ നിനക്കായി ദൈവമൊരു വാതിൽ തുറന്നു വെച്ചിരിക്കുന്നു.| Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=5fHUbAmnpxs)
-- [അഷ്ടമിരോഹിണി നാളിൽ |#kschithra  |#tharangini |#ytshorts | #lyrics |#viral |#lordkrishna |#devotional](https://www.youtube.com/watch?v=Ywxk9XIlfpI)
-- [Muthukkudangale [Vellinilaavoru] | Naalkkavala |  KS Chithra | Chorus | CO Anto | Krishnachandran |](https://www.youtube.com/watch?v=TSmsSvtwRGA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
