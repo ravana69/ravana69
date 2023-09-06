@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [I Am Groot &lpar;2023&rpar; S02 EP &lpar;01-05&rpar; English HQ HDRip - 1080p &amp; 720p - x264 - &lpar;DD5.1 - 192Kbps&rpar; - 500MB - 180MB &amp; 80MB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175188-i-am-groot-2023-s02-ep-01-05-english-hq-hdrip-1080p-720p-x264-dd51-192kbps-500mb-180mb-80mb-esub/&do=findComment&comment=352840)
+- [Temper &lpar;2015&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175187-temper-2015-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-6gb-esub/&do=findComment&comment=352839)
 - [Temper &lpar;2015&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175187-temper-2015-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-6gb-esub/&do=findComment&comment=352838)
 - [Hosa Dinachari &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB &amp; 1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175186-hosa-dinachari-2022-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-29gb-1gb-x264-700mb-400mb-esub/&do=findComment&comment=352837)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP03 DAY 02 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 492MB &amp; 235MB | 05-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175182-bigg-boss-telugu-s07-ep03-day-02-hdtv-1080p-720p-480p-avc-untouched-1gb-492mb-235mb-05-09-2023/&do=findComment&comment=352836)
-- [Hosa Dinachari &lpar;2022&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB &amp; 1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175186-hosa-dinachari-2022-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-29gb-1gb-x264-700mb-400mb-esub/&do=findComment&comment=352835)
-- [I Am Groot &lpar;2023&rpar; S02 EP &lpar;01-05&rpar; English HQ HDRip - 1080p &amp; 720p - x264 - &lpar;DD5.1 - 192Kbps&rpar; - 500MB - 180MB &amp; 80MB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175188-i-am-groot-2023-s02-ep-01-05-english-hq-hdrip-1080p-720p-x264-dd51-192kbps-500mb-180mb-80mb-esub/&do=findComment&comment=352834)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
