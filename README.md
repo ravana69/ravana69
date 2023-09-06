@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Thaane Paadum Veene | Arabikkatha | Rajeev Kodamballi | TR Soumya | Bijibal | Anil Panachooran](https://www.youtube.com/watch?v=OftpR160OhQ)
-- [Kushi (Malayalam) Title Song - Full Video | Vijay Deverakonda, Samantha | Hesham Abdul Wahab](https://www.youtube.com/watch?v=2dSLQM46Hgw)
-- [നോവ് | NOVU | BASTIN AUGUSTIN JOY CHERUVATHOOR |OWN MEDIA MUSIC|](https://www.youtube.com/watch?v=ck1sjXR9e-I)
-- [Kolakuzhal Vili Ketto Video Song | Nivedyam | Vinu Mohan | Bhama | Shweta Mohan | Vijay Yesudas](https://www.youtube.com/watch?v=C4Ucyo4BLIg)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=A_Xp8ueWnrg)
-- [അത്രമേൽ പ്രിയമുള്ള മലയാളസിനിമാഗാനങ്ങൾ | EVEREGREEN MALAYALAM FILM SONGS | NISARI MUSIC | SUPERHITS](https://www.youtube.com/watch?v=9hCzMR4xPbk)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 6th of September 2023](https://www.youtube.com/watch?v=MqE-4XU7zWQ)
+- [ഇതാ നിനക്കായി ദൈവമൊരു വാതിൽ തുറന്നു വെച്ചിരിക്കുന്നു.| Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=5fHUbAmnpxs)
+- [അഷ്ടമിരോഹിണി നാളിൽ |#kschithra  |#tharangini |#ytshorts | #lyrics |#viral |#lordkrishna |#devotional](https://www.youtube.com/watch?v=Ywxk9XIlfpI)
+- [Muthukkudangale [Vellinilaavoru] | Naalkkavala |  KS Chithra | Chorus | CO Anto | Krishnachandran |](https://www.youtube.com/watch?v=TSmsSvtwRGA)
+- [Master of The Masses | Masterpiece Movie Song | Mammootty | Deepak Dev | Malayalam Film Songs](https://www.youtube.com/watch?v=tGu0vYafnM0)
+- [Karukavayal Kuruvi | Dhruvam | Evergreen Movie Song | Mammootty | Jayaram | Gouthami](https://www.youtube.com/watch?v=X3AyPIPNkj4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
