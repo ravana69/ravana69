@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vedalam &lpar;2015&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 320Kbps&rpar; - 4.5GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/174729-vedalam-2015-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-320kbps-45gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352881)
 - [Jawan &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175201-jawan-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352880)
 - [[Premium Large Format] Jailer &lpar;2023&rpar; AMZN WEB-DL DDP5.1 Esubs - 2160p [CBR] | 1080p | 720p - 20.8 GB | 13.1 GB | 7.5 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175212-premium-large-format-jailer-2023-amzn-web-dl-ddp51-esubs-2160p-cbr-1080p-720p-208-gb-131-gb-75-gb/&do=findComment&comment=352879)
 - [Sniper. The White Raven &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - AVC - &lpar;DD+2.0 - 224Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Ukr&rpar; - 2.5GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175199-sniper-the-white-raven-2022-bluray-original-audios-1080p-720p-avc-dd20-224kbps-tamil-telugu-hindi-ukr-25gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=352878)
 - [Jawan &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175202-jawan-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352868)
-- [Jawan &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175201-jawan-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352867)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
