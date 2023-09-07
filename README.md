@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [8 നോമ്പ് പ്രാർത്ഥനയും ഗാനങ്ങളും  # 8 Nombu Mariyan Gaanangal # Mother Mary songs 7th September 2023](https://www.youtube.com/watch?v=cz_chfVddG4)
+- [Christian Superhit Songs | MG Sreekumar | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=HnzKHC7qWLY)
+- [മാതാവിൻറെ 8 നോമ്പ് ഗാനങ്ങൾ #8 nombu songs for september 2023 7th  of September mother mary prayer](https://www.youtube.com/watch?v=CgIITYiIwkw)
+- [Japamala 7th of September 2023 # Mathavinte Japamala Prakashathinte Rahasyangal 7th of September 23](https://www.youtube.com/watch?v=i1Wwm-7C7Dw)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=fzc0Co2wY2w)
 - [രാവിലെ പ്രാര്‍ത്ഥന  September 7 # Athiravile Prarthana 7th of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=mmleaUjoHLg)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 7th SEP 2023](https://www.youtube.com/watch?v=7j8h4W-um14)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=8hHp2AmHb5o)
-- [Romance on Repeat 💫 for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=SKuEA3c6sKo)
-- [Tharalitha Raavil Video Song | Mammootty | KJ Yesudas | MM Keeravani | Kaithapram | Soorya Manasam](https://www.youtube.com/watch?v=jKyQqaDqkcc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
