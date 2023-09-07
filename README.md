@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Swargaropitha Ranji | Sandra Joy | Fr. Subin kalayamkandathil | Kings & Queens band | Marian Song](https://www.youtube.com/watch?v=67l9YeqANuY)
 - [Releasing Soon...](https://www.youtube.com/watch?v=Kmf9fyYgLUI)
 - [Releasing Soon...](https://www.youtube.com/watch?v=ZcsUGCOuAxY)
 - [തന്നെ പുറത്താക്കാൻ ശ്രെമിച്ച മന്ത്രിയുടെ പേര് വെളുപ്പെടുത്താതെ അഖിൽ മാരാർ ! #akhilmarar](https://www.youtube.com/watch?v=YAnjUpiW6yY)
 - [അഖിൽ മാരാരിനെ പുറത്താക്കാൻ ഒരു മന്ത്രി ഇടപെടുന്നു !  ഇങ്ങേര് വീണ്ടും വിവാദം ഉണ്ടാക്കും ! #akhilmarar](https://www.youtube.com/watch?v=olZ_ih_BhVI)
 - [Kannum Kannum Video Song | Mohanlal | Raai Laxmi| Shankar Mahadevan| Shweta Mohan|Christian Brothers](https://www.youtube.com/watch?v=9wxmfOvVtBY)
-- [HAPPY BIRTHDAY AMMA](https://www.youtube.com/watch?v=dzXMmgBzRD8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
