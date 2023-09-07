@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Manikuttikkurumbulla Video Song | Mammootty | Ilayaraja | KJ Yesudas | Kaithapram | Kaliyoonjaal](https://www.youtube.com/watch?v=GeQcwoRe370)
-- [Ponnitta Pettakam | Pranayanilavu | Dileep | Mohini | Rahna | Bearny Ignatius](https://www.youtube.com/watch?v=ytCTzdJFq94)
-- [Sringaara Krishna | Ingane Oru Nilapakshi 2000 | K. S. Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=WCi0-TbO5Uo)
-- [Snehithe Varunnu | Mukalparappu  | Lyrical Video | Siby Padiyara | Pramod Sarang | JP Thavarool](https://www.youtube.com/watch?v=pTFUNUtwD2o)
-- [Amma Sukruthangal Day 7](https://www.youtube.com/watch?v=XcdrbMtRbmQ)
-- [എന്‍റെസമ്പത്തെന്നുചൊല്ലുവാൻ | Sadhu Kochukunjupadeshi #shorts  #malayalamchristianshorts](https://www.youtube.com/watch?v=v4bFieAnh6A)
+- [മമ്മൂക്കയുടെ പിറന്നാൾ ദിവസം കേൾക്കാൻ ആഗ്രഹിക്കുന്ന ഹിറ്റ് ഗാനങ്ങൾ | Mammookka Birthday Special Hits](https://www.youtube.com/watch?v=LKXkJWivU7E)
+- [Sree Bhoothanatha Bhujanga Stothram (Lyric Video)](https://www.youtube.com/watch?v=0NErOX4aWqs)
+- [L. Vaidyanathan, K.J. Yesudas - Aakaashamedakku Vaathilundo (Lyric Video)](https://www.youtube.com/watch?v=qte4Nw_uvfE)
+- [Pandit Ramesh Narayan, K.J. Yesudas - Eeshasuthan Ayya (Lyric Video)](https://www.youtube.com/watch?v=lhJTJV2ozhA)
+- [Pandit Ramesh Narayan, K.S. Chithra - Manikandaswamithan (Lyric Video)](https://www.youtube.com/watch?v=14nnYvTtmQY)
+- [Pandit Ramesh Narayan - Thathwamasi (Lyric Video)](https://www.youtube.com/watch?v=YyTzxP80xAc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
