@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Amma Sukruthangal Day 7](https://www.youtube.com/watch?v=XcdrbMtRbmQ)
 - [എന്‍റെസമ്പത്തെന്നുചൊല്ലുവാൻ | Sadhu Kochukunjupadeshi #shorts  #malayalamchristianshorts](https://www.youtube.com/watch?v=v4bFieAnh6A)
 - [8 നോമ്പ് പ്രാർത്ഥനയും ഗാനങ്ങളും  # 8 Nombu Mariyan Gaanangal # Mother Mary songs 7th September 2023](https://www.youtube.com/watch?v=cz_chfVddG4)
 - [Christian Superhit Songs | MG Sreekumar | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=HnzKHC7qWLY)
 - [മാതാവിൻറെ 8 നോമ്പ് ഗാനങ്ങൾ #8 nombu songs for september 2023 7th  of September mother mary prayer](https://www.youtube.com/watch?v=CgIITYiIwkw)
 - [Japamala 7th of September 2023 # Mathavinte Japamala Prakashathinte Rahasyangal 7th of September 23](https://www.youtube.com/watch?v=i1Wwm-7C7Dw)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=fzc0Co2wY2w)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
