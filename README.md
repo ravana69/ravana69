@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Releasing Soon...](https://www.youtube.com/watch?v=Kmf9fyYgLUI)
+- [Releasing Soon...](https://www.youtube.com/watch?v=ZcsUGCOuAxY)
+- [തന്നെ പുറത്താക്കാൻ ശ്രെമിച്ച മന്ത്രിയുടെ പേര് വെളുപ്പെടുത്താതെ അഖിൽ മാരാർ ! #akhilmarar](https://www.youtube.com/watch?v=YAnjUpiW6yY)
 - [അഖിൽ മാരാരിനെ പുറത്താക്കാൻ ഒരു മന്ത്രി ഇടപെടുന്നു !  ഇങ്ങേര് വീണ്ടും വിവാദം ഉണ്ടാക്കും ! #akhilmarar](https://www.youtube.com/watch?v=olZ_ih_BhVI)
 - [Kannum Kannum Video Song | Mohanlal | Raai Laxmi| Shankar Mahadevan| Shweta Mohan|Christian Brothers](https://www.youtube.com/watch?v=9wxmfOvVtBY)
 - [HAPPY BIRTHDAY AMMA](https://www.youtube.com/watch?v=dzXMmgBzRD8)
-- [വിശ്വാസികൾ ഹൃദയത്തിൽ ഏറ്റെടുത്ത ക്രിസ്തീയ ഗാനങ്ങൾ  | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=McK811dsBPM)
-- [Vaave Makane | Pothan Vava | Afsal | Madhu Balakrishnan | Alex Paul | Vayalar Sarath Chandra Varma](https://www.youtube.com/watch?v=YpL5hzhUOVo)
-- [മലയാളത്തിൻറെ മെഗാസ്റ്റാർ മമ്മൂക്കയുടെ ഹിറ്റ് ഗാനങ്ങൾ | Mammookka Hits | Birthday special](https://www.youtube.com/watch?v=4cvOm3f6lPs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
