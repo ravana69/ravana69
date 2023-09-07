@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manikuttikkurumbulla Video Song | Mammootty | Ilayaraja | KJ Yesudas | Kaithapram | Kaliyoonjaal](https://www.youtube.com/watch?v=GeQcwoRe370)
 - [Ponnitta Pettakam | Pranayanilavu | Dileep | Mohini | Rahna | Bearny Ignatius](https://www.youtube.com/watch?v=ytCTzdJFq94)
 - [Sringaara Krishna | Ingane Oru Nilapakshi 2000 | K. S. Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=WCi0-TbO5Uo)
+- [Snehithe Varunnu | Mukalparappu  | Lyrical Video | Siby Padiyara | Pramod Sarang | JP Thavarool](https://www.youtube.com/watch?v=pTFUNUtwD2o)
 - [Amma Sukruthangal Day 7](https://www.youtube.com/watch?v=XcdrbMtRbmQ)
 - [എന്‍റെസമ്പത്തെന്നുചൊല്ലുവാൻ | Sadhu Kochukunjupadeshi #shorts  #malayalamchristianshorts](https://www.youtube.com/watch?v=v4bFieAnh6A)
-- [8 നോമ്പ് പ്രാർത്ഥനയും ഗാനങ്ങളും  # 8 Nombu Mariyan Gaanangal # Mother Mary songs 7th September 2023](https://www.youtube.com/watch?v=cz_chfVddG4)
-- [Christian Superhit Songs | MG Sreekumar | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=HnzKHC7qWLY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
