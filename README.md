@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Jailer &lpar;2023&rpar; TRUE WEB-DL - 1080p - x264 - AVC - DDP5.1 &lpar;640 Kbps&rpar;[Tamil + Telugu + Hindi + Malayalam + Kannada] - 13.11GB - ESub - GDRIVE](https://www.1tamilmv.nexus/index.php?/forums/topic/175198-jailer-2023-true-web-dl-1080p-x264-avc-ddp51-640-kbpstamil-telugu-hindi-malayalam-kannada-1311gb-esub-gdrive/&do=findComment&comment=352959)
 - [Jailer &lpar;2023&rpar; TRUE WEB-DL - 4K &amp; 1080p - HEVC / AVC - UNTOUCHED - [Tamil + Telugu + Malayalam + Kannada + Hindi] - DD+5.1&lpar;640kbps&rpar; - 20.8GB - 17.7GB - 13.1GB - 6.1GB &amp; 4.9GB - ESub [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175200-jailer-2023-true-web-dl-4k-1080p-hevc-avc-untouched-tamil-telugu-malayalam-kannada-hindi-dd51640kbps-208gb-177gb-131gb-61gb-49gb-esub-gdrive/&do=findComment&comment=352958)
 - [[Premium Large Format] Jailer &lpar;2023&rpar; AMZN WEB-DL DDP5.1 Esubs - 2160p [CBR] | 1080p | 720p - 20.8 GB | 13.1 GB | 7.5 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175212-premium-large-format-jailer-2023-amzn-web-dl-ddp51-esubs-2160p-cbr-1080p-720p-208-gb-131-gb-75-gb/&do=findComment&comment=352957)
 - [Jailer &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 10GB - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175193-jailer-2023-tamil-true-web-dl-4k1080p-720p-avc-hevc-dd51-640kbps-10gb-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352956)
 - [Jailer &lpar;2023&rpar; Tamil - TRUE WEB-DL - 4K &amp; 1080p - HEVC / AVC - UNTOUCHED - [DD+5.1&lpar;448kbps&rpar; Atmos + DD+5.1&lpar;640kbps&rpar;] - 18.4GB &amp; 10.7GB - ESub [HYBRID VERSION] [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175215-jailer-2023-tamil-true-web-dl-4k-1080p-hevc-avc-untouched-dd51448kbps-atmos-dd51640kbps-184gb-107gb-esub-hybrid-version-gdrive/&do=findComment&comment=352955)
-- [Archana 31 Not Out &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Malayalam] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175231-archana-31-not-out-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-malayalam-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352954)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
