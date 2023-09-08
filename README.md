@@ -36,8 +36,8 @@
 - [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=tFAdHTCvuc8)
 - [Chanchalakshi | Paalattu Kunjikannan | Yusufali Kecheri | G Devarajan | KJ Yesudas | Jayabharathi](https://www.youtube.com/watch?v=pH8Bi0ej8Bc)
 - [യേശു എൻ പക്ഷമായ് തീർന്നതിനാൽ... #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=wQ3UxVzp5FM)
+- [Maanatthambili | Sachin Raj | Vinod Kovoor | Mirshad Kaipamangalam | Aromalinte Aadhyathe Pranayam](https://www.youtube.com/watch?v=NHIIK47j3eU)
 - [സാധുവെന്നെ കൈവിടാതെ... #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=OsqbN4mrgOs)
-- [നീയെന്നെ തേടി വന്നു... #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=0PwAlBJ_LUk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
