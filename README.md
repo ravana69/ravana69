@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Nangal Famous &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175230-nangal-famous-2023-tamil-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352953)
 - [Transformers Hexalogy &lpar;2007 - 2018&rpar; Blu-Ray&#39;s- 720p - [Tamil + Telugu + Hindi + Eng] - 8.8GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/173752-transformers-hexalogy-2007-2018-blu-rays-720p-tamil-telugu-hindi-eng-88gb-esub/&do=findComment&comment=352952)
 - [Jailer &lpar;2023&rpar; Kannada TRUE WEB-DL - [4K,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 10GB - 4.3GB - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175196-jailer-2023-kannada-true-web-dl-4k1080p-720p-avc-hevc-dd51-640kbps-10gb-43gb-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=352951)
 - [Tamil Kudimagan &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175208-tamil-kudimagan-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352950)
 - [The Wheel Of Time &lpar;2023&rpar; S02 EP &lpar;01-04&rpar; TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Malayalam + Kannada + Eng] - 3.9GB - 1.6GB &amp; 900MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175118-the-wheel-of-time-2023-s02-ep-01-04-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-eng-39gb-16gb-900mb-esub/&do=findComment&comment=352949)
-- [I Am Groot &lpar;2023&rpar; S02 EP &lpar;01-05&rpar; English HQ HDRip - 1080p &amp; 720p - x264 - &lpar;DD5.1 - 192Kbps&rpar; - 500MB - 180MB &amp; 80MB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175188-i-am-groot-2023-s02-ep-01-05-english-hq-hdrip-1080p-720p-x264-dd51-192kbps-500mb-180mb-80mb-esub/&do=findComment&comment=352948)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
