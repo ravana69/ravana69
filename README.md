@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [8 nombu gaanangal #mother mary 8 nombu evergreen songs malayaalm 8th sep 2023](https://www.youtube.com/watch?v=rLWb1Vy40wI)
 - [Ithuvareyenne | Chithra Arun | M E Cherian  #malayalamchristiansongs #devotionalsongs](https://www.youtube.com/watch?v=0hphIebDu20)
 - [Songs Of The Week | Kester | Ettunombu Songs | Mariyan Songs Malayalam | Joji Johns | Mary Matha](https://www.youtube.com/watch?v=IC14T9X-N3c)
 - [8 നോമ്പ് പ്രാർത്ഥനയും ഗാനങ്ങളും  # 8 Nombu Mariyan Gaanangal # Mother Mary songs 8th September 2023](https://www.youtube.com/watch?v=BVwBlEUBnyk)
 - [എത്രയും ദയയുള്ള മാതാവേ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #Mother mary daily prayer malayalam septembe](https://www.youtube.com/watch?v=omXa22KZKOw)
 - [Amma Sukruthangal day 8](https://www.youtube.com/watch?v=OBecVuROYlA)
-- [Japamala 8th of September 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 8th of September 2023](https://www.youtube.com/watch?v=DhtFMvWD0y0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
