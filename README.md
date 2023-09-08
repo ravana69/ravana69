@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Namo Bhoothathma 2 &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175222-namo-bhoothathma-2-2023-kannada-true-web-dl-1080p-720p-avc-dd51-192kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=352929)
 - [The Wheel Of time &lpar;2021&rpar; Complete S01 Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;AAC 2.0&rpar; - 5GB - 2.5GB &amp; 1GB] - ESub [Google Drive]](https://www.1tamilmv.nexus/index.php?/forums/topic/173789-the-wheel-of-time-2021-complete-s01-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-aac-20-5gb-25gb-1gb-esub-google-drive/&do=findComment&comment=352928)
 - [Miss Shetty Mr Polishetty &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175206-miss-shetty-mr-polishetty-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352927)
 - [Music School &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB &amp; 1.5GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175226-music-school-2023-hindi-true-web-dl-1080p-720p-avc-dd51-640kbps-25gb-15gb-x264-700mb-400mb-esub/&do=findComment&comment=352926)
 - [Namo Bhoothathma 2 &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175222-namo-bhoothathma-2-2023-kannada-true-web-dl-1080p-720p-avc-dd51-192kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=352925)
-- [Love &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.5GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175217-love-2023-tamil-true-web-dl-4k1080p-720p-avc-hevc-dd51-384kbps-35gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352924)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
