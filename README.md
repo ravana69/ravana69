@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Parudeesa | Mother Mary Song Malayalam 2023 | Feat. Bro. Jojo, Fr Prince, Bro. Manu](https://www.youtube.com/watch?v=NW_CGQn8GdA)
-- [Gange Thudiyil Video Song | Mohanlal | KJ Yesudas | Gireesh Puthenchery | Raveendran| Vadakkumnadhan](https://www.youtube.com/watch?v=DY5fg1Msg4Y)
-- [Nilave Nilave | Chattakaari | Beautiful Song by Shreya Ghoshal #shorts](https://www.youtube.com/watch?v=BVu1hAyXDGQ)
-- [RATHRIKALA JAPAM | NEW CHRISTIAN SONG | KESTER | FR. PHINIL EZHARATH CMI | FR. JOSEPH VATTAKKATTU](https://www.youtube.com/watch?v=assmhuzw_7E)
-- [Broohi Krishna Ghana Shyama | Ingane Oru Nilapakshi 2000 | K. S. Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=OaQzJmwVsy0)
-- [Amme En Aasrayame | മാതാവിന്റെ പിറവി തിരുന്നാൾ മംഗളങ്ങൾ  | #shorts | #christianshorts #mathavu](https://www.youtube.com/watch?v=1S_tFN0qbQo)
+- [യേശു എൻ പക്ഷമായ് തീർന്നതിനാൽ... #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=wQ3UxVzp5FM)
+- [സാധുവെന്നെ കൈവിടാതെ... #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=OsqbN4mrgOs)
+- [നീയെന്നെ തേടി വന്നു... #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=0PwAlBJ_LUk)
+- [ഇതുവരെയെന്നെ കരുതിയ നാഥാ... #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=VZwnRwfx25c)
+- [ദേവാധി ദേവസുതൻ... #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=OIM_BroWoEI)
+- [കാന്തനേശു വാനമേഘേ... #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=C8DMMa10kpw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
