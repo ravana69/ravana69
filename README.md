@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Broohi Krishna Ghana Shyama | Ingane Oru Nilapakshi 2000 | K. S. Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=OaQzJmwVsy0)
+- [Amme En Aasrayame | മാതാവിന്റെ പിറവി തിരുന്നാൾ മംഗളങ്ങൾ  | #shorts | #christianshorts #mathavu](https://www.youtube.com/watch?v=1S_tFN0qbQo)
+- [Maymaasam June | Alice In Wonderland | Jayaram | Laya | Karthik | Vidyasagar](https://www.youtube.com/watch?v=K8zVlBJ_Ii0)
 - [8 nombu gaanangal #mother mary 8 nombu evergreen songs malayaalm 8th sep 2023](https://www.youtube.com/watch?v=rLWb1Vy40wI)
 - [Ithuvareyenne | Chithra Arun | M E Cherian  #malayalamchristiansongs #devotionalsongs](https://www.youtube.com/watch?v=0hphIebDu20)
 - [Songs Of The Week | Kester | Ettunombu Songs | Mariyan Songs Malayalam | Joji Johns | Mary Matha](https://www.youtube.com/watch?v=IC14T9X-N3c)
-- [8 നോമ്പ് പ്രാർത്ഥനയും ഗാനങ്ങളും  # 8 Nombu Mariyan Gaanangal # Mother Mary songs 8th September 2023](https://www.youtube.com/watch?v=BVwBlEUBnyk)
-- [എത്രയും ദയയുള്ള മാതാവേ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #Mother mary daily prayer malayalam septembe](https://www.youtube.com/watch?v=omXa22KZKOw)
-- [Amma Sukruthangal day 8](https://www.youtube.com/watch?v=OBecVuROYlA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
