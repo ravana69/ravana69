@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Songs Of The Week | Kester | Ettunombu Songs | Mariyan Songs Malayalam | Joji Johns | Mary Matha](https://www.youtube.com/watch?v=IC14T9X-N3c)
+- [8 നോമ്പ് പ്രാർത്ഥനയും ഗാനങ്ങളും  # 8 Nombu Mariyan Gaanangal # Mother Mary songs 8th September 2023](https://www.youtube.com/watch?v=BVwBlEUBnyk)
+- [എത്രയും ദയയുള്ള മാതാവേ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #Mother mary daily prayer malayalam septembe](https://www.youtube.com/watch?v=omXa22KZKOw)
+- [Amma Sukruthangal day 8](https://www.youtube.com/watch?v=OBecVuROYlA)
+- [Japamala 8th of September 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 8th of September 2023](https://www.youtube.com/watch?v=DhtFMvWD0y0)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=BrqBAMrhqSA)
-- [പ്രഭാത പ്രാര്‍ത്ഥന September 8 # Athiravile Prarthana 8th of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=BcSE2Z4fvsQ)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 8th SEP 2023](https://www.youtube.com/watch?v=g8jIDaPtMVY)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=mkAsAaDcs1M)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=chr9cngTr10)
-- [Swargaropitha Ranji | Sandra Joy | Fr. Subin kalayamkandathil | Kings & Queens band | Marian Song](https://www.youtube.com/watch?v=67l9YeqANuY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
