@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Kariraavin Kunnil | Pranayakaalam | Franko | Sayanora Philip | Ouseppachan | Rafeeq Ahamad](https://www.youtube.com/watch?v=fXYRS9eHlPE)
-- [Karutha kozhi|Bamboo Boys|Kalabhavan mani|Cochin Haneefa|Salim Kumar|](https://www.youtube.com/watch?v=frOQY0Z5l7U)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 8th of September 2023](https://www.youtube.com/watch?v=vMj1V6YnPQU)
-- [നിറയുന്ന മിഴികൾക്ക് നൂറ് കഥകൾ പറയുവാൻ കഴിയും | Rev. Aneesh P Joseph | #shorts #jesus](https://www.youtube.com/watch?v=dcN5QYKjPRs)
-- [ശോഭയോട് വിരോധമില്ല ! പക്ഷെ അവരെല്ലാം എന്നെ തകർക്കാൻ നോക്കിയവരാണ് ! #akhilmarar](https://www.youtube.com/watch?v=BjU-sbV0AB8)
-- [Ormakal Verodum | Video Song | Doctor Love | Kunchacko Boban | Vinu Thomas | Karthik](https://www.youtube.com/watch?v=K4V9kvo2CR0)
+- [ശോഭയുമായി വിരോധമില്ല ! എന്നാലും അവരെല്ലാം എന്നെ തകർക്കാൻ നോക്കിയവരാണെന്ന് മാരാർ ! #akhilmarar](https://www.youtube.com/watch?v=tiR9kIq_PrE)
+- [ദേവാംഗനേ നീയീ ഭൂമിയിൽ | Devangane Ee Boomiyil | Malayalam Movie Song| Swarnappakshikal | K J Yesudas](https://www.youtube.com/watch?v=G3i0fo9RTc0)
+- [Ente Ammayum Rajnhiyum | New Mariyan Video Song | Kester | Sojan Parakkal | Christian Video Song](https://www.youtube.com/watch?v=7l7XOWNxe60)
+- [നിന്റെ കഥ എഴുതിയാല്ലോന്ന് . | Neelavelicham Movie Scene | Tovino Thomas |  Aashiq Abu](https://www.youtube.com/watch?v=wyGm6Qm1afw)
+- [ചെറിയ പരിക്കണി INTRO |  Neelavelicham Movie Scene | Tovino Thomas | Aashiq Abu | Pramod Veliyanad |](https://www.youtube.com/watch?v=2Rcn_wzkAys)
+- [ഇത് നീയാണോ ഭാർഗ്ഗവികുട്ടി ? |  Neelavelicham Movie Scene | Tovino Thomas |  Aashiq Abu](https://www.youtube.com/watch?v=Y9LbZHlLHyg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
