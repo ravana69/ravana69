@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [അരളിയും കദളിയും പൂവിടും കാടിന്റെകരളിലിരുന്നു പൊൻ‌മുരളിയൂതുംഅറിയാത്ത പാട്ടുകാരാ..  #AraliyumKadaliyum](https://www.youtube.com/watch?v=6ntGiUALGYU)
+- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=tFAdHTCvuc8)
+- [Chanchalakshi | Paalattu Kunjikannan | Yusufali Kecheri | G Devarajan | KJ Yesudas | Jayabharathi](https://www.youtube.com/watch?v=pH8Bi0ej8Bc)
 - [യേശു എൻ പക്ഷമായ് തീർന്നതിനാൽ... #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=wQ3UxVzp5FM)
 - [സാധുവെന്നെ കൈവിടാതെ... #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=OsqbN4mrgOs)
 - [നീയെന്നെ തേടി വന്നു... #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=0PwAlBJ_LUk)
-- [ഇതുവരെയെന്നെ കരുതിയ നാഥാ... #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=VZwnRwfx25c)
-- [ദേവാധി ദേവസുതൻ... #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=OIM_BroWoEI)
-- [കാന്തനേശു വാനമേഘേ... #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=C8DMMa10kpw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
