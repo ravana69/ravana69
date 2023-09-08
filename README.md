@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kariraavin Kunnil | Pranayakaalam | Franko | Sayanora Philip | Ouseppachan | Rafeeq Ahamad](https://www.youtube.com/watch?v=fXYRS9eHlPE)
 - [Karutha kozhi|Bamboo Boys|Kalabhavan mani|Cochin Haneefa|Salim Kumar|](https://www.youtube.com/watch?v=frOQY0Z5l7U)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 8th of September 2023](https://www.youtube.com/watch?v=vMj1V6YnPQU)
 - [നിറയുന്ന മിഴികൾക്ക് നൂറ് കഥകൾ പറയുവാൻ കഴിയും | Rev. Aneesh P Joseph | #shorts #jesus](https://www.youtube.com/watch?v=dcN5QYKjPRs)
 - [ശോഭയോട് വിരോധമില്ല ! പക്ഷെ അവരെല്ലാം എന്നെ തകർക്കാൻ നോക്കിയവരാണ് ! #akhilmarar](https://www.youtube.com/watch?v=BjU-sbV0AB8)
 - [Ormakal Verodum | Video Song | Doctor Love | Kunchacko Boban | Vinu Thomas | Karthik](https://www.youtube.com/watch?v=K4V9kvo2CR0)
-- [Kinaavu Neyyum |  Naalkkavala | KS Chithra | Yusufali Kecheri | #shorts](https://www.youtube.com/watch?v=A-sBLqHo6f0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
