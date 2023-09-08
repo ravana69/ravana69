@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [8 September 2023](https://www.youtube.com/watch?v=wt1QSn2ZZyU)
+- [എല്ലാ നഴ്‌സുമാരോടും എനിക്ക് പറയാനുള്ളത് സൂചി കുത്തുമ്പോൾ പയ്യെ കുത്തണം ! AKHIL MARAR BIRTHDAY EVENT](https://www.youtube.com/watch?v=ZMt8ggq624Y)
 - [Muttathethum Thennale Video Song | Mohanlal | Meena | Gireesh Puthenchery | Vidyasagar | KJ Yesudas](https://www.youtube.com/watch?v=uc6JbFr9A8A)
 - [Kunu Kune Cheru | Yodha | Mohanlal | Jagathy | A R Rahman | Yesudas | Sangeeth Sivan | KS Chithra](https://www.youtube.com/watch?v=PqFRxCl4mOE)
 - [എന്നിൽ നിന്ന് കോൺടെന്റ് ഉണ്ടാവും ! ഞാനൊരുവില്ലനാവുമെന്നായിരുന്നു ബിഗ്‌ബോസിന്റെ പ്രതീക്ഷ #akhilmarar](https://www.youtube.com/watch?v=y0F6dOtVRtU)
 - [വില്ലനായി തോന്നിയെങ്കിലും കാണുംതോറും ഇഷ്ടം കൂടി വന്നു !  AKHIL MARAR BIRTHDAY EVENT IN DUBAI](https://www.youtube.com/watch?v=4su9jzHYrUg)
-- [ശോഭയുമായി വിരോധമില്ല ! എന്നാലും അവരെല്ലാം എന്നെ തകർക്കാൻ നോക്കിയവരാണെന്ന് മാരാർ ! #akhilmarar](https://www.youtube.com/watch?v=tiR9kIq_PrE)
-- [ദേവാംഗനേ നീയീ ഭൂമിയിൽ | Devangane Ee Boomiyil | Malayalam Movie Song| Swarnappakshikal | K J Yesudas](https://www.youtube.com/watch?v=G3i0fo9RTc0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
