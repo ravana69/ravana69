@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [ബിഗ്‌ബോസിലേക്ക് പോകാനിരിക്കുന്നവർക്ക് താക്കീത് നൽകി അഖിൽ മാരാർ ! #akhilmarar #movieworldmedia](https://www.youtube.com/watch?v=9Kz9a7C0Flw)
-- [Kumari - Video Jukebox | Jakes Bejoy | Manikandan Ayyappa | Aishwarya Lekshmi | Nirmal Sahadev](https://www.youtube.com/watch?v=4C97ZntCzBQ)
-- [അരളിയും കദളിയും പൂവിടും കാടിന്റെകരളിലിരുന്നു പൊൻ‌മുരളിയൂതുംഅറിയാത്ത പാട്ടുകാരാ..  #AraliyumKadaliyum](https://www.youtube.com/watch?v=6ntGiUALGYU)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=tFAdHTCvuc8)
-- [Chanchalakshi | Paalattu Kunjikannan | Yusufali Kecheri | G Devarajan | KJ Yesudas | Jayabharathi](https://www.youtube.com/watch?v=pH8Bi0ej8Bc)
-- [യേശു എൻ പക്ഷമായ് തീർന്നതിനാൽ... #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=wQ3UxVzp5FM)
+- [Karutha kozhi|Bamboo Boys|Kalabhavan mani|Cochin Haneefa|Salim Kumar|](https://www.youtube.com/watch?v=frOQY0Z5l7U)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 8th of September 2023](https://www.youtube.com/watch?v=vMj1V6YnPQU)
+- [നിറയുന്ന മിഴികൾക്ക് നൂറ് കഥകൾ പറയുവാൻ കഴിയും | Rev. Aneesh P Joseph | #shorts #jesus](https://www.youtube.com/watch?v=dcN5QYKjPRs)
+- [ശോഭയോട് വിരോധമില്ല ! പക്ഷെ അവരെല്ലാം എന്നെ തകർക്കാൻ നോക്കിയവരാണ് ! #akhilmarar](https://www.youtube.com/watch?v=BjU-sbV0AB8)
+- [Ormakal Verodum | Video Song | Doctor Love | Kunchacko Boban | Vinu Thomas | Karthik](https://www.youtube.com/watch?v=K4V9kvo2CR0)
+- [Kinaavu Neyyum |  Naalkkavala | KS Chithra | Yusufali Kecheri | #shorts](https://www.youtube.com/watch?v=A-sBLqHo6f0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
