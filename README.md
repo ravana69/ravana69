@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [കണികള്‍ നിറഞ്ഞൊരുങ്ങീ | Kanikal | Athirathram Movie Song | #mammootty #seema #malayalamsongs #music](https://www.youtube.com/watch?v=3wAqS68XFYI)
-- [മലയാളികൾ ഒന്നടങ്കം ഏറ്റെടുത്ത ആഘോഷങ്ങൾക്ക് അനുഭൂതിയേകും അടിപൊളി ഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=R7jjIiIc-Gs)
-- [ഒരു ജനതയെ മുഴുവൻ സംഗീതത്തിൽ ആറാടിച്ച മഹാനായ ഗായകൻ ദാസേട്ടന്റെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | HITS OF YESUDAS](https://www.youtube.com/watch?v=thLryTrLw9s)
-- [Kannanthalimuttam | Thumbolarcha | Vayalar | G Devarajan | P Susheela | Srividya | Old is Gold](https://www.youtube.com/watch?v=ZEptZCXcgTM)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=GeuyoMONqc4)
-- [Thalam Thulli Song | Zha Movie | Najim Arshad | Devananda M S | Rajesh Babu K Sooranad | Sudhi](https://www.youtube.com/watch?v=-mvHctQsc2k)
+- [അന്ന് ബഷീർ കണ്ടത് | Neelavelicham Movie Scene | Tovino Thomas | Aashiq Abu](https://www.youtube.com/watch?v=99vnkeeFXAI)
+- [Mizhi Nananju - Lyrical Video | Ival Draupadi | KJ Yesudas | Rajamani |  Gireesh Puthenchery](https://www.youtube.com/watch?v=1ElwnVC035w)
+- [പ്രിയസഖാക്കൾക്ക് ബഷീറിന്റെ കത്ത് | Neelavelicham Movie Scene |Tovino Thomas | Aashiq Abu |](https://www.youtube.com/watch?v=URhaOGkMwmQ)
+- [ശശികുമാറിന്റെ സംഗീതവും .. ഭാർഗ്ഗവിയുടെ നൃത്തവും | Neelavelicham Movie Scene |](https://www.youtube.com/watch?v=5-Uvf5uw0tA)
+- [മതിലുകൾക്കിടയിലെ പ്രണയം | Neelavelicham Movie Scene | Rima Kallinga l Roshan Mathew | Aashiq Abu](https://www.youtube.com/watch?v=kgrhnp2c_Ak)
+- [എവിടെപോവാണെങ്കിലും ഞാനും വരും | Neelavelicham Movie Scene | Rima Kallingal | Roshan Mathew |](https://www.youtube.com/watch?v=dyQ-EAVilU0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
