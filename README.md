@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Iniyumoru Kaanan  Promo Video | Ziya Ul Haq | Joji Johns | Kusumam Joseph](https://www.youtube.com/watch?v=7WSd4_IBjvM)
+- [Manju Pole Video Song | Kunchacko Boban | Kavya Madhavan | Vidyasagar | Sreenivas | S Ramesan Nair](https://www.youtube.com/watch?v=0CB43Nxy3Rg)
+- [Iniyumoru Kaanan | Christian Video Song | Ziya Ul Haq | Joji Johns | Kusumam Joseph | Christian Song](https://www.youtube.com/watch?v=duKb9RM5sa8)
 - [ഇത്രമേൽ കരുണ നീ എന്നിൽ വർഷിക്കുവാൻ , അത്രമേൽ നീയെന്നെ സ്നേഹിച്ചല്ലോ .](https://www.youtube.com/watch?v=kWxWDZjgoE0)
 - [നിനക്കായി ദൈവം ഒരു ദിവസം കരുതിയിട്ടുണ്ട്  |  Rev. Aneesh P Joseph | #shorts #jesus](https://www.youtube.com/watch?v=ypbsGM_3V08)
 - [Oarkkunnu Veedumaravu | Achanoru Vazha Vechu |Video Song| K Jayakumar|Bijibal|Saandeep V G|A V Anoop](https://www.youtube.com/watch?v=zM3miU4LjLg)
-- [Maambulli Kaavil | Katha Parayumbol | Vineeth Sreenivasan | Shwetha Mohan | M Jayachandran](https://www.youtube.com/watch?v=IjIDvuKMs1U)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 9th of September 2023](https://www.youtube.com/watch?v=BzUgfBsyFiM)
-- [Poopookkum oosai Video Song | Minsara Kanavu | Sujatha | Malasiya Vasudevan |](https://www.youtube.com/watch?v=a1kDJ8ctyuw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
