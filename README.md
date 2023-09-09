@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Anthikallu Pole | Praavu | Video Song | Bijibal | Jaison J Nair | B K Harinarayanan | Film Songs](https://www.youtube.com/watch?v=Mwr2HpNFvyA)
 - [Kopam - Official Trailer | Malayalam Movie | Nedumudi Venu | K Mahendran | Rajesh Vijay](https://www.youtube.com/watch?v=wWNd-qqZfiw)
 - [Atham Pathinu Muttathethum | Manjukalavum Kazhinju 1998 | Chithra, M.G.Sreekumar |MalayalamMovieSong](https://www.youtube.com/watch?v=2XOyH_OkdKo)
 - [Konchi Konchi | Kalippattam | Mohanlal | Urvashi | M G Sreekumar | Raveendran | Venu Nagavally](https://www.youtube.com/watch?v=7ZM4zHCuCVQ)
 - [എന്‍റെസമ്പത്തെന്നുചൊല്ലുവാൻ | Sadhu Kochukunjupadeshi #shorts  #malayalamchristianshorts](https://www.youtube.com/watch?v=1grxjLGS-VQ)
 - [Japamala 9th of September 2023 # Mathavinte Japamala Santhoshathinte Rahasyangal 9th of September 23](https://www.youtube.com/watch?v=BO8Ld6RsnWc)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #september 9th mother mary hits 2023](https://www.youtube.com/watch?v=ofHW3UC4KzM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
