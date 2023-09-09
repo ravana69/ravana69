@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളികൾ ഒന്നടങ്കം ഏറ്റെടുത്ത ആഘോഷങ്ങൾക്ക് അനുഭൂതിയേകും അടിപൊളി ഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=R7jjIiIc-Gs)
+- [ഒരു ജനതയെ മുഴുവൻ സംഗീതത്തിൽ ആറാടിച്ച മഹാനായ ഗായകൻ ദാസേട്ടന്റെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | HITS OF YESUDAS](https://www.youtube.com/watch?v=thLryTrLw9s)
+- [Kannanthalimuttam | Thumbolarcha | Vayalar | G Devarajan | P Susheela | Srividya | Old is Gold](https://www.youtube.com/watch?v=ZEptZCXcgTM)
+- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=GeuyoMONqc4)
 - [Anthikallu Pole | Praavu | Video Song | Bijibal | Jaison J Nair | B K Harinarayanan | Film Songs](https://www.youtube.com/watch?v=Mwr2HpNFvyA)
 - [Kopam - Official Trailer | Malayalam Movie | Nedumudi Venu | K Mahendran | Rajesh Vijay](https://www.youtube.com/watch?v=wWNd-qqZfiw)
-- [Atham Pathinu Muttathethum | Manjukalavum Kazhinju 1998 | Chithra, M.G.Sreekumar |MalayalamMovieSong](https://www.youtube.com/watch?v=2XOyH_OkdKo)
-- [Konchi Konchi | Kalippattam | Mohanlal | Urvashi | M G Sreekumar | Raveendran | Venu Nagavally](https://www.youtube.com/watch?v=7ZM4zHCuCVQ)
-- [എന്‍റെസമ്പത്തെന്നുചൊല്ലുവാൻ | Sadhu Kochukunjupadeshi #shorts  #malayalamchristianshorts](https://www.youtube.com/watch?v=1grxjLGS-VQ)
-- [Japamala 9th of September 2023 # Mathavinte Japamala Santhoshathinte Rahasyangal 9th of September 23](https://www.youtube.com/watch?v=BO8Ld6RsnWc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
