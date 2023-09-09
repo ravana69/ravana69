@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=t-pE2PxjR7w)
 - [രാവിലെ പ്രാര്‍ത്ഥന  September 9 # Athiravile Prarthana 9th of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=iqREu9nGI0I)
 - [Ottamuri Vakkumayi - Rainy Lofi | Romancham | Sushin Shyam | Pradeep Kumar | AJX](https://www.youtube.com/watch?v=Dj94vRM2CMA)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 9th SEP 2023](https://www.youtube.com/watch?v=LJAR_ofbTUE)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=KlVWWqlSLYM)
 - [ഇത്തവണയാണ് ഏഷ്യാനെറ്റിന്‌ ബിഗ്‌ബോസ് ലാഭം കിട്ടിയത്  ! ബാക്കി സീസൺ നഷ്ടമെന്ന് മാരാർ ! #akhilmarar](https://www.youtube.com/watch?v=_eQF37P3wqI)
-- [സങ്കി ആണോന്നുള്ള ചോദ്യത്തിന് കിടിലൻ മറുപടിയുമായി അഖിൽ മാരാർ ! #akhilmarar #movieworldmedia](https://www.youtube.com/watch?v=8JlrfeVSvAQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
