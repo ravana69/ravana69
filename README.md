@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Nun &lpar;2018&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.8GB &amp; 1.2GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175170-the-nun-2018-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-28gb-12gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=352966)
 - [Music School &lpar;2023&rpar;​​​​​​​ Tamil HD - [1080p &amp; 720p - x264 - 2GB &amp; 1GB | x264 - 400MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/173401-music-school-2023%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B%E2%80%8B-tamil-hd-1080p-720p-x264-2gb-1gb-x264-400mb-hq-clean-audio/&do=findComment&comment=352965)
 - [Love &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.5GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175217-love-2023-tamil-true-web-dl-4k1080p-720p-avc-hevc-dd51-384kbps-35gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352964)
 - [Nangal Famous &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175230-nangal-famous-2023-tamil-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=352963)
 - [Miss Shetty Mr Polishetty &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175206-miss-shetty-mr-polishetty-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352962)
-- [Jawan &lpar;2023&rpar; Tamil New HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175209-jawan-2023-tamil-new-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=352961)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
