@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP07 DAY 06 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.4GB - 689MB &amp; 306MB | 09-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175239-bigg-boss-telugu-s07-ep07-day-06-hdtv-1080p-720p-480p-avc-untouched-14gb-689mb-306mb-09-09-2023/&do=findComment&comment=352994)
 - [Pulp Fiction &lpar;1994&rpar; English - BluRay - 1080p - TRUE HD AVC - DTS5.1&lpar;1509kbps&rpar; - 13.1GB - ESub [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175238-pulp-fiction-1994-english-bluray-1080p-true-hd-avc-dts511509kbps-131gb-esub-gdrive/&do=findComment&comment=352993)
 - [Jujutsu Kaisen &lpar;2023&rpar; S01 EP &lpar;10-12&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Hindi] - 500MB &amp; 350MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/174886-jujutsu-kaisen-2023-s01-ep-10-12-true-web-dl-1080p-720p-avc-tamil-hindi-500mb-350mb/&do=findComment&comment=352992)
 - [Okkadunnadu &lpar;2007&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD5.1 - 448Kbps&rpar; - 6.6GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175233-okkadunnadu-2007-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-66gb-esub/&do=findComment&comment=352990)
 - [Okkadunnadu &lpar;2007&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD5.1 - 448Kbps&rpar; - 6.6GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175233-okkadunnadu-2007-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-66gb-esub/&do=findComment&comment=352989)
-- [Amman Kovil Vaasalile &lpar;1996&rpar;.Tamil.1080p.HDTV.HEVC.AAC2.0 - 2.2GB](https://www.1tamilmv.nexus/index.php?/forums/topic/174361-amman-kovil-vaasalile-1996tamil1080phdtvhevcaac20-22gb/&do=findComment&comment=352988)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
