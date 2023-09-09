@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Udhicha Chandirante Video Song | HD | Punjabi House Movie Song | REMASTERED |](https://www.youtube.com/watch?v=QrcgN23cXUE)
+- [ഇനിമേൽ എനിക്കില്ലോർ ഭയം | Shorts  #devotionalsongs #malayalamchristiansongs](https://www.youtube.com/watch?v=srLLzmyjj7g)
+- [Iniyumoru Kaanan... #newchristianvideosong #ziyaulhaq #jojijohns #malayalamchristiandevotionalsongs](https://www.youtube.com/watch?v=fEzVrDX5Avo)
 - [Iniyumoru Kaanan  Promo Video | Ziya Ul Haq | Joji Johns | Kusumam Joseph](https://www.youtube.com/watch?v=7WSd4_IBjvM)
 - [Manju Pole Video Song | Kunchacko Boban | Kavya Madhavan | Vidyasagar | Sreenivas | S Ramesan Nair](https://www.youtube.com/watch?v=0CB43Nxy3Rg)
 - [Iniyumoru Kaanan | Christian Video Song | Ziya Ul Haq | Joji Johns | Kusumam Joseph | Christian Song](https://www.youtube.com/watch?v=duKb9RM5sa8)
-- [ഇത്രമേൽ കരുണ നീ എന്നിൽ വർഷിക്കുവാൻ , അത്രമേൽ നീയെന്നെ സ്നേഹിച്ചല്ലോ .](https://www.youtube.com/watch?v=kWxWDZjgoE0)
-- [നിനക്കായി ദൈവം ഒരു ദിവസം കരുതിയിട്ടുണ്ട്  |  Rev. Aneesh P Joseph | #shorts #jesus](https://www.youtube.com/watch?v=ypbsGM_3V08)
-- [Oarkkunnu Veedumaravu | Achanoru Vazha Vechu |Video Song| K Jayakumar|Bijibal|Saandeep V G|A V Anoop](https://www.youtube.com/watch?v=zM3miU4LjLg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
