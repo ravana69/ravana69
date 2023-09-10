@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chimmi Chimmi | Krishnadiya | Urumi #shorts #cover #urumisong #deepakdev #malayalamcover](https://www.youtube.com/watch?v=teivW9aKaU4)
+- [Kadalariyilla Karayariyilla | Kannur | Manoj K Jayan | Vani Viswanath | Kaithapram | Yesudas](https://www.youtube.com/watch?v=hg4IDuhFxnk)
+- [Shivaranjinee O Priyasakhee | Ingane Oru Nilapakshi 2000 | K. S. Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=HvsisJnKRXI)
 - [എങ്ങിനെ ഈ ഗാനങ്ങളൊക്കെ മറക്കാൻ കഴിയും | Christian Devotional Songs Malayalam | Manoj Christy](https://www.youtube.com/watch?v=zriy7n60Lms)
 - [Japamala 10th of September 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 10th of September 23](https://www.youtube.com/watch?v=DQW4erlk-g4)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #september 10th mother mary hits 2023](https://www.youtube.com/watch?v=OUYSu49gjNw)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=ImWJDNT_04k)
-- [പ്രഭാത പ്രാര്‍ത്ഥന September 10 # Athiravile Prarthana 10th of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=gp5-xUUEDxM)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 10th SEP 2023](https://www.youtube.com/watch?v=uEW0Ji6XSHg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
