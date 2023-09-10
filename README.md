@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 10th of September 2023](https://www.youtube.com/watch?v=X2yCOgH4Bkk)
 - [ദൈവം നിങ്ങൾക്ക് വിധിച്ചത് നിങ്ങൾക്ക് ലഭിച്ചിരിക്കും. |  Rev. Aneesh P Joseph | #shorts #jesus](https://www.youtube.com/watch?v=1EDmou93y_g)
 - [Araliyum kadaliyum | Jaathakam | KS Chithra | Jayaram | Sithara | #shorts](https://www.youtube.com/watch?v=sKsmzpZccYI)
 - [Premagayaka | Palattu Kunjikannan | Yusufali Kecheri | G Devarajan | P Susheela | Jayan | Unnimeri](https://www.youtube.com/watch?v=tJLn7YfR7mM)
 - [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=MT8Oogokblw)
 - [Mazhavil Kodiyil Video Song | Aniyan Bava Chettan Bava | Biju Narayanan | K. S. Chithra](https://www.youtube.com/watch?v=MIRkSqa7h6k)
-- [പാട്ടുപെട്ടി - Paattupetti Vol 24 | Malayalam Film Songs](https://www.youtube.com/watch?v=AdxoJMX2iLY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
