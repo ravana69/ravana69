@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 11th SEP 2023](https://www.youtube.com/watch?v=618zjedJ1FA)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=ZKHmrETU69E)
 - [Mini is super happy 💞 #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=-ZtJKYj6k5w)
 - [പാപങ്ങളെല്ലാം പൊറുത്തു  മക്കളിൽ പാവന കാന്തി നിറയ്ക്കൂ ...](https://www.youtube.com/watch?v=pHclCELP-TA)
 - [Ninakkente Manassile | Gramaphone | DD 5.1 Audio | Dileep | Meera | Vidyasagar](https://www.youtube.com/watch?v=A-2nkH_VqoE)
 - [Christian Meldoy Songs | KG Markose | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=_Ut9AMnol7Q)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 10th of September 2023](https://www.youtube.com/watch?v=X2yCOgH4Bkk)
-- [ദൈവം നിങ്ങൾക്ക് വിധിച്ചത് നിങ്ങൾക്ക് ലഭിച്ചിരിക്കും. |  Rev. Aneesh P Joseph | #shorts #jesus](https://www.youtube.com/watch?v=1EDmou93y_g)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
