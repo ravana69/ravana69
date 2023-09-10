@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Lakshmi &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7.1GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175246-lakshmi-2006-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-71gb-esub/&do=findComment&comment=353007)
+- [Lakshmi &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7.1GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175246-lakshmi-2006-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-71gb-esub/&do=findComment&comment=353006)
 - [Stranger Things - Complete Collecton &lpar;2016 - 2022&rpar; [S01 - S04] 720p/1080p NF WEB-DL x264 &lpar;DD+ 5.1 - 192/640Kbps&rpar; [Tamil + Telugu + Hindi + English] - MSub - Leyon](https://www.1tamilmv.nexus/index.php?/forums/topic/164841-stranger-things-complete-collecton-2016-2022-s01-s04-720p1080p-nf-web-dl-x264-dd-51-192640kbps-tamil-telugu-hindi-english-msub-leyon/&do=findComment&comment=353005)
 - [Lakshmi &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7.1GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175246-lakshmi-2006-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-71gb-esub/&do=findComment&comment=353004)
 - [Thavasi &lpar;2001&rpar;.Tamil.1080p,Web-dl.HEVC.AAC2.0 - 2.6GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175245-thavasi-2001tamil1080pweb-dlhevcaac20-26gb/&do=findComment&comment=353003)
-- [[4KHDR10] The Wheel of Time S02 [E01-E04] 2160p HDR10 AMZN WEB-DL Multi DDP5.1 Esubs x265 HEVC - Single Episodes - 38 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175244-4khdr10-the-wheel-of-time-s02-e01-e04-2160p-hdr10-amzn-web-dl-multi-ddp51-esubs-x265-hevc-single-episodes-38-gb/&do=findComment&comment=353002)
-- [Inside Edge &lpar;2021&rpar; Complete S03 Merged HQ AMZN WEB-DL - [1080p - 720p - AVC - [Telugu + Tamil + Hindi] - &lpar;DD+5.1 - 640Kbps &amp; 192kbps&rpar; - 12GB &amp; 5.3GB] [480p - AAC 2.0 - 1.6GB] - ESub [Google Drive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175243-inside-edge-2021-complete-s03-merged-hq-amzn-web-dl-1080p-720p-avc-telugu-tamil-hindi-dd51-640kbps-192kbps-12gb-53gb-480p-aac-20-16gb-esub-google-drive/&do=findComment&comment=353001)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
