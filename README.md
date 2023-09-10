@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [JALSA &lpar;2008&rpar; Telugu TRUE WEB-HD - [4K, 2K, 1080p &amp; 480p / AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 13GB - 5.1GB - 3GB &amp; 1.7GB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175249-jalsa-2008-telugu-true-web-hd-4k-2k-1080p-480p-avc-dd51-640kbps-13gb-51gb-3gb-17gb/&do=findComment&comment=353013)
+- [JALSA &lpar;2008&rpar; Telugu TRUE WEB-HD - [4K, 2K, 1080p &amp; 480p / AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 13GB - 5.1GB - 3GB &amp; 1.7GB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175249-jalsa-2008-telugu-true-web-hd-4k-2k-1080p-480p-avc-dd51-640kbps-13gb-51gb-3gb-17gb/&do=findComment&comment=353011)
+- [Lakshmi &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7.1GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175246-lakshmi-2006-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-71gb-esub/&do=findComment&comment=353009)
+- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;13-15&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175247-vera-maari-office-2023-s01-ep-13-15-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=353008)
 - [Lakshmi &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7.1GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175246-lakshmi-2006-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-71gb-esub/&do=findComment&comment=353007)
-- [Lakshmi &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7.1GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175246-lakshmi-2006-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-71gb-esub/&do=findComment&comment=353006)
-- [Stranger Things - Complete Collecton &lpar;2016 - 2022&rpar; [S01 - S04] 720p/1080p NF WEB-DL x264 &lpar;DD+ 5.1 - 192/640Kbps&rpar; [Tamil + Telugu + Hindi + English] - MSub - Leyon](https://www.1tamilmv.nexus/index.php?/forums/topic/164841-stranger-things-complete-collecton-2016-2022-s01-s04-720p1080p-nf-web-dl-x264-dd-51-192640kbps-tamil-telugu-hindi-english-msub-leyon/&do=findComment&comment=353005)
-- [Lakshmi &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7.1GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175246-lakshmi-2006-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-71gb-esub/&do=findComment&comment=353004)
-- [Thavasi &lpar;2001&rpar;.Tamil.1080p,Web-dl.HEVC.AAC2.0 - 2.6GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175245-thavasi-2001tamil1080pweb-dlhevcaac20-26gb/&do=findComment&comment=353003)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
