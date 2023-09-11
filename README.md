@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന  September 12 Athiravile Prarthana 12th of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=2DN_XHitXIU)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 12th SEP 2023](https://www.youtube.com/watch?v=H9O1oCdGSB0)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=jlaAv8plXUY)
 - [നനുത്ത മഴപോലെ പെയ്തിറങ്ങുന്ന ജോൺസൻ മാഷിൻറെ ഗാനങ്ങൾ | Johnson master Hits | K J Yesudas](https://www.youtube.com/watch?v=5AhPOKam91o)
 - [അമ്മതൻ ഉദരത്തിൽ ഉരുവാകും മുമ്പേ എൻ ദൈവം എന്നെ അറിഞ്ഞിരുന്നു .](https://www.youtube.com/watch?v=weNPghaMNl8)
 - [നാട്ടിലെങ്ങും പാടി നടക്കുന്ന  പ്രിയ താരങ്ങൾ അഭിനയിച്ച സൂപ്പർഹിറ്റ്  ഗാനങ്ങൾ | Malayalam Film Songs](https://www.youtube.com/watch?v=k6jvM2v9DGM)
-- [Ponnil Kulichu Video Song | Dileep | Manju Warrier | KJ Yesudas | KS Chithra | Johnson | Kaithapram](https://www.youtube.com/watch?v=RI7YFfkcBwk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
