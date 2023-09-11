@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thaam Thakida Theyyare | Nivedyam | Pradeep Palluruthy | Vijay Yesudas | M Jayachandran|CJ Kuttappan](https://www.youtube.com/watch?v=zDKbityTASM)
+- [Alaye - Lyrical Video | Kasargold | Asif Ali, Sunny Wayne, Vinayakan | Vishnu Vijay | Benny Dayal](https://www.youtube.com/watch?v=aqAz_yXM5tg)
+- [Vibe on loop for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=FDzbk_h8Plw)
 - [മറ്റുള്ളവരുടെ സംതൃപ്തിയല്ല നമ്മുടെ സംതൃപ്തിയാണ് പ്രധാനം | Rev. Aneesh P Joseph | #shorts #jesus](https://www.youtube.com/watch?v=V__AqSbW3Cc)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 11th of September 2023](https://www.youtube.com/watch?v=enRulWAbev4)
 - [Utharaswayamvaram l HD Video l DANGER BISCUIT 1969 l Sreekumaran Thampi,Dakshinamoorthi l KJ Yesudas](https://www.youtube.com/watch?v=E8_R5aBIpvs)
-- [Chillalamaalakal Video Song | Aayiram Meni | K S Chithra | S P Venkitesh | Gireesh Puthanchery](https://www.youtube.com/watch?v=h8VSDwCFdY8)
-- [Aararum Kandillenno Video Song |  Kakkakuyil | Mohanlal | Mukesh | M G Sreekumar | Sujatha |](https://www.youtube.com/watch?v=XsSd1pKILF0)
-- [Parayoo Prabhathame Nee | Pranayakaalam | Gayathri | Ouseppachan | Rafeeq Ahamad](https://www.youtube.com/watch?v=wcGl8GjTtak)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
