@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [JALSA &lpar;2008&rpar; Telugu TRUE WEB-HD - [4K, 2K, 1080p &amp; 480p / AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 13GB - 5.1GB - 3GB &amp; 1.7GB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175249-jalsa-2008-telugu-true-web-hd-4k-2k-1080p-480p-avc-dd51-640kbps-13gb-51gb-3gb-17gb/&do=findComment&comment=353042)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP08 DAY 07 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.3GB - 627MB &amp; 273MB | 10-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175258-bigg-boss-telugu-s07-ep08-day-07-hdtv-1080p-720p-480p-avc-untouched-13gb-627mb-273mb-10-09-2023/&do=findComment&comment=353041)
 - [Chandramukhi 2 &lpar;2023&rpar; Tamil Audio launch - [1080p &amp; 720p - AVC - 2GB - 1GB &amp; 300MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175251-chandramukhi-2-2023-tamil-audio-launch-1080p-720p-avc-2gb-1gb-300mb/&do=findComment&comment=353040)
 - [Brothers &lpar;2012&rpar; Telugu HDRip - 720p - x264 - 5.1 - 1.4GB - Requested](https://www.1tamilmv.nexus/index.php?/forums/topic/76385-brothers-2012-telugu-hdrip-720p-x264-51-14gb-requested/&do=findComment&comment=353039)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP08 DAY 07 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.3GB - 627MB &amp; 273MB | 10-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175258-bigg-boss-telugu-s07-ep08-day-07-hdtv-1080p-720p-480p-avc-untouched-13gb-627mb-273mb-10-09-2023/&do=findComment&comment=353038)
-- [ANJI &lpar;2004&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 3.8GB - ESub - Supreme DVD](https://www.1tamilmv.nexus/index.php?/forums/topic/175254-anji-2004-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-38gb-esub-supreme-dvd/&do=findComment&comment=353037)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
