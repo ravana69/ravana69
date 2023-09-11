@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നാട്ടിലെങ്ങും പാടി നടക്കുന്ന  പ്രിയ താരങ്ങൾ അഭിനയിച്ച സൂപ്പർഹിറ്റ്  ഗാനങ്ങൾ | Malayalam Film Songs](https://www.youtube.com/watch?v=k6jvM2v9DGM)
+- [Ponnil Kulichu Video Song | Dileep | Manju Warrier | KJ Yesudas | KS Chithra | Johnson | Kaithapram](https://www.youtube.com/watch?v=RI7YFfkcBwk)
+- [മയില്‍പ്പീലിക്കണ്‍കളില്‍ | Mayilpeeli Kankalil | Soundaryappinakkam (1985) | KJ Yesudas | KS Chithra](https://www.youtube.com/watch?v=wqSr0BNqKdk)
+- [Christian Superhit Songs | P Jayachandran | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=biUbLN_lcUs)
 - [Thaam Thakida Theyyare | Nivedyam | Pradeep Palluruthy | Vijay Yesudas | M Jayachandran|CJ Kuttappan](https://www.youtube.com/watch?v=zDKbityTASM)
 - [Alaye - Lyrical Video | Kasargold | Asif Ali, Sunny Wayne, Vinayakan | Vishnu Vijay | Benny Dayal](https://www.youtube.com/watch?v=aqAz_yXM5tg)
-- [Vibe on loop for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=FDzbk_h8Plw)
-- [മറ്റുള്ളവരുടെ സംതൃപ്തിയല്ല നമ്മുടെ സംതൃപ്തിയാണ് പ്രധാനം | Rev. Aneesh P Joseph | #shorts #jesus](https://www.youtube.com/watch?v=V__AqSbW3Cc)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 11th of September 2023](https://www.youtube.com/watch?v=enRulWAbev4)
-- [Utharaswayamvaram l HD Video l DANGER BISCUIT 1969 l Sreekumaran Thampi,Dakshinamoorthi l KJ Yesudas](https://www.youtube.com/watch?v=E8_R5aBIpvs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
