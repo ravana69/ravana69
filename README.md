@@ -27,7 +27,7 @@
 - [DHOOL &lpar;2003&rpar; 480p AYN DVD9 REMUX DD5.1 x264 - 7 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175261-dhool-2003-480p-ayn-dvd9-remux-dd51-x264-7-gb/&do=findComment&comment=353045)
 - [Suriya Paarvai &lpar;1999&rpar;.Tamil.1080p.HDTV.HEVC.AAC2.0 - 2.4GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175260-suriya-paarvai-1999tamil1080phdtvhevcaac20-24gb/&do=findComment&comment=353044)
 - [Jodi &lpar;1999&rpar; 1080p AMZN WEB-DL DDP2.0 x264 - 10.7 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175259-jodi-1999-1080p-amzn-web-dl-ddp20-x264-107-gb/&do=findComment&comment=353043)
-- [JALSA &lpar;2008&rpar; Telugu TRUE WEB-HD - [4K, 2K, 1080p &amp; 480p / AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 13GB - 5.1GB - 3GB &amp; 1.7GB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175249-jalsa-2008-telugu-true-web-hd-4k-2k-1080p-480p-avc-dd51-640kbps-13gb-51gb-3gb-17gb/&do=findComment&comment=353042)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP08 DAY 07 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.3GB - 627MB &amp; 273MB | 10-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175258-bigg-boss-telugu-s07-ep08-day-07-hdtv-1080p-720p-480p-avc-untouched-13gb-627mb-273mb-10-09-2023/&do=findComment&comment=353041)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
