@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളികൾ ഏറ്റെടുത്ത ജനപ്രിയ ഗാനങ്ങൾ | Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=RPNmaZm-Cm4)
+- [Polika Polika  | Mukalpparappu | Lyrical Video | JP Thavarool | Siby Padiyara | Allen Varghese](https://www.youtube.com/watch?v=5CwTEqTCS1o)
 - [എന്‍റെസമ്പത്തെന്നുചൊല്ലുവാൻ | Sadhu Kochukunjupadeshi #shorts #malayalamchristianshorts](https://www.youtube.com/watch?v=tyatC0tcj0c)
 - [Japamala 11th of September 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 11th of September 23](https://www.youtube.com/watch?v=s9q8yLY66fs)
 - [Christian Morning Prayer Songs | Kester | Prabhatha Geethangal | Christian Melody Songs](https://www.youtube.com/watch?v=LiIwoorj5Bc)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #september 11th mother mary hits 2023](https://www.youtube.com/watch?v=ZMPVXV6Gg1A)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=xho7c5Oc_9U)
-- [രാവിലെ പ്രാര്‍ത്ഥന  September 11 Athiravile Prarthana 11th of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=mKOTuI62hBQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
