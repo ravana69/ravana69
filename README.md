@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Talk to Me &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.2GB &amp; 1GB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175269-talk-to-me-2023-english-true-web-dl-1080p-720p-avc-dd51-640kbps-22gb-1gb-esub/&do=findComment&comment=353080)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP09 DAY 08 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 896MB - 453MB &amp; 214MB | 11-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175268-bigg-boss-telugu-s07-ep09-day-08-hdtv-1080p-720p-480p-avc-untouched-896mb-453mb-214mb-11-09-2023/&do=findComment&comment=353079)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP07 DAY 06 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.4GB - 689MB &amp; 306MB | 09-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175239-bigg-boss-telugu-s07-ep07-day-06-hdtv-1080p-720p-480p-avc-untouched-14gb-689mb-306mb-09-09-2023/&do=findComment&comment=353078)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP09 DAY 08 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 896MB - 453MB &amp; 214MB | 11-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175268-bigg-boss-telugu-s07-ep09-day-08-hdtv-1080p-720p-480p-avc-untouched-896mb-453mb-214mb-11-09-2023/&do=findComment&comment=353077)
 - [Uru &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.3GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - HC-ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175266-uru-2023-malayalam-true-web-dl-1080p-720p-avc-aac-23gb-12gb-x264-700mb-400mb-hc-esub/&do=findComment&comment=353075)
-- [40 Tamil Movies - AMZN/SUN NXT/SS/NF WEB DL - H264/H265 - ESub - [1080p &amp; 720p - 350GB] [Gdrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/140081-40-tamil-movies-amznsun-nxtssnf-web-dl-h264h265-esub-1080p-720p-350gb-gdrive/&do=findComment&comment=353074)
-- [Yuvakudu &lpar;2000&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.2GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175265-yuvakudu-2000-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-62gb-esub/&do=findComment&comment=353073)
-- [Yuvakudu &lpar;2000&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.2GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175265-yuvakudu-2000-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-62gb-esub/&do=findComment&comment=353072)
-- [Pulan Visaaranai &lpar;1990&rpar;.Tamil.1080p.DVD9Rip.HEVC.AAC2.0 - 2.5GB &lpar;❤️ HAPPY BIRTHDAY CAPTAIN ❤️&rpar;](https://www.1tamilmv.nexus/index.php?/forums/topic/175022-pulan-visaaranai-1990tamil1080pdvd9riphevcaac20-25gb-%E2%9D%A4%EF%B8%8F-happy-birthday-captain-%E2%9D%A4%EF%B8%8F/&do=findComment&comment=353071)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
