@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Yeto Vellipoyindhi Manasu &lpar;2012&rpar; Telugu - DVD - UNTOUCHED - 576p - 192Kbps &lpar;Dolby Digital® 2.0&rpar; - 3.8GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175262-yeto-vellipoyindhi-manasu-2012-telugu-dvd-untouched-576p-192kbps-dolby-digital%C2%AE-20-38gb/&do=findComment&comment=353046)
-- [DHOOL &lpar;2003&rpar; 480p AYN DVD9 REMUX DD5.1 x264 - 7 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175261-dhool-2003-480p-ayn-dvd9-remux-dd51-x264-7-gb/&do=findComment&comment=353045)
-- [Suriya Paarvai &lpar;1999&rpar;.Tamil.1080p.HDTV.HEVC.AAC2.0 - 2.4GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175260-suriya-paarvai-1999tamil1080phdtvhevcaac20-24gb/&do=findComment&comment=353044)
-- [Jodi &lpar;1999&rpar; 1080p AMZN WEB-DL DDP2.0 x264 - 10.7 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175259-jodi-1999-1080p-amzn-web-dl-ddp20-x264-107-gb/&do=findComment&comment=353043)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 EP08 DAY 07 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.3GB - 627MB &amp; 273MB | 10-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175258-bigg-boss-telugu-s07-ep08-day-07-hdtv-1080p-720p-480p-avc-untouched-13gb-627mb-273mb-10-09-2023/&do=findComment&comment=353041)
+- [Love &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.5GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175217-love-2023-tamil-true-web-dl-4k1080p-720p-avc-hevc-dd51-384kbps-35gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353051)
+- [Motu Patlu In The Metal World &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Kannada&rpar; - 1.5GB &amp; 850MB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175250-motu-patlu-in-the-metal-world-2023-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-kannada-15gb-850mb-x264-tamil-telugu-hindi-400mb/&do=findComment&comment=353050)
+- [Lakshmi &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7.1GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175246-lakshmi-2006-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-71gb-esub/&do=findComment&comment=353049)
+- [Red Water &lpar;2021&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.5GB &amp; 750MB | x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175263-red-water-2021-hd-original-audios-1080p-720p-x264-tamil-hindi-eng-15gb-750mb-x264-tam-hin-400mb-esub/&do=findComment&comment=353048)
+- [Red Water &lpar;2021&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.5GB &amp; 750MB | x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175263-red-water-2021-hd-original-audios-1080p-720p-x264-tamil-hindi-eng-15gb-750mb-x264-tam-hin-400mb-esub/&do=findComment&comment=353047)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
