@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [40 Tamil Movies - AMZN/SUN NXT/SS/NF WEB DL - H264/H265 - ESub - [1080p &amp; 720p - 350GB] [Gdrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/140081-40-tamil-movies-amznsun-nxtssnf-web-dl-h264h265-esub-1080p-720p-350gb-gdrive/&do=findComment&comment=353074)
+- [Yuvakudu &lpar;2000&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.2GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175265-yuvakudu-2000-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-62gb-esub/&do=findComment&comment=353073)
 - [Yuvakudu &lpar;2000&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.2GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175265-yuvakudu-2000-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-62gb-esub/&do=findComment&comment=353072)
 - [Pulan Visaaranai &lpar;1990&rpar;.Tamil.1080p.DVD9Rip.HEVC.AAC2.0 - 2.5GB &lpar;❤️ HAPPY BIRTHDAY CAPTAIN ❤️&rpar;](https://www.1tamilmv.nexus/index.php?/forums/topic/175022-pulan-visaaranai-1990tamil1080pdvd9riphevcaac20-25gb-%E2%9D%A4%EF%B8%8F-happy-birthday-captain-%E2%9D%A4%EF%B8%8F/&do=findComment&comment=353071)
 - [Ghilli &lpar;2004&rpar; 1080p DSNP WEB-DL AAC.2.0 Esubs x264 - 3.8 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175175-ghilli-2004-1080p-dsnp-web-dl-aac20-esubs-x264-38-gb/&do=findComment&comment=353070)
-- [Iraivi &lpar;2016&rpar; Tamil - TRUE WEB-DL - 4K , 1080p &amp; 720p - HEVC / AVC - UNTOUCHED - [DD5.1&lpar;320kbps&rpar; + AAC2.0&lpar;96kbps&rpar;] - 13.2GB - 8GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - ESub [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175240-iraivi-2016-tamil-true-web-dl-4k-1080p-720p-hevc-avc-untouched-dd51320kbps-aac2096kbps-132gb-8gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub-gdrive/&do=findComment&comment=353069)
-- [Jodi &lpar;1999&rpar; 1080p AMZN WEB-DL DDP2.0 x264 - 10.7 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175259-jodi-1999-1080p-amzn-web-dl-ddp20-x264-107-gb/&do=findComment&comment=353068)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
