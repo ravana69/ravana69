@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Pandit Ramesh Narayan, Vijay Yesudas - Thozhuthittum (Lyric Video)](https://www.youtube.com/watch?v=owvtjaq3m_g)
+- [Pandit Ramesh Narayan, Sudeep Kumar - Mandalam (Lyric Video)](https://www.youtube.com/watch?v=z1vvUU4B_N4)
+- [L. Vaidyanathan, K.J. Yesudas - Peraattin Akkare Akkare (Lyric Video)](https://www.youtube.com/watch?v=Pc7MHLtrVWI)
+- [Pandit Ramesh Narayan, K.J. Yesudas - Harivarasanam (Version, 2) (Lyric Video)](https://www.youtube.com/watch?v=1n8C02MMPtY)
 - [Karuna Chaivaan Video Song | Aananda Bhairavi | Arjun B Krishna | Irayimman Thampi | Classical Song](https://www.youtube.com/watch?v=kxc6HcMUp3U)
 - [Innente Kannerellam | Christian Melody Songs | Manoj Christy | Joji Johns | Fr.Mathew Kareethara](https://www.youtube.com/watch?v=bzNBfaVOvBY)
-- [Thulasee Dala | Pranayakaalam | KJ Yesudas | Ouseppachan | Rafeeq Ahamad](https://www.youtube.com/watch?v=beflqMh0dCM)
-- [Ashubha Mangalakaari - Moombahton Mix | Super Sharanya | Justin Varghese | The Independeners](https://www.youtube.com/watch?v=At39BfiQQL4)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 12th of September 2023](https://www.youtube.com/watch?v=L-ZSbhOS0wE)
-- [Chandrikayil Aliyunnu l HD Video l Prem Nazir l Sreekumaran Thampi l A.M Raja](https://www.youtube.com/watch?v=MfAEH8rUMdI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
