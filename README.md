@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Swargathile Appam | Divyadaanathinte Mahathwamothunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=Ubgdps4-Nx4)
-- [Paranjilla Njan | Beautiful Song sung by K J Yesudas #shorts](https://www.youtube.com/watch?v=WqH3y0Yc5kg)
-- [Ninakkente Manassile | Gramaphone | Dileep | Meera | DD 5.1 Audio | Vidyasagar](https://www.youtube.com/watch?v=-6p8ZXZXX6Q)
-- [Oru Chandanamulla Painkiliyen | Ingane Oru Nilapakshi 2000 | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=2R_oI0DY9nc)
-- [Pakal Pakshi Pavan | Ival Draupadhi | Shaju | Schitha | Yesudas | Chithra](https://www.youtube.com/watch?v=vVQgELQuaPQ)
-- [Japamala 12th of September 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 12th of September 23](https://www.youtube.com/watch?v=R9hhlr0-JhA)
+- [രാക്കുയിൽ പാടീ രാവിന്റെ ശോകം നക്ഷത്രകുഞ്ഞുങ്ങൾക്കിന്നാനന്ദ വേള  #malayalamsongs #love #yesudas](https://www.youtube.com/watch?v=bpnXTr5MhEg)
+- [Kunnimani Cheppu Video Song | Johnson | KS Chithra | ONV Kurup| Ponmuttayidunna Thaaravu|Sreenivasan](https://www.youtube.com/watch?v=OrtQgvPzw3w)
+- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=mGgesYz6E7E)
+- [Aadikalikeda | Aromalunni | Vayalar | G Devarajan | Raveendran | Sheela | Evergreen Songs Malayalam](https://www.youtube.com/watch?v=zVKNrL6R9Y8)
+- [നാടിൻ പെരുമ കാത്തുസൂക്ഷിക്കും മലയാളസിനിമയിലെ മാലയാളത്തനിമ നിറഞ്ഞ ഗാനങ്ങൾ | NISARI CHITHRAGEETHAM](https://www.youtube.com/watch?v=TJ5qQLbpDCw)
+- [Mullavallikkudilil | Kuyiline Thedi | Chunakkara Ramankutty | Shyam | S Janaki | Rohini | Raghu](https://www.youtube.com/watch?v=4121NjGtxzw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
