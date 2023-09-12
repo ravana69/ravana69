@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP10 DAY 09 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 928MB - 451MB &amp; 202MB | 12-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175284-bigg-boss-telugu-s07-ep10-day-09-hdtv-1080p-720p-480p-avc-untouched-928mb-451mb-202mb-12-09-2023/&do=findComment&comment=353133)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP10 DAY 09 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 928MB - 451MB &amp; 202MB | 12-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175284-bigg-boss-telugu-s07-ep10-day-09-hdtv-1080p-720p-480p-avc-untouched-928mb-451mb-202mb-12-09-2023/&do=findComment&comment=353132)
 - [Jailer &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 10GB - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175194-jailer-2023-telugu-true-web-dl-4k1080p-720p-avc-hevc-dd51-640kbps-10gb-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353131)
 - [DD Returns &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.1GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175110-dd-returns-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-21gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353130)
 - [Love &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.5GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175217-love-2023-tamil-true-web-dl-4k1080p-720p-avc-hevc-dd51-384kbps-35gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353129)
-- [Thavasi &lpar;2001&rpar;.Tamil.1080p,Web-dl.HEVC.AAC2.0 - 2.6GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175245-thavasi-2001tamil1080pweb-dlhevcaac20-26gb/&do=findComment&comment=353128)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
