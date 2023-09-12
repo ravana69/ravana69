@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Paranjilla Njan | Beautiful Song sung by K J Yesudas #shorts](https://www.youtube.com/watch?v=WqH3y0Yc5kg)
 - [Ninakkente Manassile | Gramaphone | Dileep | Meera | DD 5.1 Audio | Vidyasagar](https://www.youtube.com/watch?v=-6p8ZXZXX6Q)
 - [Oru Chandanamulla Painkiliyen | Ingane Oru Nilapakshi 2000 | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=2R_oI0DY9nc)
 - [Pakal Pakshi Pavan | Ival Draupadhi | Shaju | Schitha | Yesudas | Chithra](https://www.youtube.com/watch?v=vVQgELQuaPQ)
 - [Japamala 12th of September 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 12th of September 23](https://www.youtube.com/watch?v=R9hhlr0-JhA)
 - [Singer Of The Week | Alenia | Christian Devotional Songs Malayalam | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=PGkPZEJQbSA)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #september 12th mother mary hits 2023](https://www.youtube.com/watch?v=07sAVMcjWjI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
