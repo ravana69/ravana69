@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Uru &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.3GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - HC-ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175266-uru-2023-malayalam-true-web-dl-1080p-720p-avc-aac-23gb-12gb-x264-700mb-400mb-hc-esub/&do=findComment&comment=353088)
-- [[IMAX] Barbie &lpar;2023&rpar; iMAX AMZN WEB-DL DDP5.1 Atmos Esubs - 2160P [HDR10-DoVi] | 1080p | 720p - 19.9 GB | 7.5 GB |2.8 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175274-imax-barbie-2023-imax-amzn-web-dl-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-720p-199-gb-75-gb-28-gb/&do=findComment&comment=353087)
-- [Mounam Pesiyathe &lpar;2002&rpar;.Tamil.1080p.Web-dl.HEVC.AAC2.0 - 2.7GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175273-mounam-pesiyathe-2002tamil1080pweb-dlhevcaac20-27gb/&do=findComment&comment=353086)
-- [The Exorcist &lpar;1973&rpar; DIRECTOR&#39;S CUT - BluRay - 1080p &amp; 720p - TRUE HD - AVC / HEVC - [Tamil + Hindi + English&lpar;DTS5.1&lpar;1509kbps&rpar;] - AAC - 10GB - 4GB - 2.2GB &amp; 1GB - ESub [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175272-the-exorcist-1973-directors-cut-bluray-1080p-720p-true-hd-avc-hevc-tamil-hindi-englishdts511509kbps-aac-10gb-4gb-22gb-1gb-esub-gdrive/&do=findComment&comment=353085)
-- [The Exorcist &lpar;1973&rpar; DIRECTOR&#39;S CUT - BluRay - 1080p &amp; 720p - TRUE HD - AVC / HEVC - [Tamil + Hindi + English&lpar;DTS5.1&lpar;1509kbps&rpar;] - AAC - 10GB - 4GB - 2.2GB &amp; 1GB - ESub [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175271-the-exorcist-1973-directors-cut-bluray-1080p-720p-true-hd-avc-hevc-tamil-hindi-englishdts511509kbps-aac-10gb-4gb-22gb-1gb-esub-gdrive/&do=findComment&comment=353084)
+- [Talk to Me &lpar;2022&rpar; AMZN WEB-DL DDP5.1 Esubs - 2160p [HDR10-DoVi] | 1080p - 16.8 GB | 7.1 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175275-talk-to-me-2022-amzn-web-dl-ddp51-esubs-2160p-hdr10-dovi-1080p-168-gb-71-gb/&do=findComment&comment=353094)
+- [Chandramukhi 2 &lpar;2023&rpar; Tamil Audio launch - [1080p &amp; 720p - AVC - 2GB - 1GB &amp; 300MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175251-chandramukhi-2-2023-tamil-audio-launch-1080p-720p-avc-2gb-1gb-300mb/&do=findComment&comment=353093)
+- [The Nun II &lpar;2023&rpar; Tamil HQ HDTS - [1080p &amp; 720p - x264 - AAC - 2.4GB &amp; 1GB | x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175204-the-nun-ii-2023-tamil-hq-hdts-1080p-720p-x264-aac-24gb-1gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=353092)
+- [Barbie &lpar;2023&rpar; English Proper WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 2.8GB &amp; 1.1GB] - Soft ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175153-barbie-2023-english-proper-web-dl-1080p-720p-avc-dd51-atmos-768kbps-28gb-11gb-soft-esub/&do=findComment&comment=353091)
+- [Talk to Me &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.2GB &amp; 1GB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175269-talk-to-me-2023-english-true-web-dl-1080p-720p-avc-dd51-640kbps-22gb-1gb-esub/&do=findComment&comment=353090)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
