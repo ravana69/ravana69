@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ek Niranjan &lpar;2009&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.6GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175279-ek-niranjan-2009-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-76gb-esub/&do=findComment&comment=353111)
 - [Barbie &lpar;2023&rpar; English Proper WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 2.8GB &amp; 1.1GB] - Soft ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175153-barbie-2023-english-proper-web-dl-1080p-720p-avc-dd51-atmos-768kbps-28gb-11gb-soft-esub/&do=findComment&comment=353109)
 - [Ek Niranjan &lpar;2009&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.6GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175279-ek-niranjan-2009-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-76gb-esub/&do=findComment&comment=353108)
 - [Talk to Me &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.2GB &amp; 1GB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175269-talk-to-me-2023-english-true-web-dl-1080p-720p-avc-dd51-640kbps-22gb-1gb-esub/&do=findComment&comment=353107)
 - [Dolittle &lpar;2020&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175267-dolittle-2020-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-24gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=353106)
-- [Uru &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.3GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - HC-ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175266-uru-2023-malayalam-true-web-dl-1080p-720p-avc-aac-23gb-12gb-x264-700mb-400mb-hc-esub/&do=findComment&comment=353105)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
