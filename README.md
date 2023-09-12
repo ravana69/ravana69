@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ദിവ്യ സക്രാരി പോലെന്റെ ഹൃദയം തീർത്തരുളീടണെ നാഥാ ...](https://www.youtube.com/watch?v=2fBa3EiGxUo)
 - [Pandit Ramesh Narayan, Vijay Yesudas - Thozhuthittum (Lyric Video)](https://www.youtube.com/watch?v=owvtjaq3m_g)
 - [Pandit Ramesh Narayan, Sudeep Kumar - Mandalam (Lyric Video)](https://www.youtube.com/watch?v=z1vvUU4B_N4)
 - [L. Vaidyanathan, K.J. Yesudas - Peraattin Akkare Akkare (Lyric Video)](https://www.youtube.com/watch?v=Pc7MHLtrVWI)
 - [Pandit Ramesh Narayan, K.J. Yesudas - Harivarasanam (Version, 2) (Lyric Video)](https://www.youtube.com/watch?v=1n8C02MMPtY)
 - [Karuna Chaivaan Video Song | Aananda Bhairavi | Arjun B Krishna | Irayimman Thampi | Classical Song](https://www.youtube.com/watch?v=kxc6HcMUp3U)
-- [Innente Kannerellam | Christian Melody Songs | Manoj Christy | Joji Johns | Fr.Mathew Kareethara](https://www.youtube.com/watch?v=bzNBfaVOvBY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
