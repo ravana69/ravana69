@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Japamala 12th of September 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 12th of September 23](https://www.youtube.com/watch?v=R9hhlr0-JhA)
+- [Singer Of The Week | Alenia | Christian Devotional Songs Malayalam | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=PGkPZEJQbSA)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #september 12th mother mary hits 2023](https://www.youtube.com/watch?v=07sAVMcjWjI)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=79gv8H7t7Wc)
 - [രാവിലെ പ്രാര്‍ത്ഥന  September 12 Athiravile Prarthana 12th of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=2DN_XHitXIU)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 12th SEP 2023](https://www.youtube.com/watch?v=H9O1oCdGSB0)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=jlaAv8plXUY)
-- [നനുത്ത മഴപോലെ പെയ്തിറങ്ങുന്ന ജോൺസൻ മാഷിൻറെ ഗാനങ്ങൾ | Johnson master Hits | K J Yesudas](https://www.youtube.com/watch?v=5AhPOKam91o)
-- [അമ്മതൻ ഉദരത്തിൽ ഉരുവാകും മുമ്പേ എൻ ദൈവം എന്നെ അറിഞ്ഞിരുന്നു .](https://www.youtube.com/watch?v=weNPghaMNl8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
