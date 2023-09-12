@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Exorcist &lpar;1973&rpar; DIRECTOR&#39;S CUT - BluRay - 1080p &amp; 720p - TRUE HD - AVC / HEVC - [Tamil + Hindi + English&lpar;DTS5.1&lpar;1509kbps&rpar;] - AAC - 10GB - 4GB - 2.2GB &amp; 1GB - ESub [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175272-the-exorcist-1973-directors-cut-bluray-1080p-720p-true-hd-avc-hevc-tamil-hindi-englishdts511509kbps-aac-10gb-4gb-22gb-1gb-esub-gdrive/&do=findComment&comment=353085)
+- [The Exorcist &lpar;1973&rpar; DIRECTOR&#39;S CUT - BluRay - 1080p &amp; 720p - TRUE HD - AVC / HEVC - [Tamil + Hindi + English&lpar;DTS5.1&lpar;1509kbps&rpar;] - AAC - 10GB - 4GB - 2.2GB &amp; 1GB - ESub [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175271-the-exorcist-1973-directors-cut-bluray-1080p-720p-true-hd-avc-hevc-tamil-hindi-englishdts511509kbps-aac-10gb-4gb-22gb-1gb-esub-gdrive/&do=findComment&comment=353084)
 - [Uru &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.3GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - HC-ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175266-uru-2023-malayalam-true-web-dl-1080p-720p-avc-aac-23gb-12gb-x264-700mb-400mb-hc-esub/&do=findComment&comment=353083)
 - [Barbie &lpar;2023&rpar; English - TRUE WEB-DL - 4K &amp; 1080p - HEVC / AVC - UNTOUCHED - DD+5.1&lpar;768kbps&rpar; Atmos - 10GB &amp; 5.8GB - ESub [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175270-barbie-2023-english-true-web-dl-4k-1080p-hevc-avc-untouched-dd51768kbps-atmos-10gb-58gb-esub-gdrive/&do=findComment&comment=353082)
 - [Maanaadu &lpar;2021&rpar;.Tamil.1080p.Web-dl.HEVC.DD5.1 448Kbps Upmix - 1.8GB - GDRIVE](https://www.1tamilmv.nexus/index.php?/forums/topic/152527-maanaadu-2021tamil1080pweb-dlhevcdd51-448kbps-upmix-18gb-gdrive/&do=findComment&comment=353081)
-- [Talk to Me &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.2GB &amp; 1GB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175269-talk-to-me-2023-english-true-web-dl-1080p-720p-avc-dd51-640kbps-22gb-1gb-esub/&do=findComment&comment=353080)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 EP09 DAY 08 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 896MB - 453MB &amp; 214MB | 11-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175268-bigg-boss-telugu-s07-ep09-day-08-hdtv-1080p-720p-480p-avc-untouched-896mb-453mb-214mb-11-09-2023/&do=findComment&comment=353079)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
