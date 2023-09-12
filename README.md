@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [KARTHIKEYA &lpar;2014&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD5.1 - 448Kbps&rpar; - 6.5GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175283-karthikeya-2014-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-65gb-esub/&do=findComment&comment=353122)
+- [KARTHIKEYA &lpar;2014&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD5.1 - 448Kbps&rpar; - 6.5GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175283-karthikeya-2014-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-65gb-esub/&do=findComment&comment=353121)
 - [Ragasiya Police &lpar;1995&rpar;.Tamil.480p.HDTV.HEVC.AAC2.0 - 1.4GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175282-ragasiya-police-1995tamil480phdtvhevcaac20-14gb/&do=findComment&comment=353120)
 - [Avengers_ Endgame &lpar;2019&rpar; SDR BluRay Open Matte 2160p 4K HEVC Multi Original &lpar;DD5.1&rpar; Audios [ Telugu + Tamil + Hindi + English] - AC3 - x265 - ESub.mkv [30GB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175281-avengers_-endgame-2019-sdr-bluray-open-matte-2160p-4k-hevc-multi-original-dd51-audios-telugu-tamil-hindi-english-ac3-x265-esubmkv-30gb/&do=findComment&comment=353119)
 - [Engal Aasan &lpar;2009&rpar;.Tamil.1080p.HDTV.HEVC.AAC2.0 - 2.4GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175280-engal-aasan-2009tamil1080phdtvhevcaac20-24gb/&do=findComment&comment=353118)
-- [Dolittle &lpar;2020&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175267-dolittle-2020-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-24gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=353117)
-- [Maayon &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175278-maayon-2022-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-29gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=353116)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
