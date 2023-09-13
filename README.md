@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പാടത്തെ പൈങ്കിളിയേ -  Nigoodam Movie Song #shorts](https://www.youtube.com/watch?v=5MM1fWJ1S0Q)
+- [Anthikkallu Pole | Praavu Movie | Shorts #shorts #manoramamusic](https://www.youtube.com/watch?v=QNavsDop_mA)
+- [Anthikkallu Pole | Praavu Movie | Shorts #shorts #manoramamusic](https://www.youtube.com/watch?v=7C8yUkHIxl4)
+- [Manninte Manamulla | Thirayattom | Shorts #manoramamusic #shorts](https://www.youtube.com/watch?v=lhrlplRcpLY)
 - [എന്‍ നീലാകാശം തേടിയണഞ്ഞൊരു | En Neelakasham | Randam Varavu (1990)Movie Song | Yesudas | P Susheela](https://www.youtube.com/watch?v=GPXYe5Po0ZY)
 - [മലയാളത്തിന്റെ ഒരേയൊരു വാനമ്പാടി കെ എസ്‌ ചിത്ര നമ്മുക്ക് സമ്മാനിച്ച എത്രകേട്ടാലും മതിവരാത്ത ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=rsUtOsO-U9U)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=Y1QyLbpH1PI)
-- [പാട്ടുകേൾകുന്നവരുടെ മനസിൽ നിത്യവും വസന്തകാലമേകും മലയാളസിനിമയിലെ നല്ല ഗാനങ്ങൾ | EVERGREEN HIT SONGS](https://www.youtube.com/watch?v=pQ2mM9FzPKs)
-- [Ramzan Nilavotha  | Animation Lyrical Video | K J Yesudas | Deepak Dev | Felix Devasia](https://www.youtube.com/watch?v=MRE16mdKLGg)
-- [Vaalongi Porinirangi | Desham 2002 | Gireesh Puthenchery | M. G. Sreekumar | Malayalam Movie Song](https://www.youtube.com/watch?v=nIR5xXDUjDI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
