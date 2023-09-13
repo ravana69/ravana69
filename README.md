@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Maanaadu &lpar;2021&rpar;.Tamil.1080p.Web-dl.HEVC.DD5.1 448Kbps Upmix - 1.8GB - GDRIVE](https://www.1tamilmv.nexus/index.php?/forums/topic/152527-maanaadu-2021tamil1080pweb-dlhevcdd51-448kbps-upmix-18gb-gdrive/&do=findComment&comment=353159)
 - [Nepaali &lpar;2008&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 5.7GB - 2.7GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175288-nepaali-2008-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-57gb-27gb-14gb-x264-700mb-400mb/&do=findComment&comment=353158)
 - [Elemental &lpar;2023&rpar; HQ HDRip - 720p - x264 - [Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 1GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175292-elemental-2023-hq-hdrip-720p-x264-hindi-eng-dd51-192kbps-1gb-esub/&do=findComment&comment=353157)
 - [Maayon &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175278-maayon-2022-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-29gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=353156)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP10 DAY 09 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 928MB - 451MB &amp; 202MB | 12-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175284-bigg-boss-telugu-s07-ep10-day-09-hdtv-1080p-720p-480p-avc-untouched-928mb-451mb-202mb-12-09-2023/&do=findComment&comment=353155)
-- [Sawadikap Pei &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175277-sawadikap-pei-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353154)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
