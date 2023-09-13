@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thalirilayil(പ്രണാമം )Vinod velayudhan](https://www.youtube.com/watch?v=MZB_3In-fUc)
 - [Aavanipoovin|C.I.D Unnikrishnan B.A Bed|Jayaram|Chippy|](https://www.youtube.com/watch?v=ZjzYfwOFIKE)
 - [ദൈവത്തിന് മുൻപിൽ ജയിക്കണമെങ്കിൽ മനുഷ്യരുടെ മുൻപിൽ തോറ്റുപോയാൽ എന്താ | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=WCIHyFhsiHE)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 13th of September 2023](https://www.youtube.com/watch?v=3EouFjeNqt4)
 - [Oru Kinnaragaanam | Speed Track | Dileep | Video Song](https://www.youtube.com/watch?v=uLSFBqBRNp0)
 - [Naanam Kallananam Video Song | Ormakal Marikkumo | KJ Yesudas | MS Viswanathan|](https://www.youtube.com/watch?v=GYxTjFtxCe0)
-- [Aradhya - Video Song | Kushi (Malayalam) | Vijay Deverakonda, Samantha | Hesham Abdul Wahab](https://www.youtube.com/watch?v=hg_p_RCs_Ug)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
