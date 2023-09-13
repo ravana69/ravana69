@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Sivaji &lpar;2007&rpar; Tamil - BluRay - 1080p &amp; 720p - TRUE HD - AVC / HEVC - DTS5.1&lpar;1509kbps&rpar; - 10GB - 6GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - ESub [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175290-sivaji-2007-tamil-bluray-1080p-720p-true-hd-avc-hevc-dts511509kbps-10gb-6gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub-gdrive/&do=findComment&comment=353149)
+- [Aayutha Ezhuthu &lpar;2004&rpar;.Tamil.1080p.DVD9Rip.HEVC.AAC5.1 - 3GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175289-aayutha-ezhuthu-2004tamil1080pdvd9riphevcaac51-3gb/&do=findComment&comment=353148)
+- [Aayutha Ezhuthu &lpar;2004&rpar;.Tamil.1080p.DVD9Rip.HEVC.AAC5.1 - 3GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175289-aayutha-ezhuthu-2004tamil1080pdvd9riphevcaac51-3gb/&do=findComment&comment=353147)
 - [Nepaali &lpar;2008&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 5.7GB - 2.7GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175288-nepaali-2008-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-57gb-27gb-14gb-x264-700mb-400mb/&do=findComment&comment=353146)
 - [Nireekshana &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175285-nireekshana-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=353145)
-- [Nepaali &lpar;2008&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 5.7GB - 2.7GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175288-nepaali-2008-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-57gb-27gb-14gb-x264-700mb-400mb/&do=findComment&comment=353144)
-- [Dolittle &lpar;2020&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175267-dolittle-2020-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-24gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=353143)
-- [Nepaali &lpar;2008&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 5.7GB - 2.7GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175288-nepaali-2008-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-57gb-27gb-14gb-x264-700mb-400mb/&do=findComment&comment=353142)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
