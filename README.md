@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കുരിശേകും തണലിൽ ഞാൻ അണഞ്ഞുന്നു തിരു കുരിശേ പുൽകിടുന്നു .](https://www.youtube.com/watch?v=zWsddJiAbkI)
+- [ഏതോ നിദ്രതൻ പൊൻമയിൽപ്പീലിയിൽഏഴുവർണ്ണകളും നീർത്തി.. | Etho Nidrathan | Ayal Kadha Ezhuthukayanu](https://www.youtube.com/watch?v=pCsUii2jbWs)
+- [Pichavecha Naal Video Song | Puthiya Mukham | Prithviraj | Meera Nandan | Deepak Dev | Kaithapram](https://www.youtube.com/watch?v=V0Sqc3ZsCus)
 - [Krishna Nee Varumo | Kuyiline Thedi | Chunakkara Ramankutty | Shyam | KJ Yesudas | P Jayachandran](https://www.youtube.com/watch?v=PtCkRrlHd0A)
 - [Christian Superhit Songs | Sujatha Mohan | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=DycyzUYSbyw)
 - [Thalirilayil(പ്രണാമം )Vinod velayudhan](https://www.youtube.com/watch?v=MZB_3In-fUc)
-- [Aavanipoovin|C.I.D Unnikrishnan B.A Bed|Jayaram|Chippy|](https://www.youtube.com/watch?v=ZjzYfwOFIKE)
-- [ദൈവത്തിന് മുൻപിൽ ജയിക്കണമെങ്കിൽ മനുഷ്യരുടെ മുൻപിൽ തോറ്റുപോയാൽ എന്താ | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=WCIHyFhsiHE)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 13th of September 2023](https://www.youtube.com/watch?v=3EouFjeNqt4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
