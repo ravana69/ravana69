@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Baby &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 5GB - 3GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/174988-baby-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-5gb-3gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353136)
 - [Mumbai Diaries 26/11 &lpar;2021&rpar; Complete S01 Merged HQ AMZN WEB-DL - [1080p - 720p - 576p - AVC - [Telugu + Tamil + Hindi] - &lpar;14.3GB - 3.4GB - 1.1GB&rpar; - ESub [Google Drive]](https://www.1tamilmv.nexus/index.php?/forums/topic/174605-mumbai-diaries-2611-2021-complete-s01-merged-hq-amzn-web-dl-1080p-720p-576p-avc-telugu-tamil-hindi-143gb-34gb-11gb-esub-google-drive/&do=findComment&comment=353135)
 - [KARTHIKEYA &lpar;2014&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD5.1 - 448Kbps&rpar; - 6.5GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175283-karthikeya-2014-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-65gb-esub/&do=findComment&comment=353134)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP10 DAY 09 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 928MB - 451MB &amp; 202MB | 12-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175284-bigg-boss-telugu-s07-ep10-day-09-hdtv-1080p-720p-480p-avc-untouched-928mb-451mb-202mb-12-09-2023/&do=findComment&comment=353133)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP10 DAY 09 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 928MB - 451MB &amp; 202MB | 12-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175284-bigg-boss-telugu-s07-ep10-day-09-hdtv-1080p-720p-480p-avc-untouched-928mb-451mb-202mb-12-09-2023/&do=findComment&comment=353132)
-- [Jailer &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 10GB - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175194-jailer-2023-telugu-true-web-dl-4k1080p-720p-avc-hevc-dd51-640kbps-10gb-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353131)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
