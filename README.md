@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [1- Nenokkadine &lpar;2014&rpar; Telugu - VCD - UNTOUCHED - 1.6GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175299-1-nenokkadine-2014-telugu-vcd-untouched-16gb/&do=findComment&comment=353174)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP11 DAY 10 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 908MB - 437MB &amp; 183MB | 13-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175297-bigg-boss-telugu-s07-ep11-day-10-hdtv-1080p-720p-480p-avc-untouched-908mb-437mb-183mb-13-09-2023/&do=findComment&comment=353172)
+- [Nepaali &lpar;2008&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 5.7GB - 2.7GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175288-nepaali-2008-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-57gb-27gb-14gb-x264-700mb-400mb/&do=findComment&comment=353171)
 - [🔞 Hello Mini &lpar;2020&rpar; Complete S01 Merged MX WEB-DL - [1080p - 720p - 480p - AVC - Telugu - AAC - 14GB - 5.2GB &amp; 2.7GB] - x264 [Google Drive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175296-%F0%9F%94%9E-hello-mini-2020-complete-s01-merged-mx-web-dl-1080p-720p-480p-avc-telugu-aac-14gb-52gb-27gb-x264-google-drive/&do=findComment&comment=353170)
 - [Django Unchained &lpar;2012&rpar; Ai 4K BluRay 2160p SDR HEVC Multi Original Audios [Telugu+Tamil+Hindi+English] - x265 - 8GB - ESub.mkv](https://www.1tamilmv.nexus/index.php?/forums/topic/175295-django-unchained-2012-ai-4k-bluray-2160p-sdr-hevc-multi-original-audios-telugutamilhindienglish-x265-8gb-esubmkv/&do=findComment&comment=353169)
-- [Elemental &lpar;2023&rpar; HQ HDRip - 720p - x264 - [Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 1GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175292-elemental-2023-hq-hdrip-720p-x264-hindi-eng-dd51-192kbps-1gb-esub/&do=findComment&comment=353168)
-- [Kushi &lpar;2000&rpar;.Tamil.480p.HDTV.HEVC.AAC2.0 - 1.5GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175293-kushi-2000tamil480phdtvhevcaac20-15gb/&do=findComment&comment=353167)
-- [Kushi &lpar;2000&rpar;.Tamil.480p.HDTV.HEVC.AAC2.0 - 1.5GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175293-kushi-2000tamil480phdtvhevcaac20-15gb/&do=findComment&comment=353166)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
