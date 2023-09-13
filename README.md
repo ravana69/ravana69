@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ramzan Nilavotha  | Animation Lyrical Video | K J Yesudas | Deepak Dev | Felix Devasia](https://www.youtube.com/watch?v=MRE16mdKLGg)
+- [Vaalongi Porinirangi | Desham 2002 | Gireesh Puthenchery | M. G. Sreekumar | Malayalam Movie Song](https://www.youtube.com/watch?v=nIR5xXDUjDI)
 - [Manam Thelinja | Goal | Rejith Menon | Aksha Pardasany | Vidyasagar | Vineeth Sreenivasan | Muktha](https://www.youtube.com/watch?v=0J2BlKi3ZCA)
 - [എന്‍റെസമ്പത്തെന്നുചൊല്ലുവാൻ | Sadhu Kochukunjupadeshi #malayalamchristiansongs](https://www.youtube.com/watch?v=Z8qIeRtaNMU)
 - [Karaoke Ithu Vareyenne Karuthiya Nadha | M E Cherian | Malayalam Christian Songs Karaoke](https://www.youtube.com/watch?v=TH5xcm3gIHs)
 - [Dyovin Sammanam | Christian Video Song | Shibu Antony | Lijosh Vezhappilly | Joji Johns](https://www.youtube.com/watch?v=zPwZSk2DqYk)
-- [Japamala 13th of September 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 13th of September 23](https://www.youtube.com/watch?v=2XL0l_JoAa0)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #september 13th mother mary hits 2023](https://www.youtube.com/watch?v=8cXtTrp5Eiw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
