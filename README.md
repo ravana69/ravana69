@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aniyathi Praavinu Video Song | Shalini | KS Chithra | Ouseppachan | S Ramesan Nair | Aniyathipravu](https://www.youtube.com/watch?v=7nAkMGVTJ1E)
+- [Lokam Muzhuvan | Kristheeya Bhakthigaanangal | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=9Tk1d2hdlsE)
+- [Chenthengu Kulacha Pole l HD Video l  Maya (1972) l Prem Nazeer l Sharada](https://www.youtube.com/watch?v=YQOmWExd2Rs)
+- [Aananda Nadanam | Kamaladalam | Latha Raju | Raveendran | Kaithapram](https://www.youtube.com/watch?v=rG28m7lKuX8)
+- [ഈ മുളംതണ്ടിൽ ചുരന്നൊരെൻ പാട്ടുകൾപാലാഴിയായ് നെഞ്ചിൽ നിറച്ചുവെന്നോ... #mohanlal #malayalamsongs](https://www.youtube.com/watch?v=2jLT-V0e-dY)
 - [പാടത്തെ പൈങ്കിളിയേ -  Nigoodam Movie Song #shorts](https://www.youtube.com/watch?v=5MM1fWJ1S0Q)
-- [Anthikkallu Pole | Praavu Movie | Shorts #shorts #manoramamusic](https://www.youtube.com/watch?v=QNavsDop_mA)
-- [Anthikkallu Pole | Praavu Movie | Shorts #shorts #manoramamusic](https://www.youtube.com/watch?v=7C8yUkHIxl4)
-- [Manninte Manamulla | Thirayattom | Shorts #manoramamusic #shorts](https://www.youtube.com/watch?v=lhrlplRcpLY)
-- [എന്‍ നീലാകാശം തേടിയണഞ്ഞൊരു | En Neelakasham | Randam Varavu (1990)Movie Song | Yesudas | P Susheela](https://www.youtube.com/watch?v=GPXYe5Po0ZY)
-- [മലയാളത്തിന്റെ ഒരേയൊരു വാനമ്പാടി കെ എസ്‌ ചിത്ര നമ്മുക്ക് സമ്മാനിച്ച എത്രകേട്ടാലും മതിവരാത്ത ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=rsUtOsO-U9U)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
