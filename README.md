@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Dolittle &lpar;2020&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175267-dolittle-2020-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-24gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=353143)
+- [Nepaali &lpar;2008&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 5.7GB - 2.7GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175288-nepaali-2008-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-57gb-27gb-14gb-x264-700mb-400mb/&do=findComment&comment=353142)
+- [Aarambam &lpar;2013&rpar; ASTRO WEB-DL DD5.1 Esubs x264 - 1080p | 720p - 5.7 GB | 3.5 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175287-aarambam-2013-astro-web-dl-dd51-esubs-x264-1080p-720p-57-gb-35-gb/&do=findComment&comment=353141)
 - [Nireekshana &lpar;2023&rpar; AMZN WEB-DL DDP5.1 Esubs - 2160p | 1080p | 720p - 12.6 GB | 7.5 GB | 4 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175286-nireekshana-2023-amzn-web-dl-ddp51-esubs-2160p-1080p-720p-126-gb-75-gb-4-gb/&do=findComment&comment=353140)
 - [JALSA &lpar;2008&rpar; Telugu TRUE WEB-HD - [4K, 2K, 1080p &amp; 480p / AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 13GB - 5.1GB - 3GB &amp; 1.7GB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175249-jalsa-2008-telugu-true-web-hd-4k-2k-1080p-480p-avc-dd51-640kbps-13gb-51gb-3gb-17gb/&do=findComment&comment=353139)
-- [Nireekshana &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175285-nireekshana-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=353138)
-- [Diary &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD5.1 - 192Kbps&rpar; - 20GB - 10GB - 4.7GB - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/169436-diary-2022-tamil-true-web-dl-4k-1080p-720p-avc-dd51-192kbps-20gb-10gb-47gb-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353137)
-- [Baby &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 5GB - 3GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/174988-baby-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-5gb-3gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353136)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
