@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Bambai Meri Jaan &lpar;2023&rpar; S01 EP &lpar;01-10&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 8.6GB - 3.4GB &amp; 1.2GB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175298-bambai-meri-jaan-2023-s01-ep-01-10-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-86gb-34gb-12gb-esub/&do=findComment&comment=353176)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP11 DAY 10 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 908MB - 437MB &amp; 183MB | 13-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175297-bigg-boss-telugu-s07-ep11-day-10-hdtv-1080p-720p-480p-avc-untouched-908mb-437mb-183mb-13-09-2023/&do=findComment&comment=353175)
 - [1- Nenokkadine &lpar;2014&rpar; Telugu - VCD - UNTOUCHED - 1.6GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175299-1-nenokkadine-2014-telugu-vcd-untouched-16gb/&do=findComment&comment=353174)
+- [Bambai Meri Jaan &lpar;2023&rpar; S01 EP &lpar;01-10&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 8.6GB - 3.4GB &amp; 1.2GB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175298-bambai-meri-jaan-2023-s01-ep-01-10-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-86gb-34gb-12gb-esub/&do=findComment&comment=353173)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP11 DAY 10 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 908MB - 437MB &amp; 183MB | 13-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175297-bigg-boss-telugu-s07-ep11-day-10-hdtv-1080p-720p-480p-avc-untouched-908mb-437mb-183mb-13-09-2023/&do=findComment&comment=353172)
-- [Nepaali &lpar;2008&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 5.7GB - 2.7GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175288-nepaali-2008-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-57gb-27gb-14gb-x264-700mb-400mb/&do=findComment&comment=353171)
-- [🔞 Hello Mini &lpar;2020&rpar; Complete S01 Merged MX WEB-DL - [1080p - 720p - 480p - AVC - Telugu - AAC - 14GB - 5.2GB &amp; 2.7GB] - x264 [Google Drive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175296-%F0%9F%94%9E-hello-mini-2020-complete-s01-merged-mx-web-dl-1080p-720p-480p-avc-telugu-aac-14gb-52gb-27gb-x264-google-drive/&do=findComment&comment=353170)
-- [Django Unchained &lpar;2012&rpar; Ai 4K BluRay 2160p SDR HEVC Multi Original Audios [Telugu+Tamil+Hindi+English] - x265 - 8GB - ESub.mkv](https://www.1tamilmv.nexus/index.php?/forums/topic/175295-django-unchained-2012-ai-4k-bluray-2160p-sdr-hevc-multi-original-audios-telugutamilhindienglish-x265-8gb-esubmkv/&do=findComment&comment=353169)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
