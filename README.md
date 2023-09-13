@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന  September 14 Athiravile Prarthana 14th of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=PRdqjmCbteA)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 14th SEP 2023](https://www.youtube.com/watch?v=5P23mN2UTbA)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=ffd6fsB0DR8)
 - [നിശയുടെ ചിറകിൽ| #raveendranmaster | #viral #ytshorts #kjyesudas #lyrics #tharangini | #rahman](https://www.youtube.com/watch?v=PYtO0QOtco0)
 - [Show your Steps for #neelanilave](https://www.youtube.com/watch?v=5CJhLZ9ewg8)
 - [കുരിശേകും തണലിൽ ഞാൻ അണഞ്ഞുന്നു തിരു കുരിശേ പുൽകിടുന്നു .](https://www.youtube.com/watch?v=zWsddJiAbkI)
-- [ഏതോ നിദ്രതൻ പൊൻമയിൽപ്പീലിയിൽഏഴുവർണ്ണകളും നീർത്തി.. | Etho Nidrathan | Ayal Kadha Ezhuthukayanu](https://www.youtube.com/watch?v=pCsUii2jbWs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
