@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ശശിലേഖേ നീ പുല്‍കി പുല്‍കി ചേരും...   ശശികാന്ത കല്ലായി പോയെന്‍ മാനസം.. കുനു കുനെ ചെറു കുറുനിരകള്‍...](https://www.youtube.com/watch?v=WpHEI5JhSHA)
+- [Christian Superhit Songs | Kester | Christian Devotional Songs Malayalam | Joji Johns | Midhila](https://www.youtube.com/watch?v=TxrAMeYFUnE)
 - [Karimizhi Kuruviye | Meesamadhavan | DD 5.1 Audio | Dileep | Kavya Madhavan | Vidyasagar](https://www.youtube.com/watch?v=xpIzKoZ_33Q)
 - [Kamaladalam Mizhiyil | Kamaladalam | MG Sreekumar | Sujatha Mohan | Raveendran | Kaithapram](https://www.youtube.com/watch?v=dq5bN0G2jyg)
 - [ശാരികേ നിന്നെ കാണാൻ താരകം താഴേ വന്നു](https://www.youtube.com/watch?v=wKYlysMr1Yg)
 - [ജീവിത നൊമ്പരങ്ങളിൽ കൂടെയുള്ള ദൈവം.| Rev. Aneesh P Joseph | #shorts #jesus #motivationalvideo](https://www.youtube.com/watch?v=ue-FrrLNMsg)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 14th of September 2023](https://www.youtube.com/watch?v=XCtvenTL6BQ)
-- [Ividathe Chechikku | Azhakulla Saleena | Latha Raju | Jayabharathi | #shorts](https://www.youtube.com/watch?v=zKgNwNikjNQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
