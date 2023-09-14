@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ജീവിതത്തിൽ ഏത് നിമിഷവും താങ്ങായി മാറുന്ന ക്രിസ്തീയ ഗാനങ്ങൾ  | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=61xBFlufGto)
+- [Japamala 14th of September 23 # Mathavinte Japamala Prakashathinte Rahasyangal 14th of September 23](https://www.youtube.com/watch?v=EuDb_mGHAj0)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #september 14th mother mary hits 2023](https://www.youtube.com/watch?v=rgN_Q_-t7YI)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=z4qQIGd2Aa8)
 - [രാവിലെ പ്രാര്‍ത്ഥന  September 14 Athiravile Prarthana 14th of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=PRdqjmCbteA)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 14th SEP 2023](https://www.youtube.com/watch?v=5P23mN2UTbA)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=ffd6fsB0DR8)
-- [നിശയുടെ ചിറകിൽ| #raveendranmaster | #viral #ytshorts #kjyesudas #lyrics #tharangini | #rahman](https://www.youtube.com/watch?v=PYtO0QOtco0)
-- [Show your Steps for #neelanilave](https://www.youtube.com/watch?v=5CJhLZ9ewg8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
