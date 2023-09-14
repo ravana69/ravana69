@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പൈക്കളിതാ പൂമ്പൈക്കളിതാ മേയ്‌ക്കാനിതിലേ നീ വരുമോ ഗോപാൽ യു ആർ മൈ സോൾ #evergeeenmalayalamhits #dileep](https://www.youtube.com/watch?v=aHkV9fgP1Ng)
 - [Shivaranjinee O Priyasakhee | Ingane Oru Nilapakshi 2000 | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=bRiEW6Wt3F4)
 - [Swayamvara Chandrike | Chronic Bachelor | Mukesh | Bhavana | Jayachandran | Deepakdev](https://www.youtube.com/watch?v=hAOyv_Eg5-M)
 - [ജീവിതത്തിൽ ഏത് നിമിഷവും താങ്ങായി മാറുന്ന ക്രിസ്തീയ ഗാനങ്ങൾ  | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=61xBFlufGto)
 - [Japamala 14th of September 23 # Mathavinte Japamala Prakashathinte Rahasyangal 14th of September 23](https://www.youtube.com/watch?v=EuDb_mGHAj0)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #september 14th mother mary hits 2023](https://www.youtube.com/watch?v=rgN_Q_-t7YI)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=z4qQIGd2Aa8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
