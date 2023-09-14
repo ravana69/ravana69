@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Sthuthigeethangal | Malayalam Christian Songs Jukebox | Nonstop Malayalam Christian Worship Songs](https://www.youtube.com/watch?v=e8wNsJjEMUw)
+- [Ente Maavum Poothe  | Remix | Adi Kapyare Koottamani| DJ Savyo | Shaan Rahman | Manu Manjith](https://www.youtube.com/watch?v=u1DwhZ2rw5s)
+- [Manninte Manamulla | Thirayattom | Shorts #manoramamusic #shorts](https://www.youtube.com/watch?v=5QiquSf9YO4)
+- [Sandhyakkenthinu Sindooram l Maya ( 1972 ) l Sreekumaran Thampi l P Jayachandran](https://www.youtube.com/watch?v=w1penss_fxg)
 - [Kannil Umma Vechu | Alice In Wonderland | Vidyasagar | Jayaram | Kathal Sandya | Vineeth](https://www.youtube.com/watch?v=70ZOnRBbWXk)
 - [Sarike Ninne Kanan Video Song | Raakilipattu | Vidyasagar | KS Chithra, Sujatha Mohan | Priyadarshan](https://www.youtube.com/watch?v=1ci219EAqJA)
-- [മനസ്സിൽ വർണ്ണ വസന്തം തീർക്കും ആനന്ദദായകമാം സൂപ്പർഹിറ്റ് ചലച്ചിത്രഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=da4HeaIHkuI)
-- [Saptha Swarangalunarnnu | Paalattu Kunjikannan | G Devarajan | Yusufali Kecheri | KJ Yesudas](https://www.youtube.com/watch?v=kFKGRzjiIKo)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=qhqiTtLmG9Y)
-- [Kurukuthi Kannulla | Uncle Bun | Pazhavila Ramesan | Raveendran | KJ Yesudas | Mohanlal](https://www.youtube.com/watch?v=B4YGLKCPyTI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
