@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Sthuthigeethangal | Malayalam Christian Songs Jukebox | Nonstop Malayalam Christian Worship Songs](https://www.youtube.com/watch?v=e8wNsJjEMUw)
-- [Ente Maavum Poothe  | Remix | Adi Kapyare Koottamani| DJ Savyo | Shaan Rahman | Manu Manjith](https://www.youtube.com/watch?v=u1DwhZ2rw5s)
-- [Manninte Manamulla | Thirayattom | Shorts #manoramamusic #shorts](https://www.youtube.com/watch?v=5QiquSf9YO4)
-- [Sandhyakkenthinu Sindooram l Maya ( 1972 ) l Sreekumaran Thampi l P Jayachandran](https://www.youtube.com/watch?v=w1penss_fxg)
-- [Kannil Umma Vechu | Alice In Wonderland | Vidyasagar | Jayaram | Kathal Sandya | Vineeth](https://www.youtube.com/watch?v=70ZOnRBbWXk)
-- [Sarike Ninne Kanan Video Song | Raakilipattu | Vidyasagar | KS Chithra, Sujatha Mohan | Priyadarshan](https://www.youtube.com/watch?v=1ci219EAqJA)
+- [ജീവിത നൊമ്പരങ്ങളിൽ കൂടെയുള്ള ദൈവം.| Rev. Aneesh P Joseph | #shorts #jesus #motivationalvideo](https://www.youtube.com/watch?v=ue-FrrLNMsg)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 14th of September 2023](https://www.youtube.com/watch?v=XCtvenTL6BQ)
+- [Ividathe Chechikku | Azhakulla Saleena | Latha Raju | Jayabharathi | #shorts](https://www.youtube.com/watch?v=zKgNwNikjNQ)
+- [Jeevitham Oru | Madambi | Mohanlal | M Jayachandran | Gireesh Puthanchery](https://www.youtube.com/watch?v=llzVsqDlYkc)
+- [രാഗിണിയാം യുവരാധയിതാ രാസോല്ലസിതം പാടുകയായ്‌ഗോപാൽ യു ആർ മൈ ഡ്രീം ബോയ്‌  #malayalamsongs #dileep](https://www.youtube.com/watch?v=ERla-q7wVdI)
+- [Karthikappoo - Video Song | Kopam Movie | Manjari, Rajesh Vijay | Saji Sreevalsam](https://www.youtube.com/watch?v=4X1c858qUSc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
