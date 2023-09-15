@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [വീടൊരുങ്ങി നാടൊരുങ്ങി..കൽ‌പാത്തി തേരൊരുങ്ങി പൊങ്കലുമായ് വന്നു പൌർണ്ണമി.. പിച്ച വെച്ച നാൾമുതൽക്കു നീ](https://www.youtube.com/watch?v=nMVWtYozuKw)
+- [Idayaraga Ramanadukham | Uncle Bun | Pazhavila Ramesan | Raveendran | KJ Yesudas | KS Chithra](https://www.youtube.com/watch?v=QOi-hucqE7o)
+- [മനസിന് ഉണർവും ഉന്മേഷവുമേകുന്ന മലയാളസിനിമയിലെ തെരെഞ്ഞെടുത്ത ജനപ്രിയ ഗാനങ്ങൾ | EVERGREEN FILM SONGS](https://www.youtube.com/watch?v=Fv5LQCDQRVQ)
+- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=GS8SjO8uYEo)
+- [Oduvil Oru Video Song | Thirakkatha | Priyamani | Prithviraj | KS Chithra | Sharreth | Rafeeq Ahamed](https://www.youtube.com/watch?v=GiOlAco9T9s)
 - [Paathiravum Poonilaavum | Ingane Oru Nilapakshi 2000 | K. J. Yesudas | MalayalamMovie Song](https://www.youtube.com/watch?v=5TF_F-RgIS8)
-- [ആണ്‍കുയിലേ നീ പാടുമ്പോള്‍... പ്രിയതരമേതോ നൊമ്പരം....  കോലക്കുഴല്‍ വിളികേട്ടോ രാധേ...](https://www.youtube.com/watch?v=UmChyrZtTnw)
-- [Pacha Theeyanu Nee | Bahubali | Animation Video Song | Felix Devasia | M M Keeravani | SS Rajamouli](https://www.youtube.com/watch?v=xAJ0EeMU0Jg)
-- [Manninte Manamulla | Thirayattom | Shorts #manoramamusic #shorts](https://www.youtube.com/watch?v=7UUhWpIVsPU)
-- [ഇനിമേൽ എനിക്കില്ലോർ ഭയം | Shorts  #devotionalsongs #malayalamchristiansongs](https://www.youtube.com/watch?v=yb241ZRUHjc)
-- [Japamala 15th of September 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 15th of September 23](https://www.youtube.com/watch?v=fkZzicc7Y3M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
