@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP13 DAY 12 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 494MB &amp; 215MB | 15-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175344-bigg-boss-telugu-s07-ep13-day-12-hdtv-1080p-720p-480p-avc-untouched-1gb-494mb-215mb-15-09-2023/&do=findComment&comment=353305)
+- [Mark Antony Movie Review | Vishal | SJ Suryah | GV Prakash | Adhik Ravichandran](https://www.1tamilmv.nexus/index.php?/forums/topic/175343-mark-antony-movie-review-vishal-sj-suryah-gv-prakash-adhik-ravichandran/&do=findComment&comment=353304)
 - [Unnai Ninaithu - Sil Sil Sil Silala - 1080P &amp; 4K - DD5.1 + DTSHDMA5.1 &lpar;Lossless FLAC Upmix&rpar; + Untouched 16Bit FLAC](https://www.1tamilmv.nexus/index.php?/forums/topic/175331-unnai-ninaithu-sil-sil-sil-silala-1080p-4k-dd51-dtshdma51-lossless-flac-upmix-untouched-16bit-flac/&do=findComment&comment=353303)
 - [Mark Antony &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175333-mark-antony-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=353302)
 - [Bhola Shankar &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 3GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175323-bhola-shankar-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-3gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353301)
-- [Meg 2: The Trench &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 7GB - 3.2GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175307-meg-2-the-trench-2023-hd-original-audios-4k-1080p-720p-x264-tamil-telugu-hindi-eng-7gb-32gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=353300)
-- [Journey Of Love 18 + &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175308-journey-of-love-18-2023-malayalam-true-web-dl-1080p-720p-avc-hevc-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353298)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
