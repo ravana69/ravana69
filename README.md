@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vaaleduthal Angakali | Meesha Madhavan | Dileep | Kavya Madhavan | Vidyasagar | Gireesh Puthenchery](https://www.youtube.com/watch?v=xlVs5lENuZw)
+- [Ekarakshayaayidum ||BabyJohn Kalayanthani |Joji Johns |Christian Devotional Songs |Kester](https://www.youtube.com/watch?v=LEAn8jzpft4)
 - [കേട്ടനാൾ മുതൽ ഇന്ന് വരെ മനസിൽനിന്ന് മായാതെ നിൽക്കുന്ന നിത്യസുന്ദരമാം മെലഡി ഗാനങ്ങൾ |EVERGREEN  SONGS](https://www.youtube.com/watch?v=Qt2K6G30PFE)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 15th of September 2023](https://www.youtube.com/watch?v=t_8VwSmZZ2s)
 - [Chirikkumbol Nee Chithraangada l Jimmy (1979) l Sreekumaran Thampi l V.Dakshinamoorthy l K J Yesudas](https://www.youtube.com/watch?v=Zd_5WUCQ79s)
 - [Melle Anuraagamen - Video Song | Mr. Hacker | Harris, Neena Kurup, Reshma Rajan | Roshan Joseph](https://www.youtube.com/watch?v=R4wVJ8gtDsc)
-- [നമ്മെ മുറിവേൽപ്പിച്ചവരോട്  നമുക്ക് ചെയ്യാൻ കഴിയുന്ന രണ്ട് കാര്യങ്ങൾ ഉണ്ട് | Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=Cw8w_-Kn36g)
-- [Nishagandhi Poothu | Nakshathragal Parayathirunnathu | KJ Yesudas | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=0Ecc_7eb5-8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
