@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Journey Of Love 18 + &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175308-journey-of-love-18-2023-malayalam-true-web-dl-1080p-720p-avc-hevc-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353298)
+- [Pappachan Olivilaanu &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.4GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175318-pappachan-olivilaanu-2023-malayalam-true-web-dl-1080p-720p-avc-aac-24gb-13gb-x264-700mb-400mb/&do=findComment&comment=353297)
 - [Digital Village &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 1.8GB &amp; 1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175313-digital-village-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-18gb-1gb-x264-700mb-400mb-esub/&do=findComment&comment=353296)
 - [Journey Of Love 18 + &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu + Hindi + Kannada] - 2.8GB &amp; 1.4GB] - [x264 - 750MB - 450MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175309-journey-of-love-18-2023-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-28gb-14gb-x264-750mb-450mb-esub/&do=findComment&comment=353295)
 - [Bhola Shankar &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 3GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175323-bhola-shankar-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-3gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353294)
-- [Her - Chapter 1 &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.2GB &amp; 1.2GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175327-her-chapter-1-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-22gb-12gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353293)
-- [Blood &amp; Chocolate &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.9GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175321-blood-chocolate-2023-telugu-true-web-dl-1080p-720p-avc-dd51-192kbps-29gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353292)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
