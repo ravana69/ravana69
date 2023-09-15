@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Journey Of Love 18+ &lpar;2023&rpar; SONY WEB-DL Multi AAC2.0 Esubs x264 - 1080p | 720p - 3.5 GB | 1.5 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175329-journey-of-love-18-2023-sony-web-dl-multi-aac20-esubs-x264-1080p-720p-35-gb-15-gb/&do=findComment&comment=353242)
 - [Aneethi &lpar;2023&rpar; Tamil - TRUE WEB-DL - 4K &amp; 1080p - AVC / HEVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 6.8GB - 6.6GB &amp; 3.6GB - ESub [HYBRID VERSION - SS+AMZN+AHA] [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175328-aneethi-2023-tamil-true-web-dl-4k-1080p-avc-hevc-untouched-dd51640kbps-68gb-66gb-36gb-esub-hybrid-version-ssamznaha-gdrive/&do=findComment&comment=353241)
 - [Digital Village &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 1.8GB &amp; 1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175313-digital-village-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-18gb-1gb-x264-700mb-400mb-esub/&do=findComment&comment=353240)
 - [Aneethi &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 7GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175312-aneethi-2023-tamil-true-web-dl-4k1080p-720p-avc-hevc-dd51-640kbps-7gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353239)
 - [Kousalya Supraja Rama &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+2.0 - 224Kbps&rpar; - 2.6GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175319-kousalya-supraja-rama-2023-kannada-true-web-dl-1080p-720p-avc-dd20-224kbps-26gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=353238)
-- [Aneethi &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 7GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175312-aneethi-2023-tamil-true-web-dl-4k1080p-720p-avc-hevc-dd51-640kbps-7gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353237)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
