@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [പിടിച്ചു കെട്ടും കരളിലെ തടവറയിൽകോപമോടെ മെല്ലെ മെല്ലെ മാറിടുന്ന മാൻ കിടാവെ #mohanlal  #malayalamsongs](https://www.youtube.com/watch?v=qfpJUcpBt0c)
-- [വീടൊരുങ്ങി നാടൊരുങ്ങി..കൽ‌പാത്തി തേരൊരുങ്ങി പൊങ്കലുമായ് വന്നു പൌർണ്ണമി.. പിച്ച വെച്ച നാൾമുതൽക്കു നീ](https://www.youtube.com/watch?v=nMVWtYozuKw)
-- [Idayaraga Ramanadukham | Uncle Bun | Pazhavila Ramesan | Raveendran | KJ Yesudas | KS Chithra](https://www.youtube.com/watch?v=QOi-hucqE7o)
-- [മനസിന് ഉണർവും ഉന്മേഷവുമേകുന്ന മലയാളസിനിമയിലെ തെരെഞ്ഞെടുത്ത ജനപ്രിയ ഗാനങ്ങൾ | EVERGREEN FILM SONGS](https://www.youtube.com/watch?v=Fv5LQCDQRVQ)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=GS8SjO8uYEo)
-- [Oduvil Oru Video Song | Thirakkatha | Priyamani | Prithviraj | KS Chithra | Sharreth | Rafeeq Ahamed](https://www.youtube.com/watch?v=GiOlAco9T9s)
+- [കേട്ടനാൾ മുതൽ ഇന്ന് വരെ മനസിൽനിന്ന് മായാതെ നിൽക്കുന്ന നിത്യസുന്ദരമാം മെലഡി ഗാനങ്ങൾ |EVERGREEN  SONGS](https://www.youtube.com/watch?v=Qt2K6G30PFE)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 15th of September 2023](https://www.youtube.com/watch?v=t_8VwSmZZ2s)
+- [Chirikkumbol Nee Chithraangada l Jimmy (1979) l Sreekumaran Thampi l V.Dakshinamoorthy l K J Yesudas](https://www.youtube.com/watch?v=Zd_5WUCQ79s)
+- [Melle Anuraagamen - Video Song | Mr. Hacker | Harris, Neena Kurup, Reshma Rajan | Roshan Joseph](https://www.youtube.com/watch?v=R4wVJ8gtDsc)
+- [നമ്മെ മുറിവേൽപ്പിച്ചവരോട്  നമുക്ക് ചെയ്യാൻ കഴിയുന്ന രണ്ട് കാര്യങ്ങൾ ഉണ്ട് | Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=Cw8w_-Kn36g)
+- [Nishagandhi Poothu | Nakshathragal Parayathirunnathu | KJ Yesudas | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=0Ecc_7eb5-8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
