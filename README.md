@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Digital Village &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 1.8GB &amp; 1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175313-digital-village-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-18gb-1gb-x264-700mb-400mb-esub/&do=findComment&comment=353240)
 - [Aneethi &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 7GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175312-aneethi-2023-tamil-true-web-dl-4k1080p-720p-avc-hevc-dd51-640kbps-7gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353239)
 - [Kousalya Supraja Rama &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+2.0 - 224Kbps&rpar; - 2.6GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175319-kousalya-supraja-rama-2023-kannada-true-web-dl-1080p-720p-avc-dd20-224kbps-26gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=353238)
 - [Aneethi &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 7GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175312-aneethi-2023-tamil-true-web-dl-4k1080p-720p-avc-hevc-dd51-640kbps-7gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353237)
 - [Hostel Hudugaru Bekagiddare &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175320-hostel-hudugaru-bekagiddare-2023-kannada-true-web-dl-1080p-720p-avc-aac-20-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=353236)
-- [Her - Chapter 1 &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.2GB &amp; 1.2GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175327-her-chapter-1-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-22gb-12gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353235)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
