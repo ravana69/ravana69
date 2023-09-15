@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Paathiravum Poonilaavum | Ingane Oru Nilapakshi 2000 | K. J. Yesudas | MalayalamMovie Song](https://www.youtube.com/watch?v=5TF_F-RgIS8)
+- [ആണ്‍കുയിലേ നീ പാടുമ്പോള്‍... പ്രിയതരമേതോ നൊമ്പരം....  കോലക്കുഴല്‍ വിളികേട്ടോ രാധേ...](https://www.youtube.com/watch?v=UmChyrZtTnw)
 - [Pacha Theeyanu Nee | Bahubali | Animation Video Song | Felix Devasia | M M Keeravani | SS Rajamouli](https://www.youtube.com/watch?v=xAJ0EeMU0Jg)
 - [Manninte Manamulla | Thirayattom | Shorts #manoramamusic #shorts](https://www.youtube.com/watch?v=7UUhWpIVsPU)
 - [ഇനിമേൽ എനിക്കില്ലോർ ഭയം | Shorts  #devotionalsongs #malayalamchristiansongs](https://www.youtube.com/watch?v=yb241ZRUHjc)
 - [Japamala 15th of September 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 15th of September 23](https://www.youtube.com/watch?v=fkZzicc7Y3M)
-- [Songs Of The Week | Shymol | Christian Devotional Songs Malayalam | Ramesh Murali | Joji Johns](https://www.youtube.com/watch?v=Ptk4c2J_Rok)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #september 15th mother Mary hits 2023](https://www.youtube.com/watch?v=JmJHS3iNjjE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
