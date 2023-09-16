@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [VASU &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 6GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175349-vasu-2002-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-50-6gb/&do=findComment&comment=353319)
 - [Mark Antony &lpar;2023&rpar; Original Motion Picture Soundtrack Master Quality 24bit - FLAC - G.V. Prakash Musical - 170 MB](https://www.1tamilmv.nexus/index.php?/forums/topic/175347-mark-antony-2023-original-motion-picture-soundtrack-master-quality-24bit-flac-gv-prakash-musical-170-mb/&do=findComment&comment=353318)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP13 DAY 12 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 494MB &amp; 215MB | 15-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175344-bigg-boss-telugu-s07-ep13-day-12-hdtv-1080p-720p-480p-avc-untouched-1gb-494mb-215mb-15-09-2023/&do=findComment&comment=353317)
 - [[FIRST ON NET🔥] Dilse &lpar;2023&rpar; S01 EP &lpar;01 - 02&rpar; ETV-WIN WEB-DL- [1080p - 720p &amp; 480p AVC - Telugu - &lpar;AAC 2.0 - 192Kbps&rpar; - 600MB - 300MB - 150MB] - x264 [Google Drive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175350-first-on-net%F0%9F%94%A5-dilse-2023-s01-ep-01-02-etv-win-web-dl-1080p-720p-480p-avc-telugu-aac-20-192kbps-600mb-300mb-150mb-x264-google-drive/&do=findComment&comment=353316)
 - [VASU &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 6GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175349-vasu-2002-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-50-6gb/&do=findComment&comment=353315)
-- [The Wheel of Time S02E05 AMZN WEB-DL Multi DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p | 720p - 10.6 GB | 6 GB | 3.4 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175348-the-wheel-of-time-s02e05-amzn-web-dl-multi-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-720p-106-gb-6-gb-34-gb/&do=findComment&comment=353314)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
