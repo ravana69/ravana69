@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP13 DAY 12 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 494MB &amp; 215MB | 15-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175344-bigg-boss-telugu-s07-ep13-day-12-hdtv-1080p-720p-480p-avc-untouched-1gb-494mb-215mb-15-09-2023/&do=findComment&comment=353325)
+- [Mark Antony &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175333-mark-antony-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=353324)
 - [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;13-15&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175247-vera-maari-office-2023-s01-ep-13-15-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=353323)
 - [King of Kotha &lpar;Original Background Score&rpar; - FLAC - 24Bit &amp; 16Bit - 722MB &amp; 367MB](https://www.1tamilmv.nexus/index.php?/forums/topic/175351-king-of-kotha-original-background-score-flac-24bit-16bit-722mb-367mb/&do=findComment&comment=353322)
 - [VASU &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 6GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175349-vasu-2002-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-50-6gb/&do=findComment&comment=353321)
-- [Perfect Addiction &lpar;2023&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.2GB &amp; 1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175345-perfect-addiction-2023-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-22gb-1gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=353320)
-- [VASU &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 6GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175349-vasu-2002-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-50-6gb/&do=findComment&comment=353319)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
