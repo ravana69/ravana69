@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Anthimazha Mayangi | Nakshathragal Parayathirunnathu | KJ Yesudas | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=__mIPh5ilO0)
+- [മാറ്റിനിർത്തപ്പെട്ട നീയും മാനിക്കപ്പെടുന്ന ഒരു ദിവസമുണ്ട് |Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=oyyLvuuh8Es)
 - [Unarumee Gaanam Video Song | HD | Moonnam Pakkam Movie Song | REMASTERED |](https://www.youtube.com/watch?v=YMml0z0MWes)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 16th of September 2023](https://www.youtube.com/watch?v=QZGepHh-0Q4)
 - [Hrudayathin Jalakam | G. Venugopal | Radhika Ashok | Jose Kadavil | Malayalam Music Album](https://www.youtube.com/watch?v=8DvgQ0fGRjw)
 - [Poovarashin Kuda Nivarthi |  Dilliwala Rajakumaran | Jayaram | Manju Warrier |  #shorts](https://www.youtube.com/watch?v=u5F70grjwAE)
-- [Madhurithame  | Anuragam | Joel Johns | Manu Gopinath | Titto P Thankachen](https://www.youtube.com/watch?v=SgiuCo2Le7Y)
-- [Njan Kanavil Kandoru | Aagathan | Beautiful Romantic Song #shorts](https://www.youtube.com/watch?v=sgY4Uw89W5Y)
-- [Sathyathin Kavalkkaran l Jimmy-1979 l Kalyani Menon l Sreekumaran Thampi](https://www.youtube.com/watch?v=mgg6LyQV7Kw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
