@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കൊതിച്ചു പോയി കണ്ടു കണ്ടു കൊതിച്ചു പോയിവാർതിങ്കൾ നെഞ്ചിലേറ്റി മെയ് തലോടും സ്വർണ്ണമാനേ #mohanlal](https://www.youtube.com/watch?v=5CG2HWad_AQ)
+- [Kilukkam Petty Kalapila | Mark Antony | Sureshgopi | Kaveri | Yesudas | Bearny Ignatius](https://www.youtube.com/watch?v=tbguV7CEHq0)
+- [Chellakkaatte Mullathayyinu Maala | Ingane Oru Nilapakshi 2000 | M.G.Sreekumar | MalayalamMovie Song](https://www.youtube.com/watch?v=SfJn0rM3ZNo)
 - [Njanennum Sthuthikkum |Shorts #manoramachristiandevotionalsongs #shorts](https://www.youtube.com/watch?v=sASDkq6axpE)
 - [Christian Video Songs Malayalam | Madhu Balakrishnan | Sreya Jayadeep | Christian Melody Songs](https://www.youtube.com/watch?v=qvI2Wv9xrkw)
 - [Japamala 16th of September 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 16th of September 23](https://www.youtube.com/watch?v=Ux_yaB1hzks)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #september 16th mother mary hits 2023](https://www.youtube.com/watch?v=MVreIsb9pxY)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=e6i3le34Clg)
-- [രാവിലെ പ്രാര്‍ത്ഥന  September 16 Athiravile Prarthana 16th of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=rIDmabCFW4A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
