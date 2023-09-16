@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chimmi Chimmi | Krishnadiya | Urumi #shorts #cover #urumisong #deepakdev #malayalamcover](https://www.youtube.com/watch?v=gZFh3Da-UrY)
+- [തേനുറയും ചെമ്പനിനീർ പൂവഴകേമാനേ..മാനേ.. മാനേ..മാ..നേ | #mohanlal #evergeeenmalayalamhits #love](https://www.youtube.com/watch?v=k68VOqKVb24)
+- [Aanandam | Music Video | Sneha Biswas | Rakshana | Sneha Nandu | Sreesankar P](https://www.youtube.com/watch?v=i6zICpdRg2A)
 - [മോഹൻലാലിന് എന്തിനാ അവാർഡ് കൊടുത്തേ ? കാണികളെ പൊട്ടിച്ചിരിപ്പിച്ച  ഇന്നസെന്റ്  #mohanlal  #shorts](https://www.youtube.com/watch?v=MqUG3XB-BAI)
 - [പലവട്ടം കേട്ടതാണെങ്കിലും പിന്നെയും പലതവണ കേൾക്കാൻ രസമുള്ള മലയാള ചലച്ചിത്ര ഗാനങ്ങൾ | EVERGREEN HITS](https://www.youtube.com/watch?v=b6hHNwQBWvY)
 - [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=TlkW6yxZw8U)
-- [പലവട്ടം കേട്ടിട്ടും ഇപ്പോഴും കൊതിതീരാത്ത മലയാളസിനിമയിലെ മനം കവരും സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | SUPERHITS](https://www.youtube.com/watch?v=qQo06_SRn8Y)
-- [Manikkuyile Video Song| Valkannadi | Kalabhavan Mani | Geethu Mohandas | KJ Yesudas | Sujatha Mohan](https://www.youtube.com/watch?v=MD-6R-QO8yY)
-- [Kannadi Kayalinoram | Oruthee | Lyrical Video | P Jayachandran | Harinarayanan B K  | Gopi Sundar](https://www.youtube.com/watch?v=lOW-ojWSaQc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
