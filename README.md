@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Chimmi Chimmi | Krishnadiya | Urumi #shorts #cover #urumisong #deepakdev #malayalamcover](https://www.youtube.com/watch?v=gZFh3Da-UrY)
-- [തേനുറയും ചെമ്പനിനീർ പൂവഴകേമാനേ..മാനേ.. മാനേ..മാ..നേ | #mohanlal #evergeeenmalayalamhits #love](https://www.youtube.com/watch?v=k68VOqKVb24)
-- [Aanandam | Music Video | Sneha Biswas | Rakshana | Sneha Nandu | Sreesankar P](https://www.youtube.com/watch?v=i6zICpdRg2A)
-- [മോഹൻലാലിന് എന്തിനാ അവാർഡ് കൊടുത്തേ ? കാണികളെ പൊട്ടിച്ചിരിപ്പിച്ച  ഇന്നസെന്റ്  #mohanlal  #shorts](https://www.youtube.com/watch?v=MqUG3XB-BAI)
-- [പലവട്ടം കേട്ടതാണെങ്കിലും പിന്നെയും പലതവണ കേൾക്കാൻ രസമുള്ള മലയാള ചലച്ചിത്ര ഗാനങ്ങൾ | EVERGREEN HITS](https://www.youtube.com/watch?v=b6hHNwQBWvY)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=TlkW6yxZw8U)
+- [Unarumee Gaanam Video Song | HD | Moonnam Pakkam Movie Song | REMASTERED |](https://www.youtube.com/watch?v=YMml0z0MWes)
+- [Hrudayathin Jalakam | G. Venugopal | Radhika Ashok | Jose Kadavil | Malayalam Music Album](https://www.youtube.com/watch?v=8DvgQ0fGRjw)
+- [Poovarashin Kuda Nivarthi |  Dilliwala Rajakumaran | Jayaram | Manju Warrier |  #shorts](https://www.youtube.com/watch?v=u5F70grjwAE)
+- [Madhurithame  | Anuragam | Joel Johns | Manu Gopinath | Titto P Thankachen](https://www.youtube.com/watch?v=SgiuCo2Le7Y)
+- [Njan Kanavil Kandoru | Aagathan | Beautiful Romantic Song #shorts](https://www.youtube.com/watch?v=sgY4Uw89W5Y)
+- [Sathyathin Kavalkkaran l Jimmy-1979 l Kalyani Menon l Sreekumaran Thampi](https://www.youtube.com/watch?v=mgg6LyQV7Kw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
