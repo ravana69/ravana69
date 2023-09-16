@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [King of Kotha &lpar;Original Background Score&rpar; - FLAC - 24Bit &amp; 16Bit - 722MB &amp; 367MB](https://www.1tamilmv.nexus/index.php?/forums/topic/175351-king-of-kotha-original-background-score-flac-24bit-16bit-722mb-367mb/&do=findComment&comment=353322)
+- [VASU &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 6GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175349-vasu-2002-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-50-6gb/&do=findComment&comment=353321)
+- [Perfect Addiction &lpar;2023&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.2GB &amp; 1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175345-perfect-addiction-2023-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-22gb-1gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=353320)
 - [VASU &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 6GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175349-vasu-2002-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-50-6gb/&do=findComment&comment=353319)
 - [Mark Antony &lpar;2023&rpar; Original Motion Picture Soundtrack Master Quality 24bit - FLAC - G.V. Prakash Musical - 170 MB](https://www.1tamilmv.nexus/index.php?/forums/topic/175347-mark-antony-2023-original-motion-picture-soundtrack-master-quality-24bit-flac-gv-prakash-musical-170-mb/&do=findComment&comment=353318)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 EP13 DAY 12 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 494MB &amp; 215MB | 15-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175344-bigg-boss-telugu-s07-ep13-day-12-hdtv-1080p-720p-480p-avc-untouched-1gb-494mb-215mb-15-09-2023/&do=findComment&comment=353317)
-- [[FIRST ON NET🔥] Dilse &lpar;2023&rpar; S01 EP &lpar;01 - 02&rpar; ETV-WIN WEB-DL- [1080p - 720p &amp; 480p AVC - Telugu - &lpar;AAC 2.0 - 192Kbps&rpar; - 600MB - 300MB - 150MB] - x264 [Google Drive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175350-first-on-net%F0%9F%94%A5-dilse-2023-s01-ep-01-02-etv-win-web-dl-1080p-720p-480p-avc-telugu-aac-20-192kbps-600mb-300mb-150mb-x264-google-drive/&do=findComment&comment=353316)
-- [VASU &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 6GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175349-vasu-2002-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-50-6gb/&do=findComment&comment=353315)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
