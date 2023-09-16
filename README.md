@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Desamuduru &lpar;2007&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.6GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175353-desamuduru-2007-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-66gb-esub/&do=findComment&comment=353339)
+- [Desamuduru &lpar;2007&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.6GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175353-desamuduru-2007-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-66gb-esub/&do=findComment&comment=353338)
 - [Meg 2_ The Trench &lpar;2023&rpar; AMZN WEBRip - 4K 2160p HDR10 - HEVC - Multi Original Audios &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Hindi + English]  - ESub.mkv - 14.08](https://www.1tamilmv.nexus/index.php?/forums/topic/175352-meg-2_-the-trench-2023-amzn-webrip-4k-2160p-hdr10-hevc-multi-original-audios-dd51-640kbps-tamil-telugu-hindi-english-esubmkv-1408/&do=findComment&comment=353337)
 - [Mark Antony &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175333-mark-antony-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=353336)
 - [Mark Antony &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175334-mark-antony-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=353335)
-- [Perfect Addiction &lpar;2023&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.2GB &amp; 1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175345-perfect-addiction-2023-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-22gb-1gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=353334)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 EP13 DAY 12 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 494MB &amp; 215MB | 15-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175344-bigg-boss-telugu-s07-ep13-day-12-hdtv-1080p-720p-480p-avc-untouched-1gb-494mb-215mb-15-09-2023/&do=findComment&comment=353333)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
