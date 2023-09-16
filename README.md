@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=e6i3le34Clg)
 - [രാവിലെ പ്രാര്‍ത്ഥന  September 16 Athiravile Prarthana 16th of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=rIDmabCFW4A)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 16th SEP 2023](https://www.youtube.com/watch?v=t92bcuq6VuI)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=0SZg867rnpY)
 - [ഈനീലരാവിൽ സ്നേഹാർദ്രനായി ഞാൻ..| കെ ജെ യേശുദാസ് | കെ എസ് ചിത്ര |Original Audio Remastered movie songs](https://www.youtube.com/watch?v=o9B1xqr9m80)
 - [അവന്റെ വചനം കാതോർക്കുമ്പോൾ ജീവിതം സംപൂർണ്ണമാകും .](https://www.youtube.com/watch?v=csfyrfZ-bvs)
-- [Maanathambili Mannil | Aayiram Meni | Sujatha Mohan | Manoj K Jayan](https://www.youtube.com/watch?v=cXMILjkwd7w)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
