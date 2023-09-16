@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manikkuyile Video Song| Valkannadi | Kalabhavan Mani | Geethu Mohandas | KJ Yesudas | Sujatha Mohan](https://www.youtube.com/watch?v=MD-6R-QO8yY)
+- [Kannadi Kayalinoram | Oruthee | Lyrical Video | P Jayachandran | Harinarayanan B K  | Gopi Sundar](https://www.youtube.com/watch?v=lOW-ojWSaQc)
 - [കൊതിച്ചു പോയി കണ്ടു കണ്ടു കൊതിച്ചു പോയിവാർതിങ്കൾ നെഞ്ചിലേറ്റി മെയ് തലോടും സ്വർണ്ണമാനേ #mohanlal](https://www.youtube.com/watch?v=5CG2HWad_AQ)
 - [Kilukkam Petty Kalapila | Mark Antony | Sureshgopi | Kaveri | Yesudas | Bearny Ignatius](https://www.youtube.com/watch?v=tbguV7CEHq0)
 - [Chellakkaatte Mullathayyinu Maala | Ingane Oru Nilapakshi 2000 | M.G.Sreekumar | MalayalamMovie Song](https://www.youtube.com/watch?v=SfJn0rM3ZNo)
 - [Njanennum Sthuthikkum |Shorts #manoramachristiandevotionalsongs #shorts](https://www.youtube.com/watch?v=sASDkq6axpE)
-- [Christian Video Songs Malayalam | Madhu Balakrishnan | Sreya Jayadeep | Christian Melody Songs](https://www.youtube.com/watch?v=qvI2Wv9xrkw)
-- [Japamala 16th of September 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 16th of September 23](https://www.youtube.com/watch?v=Ux_yaB1hzks)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
