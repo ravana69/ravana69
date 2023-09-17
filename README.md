@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Elamalakaadinullil - Chill Trap | Pathaam Valavu | Ranjin Raj | Haricharan | Alvin Bruno](https://www.youtube.com/watch?v=JXZfBCIVbR8)
 - [Manikinavin Kothumbuvallam Video Song | Prithviraj | Shriya Saran | KJ Yesudas | Sujatha Mohan](https://www.youtube.com/watch?v=IwysyMb26Zg)
 - [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=S2mrquOOTyo)
 - [പൂവിനെതൊട്ട്‌ തഴുകിയുണർത്തുന്ന സൂര്യകിരണമായ്‌ വന്നു.. #shorts #chippyrenjith #krishnakumar](https://www.youtube.com/watch?v=ZlBCyF-WyqM)
 - [Mandara Poonkatte | Paalattu Kunjikannan | Yusufali Kecheri | G Devarajan | P Susheela | P Madhuri](https://www.youtube.com/watch?v=6YioqlojOY8)
 - [പാട്ടുപെട്ടി - Paattupetti Vol 25 | Malayalam Film Songs](https://www.youtube.com/watch?v=kppaqayWQJ0)
-- [Unaroo hridaya | Ingane Oru Nilapakshi 2000 | K. J. Yesudas, K. S. Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=dMCLsckkE2E)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
