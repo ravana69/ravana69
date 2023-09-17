@@ -25,11 +25,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Family Dhamaka &lpar;2023&rpar; S01 EP01 Telugu TRUE WEB-DL - [1080p - 720p - AVC - &lpar;AAC 2.0&rpar; - 1.5GB - 750MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175360-family-dhamaka-2023-s01-ep01-telugu-true-web-dl-1080p-720p-avc-aac-20-15gb-750mb-400mb-esub/&do=findComment&comment=353357)
+- [NARASIMHA &lpar;1999&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 4GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175363-narasimha-1999-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-4gb/&do=findComment&comment=353356)
 - [Run Raja Run &lpar;2014&rpar; Telugu True iTunes WEB-DL - &lpar;DD5.1 - 384Kbps&rpar; - [1080p - 4.6GB - 3.5GB &amp; 2.5GB | 720p - 1.8GB &amp; 1.4GB | x264 - 700MB - 400MB &amp; 300MB] - REQUESTED](https://www.1tamilmv.nexus/index.php?/forums/topic/107651-run-raja-run-2014-telugu-true-itunes-web-dl-dd51-384kbps-1080p-46gb-35gb-25gb-720p-18gb-14gb-x264-700mb-400mb-300mb-requested/&do=findComment&comment=353355)
 - [Engeyum Kadhal &lpar;2011&rpar; ASTRO WEB-DL AAC.2.0 x264 - 1080p | 720p - 4.2 GB |1.7 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175362-engeyum-kadhal-2011-astro-web-dl-aac20-x264-1080p-720p-42-gb-17-gb/&do=findComment&comment=353354)
 - [Memory &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.5GB &amp; 1.3GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175354-memory-2022-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-25gb-13gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=353353)
-- [Feel of Jailer &lpar;&quot;Jailer&quot;&rpar; Master Quality 24bit - FLAC - Anirudh Ravichander - 34 MB](https://www.1tamilmv.nexus/index.php?/forums/topic/175361-feel-of-jailer-jailer-master-quality-24bit-flac-anirudh-ravichander-34-mb/&do=findComment&comment=353352)
-- [Desamuduru &lpar;2007&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.6GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175353-desamuduru-2007-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-66gb-esub/&do=findComment&comment=353351)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
