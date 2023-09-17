@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Japamala 17th of September 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 17th of September 23](https://www.youtube.com/watch?v=n3pzO3TiRq8)
-- [കെസ്റ്ററിന്റെ പ്രിയപ്പെട്ട ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Kester| Melody Song](https://www.youtube.com/watch?v=a1kZC_gmOh4)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #september 17th mother mary hits 2023](https://www.youtube.com/watch?v=Nn6gn4qHko0)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=5lWt0fISDhg)
-- [പ്രഭാത പ്രാര്‍ത്ഥന September 17 # Athiravile Prarthana 17th of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=nS4prJsmb2Q)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 17th SEP 2023](https://www.youtube.com/watch?v=759Mb2kPq_k)
+- [Manikinavin Kothumbuvallam Video Song | Prithviraj | Shriya Saran | KJ Yesudas | Sujatha Mohan](https://www.youtube.com/watch?v=IwysyMb26Zg)
+- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=S2mrquOOTyo)
+- [പൂവിനെതൊട്ട്‌ തഴുകിയുണർത്തുന്ന സൂര്യകിരണമായ്‌ വന്നു.. #shorts #chippyrenjith #krishnakumar](https://www.youtube.com/watch?v=ZlBCyF-WyqM)
+- [Mandara Poonkatte | Paalattu Kunjikannan | Yusufali Kecheri | G Devarajan | P Susheela | P Madhuri](https://www.youtube.com/watch?v=6YioqlojOY8)
+- [പാട്ടുപെട്ടി - Paattupetti Vol 25 | Malayalam Film Songs](https://www.youtube.com/watch?v=kppaqayWQJ0)
+- [Unaroo hridaya | Ingane Oru Nilapakshi 2000 | K. J. Yesudas, K. S. Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=dMCLsckkE2E)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
