@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കർത്താവെ നീയെന്നെ കൈവിടല്ലെ ...](https://www.youtube.com/watch?v=ptda8UC2Mi0)
 - [Christian Melody Songs | Kester | Joji Johns | Christian Devotional Songs Malayalam | Kuttiyachan](https://www.youtube.com/watch?v=zBtv-Jhh4qg)
 - [Aradhya - Audio Song | Kushi (Malayalam) | Vijay Deverakonda, Samantha | Hesham Abdul Wahab](https://www.youtube.com/watch?v=pGXBSPE-oIg)
 - [Manikuyile Manikuyile | Valkkannadi | DD 5.1 Audio  Kalabhavan Mani | M.Jayachandran | Yesudas](https://www.youtube.com/watch?v=hFclYxx2eKs)
 - [Mangalappala Poomanam|Oral Mathram|Shruthi|Praveena|Kavya Madhavan|Thilakan|](https://www.youtube.com/watch?v=z80gHFkbHAU)
 - [Ellarum Chollanu- HD Video Song | Sathyan | Miss Kumari | K Raghavan | Janamma David](https://www.youtube.com/watch?v=mja1p0NUU0k)
-- [കലഹിക്കാനൊക്കെ ഒരുപാടുകാരണങ്ങൾ കണ്ടെത്തുന്ന ഒരു ജീവിതമാണ് നമ്മുടേത്. |Rev. Aneesh P Joseph #shorts](https://www.youtube.com/watch?v=WKRMERuzYRw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
