@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manikuyile Manikuyile | Valkkannadi | DD 5.1 Audio  Kalabhavan Mani | M.Jayachandran | Yesudas](https://www.youtube.com/watch?v=hFclYxx2eKs)
+- [Mangalappala Poomanam|Oral Mathram|Shruthi|Praveena|Kavya Madhavan|Thilakan|](https://www.youtube.com/watch?v=z80gHFkbHAU)
 - [Ellarum Chollanu- HD Video Song | Sathyan | Miss Kumari | K Raghavan | Janamma David](https://www.youtube.com/watch?v=mja1p0NUU0k)
 - [കലഹിക്കാനൊക്കെ ഒരുപാടുകാരണങ്ങൾ കണ്ടെത്തുന്ന ഒരു ജീവിതമാണ് നമ്മുടേത്. |Rev. Aneesh P Joseph #shorts](https://www.youtube.com/watch?v=WKRMERuzYRw)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 17th of September 2023](https://www.youtube.com/watch?v=4lGVZXpCjxQ)
 - [En Roja Neeye - Audio Song | Kushi | Vijay Deverakonda | Samantha Ruth Prabhu | Hesham Abdul Wahab](https://www.youtube.com/watch?v=yWRtd28v2rA)
-- [Kinaavu Neyyum  Video Song  | Naalkkavala | KS Chithra](https://www.youtube.com/watch?v=HiWec27Omk0)
-- [Shilakal - Chill Trap | Kumari | Jakes Bejoy | Akhil J.Chand, Vaiga Nambiar | Alvin Bruno](https://www.youtube.com/watch?v=0v6sjYh40N8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
