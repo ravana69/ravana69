@@ -20,6 +20,8 @@
 
 ![discovery](https://raw.githubusercontent.com/ravana69/ravana69/main/images/Discovery.webp)
 
+{{ template "hourly-table" $todayWeather.HourlyWeathers }}
+
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
