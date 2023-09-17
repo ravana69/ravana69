@@ -15,8 +15,8 @@ jobs:
           city: Chandigarh
           days: 7
           weather-api-key: ${{ secrets.WEATHER_API_KEY }}
-          template-file: 'README.md.template'
-          out-file: 'README.md'
+          template-file: 'https://github.com/ravana69/ravana69/blob/weather/README.md.template'
+          out-file: 'https://github.com/ravana69/ravana69/blob/weather/README.md'
       - name: Commit
         run: |
           if git diff --exit-code; then
