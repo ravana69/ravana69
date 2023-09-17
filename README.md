@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Nuvvu Naaku Nachav &lpar;2001&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.9GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175365-nuvvu-naaku-nachav-2001-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-69gb-esub/&do=findComment&comment=353377)
 - [VASU &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 6GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175349-vasu-2002-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-50-6gb/&do=findComment&comment=353376)
 - [Memory &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.5GB &amp; 1.3GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175354-memory-2022-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-25gb-13gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=353375)
 - [VASU &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 6GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175349-vasu-2002-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-50-6gb/&do=findComment&comment=353374)
 - [Nuvvu Naaku Nachav &lpar;2001&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.9GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175365-nuvvu-naaku-nachav-2001-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-69gb-esub/&do=findComment&comment=353373)
-- [Exclusive Cine Updates | Leo | Mark Antony](https://www.1tamilmv.nexus/index.php?/forums/topic/175303-exclusive-cine-updates-leo-mark-antony/&do=findComment&comment=353372)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
