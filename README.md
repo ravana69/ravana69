@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Dinosaurs &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.2GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175377-dinosaurs-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-62gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353423)
+- [Blue Beetle &lpar;2023&rpar; English TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 11GB - 2.6GB - 1.1GB &amp; 500MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175373-blue-beetle-2023-english-true-web-dl-4k-1080p-720p-avc-dd51-atmos-768kbps-11gb-26gb-11gb-500mb-esub/&do=findComment&comment=353422)
+- [Dinosaurs &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.2GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175377-dinosaurs-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-62gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353421)
 - [BAASHA &lpar;1995&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 3.5GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175372-baasha-1995-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-35gb/&do=findComment&comment=353419)
 - [Nuvvu Naaku Nachav &lpar;2001&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.9GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175365-nuvvu-naaku-nachav-2001-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-69gb-esub/&do=findComment&comment=353418)
-- [BAASHA &lpar;1995&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 3.5GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175372-baasha-1995-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-35gb/&do=findComment&comment=353417)
-- [Nepaali &lpar;2008&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 5.7GB - 2.7GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175288-nepaali-2008-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-57gb-27gb-14gb-x264-700mb-400mb/&do=findComment&comment=353416)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 EP16 DAY 15 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.2GB - 596MB &amp; 260MB | 18-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175376-bigg-boss-telugu-s07-ep16-day-15-hdtv-1080p-720p-480p-avc-untouched-12gb-596mb-260mb-18-09-2023/&do=findComment&comment=353415)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
