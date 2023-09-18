@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [&lpar;TMV CINEMA CLUB SERIES - MOVIE 1 - The Night Eats the World &lpar;2018&rpar;.BDRip.10Bit.1080p.DD5.1.H265.ESub - 2.8GB&rpar; - BEST MOVIES YOU DIDNT WATCH&rpar;](https://www.1tamilmv.nexus/index.php?/forums/topic/175371-tmv-cinema-club-series-movie-1-the-night-eats-the-world-2018bdrip10bit1080pdd51h265esub-28gb-best-movies-you-didnt-watch/&do=findComment&comment=353388)
+- [Diary &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.4GB - 1.2GB &amp; 750MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175368-diary-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-24gb-12gb-750mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353387)
+- [Hi Nanna - Nizhaliyae Lyrical Video - 1080P &amp; 4K - DD5.1 &lpar;YT Audo Upmixed&rpar;](https://www.1tamilmv.nexus/index.php?/forums/topic/175370-hi-nanna-nizhaliyae-lyrical-video-1080p-4k-dd51-yt-audo-upmixed/&do=findComment&comment=353386)
 - [Railin Oligal &lpar;&quot;Blue Star&quot;&rpar; Master Quality 24bit - FLAC - Govind Vasanth - 34 MB](https://www.1tamilmv.nexus/index.php?/forums/topic/175369-railin-oligal-blue-star-master-quality-24bit-flac-govind-vasanth-34-mb/&do=findComment&comment=353385)
 - [Diary &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.4GB - 1.2GB &amp; 750MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175368-diary-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-24gb-12gb-750mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353384)
-- [Mark Antony &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175333-mark-antony-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=353383)
-- [Mark Antony &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175333-mark-antony-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=353382)
-- [[TAMIL] JUJUTSU KAISEN S01 COMPLETE 1080p CR WEB-DL Tamil AAC2.0 x264 - Single Episodes - 32.4 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175367-tamil-jujutsu-kaisen-s01-complete-1080p-cr-web-dl-tamil-aac20-x264-single-episodes-%C2%A0324-gb/&do=findComment&comment=353381)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
