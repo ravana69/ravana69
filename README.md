@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BAASHA &lpar;1995&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 3.5GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175372-baasha-1995-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-35gb/&do=findComment&comment=353393)
+- [BAASHA &lpar;1995&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 3.5GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175372-baasha-1995-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-35gb/&do=findComment&comment=353392)
+- [Nuvvu Naaku Nachav &lpar;2001&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.9GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175365-nuvvu-naaku-nachav-2001-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-69gb-esub/&do=findComment&comment=353391)
 - [The Expendables 4 &lpar;2023&rpar; English HDCAM - [1080p &amp; 720p - x264 - 1.8GB &amp; 900MB | x264 - 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175337-the-expendables-4-2023-english-hdcam-1080p-720p-x264-18gb-900mb-x264-400mb/&do=findComment&comment=353390)
 - [The Expendables 4 &lpar;2023&rpar; English HDCAM - [1080p &amp; 720p - x264 - 1.8GB &amp; 900MB | x264 - 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175337-the-expendables-4-2023-english-hdcam-1080p-720p-x264-18gb-900mb-x264-400mb/&do=findComment&comment=353389)
-- [&lpar;TMV CINEMA CLUB SERIES - MOVIE 1 - The Night Eats the World &lpar;2018&rpar;.BDRip.10Bit.1080p.DD5.1.H265.ESub - 2.8GB&rpar; - BEST MOVIES YOU DIDNT WATCH&rpar;](https://www.1tamilmv.nexus/index.php?/forums/topic/175371-tmv-cinema-club-series-movie-1-the-night-eats-the-world-2018bdrip10bit1080pdd51h265esub-28gb-best-movies-you-didnt-watch/&do=findComment&comment=353388)
-- [Diary &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.4GB - 1.2GB &amp; 750MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175368-diary-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-24gb-12gb-750mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353387)
-- [Hi Nanna - Nizhaliyae Lyrical Video - 1080P &amp; 4K - DD5.1 &lpar;YT Audo Upmixed&rpar;](https://www.1tamilmv.nexus/index.php?/forums/topic/175370-hi-nanna-nizhaliyae-lyrical-video-1080p-4k-dd51-yt-audo-upmixed/&do=findComment&comment=353386)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
