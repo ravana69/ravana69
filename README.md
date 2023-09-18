@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [ഓന് നിപയാണ് ... ഓന് നിപയാണ് .   Virus Movie Scene | Aashiq Abu | OPM Records](https://www.youtube.com/watch?v=IMuLVtRfGjg)
-- [Thaliridum - Lyrical Video | Ival Draupadi | KS Chithra | Rajamani |  Gireesh Puthenchery](https://www.youtube.com/watch?v=ChS9UjwcR_k)
-- [ചൈത്രവേണുവൂതും......ആ...ആ...ചൈത്രവേണുവൂതും മധുമന്ത്രകോകിലങ്ങളുംമേളമേകും ഇന്ദ്രനീല രാത്രി തേടവേ......](https://www.youtube.com/watch?v=DO4txTuQZWQ)
-- [Virunnu Varum l Kuttikkuppayam 1964 l Madhu l Nazir l Sheela l M. S. Baburaj l P. Leela l Uthaman](https://www.youtube.com/watch?v=6t9odMlujkk)
-- [Ambilikkalayoru | Uncle Bun | Pazhavila Ramesan | Raveendran | KJ Yesudas | Mohanlal | Khushboo](https://www.youtube.com/watch?v=nkUyP3RLfks)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=QSZRAscAwIk)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 18th of September 2023](https://www.youtube.com/watch?v=fGaS-5Uiggo)
+- [വേദനിപ്പിച്ച മനുഷ്യരിലേക്ക് ഒരിക്കൽ തിരികെ ചെല്ലണം | Rev. Aneesh P Joseph #shorts #jesus](https://www.youtube.com/watch?v=1Z-uHzW7Dec)
+- [Poonkavil Padivarum | Pathamudayam Movie Song | K S Chithra](https://www.youtube.com/watch?v=XuH--85ec78)
+- [Alivulla Nadha | Kristheeya Bhakthigaanangal | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=laH4v6op0ZY)
+- [Thiruvathira Raavu Polum | Kudamattam | KS Chithra | Johnson | Kaithapram](https://www.youtube.com/watch?v=IrrwG9EQIc0)
+- [താരം വാൽക്കണ്ണാ‍ടി നോക്കി HD | Thaaram Vaalkannaadi Nokki HD | Jayaram | Charmila | Keli](https://www.youtube.com/watch?v=BXUAlacpAlU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
