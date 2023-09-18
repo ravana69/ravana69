@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Blue Beetle &lpar;2023&rpar; English TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 11GB - 2.6GB - 1.1GB &amp; 500MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175373-blue-beetle-2023-english-true-web-dl-4k-1080p-720p-avc-dd51-atmos-768kbps-11gb-26gb-11gb-500mb-esub/&do=findComment&comment=353399)
+- [Bal Ganesh 2 &lpar;2009&rpar; - AMZN WEB-DL - [1080p - 720p &amp; 576p - x264 - &lpar;Telugu - DD+ 2.0 &amp; AAC 2.0&rpar; - 4.3GB - 1.8GB - 900MB &amp; 450MB - ESub [Google Drive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175375-bal-ganesh-2-2009-amzn-web-dl-1080p-720p-576p-x264-telugu-dd-20-aac-20-43gb-18gb-900mb-450mb-esub-google-drive/&do=findComment&comment=353398)
+- [Bal Ganesh &lpar;2007&rpar; - AHA WEB-DL - [1080p - 720p &amp; 576p - x264 - &lpar;Telugu - AAC 2.0&rpar; - 1.8GB - 950MB &amp; 550MB - ESub [Google Drive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175374-bal-ganesh-2007-aha-web-dl-1080p-720p-576p-x264-telugu-aac-20-18gb-950mb-550mb-esub-google-drive/&do=findComment&comment=353397)
+- [Blue Beetle &lpar;2023&rpar; English TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 11GB - 2.6GB - 1.1GB &amp; 500MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175373-blue-beetle-2023-english-true-web-dl-4k-1080p-720p-avc-dd51-atmos-768kbps-11gb-26gb-11gb-500mb-esub/&do=findComment&comment=353396)
 - [BAASHA &lpar;1995&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 3.5GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175372-baasha-1995-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-35gb/&do=findComment&comment=353395)
-- [BAASHA &lpar;1995&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 3.5GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175372-baasha-1995-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-35gb/&do=findComment&comment=353394)
-- [BAASHA &lpar;1995&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 3.5GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175372-baasha-1995-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-35gb/&do=findComment&comment=353393)
-- [BAASHA &lpar;1995&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 3.5GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175372-baasha-1995-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-35gb/&do=findComment&comment=353392)
-- [Nuvvu Naaku Nachav &lpar;2001&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.9GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175365-nuvvu-naaku-nachav-2001-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-69gb-esub/&do=findComment&comment=353391)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
