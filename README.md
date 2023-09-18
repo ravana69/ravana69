@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [[TAMIL] JUJUTSU KAISEN S01 COMPLETE 1080p CR WEB-DL Tamil AAC2.0 x264 - Single Episodes - 32.4 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175367-tamil-jujutsu-kaisen-s01-complete-1080p-cr-web-dl-tamil-aac20-x264-single-episodes-%C2%A0324-gb/&do=findComment&comment=353381)
 - [50 Tamil Movies - 1080p - HEVC - x265 - ESub - 75GB [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/168122-50-tamil-movies-1080p-hevc-x265-esub-75gb-gdrive/&do=findComment&comment=353380)
 - [50 Tamil Movies - 1080p - HEVC - x265 - ESub - 75GB [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/168122-50-tamil-movies-1080p-hevc-x265-esub-75gb-gdrive/&do=findComment&comment=353379)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP15 DAY 14 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.5GB - 770MB &amp; 322MB | 17-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175366-bigg-boss-telugu-s07-ep15-day-14-hdtv-1080p-720p-480p-avc-untouched-15gb-770mb-322mb-17-09-2023/&do=findComment&comment=353378)
 - [Nuvvu Naaku Nachav &lpar;2001&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.9GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175365-nuvvu-naaku-nachav-2001-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-69gb-esub/&do=findComment&comment=353377)
-- [VASU &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.0&rpar; - 6GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175349-vasu-2002-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-50-6gb/&do=findComment&comment=353376)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
