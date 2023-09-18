@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ambilikkalayoru | Uncle Bun | Pazhavila Ramesan | Raveendran | KJ Yesudas | Mohanlal | Khushboo](https://www.youtube.com/watch?v=nkUyP3RLfks)
+- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=QSZRAscAwIk)
+- [മലയാളികളുടെ സ്വീകരണമുറിയിൽ അതിഥിയായി എത്തുന്ന മലയാളചലച്ചിത്രഗാനങ്ങൾ | MALAYALAM EVERGREEN SONGS](https://www.youtube.com/watch?v=40Ded-5BaN4)
 - [Vaanam Pole | Dhosth | Kunchacko Boban | Dileep | Vidyasagar | SPB | Biju Narayanan](https://www.youtube.com/watch?v=s-lrLOXJTXg)
 - [Olichirunne Video Song | Janakan | Gireesh Puthenchery | M Jayachandran | Rajalakshmi Abhiram](https://www.youtube.com/watch?v=_EX9JTjtyb0)
 - [Kalagathai Kaaliyamman | Indriyam 2000 | K.S.Chithra, P. Jayachandran, Chorus | Malayalam Movie Song](https://www.youtube.com/watch?v=-xMXBWoy2AY)
-- [Oh Mama Chandamaama | Karaoke Video | Rock N Roll | Mohanlal | Girish Puthenchery | Vidya Sagar](https://www.youtube.com/watch?v=I8a3hlQGABQ)
-- [Aval Chirichal | Vilakku Vaangiya Veena | Prem Nazeer | Yesudas | Sharada | Sreekumaran Thampi](https://www.youtube.com/watch?v=EZcHDcuak4Q)
-- [എനിക്കെന്‍റെ ആശ്രയം | Franco | RSV #shortsvideo  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=kHSk27ejZjQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
