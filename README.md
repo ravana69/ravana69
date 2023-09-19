@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [കൊതിച്ചു പോയി കണ്ടു കണ്ടു കൊതിച്ചു പോയിവാർതിങ്കൾ നെഞ്ചിലേറ്റി മെയ് തലോടും സ്വർണ്ണമാനേ#malayalamsongs](https://www.youtube.com/watch?v=sk_RvkXytZA)
-- [പേടി തോന്നുന്നത് തെറ്റൊന്നും അല്ല  | Virus Movie Scene | Aashiq Abu | OPM Records](https://www.youtube.com/watch?v=2gDyTF8fyqg)
-- [ഇതൊരു അപകടത്തെ  കുറിച്ചോ, ദുരന്തത്തെ കുറിച്ചോയുള്ള  അറിയിപ്പല്ല | Virus Movie Scene |](https://www.youtube.com/watch?v=gA8_tS-4_3I)
-- [ആ നോട്ടീസ് ഒപ്പിട്ടുകൊടുത്താ മതിയായിരുന്നു | Virus Movie Scene | Aashiq Abu | OPM Records](https://www.youtube.com/watch?v=BO8_yhWM8Ow)
-- [പേഴ്‌സണൽ താല്പര്യങ്ങൾക്ക് അല്ലാലോ  ഇപ്പം പ്രയോറിറ്റി കൊടുക്കേണ്ടത് | Virus Movie Scene | Aashiq Abu](https://www.youtube.com/watch?v=OyNr6a9fVGU)
-- [രണ്ടു  ഒ പി ടിക്കറ്റ് വെച്ചിട്ട് നമ്മുക്ക് ഇതൊന്നും പ്രൂവ് ചെയ്യാൻ പറ്റില്ലാലോ | Virus Movie Scene |](https://www.youtube.com/watch?v=AA6mFdV9S08)
+- [ജീവിതത്തിൽ സംഭവിക്കുന്നതെല്ലാം ദൈവത്തിന്റെ തീരുമാനങ്ങളാണ് | Rev. Aneesh P Joseph #shorts #jesus](https://www.youtube.com/watch?v=X4qIQye642Q)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 19th of September 2023](https://www.youtube.com/watch?v=pIeYvexW1GA)
+- [Mr. Hacker - Official Trailer | Harris, Bheeman Regu, Anna Reshma Rajan, Almas Motiwala](https://www.youtube.com/watch?v=_73FHMm5Pyw)
+- [Poonkavil Padivarum Video Song | Pathamudayam | K S Chithra | Mohanlal | Urvashi](https://www.youtube.com/watch?v=vjTbgwAgz0k)
+- [Deva Sangeetham Song | Shorts | Guru | Mohanlal | K. J. Yesudas  #shorts](https://www.youtube.com/watch?v=DbXq121yTdI)
+- [Nishagandhi Poothu | Nakshathragal Parayathirunnathu | KS Chithra | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=Y2g7L7xDjf4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
