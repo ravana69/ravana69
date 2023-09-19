@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നല്ല ഗാനങ്ങൾ കേൾക്കാൻ ഇഷ്ടപെടുന്ന മലയാളികൾ നല്ലതിൽ നിന്ന് തെരെഞ്ഞെടുത്ത സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=P3sHmkueL7g)
+- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=s8gW6dTOmeM)
+- [Kadalezhum Thandivanna | Paalattu Kunjikannan | Yusufali Kecheri | G Devarajan | KJ Yesudas](https://www.youtube.com/watch?v=9pOLbHsmLHc)
+- [Dhanumasa Kaate Vaayo | Muthodu Muthu | Shankar | Menaka | Shyam Hits | KJ Yesudas | Evergreen Songs](https://www.youtube.com/watch?v=4OzuhJPOJqU)
 - [Snehithe Varunnu | Mukalparappu  | Lyrical Video | Siby Padiyara | Pramod Sarang | JP Thavarool](https://www.youtube.com/watch?v=asP5YcEofGo)
 - [Cheerapoovukal Video Song | Dhanam | Mohanlal | Charmila | KS Chithra | Raveendran | PK Gopi](https://www.youtube.com/watch?v=xnvf1o5agNc)
-- [Arabikkadalum Ashtamudi | Mukkuvane Snehicha Bhootham 1978 | P. Jayachandran | Malayalam Movie Song](https://www.youtube.com/watch?v=brpPB9mrqqg)
-- [Japamala 19th of September 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 19th of September 23](https://www.youtube.com/watch?v=n0QnrgR1Hwc)
-- [മലയാളികൾ ഏറെ ഇഷ്ടപ്പെടുന്ന ശബ്ദത്തിനുടമ  മനോജ് ക്രിസ്ടി ആലപിച്ച മനോഹര ഗാനങ്ങൾ |Christian Songs](https://www.youtube.com/watch?v=5wl6_TqgWfQ)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #september 19th mother Mary hits 2023](https://www.youtube.com/watch?v=ZVxH715tojQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
