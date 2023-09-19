@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pithamagan &lpar;2003&rpar;.Tamil.1080p.YT.Remastered.Web-dl.x264.DDP5.1.384k - DDH - 2.9GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175382-pithamagan-2003tamil1080pytremasteredweb-dlx264ddp51384k-ddh-29gb/&do=findComment&comment=353433)
 - [Dinosaurs &lpar;2023&rpar; WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 9.8 GB | 1.8 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175381-dinosaurs-2023-web-dl-ddp51-esubs-x264-1080p-720p-98-gb-18-gb/&do=findComment&comment=353432)
 - [Blue Beetle &lpar;2023&rpar; MA WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p | 720p - 22.4 GB | 6.5 GB | 3.2 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175380-blue-beetle-2023-ma-web-dl-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-720p-224-gb-65-gb-32-gb/&do=findComment&comment=353431)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP16 DAY 15 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.2GB - 596MB &amp; 260MB | 18-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175376-bigg-boss-telugu-s07-ep16-day-15-hdtv-1080p-720p-480p-avc-untouched-12gb-596mb-260mb-18-09-2023/&do=findComment&comment=353430)
 - [Dinosaurs &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.2GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175377-dinosaurs-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-62gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353429)
-- [Exclusive Leo Update | Thalapathy Vijay | Loki | Philomin Raj | Lalit Kumar](https://www.1tamilmv.nexus/index.php?/forums/topic/175379-exclusive-leo-update-thalapathy-vijay-loki-philomin-raj-lalit-kumar/&do=findComment&comment=353428)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
