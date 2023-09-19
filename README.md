@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Cheerapoovukal Video Song | Dhanam | Mohanlal | Charmila | KS Chithra | Raveendran | PK Gopi](https://www.youtube.com/watch?v=xnvf1o5agNc)
+- [Arabikkadalum Ashtamudi | Mukkuvane Snehicha Bhootham 1978 | P. Jayachandran | Malayalam Movie Song](https://www.youtube.com/watch?v=brpPB9mrqqg)
 - [Japamala 19th of September 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 19th of September 23](https://www.youtube.com/watch?v=n0QnrgR1Hwc)
 - [മലയാളികൾ ഏറെ ഇഷ്ടപ്പെടുന്ന ശബ്ദത്തിനുടമ  മനോജ് ക്രിസ്ടി ആലപിച്ച മനോഹര ഗാനങ്ങൾ |Christian Songs](https://www.youtube.com/watch?v=5wl6_TqgWfQ)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #september 19th mother Mary hits 2023](https://www.youtube.com/watch?v=ZVxH715tojQ)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=1o_yJpRvw9s)
-- [രാവിലെ പ്രാര്‍ത്ഥന  September 19 Athiravile Prarthana 19th of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=4qb9DOk64bE)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 19th SEP 2023](https://www.youtube.com/watch?v=c5KhmWxikww)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
