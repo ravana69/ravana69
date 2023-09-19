@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pilla Zamindar &lpar;2011&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.8GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175387-pilla-zamindar-2011-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-68gb-esub/&do=findComment&comment=353463)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP17 DAY 16 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 932MB - 450MB &amp; 195MB | 19-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175388-bigg-boss-telugu-s07-ep17-day-16-hdtv-1080p-720p-480p-avc-untouched-932mb-450mb-195mb-19-09-2023/&do=findComment&comment=353462)
+- [Pilla Zamindar &lpar;2011&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.8GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175387-pilla-zamindar-2011-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-68gb-esub/&do=findComment&comment=353461)
+- [Pilla Zamindar &lpar;2011&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.8GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175387-pilla-zamindar-2011-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-68gb-esub/&do=findComment&comment=353460)
 - [&lpar;TMV CINEMA CLUB SERIES - MOVIE 2 - Split Second &lpar;1992&rpar;.1080p.BluRay.x264.DD2.0.ESub - 3.8GB &rpar; - BEST MOVIES YOU DIDNT WATCH IT YET](https://www.1tamilmv.nexus/index.php?/forums/topic/175385-tmv-cinema-club-series-movie-2-split-second-19921080pblurayx264dd20esub-38gb-best-movies-you-didnt-watch-it-yet/&do=findComment&comment=353459)
-- [Blue Beetle &lpar;2023&rpar; MA WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p | 720p - 22.4 GB | 6.5 GB | 3.2 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175380-blue-beetle-2023-ma-web-dl-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-720p-224-gb-65-gb-32-gb/&do=findComment&comment=353458)
-- [Dinosaurs &lpar;2023&rpar; WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 9.8 GB | 1.8 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175381-dinosaurs-2023-web-dl-ddp51-esubs-x264-1080p-720p-98-gb-18-gb/&do=findComment&comment=353457)
-- [Chanakya Thanthram &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Malayalam] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175386-chanakya-thanthram-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-malayalam-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353456)
-- [The Boys &lpar;2019&rpar; Complete S01 - S03 Merged All Episodes In One File AMZN WEB-DL [Telugu + Tamil + Hindi + English] | 1080p, 720p, 480p | HEVC | DDP 5.1 | ESub [Google Drive]](https://www.1tamilmv.nexus/index.php?/forums/topic/165310-the-boys-2019-complete-s01-s03-merged-all-episodes-in-one-file-amzn-web-dl-telugu-tamil-hindi-english-1080p-720p-480p-hevc-ddp-51-esub-google-drive/&do=findComment&comment=353455)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
