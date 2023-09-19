@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Pithamagan &lpar;2003&rpar;.Tamil.1080p.YT.Remastered.Web-dl.x264.DDP5.1.384k - DDH - 2.9GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175382-pithamagan-2003tamil1080pytremasteredweb-dlx264ddp51384k-ddh-29gb/&do=findComment&comment=353433)
-- [Dinosaurs &lpar;2023&rpar; WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 9.8 GB | 1.8 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175381-dinosaurs-2023-web-dl-ddp51-esubs-x264-1080p-720p-98-gb-18-gb/&do=findComment&comment=353432)
-- [Blue Beetle &lpar;2023&rpar; MA WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p | 720p - 22.4 GB | 6.5 GB | 3.2 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175380-blue-beetle-2023-ma-web-dl-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-720p-224-gb-65-gb-32-gb/&do=findComment&comment=353431)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 EP16 DAY 15 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.2GB - 596MB &amp; 260MB | 18-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175376-bigg-boss-telugu-s07-ep16-day-15-hdtv-1080p-720p-480p-avc-untouched-12gb-596mb-260mb-18-09-2023/&do=findComment&comment=353430)
-- [Dinosaurs &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.2GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175377-dinosaurs-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-62gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353429)
+- [The Expendables 4 &lpar;2023&rpar; English HDCAM - [1080p &amp; 720p - x264 - 1.8GB &amp; 900MB | x264 - 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175337-the-expendables-4-2023-english-hdcam-1080p-720p-x264-18gb-900mb-x264-400mb/&do=findComment&comment=353439)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP16 DAY 15 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.2GB - 596MB &amp; 260MB | 18-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175376-bigg-boss-telugu-s07-ep16-day-15-hdtv-1080p-720p-480p-avc-untouched-12gb-596mb-260mb-18-09-2023/&do=findComment&comment=353438)
+- [Blue Beetle &lpar;2023&rpar; English TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 11GB - 2.6GB - 1.1GB &amp; 500MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175373-blue-beetle-2023-english-true-web-dl-4k-1080p-720p-avc-dd51-atmos-768kbps-11gb-26gb-11gb-500mb-esub/&do=findComment&comment=353437)
+- [Blue Beetle &lpar;2023&rpar; HD - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu&rpar; - 2.1GB &amp; 1GB | x264 - 400MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/174897-blue-beetle-2023-hd-1080p-720p-x264-tamil-telugu-21gb-1gb-x264-400mb-hq-clean-audio/&do=findComment&comment=353436)
+- [Athidhi &lpar;2023&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192╚Kbps&rpar; - 2.6GB - 1.2GB &amp; 600MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175378-athidhi-2023-s01-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192%E2%95%9Akbps-26gb-12gb-600mb-esub/&do=findComment&comment=353435)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
