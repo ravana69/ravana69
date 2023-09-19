@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Chanakya Thanthram &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Malayalam] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175386-chanakya-thanthram-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-malayalam-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353471)
 - [Vaadi Pottapulle Veliye [From Kaalam Maari Pochu] &lpar;1996&rpar; Tamil - [24bit / 16bit - FLAC] - [320kbps / 128kbps - MP3] - 46MB - 25MB - 10MB &amp; 4MB [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175389-vaadi-pottapulle-veliye-from-kaalam-maari-pochu-1996-tamil-24bit-16bit-flac-320kbps-128kbps-mp3-46mb-25mb-10mb-4mb-gdrive/&do=findComment&comment=353470)
 - [Dinosaurs &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.2GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175377-dinosaurs-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-62gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353469)
 - [Pilla Zamindar &lpar;2011&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.8GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175387-pilla-zamindar-2011-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-68gb-esub/&do=findComment&comment=353468)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP17 DAY 16 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 932MB - 450MB &amp; 195MB | 19-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175388-bigg-boss-telugu-s07-ep17-day-16-hdtv-1080p-720p-480p-avc-untouched-932mb-450mb-195mb-19-09-2023/&do=findComment&comment=353467)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 EP16 DAY 15 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.2GB - 596MB &amp; 260MB | 18-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175376-bigg-boss-telugu-s07-ep16-day-15-hdtv-1080p-720p-480p-avc-untouched-12gb-596mb-260mb-18-09-2023/&do=findComment&comment=353466)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
