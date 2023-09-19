@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Amme Mariye | Aashritha Valsalayaya Daivamathavinte Gaanangal | Audio Jukebox](https://www.youtube.com/watch?v=3bXQdrvahDE)
-- [നല്ല ഗാനങ്ങൾ കേൾക്കാൻ ഇഷ്ടപെടുന്ന മലയാളികൾ നല്ലതിൽ നിന്ന് തെരെഞ്ഞെടുത്ത സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=P3sHmkueL7g)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=s8gW6dTOmeM)
-- [Kadalezhum Thandivanna | Paalattu Kunjikannan | Yusufali Kecheri | G Devarajan | KJ Yesudas](https://www.youtube.com/watch?v=9pOLbHsmLHc)
-- [Dhanumasa Kaate Vaayo | Muthodu Muthu | Shankar | Menaka | Shyam Hits | KJ Yesudas | Evergreen Songs](https://www.youtube.com/watch?v=4OzuhJPOJqU)
-- [Snehithe Varunnu | Mukalparappu  | Lyrical Video | Siby Padiyara | Pramod Sarang | JP Thavarool](https://www.youtube.com/watch?v=asP5YcEofGo)
+- [കൊതിച്ചു പോയി കണ്ടു കണ്ടു കൊതിച്ചു പോയിവാർതിങ്കൾ നെഞ്ചിലേറ്റി മെയ് തലോടും സ്വർണ്ണമാനേ#malayalamsongs](https://www.youtube.com/watch?v=sk_RvkXytZA)
+- [പേടി തോന്നുന്നത് തെറ്റൊന്നും അല്ല  | Virus Movie Scene | Aashiq Abu | OPM Records](https://www.youtube.com/watch?v=2gDyTF8fyqg)
+- [ഇതൊരു അപകടത്തെ  കുറിച്ചോ, ദുരന്തത്തെ കുറിച്ചോയുള്ള  അറിയിപ്പല്ല | Virus Movie Scene |](https://www.youtube.com/watch?v=gA8_tS-4_3I)
+- [ആ നോട്ടീസ് ഒപ്പിട്ടുകൊടുത്താ മതിയായിരുന്നു | Virus Movie Scene | Aashiq Abu | OPM Records](https://www.youtube.com/watch?v=BO8_yhWM8Ow)
+- [പേഴ്‌സണൽ താല്പര്യങ്ങൾക്ക് അല്ലാലോ  ഇപ്പം പ്രയോറിറ്റി കൊടുക്കേണ്ടത് | Virus Movie Scene | Aashiq Abu](https://www.youtube.com/watch?v=OyNr6a9fVGU)
+- [രണ്ടു  ഒ പി ടിക്കറ്റ് വെച്ചിട്ട് നമ്മുക്ക് ഇതൊന്നും പ്രൂവ് ചെയ്യാൻ പറ്റില്ലാലോ | Virus Movie Scene |](https://www.youtube.com/watch?v=AA6mFdV9S08)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
