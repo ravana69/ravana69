@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [[4KHDR10+DV] Jailer &lpar;2023&rpar; SNXT WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10Plus|DoVi] - 21.5 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175383-4khdr10dv-jailer-2023-snxt-web-dl-ddp51-atmos-esubs-2160p-hdr10plusdovi-215-gb/&do=findComment&comment=353482)
+- [Varman Theme &lpar;From &quot;Jailer&quot;&rpar; - Anirudh Ravichander Musical - FLAC [24bit] | MP3 [320KBPS] - 19 MB | 3.4 MB](https://www.1tamilmv.nexus/index.php?/forums/topic/175390-varman-theme-from-jailer-anirudh-ravichander-musical-flac-24bit-mp3-320kbps-19-mb-34-mb/&do=findComment&comment=353481)
 - [[4KHDR10+DV] Jailer &lpar;2023&rpar; SNXT WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10Plus|DoVi] - 21.5 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175383-4khdr10dv-jailer-2023-snxt-web-dl-ddp51-atmos-esubs-2160p-hdr10plusdovi-215-gb/&do=findComment&comment=353480)
 - [[4KHDR10+DV] Jailer &lpar;2023&rpar; SNXT WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10Plus|DoVi] - 21.5 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175383-4khdr10dv-jailer-2023-snxt-web-dl-ddp51-atmos-esubs-2160p-hdr10plusdovi-215-gb/&do=findComment&comment=353479)
 - [Chanakya Thanthram &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Malayalam] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175386-chanakya-thanthram-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-malayalam-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353478)
-- [The Boys &lpar;2019&rpar; Complete S01 - S03 Merged All Episodes In One File AMZN WEB-DL [Telugu + Tamil + Hindi + English] | 1080p, 720p, 480p | HEVC | DDP 5.1 | ESub [Google Drive]](https://www.1tamilmv.nexus/index.php?/forums/topic/165310-the-boys-2019-complete-s01-s03-merged-all-episodes-in-one-file-amzn-web-dl-telugu-tamil-hindi-english-1080p-720p-480p-hevc-ddp-51-esub-google-drive/&do=findComment&comment=353477)
-- [[4KHDR10+DV] Jailer &lpar;2023&rpar; SNXT WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10Plus|DoVi] - 21.5 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175383-4khdr10dv-jailer-2023-snxt-web-dl-ddp51-atmos-esubs-2160p-hdr10plusdovi-215-gb/&do=findComment&comment=353476)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
