@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ദേവാങ്കണങ്ങൾ കൈയ്യൊഴിഞ്ഞ താരകംസായാഹ്നസാനുവിൽ വിലോലമേഘമായ്  #malayalamsongs #yesudas](https://www.youtube.com/watch?v=E_-v5Nx1xG4)
+- [Pinne Ennodonnum Video Song | Shikkar | Mohanlal | KJ Yesudas | Gireesh Puthenchery | M Jayachandran](https://www.youtube.com/watch?v=81twLN3zHvQ)
+- [മോഹമുണ്ടെൻ നാഥാ.. ആ മുഖം കാണാൻ ...](https://www.youtube.com/watch?v=g-smBxhmmQk)
+- [Kannil Nee Thenmalarayi | Muthodu Muthu | Shankar | Menaka | Shyam Hits | KJ Yesudas & S Janaki](https://www.youtube.com/watch?v=mnAOKEHzJV4)
 - [Aa Raathri Maanjupoyi|Panchagni|Geetha|Chithra|Murali|](https://www.youtube.com/watch?v=eHdRGwta4_Q)
 - [Paalnilaavinum HD Video Song | Kaboolivala l SP Venkitesh | Innocent, Jagathy Sreekumar](https://www.youtube.com/watch?v=oFjRRuwRXvI)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 20th of September 2023](https://www.youtube.com/watch?v=6VcrE4ZwiJo)
-- [ദൈവം ഒരാളെ തിരഞ്ഞെടുക്കുന്നത് ആരാണെന്ന് നോക്കിയിട്ടല്ല | Rev. Aneesh P Joseph #shorts #jesus](https://www.youtube.com/watch?v=7QofTtKBG00)
-- [Vaa Mummy Vaa Mummy | Panitheratha Veedu | Latha Raju |  #shorts](https://www.youtube.com/watch?v=uvqyncan-S0)
-- [Maamannan - Raasa Kannu Video | Udhayanidhi Stalin | Vadivelu | A.R Rahman](https://www.youtube.com/watch?v=FwHG-5aZw6I)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
