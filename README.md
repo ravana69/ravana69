@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ivan - Song Promo | Tiger Nageswara Rao (Malayalam) | Ravi Teja | Vamsee | GV Prakash Kumar](https://www.youtube.com/watch?v=BeO5Dswfv8c)
 - [ദേവാങ്കണങ്ങൾ കൈയ്യൊഴിഞ്ഞ താരകംസായാഹ്നസാനുവിൽ വിലോലമേഘമായ്  #malayalamsongs #yesudas](https://www.youtube.com/watch?v=E_-v5Nx1xG4)
 - [Pinne Ennodonnum Video Song | Shikkar | Mohanlal | KJ Yesudas | Gireesh Puthenchery | M Jayachandran](https://www.youtube.com/watch?v=81twLN3zHvQ)
 - [മോഹമുണ്ടെൻ നാഥാ.. ആ മുഖം കാണാൻ ...](https://www.youtube.com/watch?v=g-smBxhmmQk)
 - [Kannil Nee Thenmalarayi | Muthodu Muthu | Shankar | Menaka | Shyam Hits | KJ Yesudas & S Janaki](https://www.youtube.com/watch?v=mnAOKEHzJV4)
 - [Aa Raathri Maanjupoyi|Panchagni|Geetha|Chithra|Murali|](https://www.youtube.com/watch?v=eHdRGwta4_Q)
-- [Paalnilaavinum HD Video Song | Kaboolivala l SP Venkitesh | Innocent, Jagathy Sreekumar](https://www.youtube.com/watch?v=oFjRRuwRXvI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
