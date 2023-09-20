@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kaagaz Ke Phool &lpar;1959&rpar; 720p 10bit AMZN WEBRip x265 HEVC Hindi DDP 2.0 ESub~ Immortal](https://www.1tamilmv.nexus/index.php?/forums/topic/175394-kaagaz-ke-phool-1959-720p-10bit-amzn-webrip-x265-hevc-hindi-ddp-20-esub~-immortal/&do=findComment&comment=353500)
+- [Jailer &lpar;2023&rpar; 720p 10bit DS4K AMZN WEBRip x265 HEVC [Hindi AAC 2.0 + Tamil AAC 2.0] ESub ~ Immortal](https://www.1tamilmv.nexus/index.php?/forums/topic/175393-jailer-2023-720p-10bit-ds4k-amzn-webrip-x265-hevc-hindi-aac-20-tamil-aac-20-esub-~-immortal/&do=findComment&comment=353499)
 - [Meg 2: The Trench &lpar;2023&rpar; TRUE WEB-DL - 4K &amp; 1080p - HEVC / AVC - UNTOUCHED - [Tamil + Telugu + Hindi + English&lpar;DD+5.1&lpar;768kbps&rpar; Atmos&rpar;] - DD+5.1&lpar;640kbps&rpar; - 11.6GB &amp; 8.1GB - MSub [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175326-meg-2-the-trench-2023-true-web-dl-4k-1080p-hevc-avc-untouched-tamil-telugu-hindi-englishdd51768kbps-atmos-dd51640kbps-116gb-81gb-msub-gdrive/&do=findComment&comment=353498)
 - [Thalam &lpar;1999&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 4.6GB - 3GB &amp; 1.4GB] - [x264 - 900MB &amp; 500MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175392-thalam-1999-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-46gb-3gb-14gb-x264-900mb-500mb-esub/&do=findComment&comment=353497)
 - [Adavi Ramudu &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.6GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175391-adavi-ramudu-2004-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-66gb-esub/&do=findComment&comment=353496)
-- [Thalam &lpar;1999&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 4.6GB - 3GB &amp; 1.4GB] - [x264 - 900MB &amp; 500MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175392-thalam-1999-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-46gb-3gb-14gb-x264-900mb-500mb-esub/&do=findComment&comment=353495)
-- [Varman Theme &lpar;From &quot;Jailer&quot;&rpar; - Anirudh Ravichander Musical - FLAC [24bit] | MP3 [320KBPS] - 19 MB | 3.4 MB](https://www.1tamilmv.nexus/index.php?/forums/topic/175390-varman-theme-from-jailer-anirudh-ravichander-musical-flac-24bit-mp3-320kbps-19-mb-34-mb/&do=findComment&comment=353494)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
