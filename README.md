@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [ഭൂമിപ്പെണ്ണിൻ പൂമെയ് മൂടും HD | Bhoomippennin Malayalam Movie Song | Oru Kudakeezhil | KJ Yesudas](https://www.youtube.com/watch?v=J09ieXXcEX0)
-- [പ്രശ്നങ്ങൾ അപ്പോളല്ല തുടങ്ങുന്നത് | Virus Movie Scene | Aashiq Abu | OPM Records](https://www.youtube.com/watch?v=-Kz7FqySBJU)
-- [ഒറിജിനൽ സന്തോഷോക്കെ വരും ഒരാളും കൂടി വന്നാൽ |  Virus Movie Scene  | Aashiq Abu | OPM Records](https://www.youtube.com/watch?v=D4TcesIRgqU)
-- [A.R. Rahman, A.R. Ameen - Veerane (From "Maamannan")](https://www.youtube.com/watch?v=miUJpKEBQTg)
-- [A.R. Rahman, A.R. Ameen - Veeruda (From "Nayakudu")](https://www.youtube.com/watch?v=qLgdXAOBWbc)
-- [A.R. Rahman - Jigu Jigu Rail (From "Maamannan")](https://www.youtube.com/watch?v=FedHXYSYUZA)
+- [Aa Raathri Maanjupoyi|Panchagni|Geetha|Chithra|Murali|](https://www.youtube.com/watch?v=eHdRGwta4_Q)
+- [Paalnilaavinum HD Video Song | Kaboolivala l SP Venkitesh | Innocent, Jagathy Sreekumar](https://www.youtube.com/watch?v=oFjRRuwRXvI)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 20th of September 2023](https://www.youtube.com/watch?v=6VcrE4ZwiJo)
+- [ദൈവം ഒരാളെ തിരഞ്ഞെടുക്കുന്നത് ആരാണെന്ന് നോക്കിയിട്ടല്ല | Rev. Aneesh P Joseph #shorts #jesus](https://www.youtube.com/watch?v=7QofTtKBG00)
+- [Vaa Mummy Vaa Mummy | Panitheratha Veedu | Latha Raju |  #shorts](https://www.youtube.com/watch?v=uvqyncan-S0)
+- [Maamannan - Raasa Kannu Video | Udhayanidhi Stalin | Vadivelu | A.R Rahman](https://www.youtube.com/watch?v=FwHG-5aZw6I)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
