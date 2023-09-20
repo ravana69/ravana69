@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [[4KHDR10+DV] Jailer &lpar;2023&rpar; SNXT WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10Plus|DoVi] - 21.5 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175383-4khdr10dv-jailer-2023-snxt-web-dl-ddp51-atmos-esubs-2160p-hdr10plusdovi-215-gb/&do=findComment&comment=353475)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP17 DAY 16 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 932MB - 450MB &amp; 195MB | 19-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175388-bigg-boss-telugu-s07-ep17-day-16-hdtv-1080p-720p-480p-avc-untouched-932mb-450mb-195mb-19-09-2023/&do=findComment&comment=353474)
 - [Vaadi Pottapulle Veliye [From Kaalam Maari Pochu] &lpar;1996&rpar; Tamil - [24bit / 16bit - FLAC] - [320kbps / 128kbps - MP3] - 46MB - 25MB - 10MB &amp; 4MB [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175389-vaadi-pottapulle-veliye-from-kaalam-maari-pochu-1996-tamil-24bit-16bit-flac-320kbps-128kbps-mp3-46mb-25mb-10mb-4mb-gdrive/&do=findComment&comment=353473)
 - [Vaadi Pottapulle Veliye [From Kaalam Maari Pochu] &lpar;1996&rpar; Tamil - [24bit / 16bit - FLAC] - [320kbps / 128kbps - MP3] - 46MB - 25MB - 10MB &amp; 4MB [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175389-vaadi-pottapulle-veliye-from-kaalam-maari-pochu-1996-tamil-24bit-16bit-flac-320kbps-128kbps-mp3-46mb-25mb-10mb-4mb-gdrive/&do=findComment&comment=353472)
 - [Chanakya Thanthram &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Malayalam] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175386-chanakya-thanthram-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-malayalam-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353471)
-- [Vaadi Pottapulle Veliye [From Kaalam Maari Pochu] &lpar;1996&rpar; Tamil - [24bit / 16bit - FLAC] - [320kbps / 128kbps - MP3] - 46MB - 25MB - 10MB &amp; 4MB [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175389-vaadi-pottapulle-veliye-from-kaalam-maari-pochu-1996-tamil-24bit-16bit-flac-320kbps-128kbps-mp3-46mb-25mb-10mb-4mb-gdrive/&do=findComment&comment=353470)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
