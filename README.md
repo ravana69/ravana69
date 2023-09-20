@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kadha Kadha Kilipennu | Rappakal | Mammootty | Nayanthara | Kamal | Mohan Sithara | Sarada](https://www.youtube.com/watch?v=M8tyso8BOe4)
+- [Swarga Gayike Ithile |  Mooladhanam | Sathyan | Sharada | Yesudas | P.Bhaskaran | Classic Movie Song](https://www.youtube.com/watch?v=KyBKQKcx6eg)
 - [Ruhiyante | Onnum Mindatha Bharya 1984 | S.Janaki, Jolly Abraham, Satheesh Babu | MalayalamMovieSong](https://www.youtube.com/watch?v=vKvWMMmCJw0)
 - [Anayatha Oru Agniyaay... #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=_sfh4Cdk_Ys)
 - [Alannal Theeratha Snehathin Kadha | Nasrayan Feat. Chithra Arun, Samji Arattupuzha, Tomy C Madathil](https://www.youtube.com/watch?v=I0f207WGjH4)
 - [Japamala 20th of September 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 20th of September 23](https://www.youtube.com/watch?v=TQy7ij2jalU)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #september 20th mother Mary hits 2023](https://www.youtube.com/watch?v=VNuk6mpfyLI)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=E4T380f1jME)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
