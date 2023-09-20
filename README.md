@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP18 DAY 17 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 974MB - 470MB &amp; 194MB | 20-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175397-bigg-boss-telugu-s07-ep18-day-17-hdtv-1080p-720p-480p-avc-untouched-974mb-470mb-194mb-20-09-2023/&do=findComment&comment=353508)
+- [Jujutsu Kaisen &lpar;2023&rpar; S01 EP &lpar;10-12&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Hindi] - 500MB &amp; 350MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/174886-jujutsu-kaisen-2023-s01-ep-10-12-true-web-dl-1080p-720p-avc-tamil-hindi-500mb-350mb/&do=findComment&comment=353507)
 - [Mythica: A Quest for Heroes &lpar;2014&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.1GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175395-mythica-a-quest-for-heroes-2014-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-21gb-11gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=353505)
 - [Mythica: A Quest for Heroes &lpar;2014&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.1GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175395-mythica-a-quest-for-heroes-2014-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-21gb-11gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=353504)
 - [Meenakshi Thiruvilayadal &lpar;1989&rpar;.Tamil.480p.HDTV.HEVC.AAC2.0 - 1.4GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175396-meenakshi-thiruvilayadal-1989tamil480phdtvhevcaac20-14gb/&do=findComment&comment=353503)
-- [Mythica: A Quest for Heroes &lpar;2014&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.1GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175395-mythica-a-quest-for-heroes-2014-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-21gb-11gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=353502)
-- [Thalam &lpar;1999&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 4.6GB - 3GB &amp; 1.4GB] - [x264 - 900MB &amp; 500MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175392-thalam-1999-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-46gb-3gb-14gb-x264-900mb-500mb-esub/&do=findComment&comment=353501)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
