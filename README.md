@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Maanennum Vilikkilla | Neelakuyil | K Raghavan #shorts](https://www.youtube.com/watch?v=Wrw-CXp0Jro)
-- [O Bhayee - Audio Song | Dasara (Malayalam)| Nani, Keerthy Suresh| Santhosh Narayanan| Srikanth Odela](https://www.youtube.com/watch?v=DbYd374yCxU)
-- [#HappyGaneshChaturthi - Ganeshotsavam Festival Hit Songs Audio Jukebox | Mollywood Dance Hits](https://www.youtube.com/watch?v=zPlfNePt8C0)
-- [Prarthicheedam | Daivapithavine Sthuthikkunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=rMpwfqcdAbc)
-- [ഒത്തിരി നല്ല ഗാനങ്ങൾ ഇറങ്ങിയ തൊണ്ണൂറുകളിലെ ഗാനങ്ങളിൽ തെരഞ്ഞെടുത്ത സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | 90s HITS](https://www.youtube.com/watch?v=vFm-S7iMB7c)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=jUiQNyJ10no)
+- [ഭൂമിപ്പെണ്ണിൻ പൂമെയ് മൂടും HD | Bhoomippennin Malayalam Movie Song | Oru Kudakeezhil | KJ Yesudas](https://www.youtube.com/watch?v=J09ieXXcEX0)
+- [പ്രശ്നങ്ങൾ അപ്പോളല്ല തുടങ്ങുന്നത് | Virus Movie Scene | Aashiq Abu | OPM Records](https://www.youtube.com/watch?v=-Kz7FqySBJU)
+- [ഒറിജിനൽ സന്തോഷോക്കെ വരും ഒരാളും കൂടി വന്നാൽ |  Virus Movie Scene  | Aashiq Abu | OPM Records](https://www.youtube.com/watch?v=D4TcesIRgqU)
+- [A.R. Rahman, A.R. Ameen - Veerane (From "Maamannan")](https://www.youtube.com/watch?v=miUJpKEBQTg)
+- [A.R. Rahman, A.R. Ameen - Veeruda (From "Nayakudu")](https://www.youtube.com/watch?v=qLgdXAOBWbc)
+- [A.R. Rahman - Jigu Jigu Rail (From "Maamannan")](https://www.youtube.com/watch?v=FedHXYSYUZA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
