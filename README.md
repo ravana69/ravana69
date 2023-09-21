@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Bedurulanka 2012 &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 8GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175414-bedurulanka-2012-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-8gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353568)
+- [Maal &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.5GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175413-maal-2023-tamil-true-web-dl-4k1080p-720p-avc-hevc-dd51-384kbps-35gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353567)
 - [WEB &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175410-web-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353565)
 - [NARASIMHA &lpar;1999&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 4GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175363-narasimha-1999-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-4gb/&do=findComment&comment=353564)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP19 DAY 18 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 926MB - 450MB &amp; 195MB | 21-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175411-bigg-boss-telugu-s07-ep19-day-18-hdtv-1080p-720p-480p-avc-untouched-926mb-450mb-195mb-21-09-2023/&do=findComment&comment=353563)
-- [WEB &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175410-web-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353562)
-- [[FIRST ON NET🔥] Dilse &lpar;2023&rpar; S01 EP03 ETV-WIN WEB-DL- [1080p - 720p &amp; 480p AVC - Telugu - &lpar;AAC 2.0 - 192Kbps&rpar; - 600MB - 300MB - 150MB] - x264 [Google Drive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175409-first-on-net%F0%9F%94%A5-dilse-2023-s01-ep03-etv-win-web-dl-1080p-720p-480p-avc-telugu-aac-20-192kbps-600mb-300mb-150mb-x264-google-drive/&do=findComment&comment=353561)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
