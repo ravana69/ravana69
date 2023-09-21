@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Hemandhamayi | Ponnumkudathinu Pottu | Chunakkara Ramankutty | Shyam | KJ Yesudas | Shankar](https://www.youtube.com/watch?v=uAT7L3wtLf8)
+- [Akasham Mungiya | Thumbolarcha | Vayalar | G Devarajan | P Susheela | Sheela | Evergreen Hit songs](https://www.youtube.com/watch?v=3GIzcD-TDfs)
+- [കുളിർക്കാറ്റുപോലെ കാതും മനസും  ഒരുപോലെ തരളിതമാക്കും മനോഹര ഗാനങ്ങൾ | EVERGREEN FILM SONGS | NISARI](https://www.youtube.com/watch?v=0RZtIiar5Xc)
+- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=4pLCTL3UzQ4)
 - [രതിസുഖസാരമായി ദേവി നിന്മെയ്വാര്‍ത്തൊരാ ദൈവം കലാകാരന്‍  #malayalamsongs #jayaram #shobana](https://www.youtube.com/watch?v=q-wf1Sz6Zwg)
 - [Aniyathipravinu | Aniyathipravu | Kunchakko Boban | Shalini | Fazil | Chithra | Ouseppachan](https://www.youtube.com/watch?v=LaOvrjYbMP8)
-- [Snehithe Varunnu | Mukalparappu  | Video Song | Siby Padiyara | Pramod Sarang | JP Thavarool](https://www.youtube.com/watch?v=LknNBnGS1Jg)
-- [Vasantham Vannu | Onnum Mindatha Bharya 1984 | K. J. Yesudas, S. Janaki | Malayalam Movie Song](https://www.youtube.com/watch?v=_lEsR-Aa-5w)
-- [Japamala 21st of September 23 # Mathavinte Japamala Prakashathinte Rahasyangal 21st of September 23](https://www.youtube.com/watch?v=CP7wDoQBdkI)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #september 21st  mother Mary hits 2023](https://www.youtube.com/watch?v=e6Oxk_KEsqg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
