@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ജീവിതത്തിന് ലാവണ്യം പകരുന്നത് ക്രിസ്തു സാന്നിധ്യമാണ്. | Rev. Aneesh P Joseph #shorts #jesus](https://www.youtube.com/watch?v=X_kNAbqjE94)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 21st of September 2023](https://www.youtube.com/watch?v=3jkpBU1U5ns)
+- [Vaa Mummy Vaa Mummy Video Song | Panitheratha Veedu | Latha Raju |](https://www.youtube.com/watch?v=rHyBZm1rSeM)
+- [Poovin Kurunnu Meyyil  | LolliPop | Cicily | Shruthiraj | Tinu Antony | Alex Paul](https://www.youtube.com/watch?v=WZ2OZXyQZhA)
 - [Neelavaana Cholayil #premabhisekam #kamalhaasan #sridevi #vaazhveymayam #song #love](https://www.youtube.com/watch?v=johrVH5Q580)
 - [Vanashalabhame | Sithara Krishnakumar | Sadanandan MV | Innalekal Thalirkkumbol | Film Video Song](https://www.youtube.com/watch?v=zZM_beWVRkw)
-- [Maanasa Nilayil | Dhwani l Jayaram l Shobana l Prem Nazeer l Naushad Ali](https://www.youtube.com/watch?v=nYCgu_Am7z0)
-- [സഖീനിന്‍ വാര്‍മുടിതന്‍ കാന്തിയേന്തി നീലമേഘങ്ങള്‍  #malayalamsongs #yesudas #jayaram #shobana](https://www.youtube.com/watch?v=5YdcGN_6Ur8)
-- [Hemandhamayi | Ponnumkudathinu Pottu | Chunakkara Ramankutty | Shyam | KJ Yesudas | Shankar](https://www.youtube.com/watch?v=uAT7L3wtLf8)
-- [Akasham Mungiya | Thumbolarcha | Vayalar | G Devarajan | P Susheela | Sheela | Evergreen Hit songs](https://www.youtube.com/watch?v=3GIzcD-TDfs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
