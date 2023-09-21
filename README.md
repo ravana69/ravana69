@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chundathu Chethipoo Video Song | Mammootty | Bhavana | Rambha | Mukesh | MG Sreekumar | Deepak Dev](https://www.youtube.com/watch?v=P-zHzCxhktA)
+- [ഇന്നു ഞാനറിയും , നിൻ തിരുസ്നേഹം ഒന്നുമാത്രമെ ശാശ്വതം.](https://www.youtube.com/watch?v=yqv8WJQ8wZY)
+- [നിലാവിന്‍ പൊന്‍‌കതിരാല്‍ നെയ്തെടുത്തു നിന്റെ ലാവണ്യം #malayalamsongs #yesudas #jayaram #shobana](https://www.youtube.com/watch?v=Tyzsc1tq6yY)
+- [ദൈവസ്നേഹത്തിന്റെ അരൂപിയുള്ള ക്രിസ്തീയ ഗാനങ്ങൾ | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=CVpW1UPX8hI)
 - [Aa Raavil Ninnodu Njaan | Orkkuka Vallappozhum | Sudeep Kumar | M Jayachandran | Changampuzha](https://www.youtube.com/watch?v=tOjnih-D438)
 - [ജീവിതത്തിന് ലാവണ്യം പകരുന്നത് ക്രിസ്തു സാന്നിധ്യമാണ്. | Rev. Aneesh P Joseph #shorts #jesus](https://www.youtube.com/watch?v=X_kNAbqjE94)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 21st of September 2023](https://www.youtube.com/watch?v=3jkpBU1U5ns)
-- [Vaa Mummy Vaa Mummy Video Song | Panitheratha Veedu | Latha Raju |](https://www.youtube.com/watch?v=rHyBZm1rSeM)
-- [Poovin Kurunnu Meyyil  | LolliPop | Cicily | Shruthiraj | Tinu Antony | Alex Paul](https://www.youtube.com/watch?v=WZ2OZXyQZhA)
-- [Neelavaana Cholayil #premabhisekam #kamalhaasan #sridevi #vaazhveymayam #song #love](https://www.youtube.com/watch?v=johrVH5Q580)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
