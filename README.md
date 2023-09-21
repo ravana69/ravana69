@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Naan Sigappu Manithan &lpar;1985&rpar;.Tamil.1080p.HDTV.x265.AAC.2.0 - 3.6GB - GDRIVE](https://www.1tamilmv.nexus/index.php?/forums/topic/106090-naan-sigappu-manithan-1985tamil1080phdtvx265aac20-36gb-gdrive/&do=findComment&comment=353532)
-- [Naan Sigappu Manithan &lpar;1985&rpar;.Tamil.1080p.HDTV.x265.AAC.2.0 - 3.6GB - GDRIVE](https://www.1tamilmv.nexus/index.php?/forums/topic/106090-naan-sigappu-manithan-1985tamil1080phdtvx265aac20-36gb-gdrive/&do=findComment&comment=353531)
-- [Naan Sigappu Manithan &lpar;1985&rpar;.Tamil.1080p.HDTV.x265.AAC.2.0 - 3.6GB - GDRIVE](https://www.1tamilmv.nexus/index.php?/forums/topic/106090-naan-sigappu-manithan-1985tamil1080phdtvx265aac20-36gb-gdrive/&do=findComment&comment=353530)
-- [PARUGU &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.6GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175403-parugu-2008-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-66gb-esub/&do=findComment&comment=353529)
-- [PARUGU &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.6GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175403-parugu-2008-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-66gb-esub/&do=findComment&comment=353528)
+- [Sex Education &lpar;2021&rpar; Complete S03 Merged TRUE WEB-DL - [1080p - 720p - AVC - [Telugu + Tamil] - &lpar;DD+5.1 - 192Kbps &amp; AAC 2.0&rpar; - 4.2GB - 2.5GB] [480p - &lpar;Telugu&rpar; - 1GB] - ESub [Google Drive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175048-sex-education-2021-complete-s03-merged-true-web-dl-1080p-720p-avc-telugu-tamil-dd51-192kbps-aac-20-42gb-25gb-480p-telugu-1gb-esub-google-drive/&do=findComment&comment=353540)
+- [PARUGU &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.6GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175403-parugu-2008-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-66gb-esub/&do=findComment&comment=353538)
+- [PARUGU &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.6GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175403-parugu-2008-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-66gb-esub/&do=findComment&comment=353537)
+- [Varman Theme &lpar;From &quot;Jailer&quot;&rpar; - Anirudh Ravichander Musical - FLAC [24bit] | MP3 [320KBPS] - 19 MB | 3.4 MB](https://www.1tamilmv.nexus/index.php?/forums/topic/175390-varman-theme-from-jailer-anirudh-ravichander-musical-flac-24bit-mp3-320kbps-19-mb-34-mb/&do=findComment&comment=353536)
+- [PARUGU &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.6GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175403-parugu-2008-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-66gb-esub/&do=findComment&comment=353535)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
