@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന September 22 # Athiravile Prarthana 22nd of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=ezGPiqBqMQE)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 22nd SEP 2023](https://www.youtube.com/watch?v=Z7b8raf-o4w)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=SkaR0h8o_G8)
 - [Back to back steps for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=4T5yripm2rQ)
 - [പ്രിയതേ മിഴിനീരിൽ എന്നെയാഴ്ത്തി..| കെ ജെ യേശുദാസ് | ചിത്ര | Original Audio Remastered movie songs](https://www.youtube.com/watch?v=Dj4Rp3QFMkg)
 - [Ivan - Lyrical Video | Tiger Nageswara Rao (Malayalam) | Ravi Teja | Vamsee | GV Prakash Kumar](https://www.youtube.com/watch?v=5f05zQfJp_E)
-- [Chundathu Chethipoo Video Song | Mammootty | Bhavana | Rambha | Mukesh | MG Sreekumar | Deepak Dev](https://www.youtube.com/watch?v=P-zHzCxhktA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
