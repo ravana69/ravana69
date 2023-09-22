@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP20 DAY 19 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 960MB - 467MB &amp; 201MB | 22-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175434-bigg-boss-telugu-s07-ep20-day-19-hdtv-1080p-720p-480p-avc-untouched-960mb-467mb-201mb-22-09-2023/&do=findComment&comment=353624)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP19 DAY 18 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 926MB - 450MB &amp; 195MB | 21-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175411-bigg-boss-telugu-s07-ep19-day-18-hdtv-1080p-720p-480p-avc-untouched-926mb-450mb-195mb-21-09-2023/&do=findComment&comment=353623)
 - [Expendables 4 &lpar;2023&rpar; New HQ HDTS - [1080p &amp; 720p - x264 - [Tamil + Telugu + Hindi] - 2.4GB &amp; 1GB | x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175425-expendables-4-2023-new-hq-hdts-1080p-720p-x264-tamil-telugu-hindi-24gb-1gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=353622)
 - [7:11 PM &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 800MB &amp; 450MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175435-711-pm-2023-true-web-dl-1080p-720p-avc-hevc-tamil-malayalam-kannada-dd51-192kbps-26gb-14gb-x264-800mb-450mb-esub/&do=findComment&comment=353621)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP20 DAY 19 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 960MB - 467MB &amp; 201MB | 22-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175434-bigg-boss-telugu-s07-ep20-day-19-hdtv-1080p-720p-480p-avc-untouched-960mb-467mb-201mb-22-09-2023/&do=findComment&comment=353620)
-- [DHOOM-3 &lpar;2013&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar; DD+5.1 - 448Kbps &amp; DD+2.0 - 448Kbps&rpar; - 6.5GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175433-dhoom-3-2013-telugu-dvd9-untouched-480p-dd51-448kbps-dd20-448kbps-65gb-esub/&do=findComment&comment=353619)
-- [Sapta Sagaralu Dhaati - Side A &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175423-sapta-sagaralu-dhaati-side-a-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=353618)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
