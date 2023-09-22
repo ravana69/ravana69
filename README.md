@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Paalaivanathil Yaanai &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Malayalam] - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175417-paalaivanathil-yaanai-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-malayalam-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353587)
 - [Aakhri Sach &lpar;2023&rpar; Complete S01 EP &lpar;01-06&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 3.7GB - 1.6GB &amp; 800MB] - ESub [Google Drive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175420-aakhri-sach-2023-complete-s01-ep-01-06-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-37gb-16gb-800mb-esub-google-drive/&do=findComment&comment=353578)
 - [Aakhri Sach &lpar;2023&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192╚Kbps&rpar; - 3.7GB - 1.6GB &amp; 800MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175415-aakhri-sach-2023-s01-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192%E2%95%9Akbps-37gb-16gb-800mb-esub/&do=findComment&comment=353577)
 - [NARASIMHA &lpar;1999&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 4GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175363-narasimha-1999-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-4gb/&do=findComment&comment=353576)
 - [Paalaivanathil Yaanai &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Malayalam] - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175417-paalaivanathil-yaanai-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-malayalam-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353575)
-- [Maal &lpar;2023&rpar; AHA WEB-DL DDP5.1 Esubs - 2160p | 1080p | 720p - 2.4 GB | 1.7 GB | 0.9 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175419-maal-2023-aha-web-dl-ddp51-esubs-2160p-1080p-720p-24-gb-17-gb-09-gb/&do=findComment&comment=353574)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
