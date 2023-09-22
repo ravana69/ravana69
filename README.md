@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [ഓർമയിലൊരുശിശിരം | Ormayil Oru Shishiram | Romantic Song | Gandhinagar 2nd Street Song | Mohanlal](https://www.youtube.com/watch?v=GHbOBlwRuQU)
-- [ശ്രീരാഗമോ തേടുന്നു നീ ഈ വീണതൻ പൊൻ തന്തിയിൽ #mohanlal #malayalamsongs #sreeragamo](https://www.youtube.com/watch?v=qwymGJaCkrc)
-- [മലയാള സിനിമാസംഗീതത്തിന്റെ നെടുംതൂണുകളായ പ്രഗത്ഭന്മാരുടെ ജനങ്ങൾ ഏറ്റെടുത്ത ഗാനങ്ങൾ | EVERGREEN HITS](https://www.youtube.com/watch?v=1BvVx2ojxzg)
-- [മനസിന് പ്രണയത്തിന്റെ ഏഥൻതാഴ്വരയിലേക്ക് കൂട്ടിക്കൊണ്ടുപോകുന്ന കുളിരേറും സിനിമാഗാനങ്ങൾ  | NISARI](https://www.youtube.com/watch?v=Ji4XWLoqJLY)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=356i5NmW3X8)
-- [NADHA NEEYEN CHARE | NEW CHRISTIAN SONG | VISHNU SUBRAMANNYAN | LEENA SHIBU | SHINTO TITUS](https://www.youtube.com/watch?v=e84J2pv44-c)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 22nd of September 2023](https://www.youtube.com/watch?v=EFgZELQ-Bos)
+- [നമ്മെ കരുതുന്ന ഒരു ദൈവമുണ്ട് | Rev. Aneesh P Joseph #shorts #jesus](https://www.youtube.com/watch?v=E2ylLk4PPoQ)
+- [Nishagandhi Poothidum | Chittoor Gopi | Nisari Ummer | Chithra Arun | New Malayalam Album Song](https://www.youtube.com/watch?v=F47tq9zRJZo)
+- [Kathare Nee En Then Mozhi | Suneesh Neendoor | Emmanuel Johnson | Najim Arshad | Aparna Nair](https://www.youtube.com/watch?v=qnqcZWfjVj8)
+- [Ohm Jai Jagadeesh Hare  | Aryan | Sujatha Mohan | Kaihapram | Reghu Kumar](https://www.youtube.com/watch?v=4ZjcHQDhJnA)
+- [Akale Nizhalay | Dilliwala Rajakumaran | iju Narayanan | B Arundhathi](https://www.youtube.com/watch?v=iQmc4kSIgZs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
