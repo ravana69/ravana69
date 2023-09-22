@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Paalaivanathil Yaanai &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Malayalam] - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175417-paalaivanathil-yaanai-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-malayalam-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353572)
 - [Sex Education &lpar;2023&rpar; S04 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 6.4GB - 3.2GB &amp; 1.2GB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175404-sex-education-2023-s04-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-64gb-32gb-12gb-esub/&do=findComment&comment=353571)
 - [Vidyarthi &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175416-vidyarthi-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353570)
 - [Aakhri Sach &lpar;2023&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192╚Kbps&rpar; - 3.7GB - 1.6GB &amp; 800MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175415-aakhri-sach-2023-s01-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192%E2%95%9Akbps-37gb-16gb-800mb-esub/&do=findComment&comment=353569)
 - [Bedurulanka 2012 &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 16GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175414-bedurulanka-2012-2023-telugu-true-web-dl-4k-1080p-720p-avc-dd51-640kbps-16gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353568)
-- [Maal &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.5GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175413-maal-2023-tamil-true-web-dl-4k1080p-720p-avc-hevc-dd51-384kbps-35gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353567)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
