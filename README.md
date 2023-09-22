@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [📌 KATHANAYAKUDU &lpar;2009&rpar; kuselan &lpar;MUSIC VIDEO ALBUM&rpar; - HQ 1080P - AMZN - WEBDL - H264 - DDP 5.1 - ESUBS - 2.8GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175432-%F0%9F%93%8C-kathanayakudu-2009-kuselan-music-video-album-hq-1080p-amzn-webdl-h264-ddp-51-esubs-28gb/&do=findComment&comment=353615)
+- [DD Returns: Bhoothala Bangala &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.3GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175430-dd-returns-bhoothala-bangala-2023-telugu-true-web-dl-1080p-720p-avc-dd51-384kbps-23gb-13gb-x264-700mb-400mb-250mb/&do=findComment&comment=353614)
 - [100 Tamil Movies - 1080p WEB DL - HEVC - x265 - ESub - AAC - 150GB [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/168122-100-tamil-movies-1080p-web-dl-hevc-x265-esub-aac-150gb-gdrive/&do=findComment&comment=353613)
-- [SIVAJI The boss &lpar;2007&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 4.3GB - Exclusively On TMV](https://www.1tamilmv.nexus/index.php?/forums/topic/174926-sivaji-the-boss-2007-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-43gb-exclusively-on-tmv/&do=findComment&comment=353612)
-- [SIVAJI The boss &lpar;2007&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 4.3GB - Exclusively On TMV](https://www.1tamilmv.nexus/index.php?/forums/topic/174926-sivaji-the-boss-2007-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-43gb-exclusively-on-tmv/&do=findComment&comment=353611)
 - [PARUGU &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.6GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175403-parugu-2008-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-66gb-esub/&do=findComment&comment=353610)
-- [SIVAJI The boss &lpar;2007&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 4.3GB - Exclusively On TMV](https://www.1tamilmv.nexus/index.php?/forums/topic/174926-sivaji-the-boss-2007-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-43gb-exclusively-on-tmv/&do=findComment&comment=353609)
+- [WEB &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175410-web-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353608)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
