@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [NADHA NEEYEN CHARE | NEW CHRISTIAN SONG | VISHNU SUBRAMANNYAN | LEENA SHIBU | SHINTO TITUS](https://www.youtube.com/watch?v=e84J2pv44-c)
+- [Kakka Malayile| Lyrical Video | Mallu Singh |MJayachandran| Unni Mukundan | Kunchacko Boban | Vysakh](https://www.youtube.com/watch?v=nkTQYRjm1IY)
 - [Oru Raajamalli | Aniyathipraavu 1997 | M. G. Sreekumar | Malayalam Movie Song](https://www.youtube.com/watch?v=sSDMi-5BZj8)
 - [Pularaaraayappol | Mooladhanam | Prem Nazeer | P.Bhaskaran | Susheela | Malayalam Classic Song](https://www.youtube.com/watch?v=AONVEPTI2ls)
 - [Nattu Maavin Kombile | Chakoram | Murali | Shanthi Krishna | Yesudas | Johnson](https://www.youtube.com/watch?v=OXjZOVw2zsg)
 - [Japamala 22nd of September 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 22nd of September 23](https://www.youtube.com/watch?v=v8LvgCPAnDU)
-- [Songs Of The Week | Kester | Christian Devotional Songs Malayalam | Joji Johns | Shine](https://www.youtube.com/watch?v=1bqYBVdbOaM)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=VQA9gheNct0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
