@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നയനാമൃതം രൂപം കർണ്ണാമൃതം നാദം .](https://www.youtube.com/watch?v=79muYK2UvWs)
 - [En Karalil Thamasichal Video Song | Nammal | Afsal , Franco | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=piwyIpEag1Y)
 - [Vijanamoru Theeram - Audio Song | Kushi (Malayalam) | Vijay Deverakonda,Samantha| Hesham Abdul Wahab](https://www.youtube.com/watch?v=xYZUs6EYOzA)
 - [Marakkunnu Njan En | Christian Video Song | Madhu](https://www.youtube.com/watch?v=JwHM1qbt8tc)
 - [Kushi (Malayalam) Title Song - Audio | Vijay Deverakonda, Samantha | Hesham Abdul Wahab](https://www.youtube.com/watch?v=L-6CvS7_waM)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 23rd of September 2023](https://www.youtube.com/watch?v=K06jreO-R5o)
-- [Therottam Sharavanatherottam | Snehasagaram | MG Sreekumar | Minmini | Johnson | Kaithapram](https://www.youtube.com/watch?v=GpuNb5pZsnA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
