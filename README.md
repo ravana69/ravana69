@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Gandeevadhari Arjuna &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 10GB - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175446-gandeevadhari-arjuna-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-10gb-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353665)
+- [Expendables 4 &lpar;2023&rpar; New v3 HQ HDTS - [1080p &amp; 720p - x264 - [Tamil + Telugu + Hindi] - 2.4GB &amp; 1GB | x264 - 700MB &amp; 400MB] - v2 Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175425-expendables-4-2023-new-v3-hq-hdts-1080p-720p-x264-tamil-telugu-hindi-24gb-1gb-x264-700mb-400mb-v2-clean-audio/&do=findComment&comment=353663)
+- [RDX &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 6GB - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175443-rdx-2023-malayalam-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-6gb-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=353661)
 - [Vasu &lpar;2002&rpar;.Telugu.1080p.DVD9Rip.HEVC.DD+5.1 - 3.3GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175442-vasu-2002telugu1080pdvd9riphevcdd51-33gb/&do=findComment&comment=353660)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP21 DAY 20 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.7GB - 841MB &amp; 366MB | 23-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175441-bigg-boss-telugu-s07-ep21-day-20-hdtv-1080p-720p-480p-avc-untouched-17gb-841mb-366mb-23-09-2023/&do=findComment&comment=353659)
-- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;16-18&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175359-vera-maari-office-2023-s01-ep-16-18-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=353658)
-- [[4K] Spy Kids: Armageddon &lpar;2023&rpar; NF WEB-DL Multi DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p - 15 GB | 5.2 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175440-4k-spy-kids-armageddon-2023-nf-web-dl-multi-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-15-gb-52-gb/&do=findComment&comment=353657)
-- [55 Tamil Movies - 1080p - SUN NXT / AMZN / SS / NF WEB DL - H.264 - DD5.1 / DDP2.0 / AAC - Esub - 450[Gdrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/164211-55-tamil-movies-1080p-sun-nxt-amzn-ss-nf-web-dl-h264-dd51-ddp20-aac-esub-450gdrive/&do=findComment&comment=353656)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
