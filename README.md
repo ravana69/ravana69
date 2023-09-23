@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [[4K] Spy Kids: Armageddon &lpar;2023&rpar; NF WEB-DL Multi DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p - 15 GB | 5.2 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175440-4k-spy-kids-armageddon-2023-nf-web-dl-multi-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-15-gb-52-gb/&do=findComment&comment=353639)
 - [Sex Education &lpar;2023&rpar; Complete S04 EP &lpar;01-08&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 6.4GB - 3.2GB &amp; 1.2GB] - ESub [Google Drive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175408-sex-education-2023-complete-s04-ep-01-08-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-64gb-32gb-12gb-esub-google-drive/&do=findComment&comment=353638)
 - [Jaane Jaan &lpar;2023&rpar; NF WEB-DL MULTI DDP5.1 Esubs - 1080p [HDR10-DV] | 720p - 6.7 GB | 4.5 GB | 3.5 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175418-jaane-jaan-2023-nf-web-dl-multi-ddp51-esubs-1080p-hdr10-dv-720p-67-gb-45-gb-35-gb/&do=findComment&comment=353637)
 - [Maal &lpar;2023&rpar; AHA WEB-DL DDP5.1 Esubs - 2160p | 1080p | 720p - 2.4 GB | 1.7 GB | 0.9 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175419-maal-2023-aha-web-dl-ddp51-esubs-2160p-1080p-720p-24-gb-17-gb-09-gb/&do=findComment&comment=353636)
 - [Spy Kids: Armageddon &lpar;2023&rpar; TRUE WEB-DL - 1080p - AVC - UNTOUCHED - [Tamil + Telugu + Hindi + English&lpar;DD+5.1&lpar;768kbps&rpar; Atmos&rpar;] - DD+5.1&lpar;640kbps&rpar; - 5.1GB - ESub [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175436-spy-kids-armageddon-2023-true-web-dl-1080p-avc-untouched-tamil-telugu-hindi-englishdd51768kbps-atmos-dd51640kbps-51gb-esub-gdrive/&do=findComment&comment=353635)
-- [The Wheel of Time S02E06 AMZN WEB-DL Multi DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p | 720p - 10.8 GB | 6.1 GB | 3.5 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175437-the-wheel-of-time-s02e06-amzn-web-dl-multi-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-720p-108-gb-61-gb-35-gb/&do=findComment&comment=353634)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
