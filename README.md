@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Nunachi Penne - Lyrical Video | Ival Draupadi | KS Chithra, Sunil Kumar P K, Viswanath](https://www.youtube.com/watch?v=Q2rz5FMoXbM)
-- [ശ്രീരാഗമോ തേടുന്നു നീ ഈ വീണതൻ പൊൻ തന്തിയിൽ #yesudas #evergeeenmalayalamhits #mohanlal](https://www.youtube.com/watch?v=RQHZb_65W4w)
-- [ഉറങ്ങാന്‍ പോകുമ്പോള്‍ കേള്‍ക്കാവുന്ന ഗാനങ്ങള്‍ # Malayalam Christian songs for Sleep #worshipsongs](https://www.youtube.com/watch?v=dr7i7EqsLK4)
-- [Ithratholam Yahova Sahayichu #shorts](https://www.youtube.com/watch?v=JoEbGi8o-AI)
-- [അസാധാരണ ഗാനങ്ങളെന്ന് മലയാളികൾ വിലയിരുത്തിയ മറക്കാനാവാത്ത മെലഡി ഗാനങ്ങൾ  | MELODY HITS MALAYALAM](https://www.youtube.com/watch?v=rbjp09x1RS0)
-- [രാത്രിമഞ്ഞിന്റെ കുളിര് കോരുന്ന അനുഭൂതിയേകും പ്രണയാർദ്ര ഗാനങ്ങൾ | EVERGREEN HIT SONGS](https://www.youtube.com/watch?v=TE2XXXQyg-4)
+- [Kushi (Malayalam) Title Song - Audio | Vijay Deverakonda, Samantha | Hesham Abdul Wahab](https://www.youtube.com/watch?v=L-6CvS7_waM)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 23rd of September 2023](https://www.youtube.com/watch?v=K06jreO-R5o)
+- [Therottam Sharavanatherottam | Snehasagaram | MG Sreekumar | Minmini | Johnson | Kaithapram](https://www.youtube.com/watch?v=GpuNb5pZsnA)
+- [നമ്മുടെ ചിന്തകളെ മനസ്സിലാക്കുന്ന ഒരു ദൈവമുണ്ട്. | Rev. Aneesh P Joseph |#shorts #motivationalvideo](https://www.youtube.com/watch?v=6t3Gd1fpo_g)
+- [Akale Nizhalay Video Song | Dilliwala Rajakumaran | iju Narayanan | B Arundhathi](https://www.youtube.com/watch?v=0WvVW7qOn6M)
+- [Thillai Thillai | Nakshathragal Parayathirunnathu | MG Sreekumar | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=Eva4c1FJOCY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
