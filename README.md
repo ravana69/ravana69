@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Gandeevadhari Arjuna &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175447-gandeevadhari-arjuna-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=353666)
 - [Gandeevadhari Arjuna &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 10GB - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175446-gandeevadhari-arjuna-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-10gb-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353665)
 - [Expendables 4 &lpar;2023&rpar; New v3 HQ HDTS - [1080p &amp; 720p - x264 - [Tamil + Telugu + Hindi] - 2.4GB &amp; 1GB | x264 - 700MB &amp; 400MB] - v2 Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175425-expendables-4-2023-new-v3-hq-hdts-1080p-720p-x264-tamil-telugu-hindi-24gb-1gb-x264-700mb-400mb-v2-clean-audio/&do=findComment&comment=353663)
 - [Gandeevadhari Arjuna &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.4GB - 2.4GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175444-gandeevadhari-arjuna-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-54gb-24gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353662)
 - [RDX &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 6GB - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175443-rdx-2023-malayalam-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-6gb-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=353661)
-- [Vasu &lpar;2002&rpar;.Telugu.1080p.DVD9Rip.HEVC.DD+5.1 - 3.3GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175442-vasu-2002telugu1080pdvd9riphevcdd51-33gb/&do=findComment&comment=353660)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
