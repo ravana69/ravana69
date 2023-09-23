@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;16-18&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175359-vera-maari-office-2023-s01-ep-16-18-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=353658)
+- [[4K] Spy Kids: Armageddon &lpar;2023&rpar; NF WEB-DL Multi DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p - 15 GB | 5.2 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175440-4k-spy-kids-armageddon-2023-nf-web-dl-multi-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-15-gb-52-gb/&do=findComment&comment=353657)
 - [55 Tamil Movies - 1080p - SUN NXT / AMZN / SS / NF WEB DL - H.264 - DD5.1 / DDP2.0 / AAC - Esub - 450[Gdrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/164211-55-tamil-movies-1080p-sun-nxt-amzn-ss-nf-web-dl-h264-dd51-ddp20-aac-esub-450gdrive/&do=findComment&comment=353656)
 - [DD Returns: Bhoothala Bangala &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.3GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175430-dd-returns-bhoothala-bangala-2023-telugu-true-web-dl-1080p-720p-avc-dd51-384kbps-23gb-13gb-x264-700mb-400mb-250mb/&do=findComment&comment=353655)
 - [PARUGU &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.6GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175403-parugu-2008-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-66gb-esub/&do=findComment&comment=353654)
-- [Bedurulanka 2012 &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 16GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175414-bedurulanka-2012-2023-telugu-true-web-dl-4k-1080p-720p-avc-dd51-640kbps-16gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353653)
-- [100 Tamil Movies - 1080p WEB DL - HEVC - x265 - ESub - AAC - 150GB [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/168122-100-tamil-movies-1080p-web-dl-hevc-x265-esub-aac-150gb-gdrive/&do=findComment&comment=353652)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
