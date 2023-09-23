@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [DHOOM-3 &lpar;2013&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar; DD+5.1 - 448Kbps &amp; DD+2.0 - 448Kbps&rpar; - 6.5GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175433-dhoom-3-2013-telugu-dvd9-untouched-480p-dd51-448kbps-dd20-448kbps-65gb-esub/&do=findComment&comment=353629)
 - [Spy Kids: Armageddon &lpar;2023&rpar; TRUE WEB-DL - 1080p - AVC - UNTOUCHED - [Tamil + Telugu + Hindi + English&lpar;DD+5.1&lpar;768kbps&rpar; Atmos&rpar;] - DD+5.1&lpar;640kbps&rpar; - 5.1GB - ESub [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175436-spy-kids-armageddon-2023-true-web-dl-1080p-avc-untouched-tamil-telugu-hindi-englishdd51768kbps-atmos-dd51640kbps-51gb-esub-gdrive/&do=findComment&comment=353628)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP20 DAY 19 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 960MB - 467MB &amp; 201MB | 22-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175434-bigg-boss-telugu-s07-ep20-day-19-hdtv-1080p-720p-480p-avc-untouched-960mb-467mb-201mb-22-09-2023/&do=findComment&comment=353627)
 - [Money Heist Complete Collection &lpar;2017 - 2020&rpar; 720p/1080p NF WEB-DL [Tamil + Telugu + Hindi + English] &lpar;DDP5.1 - 192kbps/640kbps&rpar; H.264 - ESub - Leyon](https://www.1tamilmv.nexus/index.php?/forums/topic/162270-money-heist-complete-collection-2017-2020-720p1080p-nf-web-dl-tamil-telugu-hindi-english-ddp51-192kbps640kbps-h264-esub-leyon/&do=findComment&comment=353626)
 - [Stranger Things - Complete Collecton &lpar;2016 - 2022&rpar; [S01 - S04] 720p/1080p NF WEB-DL x264 &lpar;DD+ 5.1 - 192/640Kbps&rpar; [Tamil + Telugu + Hindi + English] - MSub - Leyon](https://www.1tamilmv.nexus/index.php?/forums/topic/164841-stranger-things-complete-collecton-2016-2022-s01-s04-720p1080p-nf-web-dl-x264-dd-51-192640kbps-tamil-telugu-hindi-english-msub-leyon/&do=findComment&comment=353625)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 EP20 DAY 19 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 960MB - 467MB &amp; 201MB | 22-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175434-bigg-boss-telugu-s07-ep20-day-19-hdtv-1080p-720p-480p-avc-untouched-960mb-467mb-201mb-22-09-2023/&do=findComment&comment=353624)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
