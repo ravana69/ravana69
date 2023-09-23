@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 24th SEP 2023](https://www.youtube.com/watch?v=oZSVuJJXin8)
+- [നാദങ്ങളായി നീ വരൂ..| കെ ജെ യേശുദാസ് | ചിത്ര | Original Audio Remastered movie songs](https://www.youtube.com/watch?v=urFLXlYQhNY)
 - [Parisudhan Mahonnatha Devan | Hallelujah | Amaravila Youth Chorus | Malayalam Christian Songs](https://www.youtube.com/watch?v=xPg4k7NgeZo)
 - [നയനാമൃതം രൂപം കർണ്ണാമൃതം നാദം .](https://www.youtube.com/watch?v=79muYK2UvWs)
 - [En Karalil Thamasichal Video Song | Nammal | Afsal , Franco | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=piwyIpEag1Y)
 - [Vijanamoru Theeram - Audio Song | Kushi (Malayalam) | Vijay Deverakonda,Samantha| Hesham Abdul Wahab](https://www.youtube.com/watch?v=xYZUs6EYOzA)
-- [Marakkunnu Njan En | Christian Video Song | Madhu](https://www.youtube.com/watch?v=JwHM1qbt8tc)
-- [Kushi (Malayalam) Title Song - Audio | Vijay Deverakonda, Samantha | Hesham Abdul Wahab](https://www.youtube.com/watch?v=L-6CvS7_waM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
