@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [55 Tamil Movies - 1080p - SUN NXT / AMZN / SS / NF WEB DL - H.264 - DD5.1 / DDP2.0 / AAC - Esub - 450[Gdrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/164211-55-tamil-movies-1080p-sun-nxt-amzn-ss-nf-web-dl-h264-dd51-ddp20-aac-esub-450gdrive/&do=findComment&comment=353656)
+- [DD Returns: Bhoothala Bangala &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.3GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175430-dd-returns-bhoothala-bangala-2023-telugu-true-web-dl-1080p-720p-avc-dd51-384kbps-23gb-13gb-x264-700mb-400mb-250mb/&do=findComment&comment=353655)
+- [PARUGU &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 6.6GB - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175403-parugu-2008-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-66gb-esub/&do=findComment&comment=353654)
 - [Bedurulanka 2012 &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 16GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175414-bedurulanka-2012-2023-telugu-true-web-dl-4k-1080p-720p-avc-dd51-640kbps-16gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353653)
 - [100 Tamil Movies - 1080p WEB DL - HEVC - x265 - ESub - AAC - 150GB [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/168122-100-tamil-movies-1080p-web-dl-hevc-x265-esub-aac-150gb-gdrive/&do=findComment&comment=353652)
-- [Nene Naa &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.3GB &amp; 1.2GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175438-nene-naa-2023-telugu-true-web-dl-1080p-720p-avc-dd51-384kbps-23gb-12gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353651)
-- [7:11 PM &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 800MB &amp; 450MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175435-711-pm-2023-true-web-dl-1080p-720p-avc-hevc-tamil-malayalam-kannada-dd51-192kbps-26gb-14gb-x264-800mb-450mb-esub/&do=findComment&comment=353650)
-- [Expendables 4 &lpar;2023&rpar; New v3 HQ HDTS - [1080p &amp; 720p - x264 - [Tamil + Telugu + Hindi] - 2.4GB &amp; 1GB | x264 - 700MB &amp; 400MB] - v2 Clean Audio](https://www.1tamilmv.nexus/index.php?/forums/topic/175425-expendables-4-2023-new-v3-hq-hdts-1080p-720p-x264-tamil-telugu-hindi-24gb-1gb-x264-700mb-400mb-v2-clean-audio/&do=findComment&comment=353649)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
