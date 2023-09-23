@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [അസാധാരണ ഗാനങ്ങളെന്ന് മലയാളികൾ വിലയിരുത്തിയ മറക്കാനാവാത്ത മെലഡി ഗാനങ്ങൾ  | MELODY HITS MALAYALAM](https://www.youtube.com/watch?v=rbjp09x1RS0)
+- [രാത്രിമഞ്ഞിന്റെ കുളിര് കോരുന്ന അനുഭൂതിയേകും പ്രണയാർദ്ര ഗാനങ്ങൾ | EVERGREEN HIT SONGS](https://www.youtube.com/watch?v=TE2XXXQyg-4)
+- [Kashmeeri Penne Va Va | Guru Shishyan | Gireesh Puthenchery | Johnson | MG Sreekumar | Swarnalatha](https://www.youtube.com/watch?v=frHkrEt5Udc)
+- [Madhuram Madhu | Achante Bharya | K. J. Yesudas | V Dakshinamoorthy | Old Malayalam Songs](https://www.youtube.com/watch?v=u-dmjo3Vmno)
 - [Nin Mugham Kaanuvaan | Abhayavaram Arulunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=Qc90m_ewbdY)
 - [പ്ലാവിലപ്പൊൻ‌തളികയിൽ പാൽപ്പായസച്ചോറുണ്ണുവാൻ #malayalamsongs #mohanlal #yesudas #romantic](https://www.youtube.com/watch?v=QzwbkjAYlxk)
-- [Sukhamevide | Vilakku Vaangiya Veena | Prem Nazeer | Sreekumaran thapi | Dakshinamoorthy | Yesudas](https://www.youtube.com/watch?v=RxtKOYJGYOI)
-- [Swarna Dala Kodikal | Manjukalavum Kazhinju 1998 | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=rCd-MtFX8-M)
-- [Kelkkathoru Sangeetham | Vesham | S A Rajkumar | Gopika | Karthik | Mammootty | Sujatha Mohan](https://www.youtube.com/watch?v=yuxKRa9n67A)
-- [Christian Video Songs Malayalam | Kester | Wilson Piravom | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=WPx-Zdq95nQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
