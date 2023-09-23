@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Swarna Dala Kodikal | Manjukalavum Kazhinju 1998 | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=rCd-MtFX8-M)
 - [Kelkkathoru Sangeetham | Vesham | S A Rajkumar | Gopika | Karthik | Mammootty | Sujatha Mohan](https://www.youtube.com/watch?v=yuxKRa9n67A)
 - [Christian Video Songs Malayalam | Kester | Wilson Piravom | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=WPx-Zdq95nQ)
 - [Japamala 23rd of September 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 23rd of September 23](https://www.youtube.com/watch?v=toy3oQHVZVQ)
 - [Oru Kannunim Dayayillathe... #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=gbBCPL7gzIs)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #september 23rd mother mary prayer and songs 2023](https://www.youtube.com/watch?v=1ioGP-JA2q0)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=F7OE_li4xRE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
