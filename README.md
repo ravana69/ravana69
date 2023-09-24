@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vishwaroopam &lpar;2013&rpar; Tamil - BluRay - 1080p &amp; 720p - TRUE HD - AVC / HEVC - DTS-HDMA 5.1&lpar;2358kbps&rpar; - 8.9GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - ESub [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175448-vishwaroopam-2013-tamil-bluray-1080p-720p-true-hd-avc-hevc-dts-hdma-512358kbps-89gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub-gdrive/&do=findComment&comment=353671)
 - [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;19-21&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175449-vera-maari-office-2023-s01-ep-19-21-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=353670)
 - [65 Hollywood Movies - BluRay - H264 - Original Audio - [Tamil + Telugu + Hindi + Eng] - ESub - [720p - 70GB]](https://www.1tamilmv.nexus/index.php?/forums/topic/127410-65-hollywood-movies-bluray-h264-original-audio-tamil-telugu-hindi-eng-esub-720p-70gb/&do=findComment&comment=353669)
 - [Vishwaroopam &lpar;2013&rpar; Tamil - BluRay - 1080p &amp; 720p - TRUE HD - AVC / HEVC - DTS-HDMA 5.1&lpar;2358kbps&rpar; - 8.9GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - ESub [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175448-vishwaroopam-2013-tamil-bluray-1080p-720p-true-hd-avc-hevc-dts-hdma-512358kbps-89gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub-gdrive/&do=findComment&comment=353668)
 - [Gandeevadhari Arjuna &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.4GB - 2.4GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175444-gandeevadhari-arjuna-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-54gb-24gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353667)
-- [Gandeevadhari Arjuna &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175447-gandeevadhari-arjuna-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=353666)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
