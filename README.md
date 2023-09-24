@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [50 Tamil Movies - AMZN/JC/SS/TK/SUN NXT WEB DL - H264/H265 - DDP5.1/AAC2.0 - [4K, 1080p &amp; 720p - 550GB] [GDRIVE]](https://www.1tamilmv.nexus/index.php?/forums/topic/129789-50-tamil-movies-amznjcsstksun-nxt-web-dl-h264h265-ddp51aac20-4k-1080p-720p-550gb-gdrive/&do=findComment&comment=353688)
+- [[4K] Spy Kids: Armageddon &lpar;2023&rpar; NF WEB-DL Multi DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p - 15 GB | 5.2 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175440-4k-spy-kids-armageddon-2023-nf-web-dl-multi-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-15-gb-52-gb/&do=findComment&comment=353687)
+- [Spider-Man 3 &lpar;2007&rpar; Tamil+Telugu+Hindi+ English 2160p BluRay x265 HEVC 10bit HDR AAC 7.1  first on net [G-Direct Resume supported]](https://www.1tamilmv.nexus/index.php?/forums/topic/141853-spider-man-3-2007-tamilteluguhindi-english-2160p-bluray-x265-hevc-10bit-hdr-aac-71-first-on-net-g-direct-resume-supported/&do=findComment&comment=353686)
 - [RDX &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 6GB - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175443-rdx-2023-malayalam-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-6gb-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=353685)
 - [Gandeevadhari Arjuna &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.4GB - 2.4GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175444-gandeevadhari-arjuna-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-54gb-24gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353684)
-- [Thottampaaturayunna Malepothi &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.6GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175450-thottampaaturayunna-malepothi-2023-malayalam-true-web-dl-1080p-720p-avc-aac-26gb-13gb-x264-700mb-400mb/&do=findComment&comment=353683)
-- [Spider-Man 3 &lpar;2007&rpar; Tamil+Telugu+Hindi+ English 2160p BluRay x265 HEVC 10bit HDR AAC 7.1  first on net [G-Direct Resume supported]](https://www.1tamilmv.nexus/index.php?/forums/topic/141853-spider-man-3-2007-tamilteluguhindi-english-2160p-bluray-x265-hevc-10bit-hdr-aac-71-first-on-net-g-direct-resume-supported/&do=findComment&comment=353682)
-- [30 Tamil Movies - ASTRO/AMZN/SS/SUN NXT WEB DL - H264/H265 - DD5.1/DDP5.1/AAC2.0 - ESub - [4K, 1080p &amp; 720p - 275GB] [GDRIVE]](https://www.1tamilmv.nexus/index.php?/forums/topic/169176-30-tamil-movies-astroamznsssun-nxt-web-dl-h264h265-dd51ddp51aac20-esub-4k-1080p-720p-275gb-gdrive/&do=findComment&comment=353681)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
