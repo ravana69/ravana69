@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന September 25 # Athiravile Prarthana 25th of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=TL7BNqVMce4)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 25th SEP 2023](https://www.youtube.com/watch?v=KOvZvcxRLVQ)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=oJPzWv0lVqY)
 - [Neela Nilave 💞](https://www.youtube.com/watch?v=sJEub8kLpdU)
 - [സകല ജീവനു നാഥനായ് ...](https://www.youtube.com/watch?v=S6e7q_rQxPI)
 - [Ithratholam Yahova Sahayichu | Shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=nmt4KUbvU9E)
-- [ആരെല്ലാം നമ്മെ വിട്ടുപിരിഞ്ഞാലും ദൈവമുണ്ടെന്ന സത്യമോതും ക്രിസ്തീയ ഗാനങ്ങൾ |Malayalam Christian Songs](https://www.youtube.com/watch?v=NEgrAwFNDdM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
