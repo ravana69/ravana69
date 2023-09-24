@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ithratholam Yahova Sahayichu | Shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=nmt4KUbvU9E)
 - [ആരെല്ലാം നമ്മെ വിട്ടുപിരിഞ്ഞാലും ദൈവമുണ്ടെന്ന സത്യമോതും ക്രിസ്തീയ ഗാനങ്ങൾ |Malayalam Christian Songs](https://www.youtube.com/watch?v=NEgrAwFNDdM)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 24th of September 2023](https://www.youtube.com/watch?v=OlN-a0XO4l4)
 - [പാപങ്ങളെ മറക്കുന്നവനായ  ദീർഘമായി ക്ഷമിക്കുന്ന ദൈവത്തിന്റെ കാരുണ്യം | Rev. Aneesh P Joseph |#shorts](https://www.youtube.com/watch?v=AmTLmWV6zu8)
 - [Thamasamenthe Varuvan | Evergreen Song | Bhargavi Nilayam | K J Yesudas | Baburaj](https://www.youtube.com/watch?v=vUIJWOHyUPI)
 - [ഡാര്‍ലിങ് ഡാര്‍ലിങ് ...| Azhakulla Saleena | KJ Yesudas | Vayalar | Prem Nazir | #shorts](https://www.youtube.com/watch?v=fYgOezNaVC0)
-- [Ethrayo Janmamaay Video Song| Summer in Bethlehem|Gireesh Puthenchery| Vidyasagar| Sujatha,Sreenivas](https://www.youtube.com/watch?v=ArZZrWHh9cQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
