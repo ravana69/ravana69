@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thrippankottappa | Thumbolarcha | Vayalar | G Devarajan P Susheela | KP Ummer | Sheela | P Susheela](https://www.youtube.com/watch?v=FOIfvTMmLnc)
 - [പാട്ടുപെട്ടി - Paattupetti Vol 26 | Malayalam Film Songs | 80,s | 90,s | Nostalgic Hit Songs](https://www.youtube.com/watch?v=UN_VlLII0MA)
 - [Kiliye Cherukiliye | 916 | Beautiful Song by K S Chithra #shorts](https://www.youtube.com/watch?v=mHJX3Dd1_4g)
 - [കോവിലിൽ പുലർ‌വേളയിൽ ജയദേവഗീതാലാപനം #mohanlal  #malayalamsongs #mohanlal #yesudas](https://www.youtube.com/watch?v=98tNqUlz9MM)
 - [Oridathu Jananam  | Ashwamedham | Yesudas | Sheela | Vayalar | G.Devarajan](https://www.youtube.com/watch?v=NpVxU488RMI)
 - [Manassum Shareeravum | Onnum Mindatha Bharya 1984 | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=ysu672cOYKw)
-- [Oru Ponkinaviletho | Georgootty C/O Georgootty | Video Song #shorts](https://www.youtube.com/watch?v=sc5Z1D8Euxk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
