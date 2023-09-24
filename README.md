@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vishwaroopam &lpar;2013&rpar; Tamil - BluRay - 1080p &amp; 720p - TRUE HD - AVC / HEVC - DTS-HDMA 5.1&lpar;2358kbps&rpar; - 8.9GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - ESub [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175448-vishwaroopam-2013-tamil-bluray-1080p-720p-true-hd-avc-hevc-dts-hdma-512358kbps-89gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub-gdrive/&do=findComment&comment=353690)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP22 DAY 21 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.5GB - 764MB &amp; 322MB | 24-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175453-bigg-boss-telugu-s07-ep22-day-21-hdtv-1080p-720p-480p-avc-untouched-15gb-764mb-322mb-24-09-2023/&do=findComment&comment=353689)
 - [50 Tamil Movies - AMZN/JC/SS/TK/SUN NXT WEB DL - H264/H265 - DDP5.1/AAC2.0 - [4K, 1080p &amp; 720p - 550GB] [GDRIVE]](https://www.1tamilmv.nexus/index.php?/forums/topic/129789-50-tamil-movies-amznjcsstksun-nxt-web-dl-h264h265-ddp51aac20-4k-1080p-720p-550gb-gdrive/&do=findComment&comment=353688)
 - [[4K] Spy Kids: Armageddon &lpar;2023&rpar; NF WEB-DL Multi DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p - 15 GB | 5.2 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175440-4k-spy-kids-armageddon-2023-nf-web-dl-multi-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-15-gb-52-gb/&do=findComment&comment=353687)
 - [Spider-Man 3 &lpar;2007&rpar; Tamil+Telugu+Hindi+ English 2160p BluRay x265 HEVC 10bit HDR AAC 7.1  first on net [G-Direct Resume supported]](https://www.1tamilmv.nexus/index.php?/forums/topic/141853-spider-man-3-2007-tamilteluguhindi-english-2160p-bluray-x265-hevc-10bit-hdr-aac-71-first-on-net-g-direct-resume-supported/&do=findComment&comment=353686)
-- [RDX &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 6GB - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175443-rdx-2023-malayalam-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-6gb-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=353685)
-- [Gandeevadhari Arjuna &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.4GB - 2.4GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175444-gandeevadhari-arjuna-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-54gb-24gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353684)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
