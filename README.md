@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മുഴുതിങ്കള്‍ മണിവിളക്കണഞ്ഞു | Muzhuthinkal Manivilakku | Achaani | P Susheela | Prem Nazeer Hit Song](https://www.youtube.com/watch?v=5jHAKLJgQf8)
+- [Sneham Poothulanju | Love Story | Chunakkara Ramankutty | Shyam | K.J.Yesudas & K.S.Chithra](https://www.youtube.com/watch?v=ij7zdpfbH2I)
 - [Mercury Lambu Veenu|Sainyam|Priyaraman|Chiyaan Vikram|Dileep|Mukundan|Aby|](https://www.youtube.com/watch?v=ds5Nd97FLZ0)
 - [Vellimani Poonthirakal | LolliPop | Jyotsna | Franco | Alex Paul | Vayalar Sarathchandra Varma](https://www.youtube.com/watch?v=FhJnEMPrMEE)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 25th of September 2023](https://www.youtube.com/watch?v=weaTrWKIPVY)
 - [സഹനപാതയിൽ പൊലിഞ്ഞുപോകാത്ത വിശ്വാസം | Rev. Aneesh P Joseph |#shorts #jesusshorts](https://www.youtube.com/watch?v=6dkUsyUOfbI)
-- [Mele Vinnile  Video Song | Kaathil Oru Kinnaram | Swarnalatha | SP Venkitesh | Gireesh Puthenchery](https://www.youtube.com/watch?v=K3QF9Yg35CM)
-- [Neelakuyil Evergreen Song | Neelakuyil Movie | K Raghavan #shorts](https://www.youtube.com/watch?v=wgox5e8p1zg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
