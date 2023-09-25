@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [RDX &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 6GB - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175443-rdx-2023-malayalam-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-6gb-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=353700)
+- [Mudhal Kanave &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175456-mudhal-kanave-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353699)
 - [Nenjinile &lpar;1999&rpar;[Tamil - 720p - HDTV Rip - AVC - x264 - AAC - 5.2GB + 1.4GB + 900MB + 600MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/99551-nenjinile-1999tamil-720p-hdtv-rip-avc-x264-aac-52gb-14gb-900mb-600mb/&do=findComment&comment=353698)
 - [Aaranya Kaandam &lpar;2011&rpar;.Tamil.1080p.HD.AVC.x264.AAC2.0 - 3.6GB - GDRIVE](https://www.1tamilmv.nexus/index.php?/forums/topic/106583-aaranya-kaandam-2011tamil1080phdavcx264aac20-36gb-gdrive/&do=findComment&comment=353697)
 - [Aaranya Kaandam &lpar;2011&rpar;.Tamil.1080p.HD.AVC.x264.AAC2.0 - 3.6GB - GDRIVE](https://www.1tamilmv.nexus/index.php?/forums/topic/106583-aaranya-kaandam-2011tamil1080phdavcx264aac20-36gb-gdrive/&do=findComment&comment=353696)
-- [Vijay Sethupathi Movies Collections &lpar;2010 - 2023&rpar; ITune / NF / TK / JC / SS / AMZN /SUNXT - WEB-DL - H264/H265 [4k &amp; 1080p &amp; 720p] [GDRIVE &amp; Telegram]Esubs](https://www.1tamilmv.nexus/index.php?/forums/topic/147475-vijay-sethupathi-movies-collections-2010-2023-itune-nf-tk-jc-ss-amzn-sunxt-web-dl-h264h265-4k-1080p-720p-gdrive-telegramesubs/&do=findComment&comment=353695)
-- [Mudhal Kanave &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175456-mudhal-kanave-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353694)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
