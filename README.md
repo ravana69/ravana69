@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന  September 26 Athiravile Prarthana 26th of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=GZlf5Ddw1CA)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 26th SEP 2023](https://www.youtube.com/watch?v=-9EgshZaLdg)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=LOCMgLYFiGg)
 - [ഹൃദയരാഗതന്ത്രി മീട്ടി..സ്നേഹമേകിയും..| ഭരതൻ ഹിറ്റ്‌സ് | K J Yesudas | KS Chithra | Bharathan Hits](https://www.youtube.com/watch?v=4pR9_zVUGJE)
 - [മണ്ണിൽ നിന്നും മെനഞ്ഞു എന്നെ നീ സ്വന്തമായ് മാറ്റി...](https://www.youtube.com/watch?v=YbJ_kiqOSiM)
 - [Ente Mounaraagaminnu Video Song | Jayaram | Shruthi | KJ Yesudas | KS Chithra | Berny Ignatius](https://www.youtube.com/watch?v=E0nzVaZ5Z5o)
-- [മുഴുതിങ്കള്‍ മണിവിളക്കണഞ്ഞു | Muzhuthinkal Manivilakku | Achaani | P Susheela | Prem Nazeer Hit Song](https://www.youtube.com/watch?v=5jHAKLJgQf8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
