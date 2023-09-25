@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Poovaamkurunnila | Manjukalavum Kazhinju 1998 | K. S. Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=YXAbH-dixCc)
+- [Thachak Machak | Lyrical Video | Point Range | Sainu Chavakkadan | Sarath Appani | Shiji Mohammed](https://www.youtube.com/watch?v=F3T3ihb61qk)
 - [Banger steps for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=lLRQ5K7aJ6M)
 - [Ayisha - Video Jukebox | Manju Warrier | Krishna Sankar | Mona | Aamir Pallikkal | M Jayachandran](https://www.youtube.com/watch?v=H2mtAU_OjCs)
 - [Kaalidaasan Marichu | Thaara | Vayalar | G Devarajan | KJ Yesudas | Prem Nazeer](https://www.youtube.com/watch?v=1TI7E7-cxAo)
 - [Njanennum Sthuthikkum #manoramachristiandevotionalsongs #shorts](https://www.youtube.com/watch?v=9nyBOxAi6fU)
-- [Japamala 25th of September 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 25th of September 23](https://www.youtube.com/watch?v=hK7pD6PONts)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #september 25th    mother mary morning songs](https://www.youtube.com/watch?v=qk4vaZtAXC8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
