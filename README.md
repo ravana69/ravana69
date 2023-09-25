@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Banger steps for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=lLRQ5K7aJ6M)
+- [Ayisha - Video Jukebox | Manju Warrier | Krishna Sankar | Mona | Aamir Pallikkal | M Jayachandran](https://www.youtube.com/watch?v=H2mtAU_OjCs)
+- [Kaalidaasan Marichu | Thaara | Vayalar | G Devarajan | KJ Yesudas | Prem Nazeer](https://www.youtube.com/watch?v=1TI7E7-cxAo)
 - [Njanennum Sthuthikkum #manoramachristiandevotionalsongs #shorts](https://www.youtube.com/watch?v=9nyBOxAi6fU)
 - [Japamala 25th of September 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 25th of September 23](https://www.youtube.com/watch?v=hK7pD6PONts)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #september 25th    mother mary morning songs](https://www.youtube.com/watch?v=qk4vaZtAXC8)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=WEQQwn2K4t4)
-- [പ്രഭാത പ്രാര്‍ത്ഥന September 25 # Athiravile Prarthana 25th of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=TL7BNqVMce4)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 25th SEP 2023](https://www.youtube.com/watch?v=KOvZvcxRLVQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
