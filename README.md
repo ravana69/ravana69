@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Baasha &lpar;1995&rpar; ASTRO WEB-DL AAC2.0 x264 - 1080p | 720p - 5.1 GB | 2.6 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175455-baasha-1995-astro-web-dl-aac20-x264-1080p-720p-51-gb-26-gb/&do=findComment&comment=353693)
 - [Kanneera &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.6GB - 2.5GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175454-kanneera-2023-tamil-true-web-dl-1080p-720p-avc-dd51-384kbps-36gb-25gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353692)
 - [Gandeevadhari Arjuna &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 10GB - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175446-gandeevadhari-arjuna-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-10gb-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353691)
 - [Vishwaroopam &lpar;2013&rpar; Tamil - BluRay - 1080p &amp; 720p - TRUE HD - AVC / HEVC - DTS-HDMA 5.1&lpar;2358kbps&rpar; - 8.9GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - ESub [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175448-vishwaroopam-2013-tamil-bluray-1080p-720p-true-hd-avc-hevc-dts-hdma-512358kbps-89gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub-gdrive/&do=findComment&comment=353690)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP22 DAY 21 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.5GB - 764MB &amp; 322MB | 24-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175453-bigg-boss-telugu-s07-ep22-day-21-hdtv-1080p-720p-480p-avc-untouched-15gb-764mb-322mb-24-09-2023/&do=findComment&comment=353689)
-- [50 Tamil Movies - AMZN/JC/SS/TK/SUN NXT WEB DL - H264/H265 - DDP5.1/AAC2.0 - [4K, 1080p &amp; 720p - 550GB] [GDRIVE]](https://www.1tamilmv.nexus/index.php?/forums/topic/129789-50-tamil-movies-amznjcsstksun-nxt-web-dl-h264h265-ddp51aac20-4k-1080p-720p-550gb-gdrive/&do=findComment&comment=353688)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
