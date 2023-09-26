@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 27th SEP 2023](https://www.youtube.com/watch?v=8sQPR_ez6vA)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=GQ4bHYkIveY)
 - [Pala Palaa Minnerunne - Audio Song | Dasara (Malayalam) | Nani, Keerthy Suresh | Santhosh Narayanan](https://www.youtube.com/watch?v=P_u8gxzJVhs)
 - [കരുണാർദ്ര സ്നേഹമേ ഉപവി തൻ ഉറവേ യേശുവിൻ ഹൃദയത്തിൻ അനുരൂപനേ ...](https://www.youtube.com/watch?v=0eXpAOAW9As)
 - [Kashtangal Saramilla | Kester | Praise and Worship Songs | Christian Melody Songs Malayalam](https://www.youtube.com/watch?v=zigIbdLl-wQ)
 - [Ithratholam Yahova Sahayichu | KS Chithra #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=4_zz3-sqahU)
-- [Etho Poonilaa | Happy Husbands | Jayaram | Bhavana | Jayasurya | Rima Kallingal | Indrajith](https://www.youtube.com/watch?v=pcMdgcj3QvQ)
-- [Himaval Swami Sharanam | Makante Achan | Kavalam Sreekumar | M Jayachandran | Anil Panachooran](https://www.youtube.com/watch?v=Iiu-xn2Qhnw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
