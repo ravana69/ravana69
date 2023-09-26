@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [തെന്നലുമ്മകളേകിയോ കുഞ്ഞു തുമ്പി തം‌മ്പുരു മീട്ടിയോ #malayalamsongs #aayiramkannumay #mohanlal](https://www.youtube.com/watch?v=HUskrZ_8rrQ)
 - [മലയാളസംഗീതത്തിന്റെ സൗഭാഗ്യതാരം കെ എസ് ചിത്ര ആലപിച്ച മനം കുളിർക്കും ഗാനങ്ങൾ  |  KS CHITHRA HITS](https://www.youtube.com/watch?v=T7trPv-8cAg)
+- [En Pranayame | Music Video | Anuragam | Joyel Shaju | Anna Bijo | Malavika E | Ankith](https://www.youtube.com/watch?v=zYOu1QUdNmE)
 - [Kannamthali Muttam | Thumbolarcha | G Devarajan | Vayalar Ramavarma | P Susheela | Srividya](https://www.youtube.com/watch?v=tL8xGiHUHwc)
 - [അനുഭൂതി തഴുകി | Anubhoothi Thazhuki | Anubhoothi Malayalam Movie Song | Suresh Gopi, Khusbhoo](https://www.youtube.com/watch?v=I3_j_098q84)
 - [എൻ‌റെ ഓർമയിൽ പൂത്തുനിന്നൊരുമഞ്ഞ മന്ദാരമേ #malayalamsongs #aayiramkannumay](https://www.youtube.com/watch?v=O0HKJkXjSEQ)
-- [Jai Ho Team India | Motivation Song Team India #shorts #shortsfeed #shankarmahadevan #gopisundar](https://www.youtube.com/watch?v=IIS_xvOkT7c)
-- [Madhavettanennum | Lyrical Video | Oru Marubhoomi Kadha | Mohanlal | Priyadarshan | M G Sreekumar](https://www.youtube.com/watch?v=s4jyTXGyjec)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
