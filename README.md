@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Chennakesava Reddy &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar; DD+5.1 - 448Kbps &amp; DD+2.0 - 192Kbps&rpar; - 5.7GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175473-chennakesava-reddy-2002-telugu-dvd9-untouched-480p-dd51-448kbps-dd20-192kbps-57gb/&do=findComment&comment=353761)
 - [Chennakesava Reddy &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar; DD+5.1 - 448Kbps &amp; DD+2.0 - 192Kbps&rpar; - 5.7GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175473-chennakesava-reddy-2002-telugu-dvd9-untouched-480p-dd51-448kbps-dd20-192kbps-57gb/&do=findComment&comment=353760)
 - [Scooby-Doo! And Krypto, Too! &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2GB &amp; 850MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175472-scooby-doo-and-krypto-too-2023-english-true-web-dl-1080p-720p-avc-dd51-640kbps-2gb-850mb-esub/&do=findComment&comment=353759)
 - [Gran Turismo &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB &amp; 1.1GB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175471-gran-turismo-2023-english-true-web-dl-1080p-720p-avc-dd51-640kbps-26gb-11gb-esub/&do=findComment&comment=353758)
 - [Janvi &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 5.1 - 253Kbps&rpar; - 2.5GB - 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.nexus/index.php?/forums/topic/175463-janvi-2023-malayalam-true-web-dl-1080p-720p-avc-aac-51-253kbps-25gb-14gb-x264-700mb-400mb/&do=findComment&comment=353757)
-- [Scooby-Doo! And Krypto, Too! &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2GB &amp; 850MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175472-scooby-doo-and-krypto-too-2023-english-true-web-dl-1080p-720p-avc-dd51-640kbps-2gb-850mb-esub/&do=findComment&comment=353756)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
