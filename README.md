@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Dark Knight &lpar;2008&rpar; IMAX - BluRay - 4K , 1080p &amp; 720p - HEVC / AVC - [Tamil + Telugu + Hindi + English&lpar;DTS-HDMA 5.1&lpar;3814kbps&rpar;] - DD+2.0&lpar;224kbps&rpar; - 11.2GB - 7.4GB - 3.1GB &amp; 1.6GB - ESub [GDrive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175470-the-dark-knight-2008-imax-bluray-4k-1080p-720p-hevc-avc-tamil-telugu-hindi-englishdts-hdma-513814kbps-dd20224kbps-112gb-74gb-31gb-16gb-esub-gdrive/&do=findComment&comment=353748)
+- [Godavari &lpar;2006&rpar;.Telugu.480p.DVD9Rip.HEVC.AAC5.1 256Kbps - 3.5GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175469-godavari-2006telugu480pdvd9riphevcaac51-256kbps-35gb/&do=findComment&comment=353747)
+- [Arjuna Phalguna &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175468-arjuna-phalguna-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=353746)
 - [Maryan &lpar;2013&rpar; Original Motion Picture Soundtrack Hi-Fi Quality 16bit - FLAC - A.R. Rahman Musical - 191 MB](https://www.1tamilmv.nexus/index.php?/forums/topic/175467-maryan-2013-original-motion-picture-soundtrack-hi-fi-quality-16bit-flac-ar-rahman-musical-191-mb/&do=findComment&comment=353745)
 - [Godavari &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7.1GB - ESub - KAD DVD](https://www.1tamilmv.nexus/index.php?/forums/topic/175460-godavari-2006-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-71gb-esub-kad-dvd/&do=findComment&comment=353744)
-- [[FIRST ON NET🔥] Dilse &lpar;2023&rpar; S01 EP05 ETV-WIN WEB-DL- [1080p - 720p &amp; 480p AVC - Telugu - &lpar;AAC 2.0 - 192Kbps&rpar; - 600MB - 300MB - 150MB] - x264 [Google Drive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175466-first-on-net%F0%9F%94%A5-dilse-2023-s01-ep05-etv-win-web-dl-1080p-720p-480p-avc-telugu-aac-20-192kbps-600mb-300mb-150mb-x264-google-drive/&do=findComment&comment=353743)
-- [Baasha &lpar;1995&rpar; ASTRO WEB-DL AAC2.0 x264 - 1080p | 720p - 5.1 GB | 2.6 GB](https://www.1tamilmv.nexus/index.php?/forums/topic/175455-baasha-1995-astro-web-dl-aac20-x264-1080p-720p-51-gb-26-gb/&do=findComment&comment=353742)
-- [Naruto - Complete &lpar;S01 - S09&rpar; Merged - 720p HEVC 10Bit - [Hin + Tam + Telugu + Mal + Ben + Eng + Jap] &lpar;Opus 2.0&rpar; x265 - ESub [Google Drive]](https://www.1tamilmv.nexus/index.php?/forums/topic/175465-naruto-complete-s01-s09-merged-720p-hevc-10bit-hin-tam-telugu-mal-ben-eng-jap-opus-20-x265-esub-google-drive/&do=findComment&comment=353741)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
