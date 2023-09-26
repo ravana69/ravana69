@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Jai Ho Team India | Motivation Song Team India #shorts #shortsfeed #shankarmahadevan #gopisundar](https://www.youtube.com/watch?v=IIS_xvOkT7c)
+- [Madhavettanennum | Lyrical Video | Oru Marubhoomi Kadha | Mohanlal | Priyadarshan | M G Sreekumar](https://www.youtube.com/watch?v=s4jyTXGyjec)
+- [മാൻതേൻ മിഴികളിൽ | Maanthen Mizhikalil | Aambal Poovu Malayalam Movie Song | Usha Ravi #malayalamsong](https://www.youtube.com/watch?v=qzHWbyzz5sM)
 - [Bolo Bolayyaa | C. I. Mahadevan 5 Adi 4 Inchu 2004 | M. G. Sreekumar | Malayalam Movie Song](https://www.youtube.com/watch?v=5cDXlfK1MDs)
 - [Show youe moves for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=qHfBNA3XALA)
 - [Madhumasa Rathri | Kaarthika | S Janaki | Ambika | Yousafali Kechery | Baburaj](https://www.youtube.com/watch?v=BCRnwejeICo)
-- [Japamala 26th of September 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 26th of September 23](https://www.youtube.com/watch?v=VGKMkqHEExI)
-- [ക്രിസ്തീയ ഭക്തിഗാന രംഗത്തെ തിളങ്ങുന്ന സാന്നിധ്യമായ യുവ ഗായിക മിഥില മൈക്കിൾ ആലപിച്ച ഗാനങ്ങൾ Mithila](https://www.youtube.com/watch?v=U_WJPyKQXb8)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #september 26th 2023 mother mary songs and prayer](https://www.youtube.com/watch?v=avgnChDEPZk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
