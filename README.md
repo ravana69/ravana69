@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [തെന്നലുമ്മകളേകിയോ കുഞ്ഞു തുമ്പി തം‌മ്പുരു മീട്ടിയോ #malayalamsongs #aayiramkannumay #mohanlal](https://www.youtube.com/watch?v=HUskrZ_8rrQ)
-- [മലയാളസംഗീതത്തിന്റെ സൗഭാഗ്യതാരം കെ എസ് ചിത്ര ആലപിച്ച മനം കുളിർക്കും ഗാനങ്ങൾ  |  KS CHITHRA HITS](https://www.youtube.com/watch?v=T7trPv-8cAg)
-- [En Pranayame | Music Video | Anuragam | Joyel Shaju | Anna Bijo | Malavika E | Ankith](https://www.youtube.com/watch?v=zYOu1QUdNmE)
-- [Kannamthali Muttam | Thumbolarcha | G Devarajan | Vayalar Ramavarma | P Susheela | Srividya](https://www.youtube.com/watch?v=tL8xGiHUHwc)
-- [അനുഭൂതി തഴുകി | Anubhoothi Thazhuki | Anubhoothi Malayalam Movie Song | Suresh Gopi, Khusbhoo](https://www.youtube.com/watch?v=I3_j_098q84)
-- [എൻ‌റെ ഓർമയിൽ പൂത്തുനിന്നൊരുമഞ്ഞ മന്ദാരമേ #malayalamsongs #aayiramkannumay](https://www.youtube.com/watch?v=O0HKJkXjSEQ)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 26th of September 2023](https://www.youtube.com/watch?v=XUxCCIT7ly4)
+- [കാലത്തിനപ്പുറം നമ്മളെല്ലാം വെറും കഥകൾ മാത്രമാണ് | Rev. Aneesh P Joseph |#shorts #jesusshorts](https://www.youtube.com/watch?v=ZPYXK_-5c7Y)
+- [Kanneerpoovinu Kootumay - Video Song | Mr. Hacker | Harris | Reshma Rajan | Abhijith | Roshan Joseph](https://www.youtube.com/watch?v=Ovx0IqpOpek)
+- [Snehathin Idayanaam | Azhakulla Saleena | KJ Yesudas | P Leela | #shorts](https://www.youtube.com/watch?v=MJe1b63LhCA)
+- [Enthinnamizhi Poottunnu | Orkkuka Vallappozhum | M Jayachandran | Sujatha Mohan | Olappamanna](https://www.youtube.com/watch?v=fzwi1zJXKXc)
+- [നീലാഞ്ജനം നിന്‍ മിഴിയിതളില്‍ |  Neelaanjanam Song | Anubhoothi Malayalam Movie Song | Vani Viswanath](https://www.youtube.com/watch?v=-zwE5Quuelc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
