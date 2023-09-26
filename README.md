@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Etho Poonilaa | Happy Husbands | Jayaram | Bhavana | Jayasurya | Rima Kallingal | Indrajith](https://www.youtube.com/watch?v=pcMdgcj3QvQ)
+- [Himaval Swami Sharanam | Makante Achan | Kavalam Sreekumar | M Jayachandran | Anil Panachooran](https://www.youtube.com/watch?v=Iiu-xn2Qhnw)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 26th of September 2023](https://www.youtube.com/watch?v=XUxCCIT7ly4)
 - [കാലത്തിനപ്പുറം നമ്മളെല്ലാം വെറും കഥകൾ മാത്രമാണ് | Rev. Aneesh P Joseph |#shorts #jesusshorts](https://www.youtube.com/watch?v=ZPYXK_-5c7Y)
 - [Kanneerpoovinu Kootumay - Video Song | Mr. Hacker | Harris | Reshma Rajan | Abhijith | Roshan Joseph](https://www.youtube.com/watch?v=Ovx0IqpOpek)
 - [Snehathin Idayanaam | Azhakulla Saleena | KJ Yesudas | P Leela | #shorts](https://www.youtube.com/watch?v=MJe1b63LhCA)
-- [Enthinnamizhi Poottunnu | Orkkuka Vallappozhum | M Jayachandran | Sujatha Mohan | Olappamanna](https://www.youtube.com/watch?v=fzwi1zJXKXc)
-- [നീലാഞ്ജനം നിന്‍ മിഴിയിതളില്‍ |  Neelaanjanam Song | Anubhoothi Malayalam Movie Song | Vani Viswanath](https://www.youtube.com/watch?v=-zwE5Quuelc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
