@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP24 DAY 23 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 470MB &amp; 210MB | 26-09-2023]](https://www.1tamilmv.nexus/index.php?/forums/topic/175478-bigg-boss-telugu-s07-ep24-day-23-hdtv-1080p-720p-480p-avc-untouched-1gb-470mb-210mb-26-09-2023/&do=findComment&comment=353770)
+- [Triple Riding &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175477-triple-riding-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353769)
 - [Sleepy.Hollow.1999 DD5.1 Hindi +DD5.1 Tamil+DD5.1English +DD5.1 Russian 1080p Blu-Ray Remux Msub [Drive]](https://www.1tamilmv.nexus/index.php?/forums/topic/159911-sleepyhollow1999-dd51-hindi-dd51-tamildd51english-dd51-russian-1080p-blu-ray-remux-msub-drive/&do=findComment&comment=353768)
 - [Charlie Chopra &amp; The Mystery Of Solang Valley &lpar;2023&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 4.5GB - 1.8GB &amp; 850MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175475-charlie-chopra-the-mystery-of-solang-valley-2023-s01-ep-01-06-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-45gb-18gb-850mb-esub/&do=findComment&comment=353767)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Is Prince Yawar Disappointed with Rathika - 480p - AVC - UNTOUCHED - AAC - 76MB](https://www.1tamilmv.nexus/index.php?/forums/topic/175476-bigg-boss-telugu-s07-unseen-is-prince-yawar-disappointed-with-rathika-480p-avc-untouched-aac-76mb/&do=findComment&comment=353766)
-- [Charlie Chopra &amp; The Mystery Of Solang Valley &lpar;2023&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 4.5GB - 1.8GB &amp; 850MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175475-charlie-chopra-the-mystery-of-solang-valley-2023-s01-ep-01-06-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-45gb-18gb-850mb-esub/&do=findComment&comment=353765)
-- [Her - Chapter 1 &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Malayalam + Kannada] - &lpar;DD+5.1 - 640Kbps&rpar; - 2.7GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.nexus/index.php?/forums/topic/175474-her-chapter-1-2023-true-web-dl-1080p-720p-avc-tamil-malayalam-kannada-dd51-640kbps-27gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=353764)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
