@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Blue Beetle &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 8GB - 3.2GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175487-blue-beetle-2023-hd-original-audios-4k-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-8gb-32gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=353807)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP25 DAY 24 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 518MB &amp; 218MB | 27-09-2023]](https://www.1tamilmv.prof/index.php?/forums/topic/175490-bigg-boss-telugu-s07-ep25-day-24-hdtv-1080p-720p-480p-avc-untouched-1gb-518mb-218mb-27-09-2023/&do=findComment&comment=353806)
 - [Chandramukhi &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175489-chandramukhi-2005-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=353805)
 - [Leo Movie Second Single Update&#39;s Follow up | Thalapathy Vijay | Loki | Lalit Kumar](https://www.1tamilmv.prof/index.php?/forums/topic/175488-leo-movie-second-single-updates-follow-up-thalapathy-vijay-loki-lalit-kumar/&do=findComment&comment=353804)
 - [Today&#39;s Exclusive Cine Updates | Vidaamuyarchi | Leo](https://www.1tamilmv.prof/index.php?/forums/topic/175400-todays-exclusive-cine-updates-vidaamuyarchi-leo/&do=findComment&comment=353803)
-- [Blue Beetle &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 8GB - 3.2GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175487-blue-beetle-2023-hd-original-audios-4k-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-8gb-32gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=353802)
-- [Blue Beetle &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 8GB - 3.2GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175487-blue-beetle-2023-hd-original-audios-4k-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-8gb-32gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=353801)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
