@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Leo Movie Second Single Update&#39;s Follow up | Thalapathy Vijay | Loki | Lalit Kumar](https://www.1tamilmv.prof/index.php?/forums/topic/175488-leo-movie-second-single-updates-follow-up-thalapathy-vijay-loki-lalit-kumar/&do=findComment&comment=353804)
+- [Today&#39;s Exclusive Cine Updates | Vidaamuyarchi | Leo](https://www.1tamilmv.prof/index.php?/forums/topic/175400-todays-exclusive-cine-updates-vidaamuyarchi-leo/&do=findComment&comment=353803)
+- [Blue Beetle &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 8GB - 3.2GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175487-blue-beetle-2023-hd-original-audios-4k-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-8gb-32gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=353802)
 - [Blue Beetle &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 8GB - 3.2GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175487-blue-beetle-2023-hd-original-audios-4k-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-8gb-32gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=353801)
 - [Chandramukhi &lpar;2005&rpar; Tamil - BluRay - 1080p &amp; 720p - x264 - &lpar;DTS &lpar;2514Kbps&rpar; + AAC 2.0&rpar; - 11GB - 2.7GB - 1.4GB - 700MB &amp; 400MB - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175484-chandramukhi-2005-tamil-bluray-1080p-720p-x264-dts-2514kbps-aac-20-11gb-27gb-14gb-700mb-400mb-esub/&do=findComment&comment=353800)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Amardeep, Subhashree Reconcile  - 480p - AVC - UNTOUCHED - AAC - 76MB](https://www.1tamilmv.prof/index.php?/forums/topic/175486-bigg-boss-telugu-s07-unseen-amardeep-subhashree-reconcile-480p-avc-untouched-aac-76mb/&do=findComment&comment=353799)
-- [Gran Turismo &lpar;2023&rpar; English - TRUE WEB-DL - 4K &amp; 1080p - HEVC / AVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 23.7GB &amp; 8GB - ESub [GDrive]](https://www.1tamilmv.prof/index.php?/forums/topic/175485-gran-turismo-2023-english-true-web-dl-4k-1080p-hevc-avc-untouched-dd51640kbps-237gb-8gb-esub-gdrive/&do=findComment&comment=353798)
-- [Chandramukhi &lpar;2005&rpar; Tamil - BluRay - 1080p &amp; 720p - x264 - &lpar;DTS &lpar;2514Kbps&rpar; + AAC 2.0&rpar; - 11GB - 2.7GB - 1.4GB - 700MB &amp; 400MB - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175484-chandramukhi-2005-tamil-bluray-1080p-720p-x264-dts-2514kbps-aac-20-11gb-27gb-14gb-700mb-400mb-esub/&do=findComment&comment=353794)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
