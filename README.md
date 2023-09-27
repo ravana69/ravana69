@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Amardeep, Subhashree Reconcile  - 480p - AVC - UNTOUCHED - AAC - 76MB](https://www.1tamilmv.prof/index.php?/forums/topic/175486-bigg-boss-telugu-s07-unseen-amardeep-subhashree-reconcile-480p-avc-untouched-aac-76mb/&do=findComment&comment=353799)
+- [Gran Turismo &lpar;2023&rpar; English - TRUE WEB-DL - 4K &amp; 1080p - HEVC / AVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 23.7GB &amp; 8GB - ESub [GDrive]](https://www.1tamilmv.prof/index.php?/forums/topic/175485-gran-turismo-2023-english-true-web-dl-4k-1080p-hevc-avc-untouched-dd51640kbps-237gb-8gb-esub-gdrive/&do=findComment&comment=353798)
 - [Chandramukhi &lpar;2005&rpar; Tamil - BluRay - 1080p &amp; 720p - x264 - &lpar;DTS &lpar;2514Kbps&rpar; + AAC 2.0&rpar; - 11GB - 2.7GB - 1.4GB - 700MB &amp; 400MB - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175484-chandramukhi-2005-tamil-bluray-1080p-720p-x264-dts-2514kbps-aac-20-11gb-27gb-14gb-700mb-400mb-esub/&do=findComment&comment=353794)
 - [Chandramukhi &lpar;2005&rpar; Tamil - BluRay - 1080p &amp; 720p - x264 - &lpar;DTS &lpar;2514Kbps&rpar; + AAC 2.0&rpar; - 11GB - 2.7GB - 1.4GB - 700MB &amp; 400MB - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175484-chandramukhi-2005-tamil-bluray-1080p-720p-x264-dts-2514kbps-aac-20-11gb-27gb-14gb-700mb-400mb-esub/&do=findComment&comment=353793)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Is Prince Yawar Disappointed with Rathika - 480p - AVC - UNTOUCHED - AAC - 76MB](https://www.1tamilmv.prof/index.php?/forums/topic/175476-bigg-boss-telugu-s07-unseen-is-prince-yawar-disappointed-with-rathika-480p-avc-untouched-aac-76mb/&do=findComment&comment=353792)
 - [The Wonderful Story of Henry Sugar &lpar;2023&rpar; TRUE WEB-DL - 1080p - AVC - UNTOUCHED - [Tamil + Telugu + Hindi + English] - DD+5.1&lpar;640kbps&rpar; - 2.8GB - ESub [GDrive]](https://www.1tamilmv.prof/index.php?/forums/topic/175483-the-wonderful-story-of-henry-sugar-2023-true-web-dl-1080p-avc-untouched-tamil-telugu-hindi-english-dd51640kbps-28gb-esub-gdrive/&do=findComment&comment=353790)
-- [Charlie Chopra &amp; The Mystery Of Solang Valley &lpar;2023&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 4.5GB - 1.8GB &amp; 850MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175475-charlie-chopra-the-mystery-of-solang-valley-2023-s01-ep-01-06-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-45gb-18gb-850mb-esub/&do=findComment&comment=353789)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
