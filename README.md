@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാമഴക്കാടേ പൂമരക്കൂടേമഞ്ഞലയില്‍ പൊന്‍വെയിലില്‍ ചന്ദനക്കാറ്റില്‍ #mohanlal #chithra](https://www.youtube.com/watch?v=AsvOY6uTBlg)
+- [Dynamic moves for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=u0dig_TvdP4)
 - [Viral Thottal Viriyunna | Phantom | Gireesh Puthenchery | Nishant Sagar | Monica](https://www.youtube.com/watch?v=obkTVB0oT-o)
 - [നാതൃതാനിമ്  | Nathrithanim | Aambal Poovu Malayalam Movie Song | V. Dakshina Moorthy](https://www.youtube.com/watch?v=XbiXBsOAqAQ)
 - [Naattu Pappadam - EDM Mix | Pallotty 90's Kids | Manikandan Ayyappa | Devika Sumesh | Alvin Bruno](https://www.youtube.com/watch?v=SV5uutqvlCU)
 - [Aariraaro Raariraaro - Audio Song | Dasara (Malayalam) | Nani, Keerthy Suresh | Santhosh Narayanan](https://www.youtube.com/watch?v=0DIqH9Shpok)
-- [Pathinalam Ravudichath | Maram | Prem Nazeer | Yesudas | Yousafali Kecheri | Malayalam Classics](https://www.youtube.com/watch?v=lIPf_3CthR8)
-- [Couple steps for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=1JygVwgOTYA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
