@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Poovin Kurunnu Meyyil  | LolliPop | Afsal | Shruthiraj | Tinu Antony | Alex Paul](https://www.youtube.com/watch?v=pKmX-eqAc4M)
-- [Kokkoko Kozhi | Speed Track | Dileep | Gajala #shorts](https://www.youtube.com/watch?v=upBL87sS2-E)
-- [Kanneere Niraye - Video Song | Janvi Movie | Ram Surendar, Edappal Viswanath | Movie Song](https://www.youtube.com/watch?v=cIr94BFnCiE)
-- [ആകാശം മേലേ പവനുരുക്കുമ്പോള്‍പൊന്നും പൂമണ്ണില്‍ തൂവുമ്പോള്‍ #mohanlal #chithra #malayalamsongs](https://www.youtube.com/watch?v=FKXHX_zYNmM)
-- [Thorappan - Chill Beat | Jo & Jo | Govind Vasantha | Sithara Krishnakumar | Alvin Bruno](https://www.youtube.com/watch?v=sFynsHejDUE)
-- [Dancin moves for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=6XLl2FbBc0U)
+- [പൗര്‍ണ്ണമിപ്പെണ്ണേ | Pournamippenne | Benz Vasu Malayalam Movie Song | Jayan | Seema | K.J.Yesudas](https://www.youtube.com/watch?v=IrQRbYEoPgA)
+- [നോവിക്കുന്ന ചിന്തകളെ പ്രതീക്ഷകളാൽ  നിറച്ച് കാത്തിരിക്കണം | Rev. Aneesh P Joseph |#shorts #jesusshort](https://www.youtube.com/watch?v=IpcITDIQsq0)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 27th of September 2023](https://www.youtube.com/watch?v=8HUXu0PGGgM)
+- [Ponnushassin Video Song | Vishukkani | Vidhubala | Thikkurissy](https://www.youtube.com/watch?v=kqZ154INklQ)
+- [Karunya Kathir Veeshi | Super Hit Movie Song | Ee Kaikalil | Mammootty | Sukumari - Yesudas Hits](https://www.youtube.com/watch?v=Z_qQrt_kSSc)
+- [Manithooval Chirakulla | Simon Peter Ninakku Vendi | P Jayachandran | AT Ummer | Bichu Thirumala](https://www.youtube.com/watch?v=14-bx5m9ago)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
