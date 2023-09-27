@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ആകാശം മേലേ പവനുരുക്കുമ്പോള്‍പൊന്നും പൂമണ്ണില്‍ തൂവുമ്പോള്‍ #mohanlal #chithra #malayalamsongs](https://www.youtube.com/watch?v=FKXHX_zYNmM)
+- [Thorappan - Chill Beat | Jo & Jo | Govind Vasantha | Sithara Krishnakumar | Alvin Bruno](https://www.youtube.com/watch?v=sFynsHejDUE)
+- [Dancin moves for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=6XLl2FbBc0U)
 - [Neela Nilave | Oomapenninu Uriyaadapayyan | Jayasurya | Kavya Madhavan | Vinayan | KJ Yesudas](https://www.youtube.com/watch?v=LnP93UlFVfE)
 - [Olanjali Kuruvi | Shorts](https://www.youtube.com/watch?v=P6ryjbhZtN8)
 - [Pinapple Penne | Shorts](https://www.youtube.com/watch?v=Vs8Crj9bCnM)
-- [ഏതോ യുഗത്തിന്റെ  | Etho Yugathinte | Agrajan Malayalam Movie Song | Manoj K. Jayan, Kasthuri](https://www.youtube.com/watch?v=szKkymTHXCM)
-- [Ramesh Thamilmani, Anthony Daasan, Paal Dabba - Kaattu Payapulla (From "LGM")](https://www.youtube.com/watch?v=M5FPseWeC0w)
-- [Ramesh Thamilmani, Sarath Santosh - Grill Chicken (Telugu) (From "LGM (Telugu)")](https://www.youtube.com/watch?v=zXfj8mTfahM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
