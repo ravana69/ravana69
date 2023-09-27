@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Karkuzhalee Video Song | Kasthooriman | Kunchacko Boban |  Meera Jasmine | Sujatha Mohan |Kaithapram](https://www.youtube.com/watch?v=V24O4Z2WweY)
+- [Kaathil Cholliyo - Video Song | Vaathil | Vinay Fort | Sejo John | Sarju Remakanth](https://www.youtube.com/watch?v=Y6p4wozcaCg)
 - [പൗര്‍ണ്ണമിപ്പെണ്ണേ | Pournamippenne | Benz Vasu Malayalam Movie Song | Jayan | Seema | K.J.Yesudas](https://www.youtube.com/watch?v=IrQRbYEoPgA)
 - [നോവിക്കുന്ന ചിന്തകളെ പ്രതീക്ഷകളാൽ  നിറച്ച് കാത്തിരിക്കണം | Rev. Aneesh P Joseph |#shorts #jesusshort](https://www.youtube.com/watch?v=IpcITDIQsq0)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 27th of September 2023](https://www.youtube.com/watch?v=8HUXu0PGGgM)
 - [Ponnushassin Video Song | Vishukkani | Vidhubala | Thikkurissy](https://www.youtube.com/watch?v=kqZ154INklQ)
-- [Karunya Kathir Veeshi | Super Hit Movie Song | Ee Kaikalil | Mammootty | Sukumari - Yesudas Hits](https://www.youtube.com/watch?v=Z_qQrt_kSSc)
-- [Manithooval Chirakulla | Simon Peter Ninakku Vendi | P Jayachandran | AT Ummer | Bichu Thirumala](https://www.youtube.com/watch?v=14-bx5m9ago)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
