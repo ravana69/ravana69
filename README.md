@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=u1Kp66VF-nM)
 - [പ്രഭാത പ്രാര്‍ത്ഥന September 27 # Athiravile Prarthana 27th of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=uiG2NzU6BMI)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 27th SEP 2023](https://www.youtube.com/watch?v=8sQPR_ez6vA)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=GQ4bHYkIveY)
 - [Pala Palaa Minnerunne - Audio Song | Dasara (Malayalam) | Nani, Keerthy Suresh | Santhosh Narayanan](https://www.youtube.com/watch?v=P_u8gxzJVhs)
 - [കരുണാർദ്ര സ്നേഹമേ ഉപവി തൻ ഉറവേ യേശുവിൻ ഹൃദയത്തിൻ അനുരൂപനേ ...](https://www.youtube.com/watch?v=0eXpAOAW9As)
-- [Kashtangal Saramilla | Kester | Praise and Worship Songs | Christian Melody Songs Malayalam](https://www.youtube.com/watch?v=zigIbdLl-wQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
