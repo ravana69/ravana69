@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Poovin Kurunnu Meyyil  | LolliPop | Afsal | Shruthiraj | Tinu Antony | Alex Paul](https://www.youtube.com/watch?v=pKmX-eqAc4M)
+- [Kokkoko Kozhi | Speed Track | Dileep | Gajala #shorts](https://www.youtube.com/watch?v=upBL87sS2-E)
+- [Kanneere Niraye - Video Song | Janvi Movie | Ram Surendar, Edappal Viswanath | Movie Song](https://www.youtube.com/watch?v=cIr94BFnCiE)
 - [ആകാശം മേലേ പവനുരുക്കുമ്പോള്‍പൊന്നും പൂമണ്ണില്‍ തൂവുമ്പോള്‍ #mohanlal #chithra #malayalamsongs](https://www.youtube.com/watch?v=FKXHX_zYNmM)
 - [Thorappan - Chill Beat | Jo & Jo | Govind Vasantha | Sithara Krishnakumar | Alvin Bruno](https://www.youtube.com/watch?v=sFynsHejDUE)
 - [Dancin moves for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=6XLl2FbBc0U)
-- [Neela Nilave | Oomapenninu Uriyaadapayyan | Jayasurya | Kavya Madhavan | Vinayan | KJ Yesudas](https://www.youtube.com/watch?v=LnP93UlFVfE)
-- [Olanjali Kuruvi | Shorts](https://www.youtube.com/watch?v=P6ryjbhZtN8)
-- [Pinapple Penne | Shorts](https://www.youtube.com/watch?v=Vs8Crj9bCnM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
