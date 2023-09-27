@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Arabic Song | Aayudham 2008 | Nincy Vincent | Alphonse Joseph | Malayalam Movie Song](https://www.youtube.com/watch?v=rWQAQUNvBiI)
 - [Kalvari Krooshinmel | Anna Mariam George #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=C6OeE_DQEdI)
 - [Novunnu Enn Paranjapol | Christian Video Song | Kishore Chepra | Shibu Antony | Joji Johns](https://www.youtube.com/watch?v=ltHXgAv_MQM)
 - [അതിമനോഹരമായ പഴയകാല ഗാനങ്ങൾ old christian songs malayalam with lyrics ! daily worship songs malayalam](https://www.youtube.com/watch?v=VrLpMY4guYk)
 - [എനിക്കെന്‍റെ ആശ്രയം | RSV | Franco #shortsvideo](https://www.youtube.com/watch?v=K3Z_kpeNH_c)
 - [Japamala 27th of September 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 27th of September 23](https://www.youtube.com/watch?v=Bi5CD2Ad1F0)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #september 27th 2023 mother mary songs and prayer](https://www.youtube.com/watch?v=SRKYu7LqpAE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
