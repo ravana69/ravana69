@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Viral Thottal Viriyunna | Phantom | Gireesh Puthenchery | Nishant Sagar | Monica](https://www.youtube.com/watch?v=obkTVB0oT-o)
+- [നാതൃതാനിമ്  | Nathrithanim | Aambal Poovu Malayalam Movie Song | V. Dakshina Moorthy](https://www.youtube.com/watch?v=XbiXBsOAqAQ)
+- [Naattu Pappadam - EDM Mix | Pallotty 90's Kids | Manikandan Ayyappa | Devika Sumesh | Alvin Bruno](https://www.youtube.com/watch?v=SV5uutqvlCU)
+- [Aariraaro Raariraaro - Audio Song | Dasara (Malayalam) | Nani, Keerthy Suresh | Santhosh Narayanan](https://www.youtube.com/watch?v=0DIqH9Shpok)
 - [Pathinalam Ravudichath | Maram | Prem Nazeer | Yesudas | Yousafali Kecheri | Malayalam Classics](https://www.youtube.com/watch?v=lIPf_3CthR8)
 - [Couple steps for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=1JygVwgOTYA)
-- [Arabic Song | Aayudham 2008 | Nincy Vincent | Alphonse Joseph | Malayalam Movie Song](https://www.youtube.com/watch?v=rWQAQUNvBiI)
-- [Kalvari Krooshinmel | Anna Mariam George #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=C6OeE_DQEdI)
-- [Novunnu Enn Paranjapol | Christian Video Song | Kishore Chepra | Shibu Antony | Joji Johns](https://www.youtube.com/watch?v=ltHXgAv_MQM)
-- [അതിമനോഹരമായ പഴയകാല ഗാനങ്ങൾ old christian songs malayalam with lyrics ! daily worship songs malayalam](https://www.youtube.com/watch?v=VrLpMY4guYk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
