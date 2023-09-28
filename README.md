@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Japamala 28th of September 23 # Mathavinte Japamala Prakashathinte Rahasyangal 28th of September 23](https://www.youtube.com/watch?v=vREsuau2lbw)
+- [ജനപ്രിയ ഗായകരുടെ അനശ്വര ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Kester | KG Markose](https://www.youtube.com/watch?v=whpsXi9KFB0)
+- [Ponnilla Velliyumilla... #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=gIvqcm5e_OM)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #september 28th mother mary songs malayalam 2023](https://www.youtube.com/watch?v=IOLo7Yw9lvs)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=eJDm1ilMnas)
 - [രാവിലെ പ്രാര്‍ത്ഥന  September 28 Athiravile Prarthana 28th of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=GH2RdcWbUOk)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 28th SEP 2023](https://www.youtube.com/watch?v=2RDMdKTr_C8)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=rrD13CgiLUs)
-- [ഇത്തിരിനാണം പെണ്ണിൻ കവിളിന്.. | കെ ജെ യേശുദാസ് | ചിത്ര | Original Audio | Remastered movie songs](https://www.youtube.com/watch?v=hgKqyRYHhCg)
-- [ഞാൻ നിന്നെ സ്നേഹിക്കും ദൈവം ഞാൻ നിന്നെ പാലിക്കും ദൈവം .](https://www.youtube.com/watch?v=jWjQ6ogrlLE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
