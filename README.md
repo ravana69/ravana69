@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Karayunna Nerathum| Malayalam Song | velliyazhcha | Madhu |  P.Bhaskaran | M.S.Baburaj | Latha](https://www.youtube.com/watch?v=wMEiZXuWPtQ)
+- [Cool Steps for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=f6IUvJfRRIM)
 - [Mazhathulli Palunkukal | Shorts](https://www.youtube.com/watch?v=kyBWOyKNGMI)
 - [Japamala 28th of September 23 # Mathavinte Japamala Prakashathinte Rahasyangal 28th of September 23](https://www.youtube.com/watch?v=vREsuau2lbw)
 - [ജനപ്രിയ ഗായകരുടെ അനശ്വര ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Kester | KG Markose](https://www.youtube.com/watch?v=whpsXi9KFB0)
 - [Ponnilla Velliyumilla... #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=gIvqcm5e_OM)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #september 28th mother mary songs malayalam 2023](https://www.youtube.com/watch?v=IOLo7Yw9lvs)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=eJDm1ilMnas)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
