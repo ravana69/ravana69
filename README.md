@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Chandramukhi &lpar;2005&rpar; Tamil - BluRay - 1080p &amp; 720p - x264 - &lpar;DTS &lpar;2514Kbps&rpar; + AAC 2.0&rpar; - 11GB - 2.7GB - 1.4GB - 700MB &amp; 400MB - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175484-chandramukhi-2005-tamil-bluray-1080p-720p-x264-dts-2514kbps-aac-20-11gb-27gb-14gb-700mb-400mb-esub/&do=findComment&comment=353907)
+- [Blue Beetle &lpar;2023&rpar; HQ WEB DL - Original Audios &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - [4K, 1080p &amp; 720p - 8.1GB - 3.7GB - 1.5GB] - ESub [GDrive]](https://www.1tamilmv.prof/index.php?/forums/topic/166970-blue-beetle-2023-hq-web-dl-original-audios-dd51-640kbps-tamil-telugu-hindi-eng-4k-1080p-720p-81gb-37gb-15gb-esub-gdrive/&do=findComment&comment=353906)
+- [Kumari Srimathi &lpar;2023&rpar; S01 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Malayalam] - 3.9GB - 1.6GB &amp; 900MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175496-kumari-srimathi-2023-s01-ep-01-07-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-malayalam-39gb-16gb-900mb-esub/&do=findComment&comment=353905)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP26 DAY 25 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 528MB &amp; 223MB | 28-09-2023]](https://www.1tamilmv.prof/index.php?/forums/topic/175524-bigg-boss-telugu-s07-ep26-day-25-hdtv-1080p-720p-480p-avc-untouched-1gb-528mb-223mb-28-09-2023/&do=findComment&comment=353897)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Goutham&#39;s Apology to BB - 480p - AVC - UNTOUCHED - AAC - 78MB](https://www.1tamilmv.prof/index.php?/forums/topic/175523-bigg-boss-telugu-s07-unseen-gouthams-apology-to-bb-480p-avc-untouched-aac-78mb/&do=findComment&comment=353896)
-- [Beyond The 7 Seas &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.prof/index.php?/forums/topic/175521-beyond-the-7-seas-2023-malayalam-true-web-dl-1080p-720p-avc-26gb-14gb-x264-700mb-400mb/&do=findComment&comment=353894)
-- [LEO - Badass Lyric video&#39;s Follow up&lpar;Proof&rpar; | Thalapathy Vijay | Lokesh Kanagaraj | Anirudh Ravichander](https://www.1tamilmv.prof/index.php?/forums/topic/175520-leo-badass-lyric-videos-follow-upproof-thalapathy-vijay-lokesh-kanagaraj-anirudh-ravichander/&do=findComment&comment=353893)
-- [Badass &lpar;From &quot;Leo&quot;&rpar; AMZN WEB-DL Master Quality 24bit 96kHz - FLAC - Anirudh Ravichander - 73 MB](https://www.1tamilmv.prof/index.php?/forums/topic/175519-badass-from-leo-amzn-web-dl-master-quality-24bit-96khz-flac-anirudh-ravichander-73-mb/&do=findComment&comment=353892)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
