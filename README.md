@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [RDX &lpar;2023&rpar; NF WEB-DL Multi DDP5.1 Esubs x264 - 1080p | 720p - 8.6 GB | 5.8 GB](https://www.1tamilmv.prof/index.php?/forums/topic/175500-rdx-2023-nf-web-dl-multi-ddp51-esubs-x264-1080p-720p-86-gb-58-gb/&do=findComment&comment=353833)
 - [Kick &lpar;2023&rpar; Tamil TRUE WEB DL - UNTOUCHED - DD5.1&lpar;192kbps&rpar; - [4K, 1080p &amp; 720p - 5.6GB - 3.2GB - 1.4GB] - ESub [GDrive]](https://www.1tamilmv.prof/index.php?/forums/topic/165003-kick-2023-tamil-true-web-dl-untouched-dd51192kbps-4k-1080p-720p-56gb-32gb-14gb-esub-gdrive/&do=findComment&comment=353832)
 - [Blue Beetle &lpar;2023&rpar; HQ WEB DL - Original Audios &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - [4K, 1080p &amp; 720p - 8.1GB - 3.7GB - 1.5GB] - ESub [GDrive]](https://www.1tamilmv.prof/index.php?/forums/topic/166970-blue-beetle-2023-hq-web-dl-original-audios-dd51-640kbps-tamil-telugu-hindi-eng-4k-1080p-720p-81gb-37gb-15gb-esub-gdrive/&do=findComment&comment=353831)
 - [Gran Turismo &lpar;2023&rpar; MA WEB-DL DDP5.1 Esubs - 2160p [HDR10-DoVi] | 1080p | 720p - 23.5 GB | 8 GB | 4.3 GB](https://www.1tamilmv.prof/index.php?/forums/topic/175499-gran-turismo-2023-ma-web-dl-ddp51-esubs-2160p-hdr10-dovi-1080p-720p-235-gb-8-gb-43-gb/&do=findComment&comment=353830)
 - [LGM: lets get married &lpar;2023&rpar; AMZN WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 9 GB | 1.1 GB](https://www.1tamilmv.prof/index.php?/forums/topic/175498-lgm-lets-get-married-2023-amzn-web-dl-ddp51-esubs-x264-1080p-720p-9-gb-11-gb/&do=findComment&comment=353829)
-- [Kick &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 5.7GB - 3GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175494-kick-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-57gb-3gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353828)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
