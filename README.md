@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [താരാട്ടിൻ ചെറു ചെപ്പു തുറക്കാം | Tharattin Cheru Cheppu | Churam | K S Chithra | Johnson](https://www.youtube.com/watch?v=roBghuwJeP0)
+- [Mazhayaal Menanja Koodukal | Meghatheertham | KS Chithra | Sharreth | Gireesh Puthenchery](https://www.youtube.com/watch?v=bGDJ3iqOiAY)
 - [കരഞ്ഞുതളർന്നിരുന്നയിടത്ത് നിന്നെ തള്ളിക്കളഞ്ഞവരുടെ മധ്യത്തിൽ ദൈവം നിന്നെ മാനിച്ചുയർത്തും #jesus](https://www.youtube.com/watch?v=hOlKI9RXs3s)
 - [Kanninu Kann - Video Song | Nadhikalil Sundari Yamuna | Vineeth Sreenivasan | Arun Muraleedharan](https://www.youtube.com/watch?v=pCyGGmjn3WA)
 - [Engane Nee Marakkum | Neelakuyil | K Raghavan | P Bhaskaran | Video Song](https://www.youtube.com/watch?v=j6SGzL71Nhc)
 - [ഓളങ്ങൾ താളം തല്ലുമ്പോൾ.... | Kadathu | Unni Menon | Shankar | Prem Nazir | #shorts](https://www.youtube.com/watch?v=W_bL_ruM20w)
-- [Punarum Puthumanam | Calendar | Vijay Yesudas | Cicily | Afzal Yusuf | Anil Panachooran](https://www.youtube.com/watch?v=_HouJUkedvI)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 28th of September 2023](https://www.youtube.com/watch?v=FsNanVGjdAA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
