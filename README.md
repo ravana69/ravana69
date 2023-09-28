@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP26 DAY 25 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 528MB &amp; 223MB | 28-09-2023]](https://www.1tamilmv.prof/index.php?/forums/topic/175524-bigg-boss-telugu-s07-ep26-day-25-hdtv-1080p-720p-480p-avc-untouched-1gb-528mb-223mb-28-09-2023/&do=findComment&comment=353897)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Goutham&#39;s Apology to BB - 480p - AVC - UNTOUCHED - AAC - 78MB](https://www.1tamilmv.prof/index.php?/forums/topic/175523-bigg-boss-telugu-s07-unseen-gouthams-apology-to-bb-480p-avc-untouched-aac-78mb/&do=findComment&comment=353896)
 - [Beyond The 7 Seas &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.prof/index.php?/forums/topic/175521-beyond-the-7-seas-2023-malayalam-true-web-dl-1080p-720p-avc-26gb-14gb-x264-700mb-400mb/&do=findComment&comment=353894)
 - [LEO - Badass Lyric video&#39;s Follow up&lpar;Proof&rpar; | Thalapathy Vijay | Lokesh Kanagaraj | Anirudh Ravichander](https://www.1tamilmv.prof/index.php?/forums/topic/175520-leo-badass-lyric-videos-follow-upproof-thalapathy-vijay-lokesh-kanagaraj-anirudh-ravichander/&do=findComment&comment=353893)
 - [Badass &lpar;From &quot;Leo&quot;&rpar; AMZN WEB-DL Master Quality 24bit 96kHz - FLAC - Anirudh Ravichander - 73 MB](https://www.1tamilmv.prof/index.php?/forums/topic/175519-badass-from-leo-amzn-web-dl-master-quality-24bit-96khz-flac-anirudh-ravichander-73-mb/&do=findComment&comment=353892)
-- [Badass &lpar;From &quot;Leo&quot;&rpar; 2nd Single - &lpar;2023&rpar; Tamil MP3 [320Kbps &amp; 128Kbps] - Anirudh Musical](https://www.1tamilmv.prof/index.php?/forums/topic/175518-badass-from-leo-2nd-single-2023-tamil-mp3-320kbps-128kbps-anirudh-musical/&do=findComment&comment=353891)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
