@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aadharanjali - Audio Song | Romancham | Sushin Shyam | Johnpaul George Productions | Jithu Madhavan](https://www.youtube.com/watch?v=_gMkS2JgW-0)
 - [Ambarappoo Veedhiyilu | Irupatham Noottandu 1987 | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=Ro98HwpCnDU)
 - [Paadathe Pynkiliye | Lyrical Video | Nigoodam | Aristo Suresh | Ronnie Raphael | Krishnachandran CK](https://www.youtube.com/watch?v=go51afcNeU8)
 - [Ekaantha Jeevanil | Prem Nazeer | Yesudas | Sreekumaran Thampi | Vilaykku Vangiya Veena](https://www.youtube.com/watch?v=LhcYlAvf664)
 - [Manassil Oru Poomala | Innathe Chinthavishayam | Shorts  #malayalamfilmsongs #manoramafilmsongs](https://www.youtube.com/watch?v=ddSBCYbwuPw)
 - [Nilave Nilave | Chattakkari| Shorts #Shorts #malayalamfilmsongs #manoramafilmsongs](https://www.youtube.com/watch?v=ujBpG35wHjA)
-- [Amruthamaayi | Snehaveedu | Shorts #Shorts #malayalamfilmsongs #manoramafilmsongs](https://www.youtube.com/watch?v=Ot38ztyZYY4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
