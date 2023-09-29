@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Gharshana &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175549-gharshana-2004-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=353960)
 - [Chithha &lpar;2023&rpar; [UNCUT] [NO ADS] Tamil - Proper HQ PreDVD - 1080p - AVC - AAC2.0&lpar;320kbps&rpar;[HQ CLEAN UPMIXED] - 4.3GB [HYBRID VERSION] [GDrive]](https://www.1tamilmv.prof/index.php?/forums/topic/175545-chithha-2023-uncut-no-ads-tamil-proper-hq-predvd-1080p-avc-aac20320kbpshq-clean-upmixed-43gb-hybrid-version-gdrive/&do=findComment&comment=353959)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP27 DAY 26 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 499MB &amp; 216MB | 29-09-2023]](https://www.1tamilmv.prof/index.php?/forums/topic/175548-bigg-boss-telugu-s07-ep27-day-26-hdtv-1080p-720p-480p-avc-untouched-1gb-499mb-216mb-29-09-2023/&do=findComment&comment=353958)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Shivaji Interviews the Gala Contestants - 480p - AVC - UNTOUCHED - AAC - 79MB](https://www.1tamilmv.prof/index.php?/forums/topic/175547-bigg-boss-telugu-s07-unseen-shivaji-interviews-the-gala-contestants-480p-avc-untouched-aac-79mb/&do=findComment&comment=353957)
 - [Choona &lpar;2023&rpar; Complete S01 EP &lpar;01-08&rpar; Merged TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi] - 3.9GB - 1.6GB &amp; 900MB] - ESub [Google Drive]](https://www.1tamilmv.prof/index.php?/forums/topic/175546-choona-2023-complete-s01-ep-01-08-merged-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-39gb-16gb-900mb-esub-google-drive/&do=findComment&comment=353956)
-- [Chitta &lpar;2023&rpar; Malayalam Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.prof/index.php?/forums/topic/175510-chitta-2023-malayalam-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=353955)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
