@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പലിശക്കാരന്‍ പത്രോസേ | Palissakaaran Pathrose | Benz Vasu Malayalam Movie Song | P Jayachandran](https://www.youtube.com/watch?v=049yTRQQOg8)
+- [Neela Nilavupol Nilkkunnoramme | Divyanugrham Choriyunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=4r7iws7VEpY)
+- [THALARUNNU NJAN NADHA | NEW CHRISTIAN SONG | DHANYA | PAVITHRAN AMACHAL | JINO KUNNUMPURATH](https://www.youtube.com/watch?v=nWg9kNQNEfE)
 - [Maarivillin Gopurangal | Summer in Bethlehem | Biju Narayanan | Sreenivas| Jayaram | Suresh Gopi](https://www.youtube.com/watch?v=gUzxHSLBlJQ)
 - [സംഗീതപ്രേമികളായ സർവ്വമലയാളികളും ഹൃദയത്തിൽ സൂക്ഷിക്കുന്ന എക്കാലത്തെയും മികച്ച സിനിമാഗാനങ്ങൾ ! NISARI](https://www.youtube.com/watch?v=YO3kJibc1ZM)
 - [സ്വപ്നം സ്വയംവരമായി | Swapnam Swayamvaramaayi | Benz Vasu Malayalam Movie Romantic Song | Seema](https://www.youtube.com/watch?v=G7Hb4ukZ-Fw)
-- [Aadharanjali - Audio Song | Romancham | Sushin Shyam | Johnpaul George Productions | Jithu Madhavan](https://www.youtube.com/watch?v=_gMkS2JgW-0)
-- [Ambarappoo Veedhiyilu | Irupatham Noottandu 1987 | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=Ro98HwpCnDU)
-- [Paadathe Pynkiliye | Lyrical Video | Nigoodam | Aristo Suresh | Ronnie Raphael | Krishnachandran CK](https://www.youtube.com/watch?v=go51afcNeU8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
