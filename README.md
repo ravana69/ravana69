@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ambarappoo Veedhiyilu | Irupatham Noottandu 1987 | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=Ro98HwpCnDU)
+- [Paadathe Pynkiliye | Lyrical Video | Nigoodam | Aristo Suresh | Ronnie Raphael | Krishnachandran CK](https://www.youtube.com/watch?v=go51afcNeU8)
 - [Ekaantha Jeevanil | Prem Nazeer | Yesudas | Sreekumaran Thampi | Vilaykku Vangiya Veena](https://www.youtube.com/watch?v=LhcYlAvf664)
 - [Manassil Oru Poomala | Innathe Chinthavishayam | Shorts  #malayalamfilmsongs #manoramafilmsongs](https://www.youtube.com/watch?v=ddSBCYbwuPw)
 - [Nilave Nilave | Chattakkari| Shorts #Shorts #malayalamfilmsongs #manoramafilmsongs](https://www.youtube.com/watch?v=ujBpG35wHjA)
 - [Amruthamaayi | Snehaveedu | Shorts #Shorts #malayalamfilmsongs #manoramafilmsongs](https://www.youtube.com/watch?v=Ot38ztyZYY4)
-- [Sworgeeyarajante Thiruvachanam | Annie James | Ramesh Murali](https://www.youtube.com/watch?v=W_Re_tbINeo)
-- [Japamala 29th of September 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 29th of September 23](https://www.youtube.com/watch?v=WZOAGSHJSCI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
