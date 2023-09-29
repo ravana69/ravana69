@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Japamala 29th of September 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 29th of September 23](https://www.youtube.com/watch?v=WZOAGSHJSCI)
+- [Songs Of The Week | Kester | Sreya Jayadeep | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=LI6TL1zYTm4)
+- [Kalvarikrooshinmel | Anna Mariam George #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=9qQQWmjjBhs)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #september 29th  mother mary prayer and songs 2023](https://www.youtube.com/watch?v=vJqs114ZkM8)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=6NxzcTqfg6E)
 - [രാവിലെ പ്രാര്‍ത്ഥന  September 29 Athiravile Prarthana 29th of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=HEE5yAzwqp4)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 29th SEP 2023](https://www.youtube.com/watch?v=D1SzVJ2Wj9M)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=xe_QXqS6uk0)
-- [Neela Nilave 🕺✨❤️](https://www.youtube.com/watch?v=GzcLW7zARVQ)
-- [Neela Nilave ✨](https://www.youtube.com/watch?v=i-EJo7ybLXo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
