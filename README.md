@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Neela Nilave ✨](https://www.youtube.com/watch?v=AFv1DA_G1ls)
+- [സ്വപ്നത്തിൻ താഴ്‌വരയിൽ..|കെ ജെ യേശുദാസ് | ചിത്ര | Original Audio | Remastered movie songs](https://www.youtube.com/watch?v=s_6hWIRQUOM)
 - [പ്രാണനാഥൻ , യേശു രാജൻ , ജീവനെ തന്നതാൽ](https://www.youtube.com/watch?v=FrKt5O5M18w)
 - [ഉള്ളിന്റെ ഉള്ളിലാരാരോ കത്തിച്ചമാലപ്പടക്കോ താലപ്പൊലിയോ  #malayalamsongs #nadiyamoidu #mohanlal](https://www.youtube.com/watch?v=SiKe8-cl4V8)
 - [Kiliye Kiliye | Nokkethadoorathu Kannumnattu | Bichu Thirumala | Jerry Amaldev | KS Chithra Hits](https://www.youtube.com/watch?v=TG8d1woqO-8)
 - [മഞ്ചാടി ചുണ്ടത്തും | Manjadi Chundathum | Arjunan Pillayum Anju Makkalum Movie Song | KS Chithra](https://www.youtube.com/watch?v=MkscHnEi0fw)
-- [Angadeenningaadeennu | Aadhaaram | KS Chithra | Johnson | Kaithapram](https://www.youtube.com/watch?v=z5chH1fZcM4)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 29th of September 2023](https://www.youtube.com/watch?v=s8ph96lNGVA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
