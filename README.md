@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Chitta &lpar;2023&rpar; Malayalam Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.prof/index.php?/forums/topic/175510-chitta-2023-malayalam-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=353955)
+- [Kannur Squad &lpar;2023&rpar; Malayalam Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.prof/index.php?/forums/topic/175509-kannur-squad-2023-malayalam-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=353954)
 - [Chithha &lpar;2023&rpar; [UNCUT] [NO ADS] Tamil - Proper HQ PreDVD - 1080p - AVC - AAC2.0&lpar;320kbps&rpar;[HQ CLEAN UPMIXED] - 4.3GB [HYBRID VERSION] [GDrive]](https://www.1tamilmv.prof/index.php?/forums/topic/175545-chithha-2023-uncut-no-ads-tamil-proper-hq-predvd-1080p-avc-aac20320kbpshq-clean-upmixed-43gb-hybrid-version-gdrive/&do=findComment&comment=353953)
 - [King Of Kotha &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 17GB - 5.6GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175527-king-of-kotha-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-17gb-56gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353952)
 - [Adiyae &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 3.2GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175514-adiyae-2023-tamil-true-web-dl-1080p-720p-avc-hevc-32gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=353951)
-- [Choona &lpar;2023&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi] - 3.9GB - 1.6GB &amp; 900MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175544-choona-2023-s01-ep-01-08-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-39gb-16gb-900mb-esub/&do=findComment&comment=353950)
-- [Chandramukhi 2 &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.prof/index.php?/forums/topic/175502-chandramukhi-2-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=353949)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
