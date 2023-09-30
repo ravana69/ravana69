@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [ശ്രുതിലയ മധുരം സുരഭില നിമിഷംഹൃദയങ്ങള്‍ ഇഴ പാകുന്നു ഇഴകളില്‍ #shankar #yesudas](https://www.youtube.com/watch?v=0wBE3kdJzBc)
-- [Pakal Pakshi - Lyrical Video | Ival Draupadi | KJ Yesudas | Gireesh Puthenchery](https://www.youtube.com/watch?v=FlyT3nf1wvA)
-- [Vikara Naukayumay | Amaram | Mammootty | Yesudas | Bharathan | Raveendran | Chithra](https://www.youtube.com/watch?v=zt2jdlb2KMI)
-- [രാഗരാഗപ്പക്ഷീ | Raga Raga Pakshi  | Benz Vasu Movie Song | S Janaki Hits | Jayan](https://www.youtube.com/watch?v=xvjVoMM6qDM)
-- [കോളേജ് കാലത്തെ പ്രണയം മനസ്സിൽ തിരികെ കൊണ്ട് വരുന്ന അനുഭൂതിയേകും സിനിമാഗാനങ്ങൾ | EVERGREN SONGS](https://www.youtube.com/watch?v=hgtyLhSxlUw)
-- [സംവിധാനം ചെയ്‌ത സിനിമകളെല്ലാം സൂപ്പർഹിറ്റാക്കിയ ഫാസിലിന്റെ ചിത്രങ്ങളിലെ മനോഹര ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=viC7ljtsXFw)
+- [നിങ്ങളുടെ ഹൃദയം കലങ്ങിപ്പോവരുത്.. | Rev. Aneesh P Joseph |#shorts #jesusshorts #motivationalvideo](https://www.youtube.com/watch?v=XAVBqDm0A14)
+- [October Month Special Holy Rosary Songs | Japamala Masam Songs Malayalam](https://www.youtube.com/watch?v=tVz86Kdinis)
+- [Anthi Poomanam | Ayushman Bhava | Malayalam Video Song | K. J. Yesudas | Sujatha](https://www.youtube.com/watch?v=D9uA0rYxArk)
+- [ചന്ദ്രമദത്തിന്റെ ....| Ormakal Marikkumo | KJ Yesudas | MS Viswanathan|](https://www.youtube.com/watch?v=707Lt0GNp0I)
+- [Thengi Mounam Thengi | Sparsham | Sharreth | S Ramesan Nair | Malayalam Film Songs](https://www.youtube.com/watch?v=y8lDSduNO44)
+- [Unnam Maranna | 2 Harihar Nagar | Jassie Gift | Anwar Sadath | Afsal | Alex Paul | Bichu Thirumala](https://www.youtube.com/watch?v=1lFHecv-sbo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
