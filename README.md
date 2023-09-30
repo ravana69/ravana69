@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ശ്രുതിലയ മധുരം സുരഭില നിമിഷംഹൃദയങ്ങള്‍ ഇഴ പാകുന്നു ഇഴകളില്‍ #shankar #yesudas](https://www.youtube.com/watch?v=0wBE3kdJzBc)
+- [Pakal Pakshi - Lyrical Video | Ival Draupadi | KJ Yesudas | Gireesh Puthenchery](https://www.youtube.com/watch?v=FlyT3nf1wvA)
+- [Vikara Naukayumay | Amaram | Mammootty | Yesudas | Bharathan | Raveendran | Chithra](https://www.youtube.com/watch?v=zt2jdlb2KMI)
 - [രാഗരാഗപ്പക്ഷീ | Raga Raga Pakshi  | Benz Vasu Movie Song | S Janaki Hits | Jayan](https://www.youtube.com/watch?v=xvjVoMM6qDM)
 - [കോളേജ് കാലത്തെ പ്രണയം മനസ്സിൽ തിരികെ കൊണ്ട് വരുന്ന അനുഭൂതിയേകും സിനിമാഗാനങ്ങൾ | EVERGREN SONGS](https://www.youtube.com/watch?v=hgtyLhSxlUw)
 - [സംവിധാനം ചെയ്‌ത സിനിമകളെല്ലാം സൂപ്പർഹിറ്റാക്കിയ ഫാസിലിന്റെ ചിത്രങ്ങളിലെ മനോഹര ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=viC7ljtsXFw)
-- [ഓർമ്മതൻ തീരത്തേക്ക് മനസിനെ കൂട്ടിക്കൊണ്ടുപോകുന്ന മലയാളസിനിമയിലെ മറക്കാനാവാതെ ഗാനങ്ങൾ ! NISARI SONGS](https://www.youtube.com/watch?v=I57U8fjAEuY)
-- [Ellam Ellam Dhanamalle | Rev. Sajan P. Mathew | Elizabeth Raju  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=FVpr25t_MSc)
-- [ചിത്രച്ചേച്ചിക്കൊപ്പം പാടിയും പറഞ്ഞും | ​Chithra Chechikkoppam Paadiyum Paranjum | Malayala Manorama](https://www.youtube.com/watch?v=z1FXxIXW3Zw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
