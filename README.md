@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കനിവിന്റെ നിറവാർന്നോരമ്മേ ..നിനക്കേകുന്നു സ്നേഹപ്രണാമം .](https://www.youtube.com/watch?v=KOPHYZ4XV9E)
+- [അമ്മയ്ക്കായി ഒരു സ്നേഹഗീതം . vol 2  /മരിയൻ ഗീതങ്ങൾ /OWN MEDIA MUSIC COLLECTION/](https://www.youtube.com/watch?v=im7KiUEM0bE)
 - [Balla Balla Balla Hey | Allipoovin Kalyanam Video Song | HD Punjabi House Movie Song | REMASTERED |](https://www.youtube.com/watch?v=oAnWTr64c0Q)
 - [ammayen punyam # japamala #ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം # ഒക്ടോബർ മാസം കേൾക്കാൻ](https://www.youtube.com/watch?v=sK9t4KsqXro)
 - [ചന്ദനകാറ്റേ കുളിര്‍ കൊണ്ടു വാ | Chandana Katte Kulir Kondu Va [Male] Bhishmachariya Movie Song](https://www.youtube.com/watch?v=UevTlUiwXDs)
 - [ശ്രുതിലയ മധുരം സുരഭില നിമിഷം #malayalamsongs #evergeeenmalayalamhits #yesudas #shankar](https://www.youtube.com/watch?v=Tfro1y_K4Gk)
-- [Neeyoru Puzhayay Video Song | Thilakkam | Dileep | Kavya Madhavan | P Jayachandran | Kaithapram](https://www.youtube.com/watch?v=qH4WjjZkR4I)
-- [Punarum Puthumanam | Calendar | Vijay Yesudas | Afzal Yusuf | Anil Panachooran](https://www.youtube.com/watch?v=ZpASbMaU7ys)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
