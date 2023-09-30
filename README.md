@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Chandramukhi 2 &lpar;2023&rpar; Original Motion PIcture Soundtrack Master 24bit - FLAC - M.M. Keeravani Musical - 435 MB](https://www.1tamilmv.prof/index.php?/forums/topic/175551-chandramukhi-2-2023-original-motion-picture-soundtrack-master-24bit-flac-mm-keeravani-musical-435-mb/&do=findComment&comment=353965)
+- [Saw X &lpar;2023&rpar; English HQ PreDVD - [1080p &amp; 720p - x264 - 2.1GB &amp; 900MB | x264 - 400MB] - HQ Clean Audio](https://www.1tamilmv.prof/index.php?/forums/topic/175550-saw-x-2023-english-hq-predvd-1080p-720p-x264-21gb-900mb-x264-400mb-hq-clean-audio/&do=findComment&comment=353964)
 - [Gen V &lpar;2023&rpar; S01 EP&lpar;01-03&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada + Eng] - 3GB - 1.2GB &amp; 600MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175537-gen-v-2023-s01-ep01-03-true-web-dl-1080p-720p-avc-dd51-192kbps-tamil-telugu-hindi-malayalam-kannada-eng-3gb-12gb-600mb-esub/&do=findComment&comment=353962)
 - [Chandramukhi 2 &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.prof/index.php?/forums/topic/175502-chandramukhi-2-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=353961)
 - [Gharshana &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175549-gharshana-2004-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=353960)
-- [Chithha &lpar;2023&rpar; [UNCUT] [NO ADS] Tamil - Proper HQ PreDVD - 1080p - AVC - AAC2.0&lpar;320kbps&rpar;[HQ CLEAN UPMIXED] - 4.3GB [HYBRID VERSION] [GDrive]](https://www.1tamilmv.prof/index.php?/forums/topic/175545-chithha-2023-uncut-no-ads-tamil-proper-hq-predvd-1080p-avc-aac20320kbpshq-clean-upmixed-43gb-hybrid-version-gdrive/&do=findComment&comment=353959)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 EP27 DAY 26 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 499MB &amp; 216MB | 29-09-2023]](https://www.1tamilmv.prof/index.php?/forums/topic/175548-bigg-boss-telugu-s07-ep27-day-26-hdtv-1080p-720p-480p-avc-untouched-1gb-499mb-216mb-29-09-2023/&do=findComment&comment=353958)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
