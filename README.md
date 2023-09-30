@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കോളേജ് കാലത്തെ പ്രണയം മനസ്സിൽ തിരികെ കൊണ്ട് വരുന്ന അനുഭൂതിയേകും സിനിമാഗാനങ്ങൾ | EVERGREN SONGS](https://www.youtube.com/watch?v=hgtyLhSxlUw)
+- [സംവിധാനം ചെയ്‌ത സിനിമകളെല്ലാം സൂപ്പർഹിറ്റാക്കിയ ഫാസിലിന്റെ ചിത്രങ്ങളിലെ മനോഹര ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=viC7ljtsXFw)
+- [ഓർമ്മതൻ തീരത്തേക്ക് മനസിനെ കൂട്ടിക്കൊണ്ടുപോകുന്ന മലയാളസിനിമയിലെ മറക്കാനാവാതെ ഗാനങ്ങൾ ! NISARI SONGS](https://www.youtube.com/watch?v=I57U8fjAEuY)
+- [Ellam Ellam Dhanamalle | Rev. Sajan P. Mathew | Elizabeth Raju  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=FVpr25t_MSc)
 - [പൂങ്കനവിൻ നാണയങ്ങൾ | Poonkanavin  | Churam Malayalam Film Song | Johnson | KS Chithra | Divya Unni](https://www.youtube.com/watch?v=FmudO6Cr80E)
 - [Maamazhayile Video Song | Mayilattam | Rambha | Sujatha Mohan | Gireesh Puthenchery | M Jayachandran](https://www.youtube.com/watch?v=-yKNZ5ze8E4)
-- [Sare Sare Sambare | Thilakkam | Dileep | Kavya Madhavan | Sujatha |](https://www.youtube.com/watch?v=XVvT__27Nvs)
-- [Hop for #Halaballoo | #RDX | #ShaneNigam, #AntonyVarghese, #NeerajMadhav | #SamCS | #shorts](https://www.youtube.com/watch?v=yJQXd0Qbyxk)
-- [Sreeraagam | Chithrakoodam 2003 | S. P. Venkitesh | K.S.Chithra, Sujatha Mohan| Malayalam Movie Song](https://www.youtube.com/watch?v=lXQMXUsQ_QA)
-- [Ezhu Sundara Raathrikal Malayalam Evergreen Song | Ashwamedham | P. Susheela | Vayalar | Devarajan](https://www.youtube.com/watch?v=5AXAZS3V4TA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
