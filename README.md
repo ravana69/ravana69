@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Sare Sare Sambare | Thilakkam | Dileep | Kavya Madhavan | Sujatha |](https://www.youtube.com/watch?v=XVvT__27Nvs)
+- [Hop for #Halaballoo | #RDX | #ShaneNigam, #AntonyVarghese, #NeerajMadhav | #SamCS | #shorts](https://www.youtube.com/watch?v=yJQXd0Qbyxk)
+- [Sreeraagam | Chithrakoodam 2003 | S. P. Venkitesh | K.S.Chithra, Sujatha Mohan| Malayalam Movie Song](https://www.youtube.com/watch?v=lXQMXUsQ_QA)
+- [Ezhu Sundara Raathrikal Malayalam Evergreen Song | Ashwamedham | P. Susheela | Vayalar | Devarajan](https://www.youtube.com/watch?v=5AXAZS3V4TA)
 - [എനിക്കെന്‍റെ ആശ്രയം | RSV | Franco](https://www.youtube.com/watch?v=IBxmAlv0cmU)
 - [Christian Video Songs Malayalam | Chithra Arun | Alenia | Christian Melody Songs | Joji Johns](https://www.youtube.com/watch?v=hP0dIUdZcoA)
-- [Japamala 30th of September 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 30th of September 23](https://www.youtube.com/watch?v=JT12b92gK7M)
-- [രാവിലെ കേൾക്കാൻ ഏറ്റവും നല്ല ഗാനങ്ങൾ daily worship songs | christian devotional songs malayalam](https://www.youtube.com/watch?v=5uvxMqK8nxI)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം # september 30th   mother mary prayer and songs mal](https://www.youtube.com/watch?v=boC4urSXIW8)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=yr8JXS2FsZw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
