@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന  October 1 # Athiravile Prarthana 1st October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=2SE0hKW6DNQ)
+- [ജപമാല ഗീതങ്ങള്‍ # Holy Rosary Special Songs Malayalam |  Month of Holy Rosary October 2023 Songs](https://www.youtube.com/watch?v=OKVZSAFLLwk)
+- [Slaying the moves for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=mGpGNHpP_Ac)
+- [Classic moves for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=29T-WL2ASjc)
+- [Not getting enough of #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=p9kD91x5ZWw)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 1st October 2023](https://www.youtube.com/watch?v=HcSXxxanT7Y)
-- [കനിവിന്റെ നിറവാർന്നോരമ്മേ ..നിനക്കേകുന്നു സ്നേഹപ്രണാമം .](https://www.youtube.com/watch?v=KOPHYZ4XV9E)
-- [അമ്മയ്ക്കായി ഒരു സ്നേഹഗീതം . vol 2  /മരിയൻ ഗീതങ്ങൾ /OWN MEDIA MUSIC COLLECTION/](https://www.youtube.com/watch?v=im7KiUEM0bE)
-- [Balla Balla Balla Hey | Allipoovin Kalyanam Video Song | HD Punjabi House Movie Song | REMASTERED |](https://www.youtube.com/watch?v=oAnWTr64c0Q)
-- [ammayen punyam # japamala #ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം # ഒക്ടോബർ മാസം കേൾക്കാൻ](https://www.youtube.com/watch?v=sK9t4KsqXro)
-- [ചന്ദനകാറ്റേ കുളിര്‍ കൊണ്ടു വാ | Chandana Katte Kulir Kondu Va [Male] Bhishmachariya Movie Song](https://www.youtube.com/watch?v=UevTlUiwXDs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
