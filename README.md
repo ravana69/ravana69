@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=yr8JXS2FsZw)
 - [പ്രഭാത പ്രാര്‍ത്ഥന September 30 # Athiravile Prarthana 30th of September 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=7UohcpYhbw0)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 30th SEP 2023](https://www.youtube.com/watch?v=VwerNVrzfXQ)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=pyARsAwXsAc)
 - [Neela Nilave ✨](https://www.youtube.com/watch?v=AFv1DA_G1ls)
 - [സ്വപ്നത്തിൻ താഴ്‌വരയിൽ..|കെ ജെ യേശുദാസ് | ചിത്ര | Original Audio | Remastered movie songs](https://www.youtube.com/watch?v=s_6hWIRQUOM)
-- [പ്രാണനാഥൻ , യേശു രാജൻ , ജീവനെ തന്നതാൽ](https://www.youtube.com/watch?v=FrKt5O5M18w)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
