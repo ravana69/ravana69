@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ammayen punyam # japamala #ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം # ഒക്ടോബർ മാസം കേൾക്കാൻ](https://www.youtube.com/watch?v=sK9t4KsqXro)
+- [ചന്ദനകാറ്റേ കുളിര്‍ കൊണ്ടു വാ | Chandana Katte Kulir Kondu Va [Male] Bhishmachariya Movie Song](https://www.youtube.com/watch?v=UevTlUiwXDs)
+- [ശ്രുതിലയ മധുരം സുരഭില നിമിഷം #malayalamsongs #evergeeenmalayalamhits #yesudas #shankar](https://www.youtube.com/watch?v=Tfro1y_K4Gk)
+- [Neeyoru Puzhayay Video Song | Thilakkam | Dileep | Kavya Madhavan | P Jayachandran | Kaithapram](https://www.youtube.com/watch?v=qH4WjjZkR4I)
 - [Punarum Puthumanam | Calendar | Vijay Yesudas | Afzal Yusuf | Anil Panachooran](https://www.youtube.com/watch?v=ZpASbMaU7ys)
 - [നിങ്ങളുടെ ഹൃദയം കലങ്ങിപ്പോവരുത്.. | Rev. Aneesh P Joseph |#shorts #jesusshorts #motivationalvideo](https://www.youtube.com/watch?v=XAVBqDm0A14)
-- [October Month Special Holy Rosary Songs | Japamala Masam Songs Malayalam](https://www.youtube.com/watch?v=tVz86Kdinis)
-- [Anthi Poomanam | Ayushman Bhava | Malayalam Video Song | K. J. Yesudas | Sujatha](https://www.youtube.com/watch?v=D9uA0rYxArk)
-- [ചന്ദ്രമദത്തിന്റെ ....| Ormakal Marikkumo | KJ Yesudas | MS Viswanathan|](https://www.youtube.com/watch?v=707Lt0GNp0I)
-- [Thengi Mounam Thengi | Sparsham | Sharreth | S Ramesan Nair | Malayalam Film Songs](https://www.youtube.com/watch?v=y8lDSduNO44)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
