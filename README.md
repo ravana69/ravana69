@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Attuthottil | Shorts #Shorts #malayalamfilmsongs #manoramafilmsongs](https://www.youtube.com/watch?v=oEZC8VaboIc)
-- [പാഴിരുൾ വീഴുമീ നാലുകെട്ടിൽ #mohini #bijumenon #movieworldmusic #youtubeshorts](https://www.youtube.com/watch?v=qdGntDhHmWA)
-- [പാട്ടുപെട്ടി - Paattupetti Vol 27 | Malayalam Film Songs](https://www.youtube.com/watch?v=RkyBGGdARY4)
-- [Neeyam Thanalinu | Karaoke Video | Cocktail | Anil Panachooran | Rajesh Vegha | Jayasoorya](https://www.youtube.com/watch?v=W_TOFd0aoGA)
-- [ഏഴു നിറമുള്ള മലരേ നൂറു കരമുള്ള കുളിരെ  #malayalamsongs #evergeeenmalayalamhits #yesudas #shankar](https://www.youtube.com/watch?v=6Qj5tbp9H-U)
-- [Kunji Chittolam | Chithrakoodam 2003 | S.P.Venkitesh | Swarnalatha,Vijay Yesudas| MalayalamMovieSong](https://www.youtube.com/watch?v=kk4ZU7Bhgn4)
+- [കഷ്ടതയുടെ നടുവിൽ കരംപിടിച്ച് നടത്തുന്നവൻ | Rev. Aneesh P Joseph |#shorts #jesusshorts #motivational](https://www.youtube.com/watch?v=HGfi5oGDSls)
+- [Ellarum Chollanu | Neelakuyil Song #shorts](https://www.youtube.com/watch?v=8Db9rpZ-yrc)
+- [Thumbappoo Mundu Video Song | Manthrika Kuthira | Manoj K Jayan | Mohini](https://www.youtube.com/watch?v=h--caoHCjLM)
+- [Ponnolappanthalil | Malayalam Super Hit Movie Song | Saaphalyam | Suresh Gopi | Praveena - MGR Hits](https://www.youtube.com/watch?v=q2jQXIkQNug)
+- [ABHAYAM NEE # New Marian Song Malayalam Ft. Sonychen CMI, Asha Rony, Fr Linto Kanjuthara, Oviatess](https://www.youtube.com/watch?v=4ZfHGBiSNuQ)
+- [Christian Melody Songs | Kester| Abhijith Kollam | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=EhkG7RNzZus)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
