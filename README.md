@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Mahabharatham &lpar;EP 1-257&rpar; ALL Episodes 1080p - FHD - MAX QUALITY - Dual Audio [Tamil &lpar;256Kbps&rpar;+ Hindi] [FULL SCREEN] Gdrive](https://www.1tamilmv.prof/index.php?/forums/topic/160694-mahabharatham-ep-1-257-all-episodes-1080p-fhd-max-quality-dual-audio-tamil-256kbps-hindi-full-screen-gdrive/&do=findComment&comment=354058)
 - [[TAMIL] JUJUTSU KAISEN S01 COMPLETE 1080p CR WEB-DL Tamil AAC2.0 x264 - Single Episodes - 32.4 GB](https://www.1tamilmv.prof/index.php?/forums/topic/175367-tamil-jujutsu-kaisen-s01-complete-1080p-cr-web-dl-tamil-aac20-x264-single-episodes-%C2%A0324-gb/&do=findComment&comment=354057)
 - [Bal Ganesh &lpar;2007&rpar; - AHA WEB-DL - [1080p - 720p &amp; 576p - x264 - &lpar;Telugu - AAC 2.0&rpar; - 1.8GB - 950MB &amp; 550MB - ESub [Google Drive]](https://www.1tamilmv.prof/index.php?/forums/topic/175374-bal-ganesh-2007-aha-web-dl-1080p-720p-576p-x264-telugu-aac-20-18gb-950mb-550mb-esub-google-drive/&do=findComment&comment=354056)
+- [BIGG BOSS Tamil &lpar;2023&rpar; S07 EP01 - DAY 00 - TRUE WEB-DL - [1080p, 720p, 480p - AVC - UNTOUCHED - 4.3GB - 2GB &amp; 1GB] [01-10-2023]](https://www.1tamilmv.prof/index.php?/forums/topic/175578-bigg-boss-tamil-2023-s07-ep01-day-00-true-web-dl-1080p-720p-480p-avc-untouched-43gb-2gb-1gb-01-10-2023/&do=findComment&comment=354055)
 - [Ayan &lpar;2009&rpar; Tamil - BluRay - 1080p &amp; 720p - TRUE HD - AVC / HEVC - DTS-HDMA 5.1&lpar;2497kbps&rpar; - 10.5GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - ESub [GDrive]](https://www.1tamilmv.prof/index.php?/forums/topic/175576-ayan-2009-tamil-bluray-1080p-720p-true-hd-avc-hevc-dts-hdma-512497kbps-105gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub-gdrive/&do=findComment&comment=354054)
-- [Chhota Bheem Adventure of Persia &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 1.6GB &amp; 850MB | x264 - &lpar;Tam + Tel + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175364-chhota-bheem-adventure-of-persia-2023-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-16gb-850mb-x264-tam-tel-hin-400mb-esub/&do=findComment&comment=354053)
-- [Harkara &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 10GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175567-harkara-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-10gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354052)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
