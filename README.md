@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Gen V S01[E01-E03] 1080p AMZN WEB-DL MULTi DDP5.1 Esubs x264 - 1080P - 13.7 GB](https://www.1tamilmv.prof/index.php?/forums/topic/175539-gen-v-s01e01-e03-1080p-amzn-web-dl-multi-ddp51-esubs-x264-1080p-137-gb/&do=findComment&comment=354031)
+- [Kushi &lpar;2023&rpar; NF WEB-DL DDP5.1 Esubs x264 - 3.7 GB | 1.6 GB](https://www.1tamilmv.prof/index.php?/forums/topic/175574-kushi-2023-nf-web-dl-ddp51-esubs-x264-37-gb-16-gb/&do=findComment&comment=354030)
+- [Thalaivar171 Exclusive Updates | Rajinikanth | Loki | Anirudh | Sun Pictures | Anbariv](https://www.1tamilmv.prof/index.php?/forums/topic/175573-thalaivar171-exclusive-updates-rajinikanth-loki-anirudh-sun-pictures-anbariv/&do=findComment&comment=354029)
 - [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;22-24&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175572-vera-maari-office-2023-s01-ep-22-24-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=354028)
 - [Kushi &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175569-kushi-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354027)
-- [Harkara &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 10GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175567-harkara-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-10gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354026)
-- [Kushi &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175566-kushi-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354025)
-- [Kushi &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175566-kushi-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354024)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
