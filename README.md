@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kushi &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175566-kushi-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354042)
+- [Harkara &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 10GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175567-harkara-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-10gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354041)
 - [Not Ramaiya Vastavaiya &lpar;From &quot;Jawan&quot;&rpar; Telugu Single Track - iTunes - 256Kbps - Anirudh Ravichander Musical](https://www.1tamilmv.prof/index.php?/forums/topic/175181-not-ramaiya-vastavaiya-from-jawan-telugu-single-track-itunes-256kbps-anirudh-ravichander-musical/&do=findComment&comment=354040)
 - [Chandramukhi &lpar;2005&rpar; Tamil - BluRay - 1080p &amp; 720p - x264 - &lpar;DTS &lpar;2514Kbps&rpar; + AAC 2.0&rpar; - 11GB - 2.7GB - 1.4GB - 700MB &amp; 400MB - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175484-chandramukhi-2005-tamil-bluray-1080p-720p-x264-dts-2514kbps-aac-20-11gb-27gb-14gb-700mb-400mb-esub/&do=findComment&comment=354039)
 - [Harkara &lpar;2023&rpar; TK WEB.DL DD5.1 Esubs - 2160p | 1080p - 14.5 GB | 9.5 GB](https://www.1tamilmv.prof/index.php?/forums/topic/175575-harkara-2023-tk-webdl-dd51-esubs-2160p-1080p-145-gb-95-gb/&do=findComment&comment=354038)
-- [Sapta Sagaradaache Ello - Side A &lpar;2023&rpar; Kannada TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 17GB - 6GB - 2.8GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175532-sapta-sagaradaache-ello-side-a-2023-kannada-true-web-dl-4k-1080p-720p-avc-dd51-640kbps-17gb-6gb-28gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=354037)
-- [Kushi &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175569-kushi-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354036)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
