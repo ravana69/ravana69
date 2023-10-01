@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;22-24&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175572-vera-maari-office-2023-s01-ep-22-24-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=354028)
 - [Kushi &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175569-kushi-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354027)
 - [Harkara &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 10GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175567-harkara-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-10gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354026)
 - [Kushi &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175566-kushi-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354025)
 - [Kushi &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175566-kushi-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354024)
-- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;22-24&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175572-vera-maari-office-2023-s01-ep-22-24-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=354023)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
