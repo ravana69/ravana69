@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manjum Nilavum Unarnnuvo | Samagamam | Jayaram | Rohini | Yesudas | George Kithu | Johnson](https://www.youtube.com/watch?v=Iliy-IjtEQw)
+- [Enunde | Mukalparappu | Video Song | Siby Padiyara | JP Thavarool | Pramod Sarang | Manikandan](https://www.youtube.com/watch?v=0OdnwDMkXIo)
 - [മരിയൻ ഗീതങ്ങൾ  October Month Special Holy Rosary Songs | Japamala Masam Songs Malayalam](https://www.youtube.com/watch?v=S6qGfGlEvEo)
 - [ദിവ്യമാം സ്നേഹം പകർന്നു നൽകുന്ന ദിവ്യകാരുണ്യ ഗീതങ്ങൾ  | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=r3iZXLVbQgc)
 - [ABHAYAM NEE # New Marian Song Malayalam Ft. Sonychen CMI, Asha Rony, Fr Linto Kanjuthara, Oviatess](https://www.youtube.com/watch?v=MHXDb4iTv2k)
 - [ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം തുടങ്ങാം # jojo johny #johnson kk @fr shaji thumbechirayil #october 1st](https://www.youtube.com/watch?v=8YzoQlTIirw)
-- [Japamala 1st of October 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 1st of October 23](https://www.youtube.com/watch?v=p2HBMt7g24A)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #october 1st 2023  mother Mary prayer and songs mal](https://www.youtube.com/watch?v=TIlYw7bxR1c)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
