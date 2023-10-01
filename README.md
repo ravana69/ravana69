@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഏഴു നിറമുള്ള മലരേ നൂറു കരമുള്ള കുളിരെ  #malayalamsongs #evergeeenmalayalamhits #yesudas #shankar](https://www.youtube.com/watch?v=6Qj5tbp9H-U)
+- [Kunji Chittolam | Chithrakoodam 2003 | S.P.Venkitesh | Swarnalatha,Vijay Yesudas| MalayalamMovieSong](https://www.youtube.com/watch?v=kk4ZU7Bhgn4)
+- [എനിക്കെന്‍റെ ആശ്രയം | RSV | Franco](https://www.youtube.com/watch?v=KGpn9U4Y-E0)
+- [Poomaname | Nirakkoottu | Mammootty | Sumalatha | Markose | Shyam | Joshiy](https://www.youtube.com/watch?v=VzVAZYMsd_Q)
 - [Manjum Nilavum Unarnnuvo | Samagamam | Jayaram | Rohini | Yesudas | George Kithu | Johnson](https://www.youtube.com/watch?v=Iliy-IjtEQw)
 - [Enunde | Mukalparappu | Video Song | Siby Padiyara | JP Thavarool | Pramod Sarang | Manikandan](https://www.youtube.com/watch?v=0OdnwDMkXIo)
-- [മരിയൻ ഗീതങ്ങൾ  October Month Special Holy Rosary Songs | Japamala Masam Songs Malayalam](https://www.youtube.com/watch?v=S6qGfGlEvEo)
-- [ദിവ്യമാം സ്നേഹം പകർന്നു നൽകുന്ന ദിവ്യകാരുണ്യ ഗീതങ്ങൾ  | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=r3iZXLVbQgc)
-- [ABHAYAM NEE # New Marian Song Malayalam Ft. Sonychen CMI, Asha Rony, Fr Linto Kanjuthara, Oviatess](https://www.youtube.com/watch?v=MHXDb4iTv2k)
-- [ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം തുടങ്ങാം # jojo johny #johnson kk @fr shaji thumbechirayil #october 1st](https://www.youtube.com/watch?v=8YzoQlTIirw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
