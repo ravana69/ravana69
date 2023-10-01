@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 2nd October 2023](https://www.youtube.com/watch?v=SuJOpwbvp40)
 - [അലിവിന്റെ അലയാഴിയാകും വിമലാംബികേ നിന്റെ ഹൃദയം](https://www.youtube.com/watch?v=-dfIocBrG5w)
 - [Nilave Nilave | Chattakkari| Shorts #Shorts #malayalamfilmsongs #manoramafilmsongs](https://www.youtube.com/watch?v=lg9pHo7JmiA)
 - [Ammayne punyam #nanma niranja mariyame swasthi #jojo johny #johnson kk](https://www.youtube.com/watch?v=EyTujBg3otc)
 - [കഷ്ടതയുടെ നടുവിൽ കരംപിടിച്ച് നടത്തുന്നവൻ | Rev. Aneesh P Joseph |#shorts #jesusshorts #motivational](https://www.youtube.com/watch?v=HGfi5oGDSls)
 - [Ellarum Chollanu | Neelakuyil Song #shorts](https://www.youtube.com/watch?v=8Db9rpZ-yrc)
-- [Thumbappoo Mundu Video Song | Manthrika Kuthira | Manoj K Jayan | Mohini](https://www.youtube.com/watch?v=h--caoHCjLM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
