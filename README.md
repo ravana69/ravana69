@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന October 2 # Athiravile Prarthana 2nd October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=G1HT3Fp9-bo)
+- [ജപമാല ഗീതങ്ങള്‍ # Holy Rosary Special Songs Malayalam |  Month of Holy Rosary October 2023 Songs](https://www.youtube.com/watch?v=CHqUboGjpaA)
+- [Listening on Loop for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=RnvXHZvblvE)
+- [Addicted for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=L6CcZMbXvFI)
+- [Neela Nilave Fever #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=6UFhAZdU2sA)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 2nd October 2023](https://www.youtube.com/watch?v=SuJOpwbvp40)
-- [അലിവിന്റെ അലയാഴിയാകും വിമലാംബികേ നിന്റെ ഹൃദയം](https://www.youtube.com/watch?v=-dfIocBrG5w)
-- [Nilave Nilave | Chattakkari| Shorts #Shorts #malayalamfilmsongs #manoramafilmsongs](https://www.youtube.com/watch?v=lg9pHo7JmiA)
-- [Ammayne punyam #nanma niranja mariyame swasthi #jojo johny #johnson kk](https://www.youtube.com/watch?v=EyTujBg3otc)
-- [കഷ്ടതയുടെ നടുവിൽ കരംപിടിച്ച് നടത്തുന്നവൻ | Rev. Aneesh P Joseph |#shorts #jesusshorts #motivational](https://www.youtube.com/watch?v=HGfi5oGDSls)
-- [Ellarum Chollanu | Neelakuyil Song #shorts](https://www.youtube.com/watch?v=8Db9rpZ-yrc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
