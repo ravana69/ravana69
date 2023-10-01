@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പാട്ടുപെട്ടി - Paattupetti Vol 27 | Malayalam Film Songs](https://www.youtube.com/watch?v=RkyBGGdARY4)
+- [Neeyam Thanalinu | Karaoke Video | Cocktail | Anil Panachooran | Rajesh Vegha | Jayasoorya](https://www.youtube.com/watch?v=W_TOFd0aoGA)
 - [ഏഴു നിറമുള്ള മലരേ നൂറു കരമുള്ള കുളിരെ  #malayalamsongs #evergeeenmalayalamhits #yesudas #shankar](https://www.youtube.com/watch?v=6Qj5tbp9H-U)
 - [Kunji Chittolam | Chithrakoodam 2003 | S.P.Venkitesh | Swarnalatha,Vijay Yesudas| MalayalamMovieSong](https://www.youtube.com/watch?v=kk4ZU7Bhgn4)
 - [എനിക്കെന്‍റെ ആശ്രയം | RSV | Franco](https://www.youtube.com/watch?v=KGpn9U4Y-E0)
 - [Poomaname | Nirakkoottu | Mammootty | Sumalatha | Markose | Shyam | Joshiy](https://www.youtube.com/watch?v=VzVAZYMsd_Q)
-- [Manjum Nilavum Unarnnuvo | Samagamam | Jayaram | Rohini | Yesudas | George Kithu | Johnson](https://www.youtube.com/watch?v=Iliy-IjtEQw)
-- [Enunde | Mukalparappu | Video Song | Siby Padiyara | JP Thavarool | Pramod Sarang | Manikandan](https://www.youtube.com/watch?v=0OdnwDMkXIo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
