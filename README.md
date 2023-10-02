@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP30 DAY 29 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 557MB &amp; 226MB | 02-10-2023]](https://www.1tamilmv.prof/index.php?/forums/topic/175582-bigg-boss-telugu-s07-ep30-day-29-hdtv-1080p-720p-480p-avc-untouched-11gb-557mb-226mb-02-10-2023/&do=findComment&comment=354088)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP29 DAY 28 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.5GB - 725MB &amp; 313MB | 01-10-2023]](https://www.1tamilmv.prof/index.php?/forums/topic/175577-bigg-boss-telugu-s07-ep29-day-28-hdtv-1080p-720p-480p-avc-untouched-15gb-725mb-313mb-01-10-2023/&do=findComment&comment=354087)
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP02 DAY 01 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 541MB &amp; 215MB | 02-10-2023]](https://www.1tamilmv.prof/index.php?/forums/topic/175583-bigg-boss-tamil-s07-ep02-day-01-true-web-dl-1080p-720p-480p-avc-untouched-1gb-541mb-215mb-02-10-2023/&do=findComment&comment=354086)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP02 DAY 01 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 541MB &amp; 215MB | 02-10-2023]](https://www.1tamilmv.prof/index.php?/forums/topic/175583-bigg-boss-tamil-s07-ep02-day-01-true-web-dl-1080p-720p-480p-avc-untouched-1gb-541mb-215mb-02-10-2023/&do=findComment&comment=354082)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP02 DAY 01 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 541MB &amp; 215MB | 02-10-2023]](https://www.1tamilmv.prof/index.php?/forums/topic/175583-bigg-boss-tamil-s07-ep02-day-01-true-web-dl-1080p-720p-480p-avc-untouched-1gb-541mb-215mb-02-10-2023/&do=findComment&comment=354081)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 EP30 DAY 29 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 557MB &amp; 226MB | 02-10-2023]](https://www.1tamilmv.prof/index.php?/forums/topic/175582-bigg-boss-telugu-s07-ep30-day-29-hdtv-1080p-720p-480p-avc-untouched-11gb-557mb-226mb-02-10-2023/&do=findComment&comment=354080)
-- [Imaikkaa Nodigal &lpar;2018&rpar; AMZN WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 11.5 GB | 6.3 GB](https://www.1tamilmv.prof/index.php?/forums/topic/175579-imaikkaa-nodigal-2018-amzn-web-dl-ddp51-esubs-x264-1080p-720p-115-gb-63-gb/&do=findComment&comment=354079)
-- [Looper &lpar;2012&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.2GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/67655-looper-2012-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-32gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=354078)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
