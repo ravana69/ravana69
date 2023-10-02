@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന  October 3 # Athiravile Prarthana 3rd October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=Ax0vP_HlkX8)
+- [ജപമാല ഗീതങ്ങള്‍ # Holy Rosary Special Songs Malayalam |  Month of Holy Rosary October 2023 Songs](https://www.youtube.com/watch?v=QLu5QbhyEnI)
 - [Steps with friends for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=3CREiFpGIdo)
 - [Beats on Loop for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=luhDAobugQM)
 - [Reflecting vibes for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=PGNP84keJrY)
 - [ഹൃദയം ഒരു വീണയായ് അതിൽ നിൻമൊഴിയായ്..| കെ ജെ യേശുദാസ് | Janaki |Original Audio Remastered movie songs](https://www.youtube.com/watch?v=mmDZvxVzQYQ)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 3rd October 2023](https://www.youtube.com/watch?v=jKJlhbXs0T4)
-- [ORU PENKIDAVU KODI MARIVECHA | PRAJAPATHI |REMASTERED VIDEO SONG |SALEEM KUMAR |EVERGREEN  SONGS](https://www.youtube.com/watch?v=9zXSaF60MQE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
