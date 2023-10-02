@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ente Veena Kambiyellam | Malayalam Classic Movie | Mooladhanam | Ft. Sathyan | Ambika | Yesudas](https://www.youtube.com/watch?v=sCeq5qEdU7Y)
+- [Njan Periya Nindhakalellam... #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=BqLc3u4SrBw)
+- [Chandiranaano Maanathu | Chithrakoodam 2003 | S. P. Venkitesh | Swarnalatha | Malayalam Movie Song](https://www.youtube.com/watch?v=viRKWmqSGO0)
 - [Japamala Masam Short October  | Holy Rosary Special Short](https://www.youtube.com/watch?v=l3fM6rAlmG4)
 - [ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം തുടങ്ങാം # jojo johny #johnson kk #fr shaji thumbechirayil #october 2nd](https://www.youtube.com/watch?v=rjAIA2wWITg)
 - [Japamala 2nd of October 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 2nd of October 23](https://www.youtube.com/watch?v=0tzT5XJgR2E)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #october 2nd 2023  mother mary prayer and songs](https://www.youtube.com/watch?v=70jg_wCFVW4)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=dRqntz7_G8w)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=MtUSJ5xfi0w)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
