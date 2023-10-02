@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chendeloru Vandunde | Red Chillies | Rita | Sayanora Philip | Renjini Jose | Resmi Vijayan](https://www.youtube.com/watch?v=d__TiKueags)
+- [അമലമനോഹാരിയാം മരിയെ സ്വസ്തി കൃപയുടെ #ammayne punyam 2023 Christian album song #japamala  Sangeeth](https://www.youtube.com/watch?v=jDbVDGMH16k)
+- [Swayamvara Chandrike Video Song | Mammootty | Rambha| Mukesh| Bhavana| P Jayachandran| Sujatha Mohan](https://www.youtube.com/watch?v=22ri6EkIneQ)
+- [നന്മ നിറഞ്ഞവളെ കന്യാമറിയമേ ...](https://www.youtube.com/watch?v=yLEq8LWWmR0)
 - [ജീവിതത്തെ ഏറെ സുന്ദരമാക്കുന്നത് ക്ഷമിക്കാൻ കഴിയുന്നവർക്കാണ് | Rev. Aneesh P Joseph |#shorts](https://www.youtube.com/watch?v=Ny0eIM5JA00)
 - [Thamara Poomizhi | Achante Bharya | S. Janaki | Thaarattupatu | Old Malayalam Songs](https://www.youtube.com/watch?v=mPyC-0NkPak)
-- [Mele Vinnile | Kaathil Oru Kinnaram | Swarnalatha | SP Venkitesh | Gireesh Puthenchery](https://www.youtube.com/watch?v=p39F16tIygE)
-- [Sarada | Meghatheertham | P Unnikrishnan | Priya Himesh | Sharreth | Gireesh Puthenchery](https://www.youtube.com/watch?v=F6HLg4J_NjQ)
-- [VandanamYesupara |Christian Traditional Songs| Kester |Old Is Gold |Praise And Worship Songs](https://www.youtube.com/watch?v=TO5mtaAEOTU)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 2nd of October 2023](https://www.youtube.com/watch?v=SFuizATRpUU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
