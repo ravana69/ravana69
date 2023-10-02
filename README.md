@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ente Pranayathin | Chembada | Beautiful Romantic Duet #shorts](https://www.youtube.com/watch?v=mRKyx81vQ-k)
 - [Ente Veena Kambiyellam | Malayalam Classic Movie | Mooladhanam | Ft. Sathyan | Ambika | Yesudas](https://www.youtube.com/watch?v=sCeq5qEdU7Y)
 - [Njan Periya Nindhakalellam... #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=BqLc3u4SrBw)
 - [Chandiranaano Maanathu | Chithrakoodam 2003 | S. P. Venkitesh | Swarnalatha | Malayalam Movie Song](https://www.youtube.com/watch?v=viRKWmqSGO0)
 - [Japamala Masam Short October  | Holy Rosary Special Short](https://www.youtube.com/watch?v=l3fM6rAlmG4)
 - [ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം തുടങ്ങാം # jojo johny #johnson kk #fr shaji thumbechirayil #october 2nd](https://www.youtube.com/watch?v=rjAIA2wWITg)
-- [Japamala 2nd of October 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 2nd of October 23](https://www.youtube.com/watch?v=0tzT5XJgR2E)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
