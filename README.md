@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Steps with friends for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=3CREiFpGIdo)
+- [Beats on Loop for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=luhDAobugQM)
+- [Reflecting vibes for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=PGNP84keJrY)
+- [ഹൃദയം ഒരു വീണയായ് അതിൽ നിൻമൊഴിയായ്..| കെ ജെ യേശുദാസ് | Janaki |Original Audio Remastered movie songs](https://www.youtube.com/watch?v=mmDZvxVzQYQ)
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 3rd October 2023](https://www.youtube.com/watch?v=jKJlhbXs0T4)
 - [ORU PENKIDAVU KODI MARIVECHA | PRAJAPATHI |REMASTERED VIDEO SONG |SALEEM KUMAR |EVERGREEN  SONGS](https://www.youtube.com/watch?v=9zXSaF60MQE)
-- [എൺപതുകളിൽ എല്ലാ മലയാളികളും കേട്ടാസ്വദിച്ച കേൾക്കാൻ ഏറെ സുഖമുള്ള മെലഡി ഗാനങ്ങൾ | Melody Hits of 80](https://www.youtube.com/watch?v=bVSzOHSfAGs)
-- [Chendeloru Vandunde | Red Chillies | Rita | Sayanora Philip | Renjini Jose | Resmi Vijayan](https://www.youtube.com/watch?v=d__TiKueags)
-- [അമലമനോഹാരിയാം മരിയെ സ്വസ്തി കൃപയുടെ #ammayne punyam 2023 Christian album song #japamala  Sangeeth](https://www.youtube.com/watch?v=jDbVDGMH16k)
-- [Swayamvara Chandrike Video Song | Mammootty | Rambha| Mukesh| Bhavana| P Jayachandran| Sujatha Mohan](https://www.youtube.com/watch?v=22ri6EkIneQ)
-- [നന്മ നിറഞ്ഞവളെ കന്യാമറിയമേ ...](https://www.youtube.com/watch?v=yLEq8LWWmR0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
