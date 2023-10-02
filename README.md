@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Enthenthu Chodanda | Tribal Song | Anjana Teacher | Abhijith | Viral Folk Songs](https://www.youtube.com/watch?v=WrhU13pGzEI)
-- [Azhchappattu | Shorts #Shorts #malayalamfilmsongs #manoramafilmsongs](https://www.youtube.com/watch?v=wQWDqLT6zZs)
-- [Yeshuvinte Munpil Njan | Kristheeya Bhakthigaanangal |  Christian Devotional Songs |Audio jukebox](https://www.youtube.com/watch?v=_tO-Djm0VrU)
-- [കാറ്റ്മൂളും ഗാനംപോലെ കാതോരം  മന്ത്രിക്കുന്ന മനോഹരങ്ങളായ സിനിമ ഗാനങ്ങൾ|Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=28MXEgO3zUI)
-- [Enikkoru Nilaavinte | Bhakthajanangalude Shradhakku | Kavya Madhavan | Irshad | KS Chithra](https://www.youtube.com/watch?v=BWz3zq0Obmc)
-- [Ente Pranayathin | Chembada | Beautiful Romantic Duet #shorts](https://www.youtube.com/watch?v=mRKyx81vQ-k)
+- [ജീവിതത്തെ ഏറെ സുന്ദരമാക്കുന്നത് ക്ഷമിക്കാൻ കഴിയുന്നവർക്കാണ് | Rev. Aneesh P Joseph |#shorts](https://www.youtube.com/watch?v=Ny0eIM5JA00)
+- [Thamara Poomizhi | Achante Bharya | S. Janaki | Thaarattupatu | Old Malayalam Songs](https://www.youtube.com/watch?v=mPyC-0NkPak)
+- [Mele Vinnile | Kaathil Oru Kinnaram | Swarnalatha | SP Venkitesh | Gireesh Puthenchery](https://www.youtube.com/watch?v=p39F16tIygE)
+- [Sarada | Meghatheertham | P Unnikrishnan | Priya Himesh | Sharreth | Gireesh Puthenchery](https://www.youtube.com/watch?v=F6HLg4J_NjQ)
+- [VandanamYesupara |Christian Traditional Songs| Kester |Old Is Gold |Praise And Worship Songs](https://www.youtube.com/watch?v=TO5mtaAEOTU)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 2nd of October 2023](https://www.youtube.com/watch?v=SFuizATRpUU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
