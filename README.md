@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Enthenthu Chodanda | Tribal Song | Anjana Teacher | Abhijith | Viral Folk Songs](https://www.youtube.com/watch?v=WrhU13pGzEI)
+- [Azhchappattu | Shorts #Shorts #malayalamfilmsongs #manoramafilmsongs](https://www.youtube.com/watch?v=wQWDqLT6zZs)
 - [Yeshuvinte Munpil Njan | Kristheeya Bhakthigaanangal |  Christian Devotional Songs |Audio jukebox](https://www.youtube.com/watch?v=_tO-Djm0VrU)
 - [കാറ്റ്മൂളും ഗാനംപോലെ കാതോരം  മന്ത്രിക്കുന്ന മനോഹരങ്ങളായ സിനിമ ഗാനങ്ങൾ|Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=28MXEgO3zUI)
 - [Enikkoru Nilaavinte | Bhakthajanangalude Shradhakku | Kavya Madhavan | Irshad | KS Chithra](https://www.youtube.com/watch?v=BWz3zq0Obmc)
 - [Ente Pranayathin | Chembada | Beautiful Romantic Duet #shorts](https://www.youtube.com/watch?v=mRKyx81vQ-k)
-- [Ente Veena Kambiyellam | Malayalam Classic Movie | Mooladhanam | Ft. Sathyan | Ambika | Yesudas](https://www.youtube.com/watch?v=sCeq5qEdU7Y)
-- [Njan Periya Nindhakalellam... #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=BqLc3u4SrBw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
