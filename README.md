@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Continental S01E02 AMZN WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR] | 1080p - 8.4 GB | 4.4 GB](https://www.1tamilmv.prof/index.php?/forums/topic/175553-the-continental-s01e02-amzn-web-dl-ddp51-atmos-esubs-2160p-hdr-1080p-84-gb-44-gb/&do=findComment&comment=354062)
+- [Kushi &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175566-kushi-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354061)
 - [BIGG BOSS Tamil &lpar;2023&rpar; S07 EP01 - DAY 00 - TRUE WEB-DL - [1080p, 720p, 480p - AVC - UNTOUCHED - 4.3GB - 2GB &amp; 1GB] [01-10-2023]](https://www.1tamilmv.prof/index.php?/forums/topic/175578-bigg-boss-tamil-2023-s07-ep01-day-00-true-web-dl-1080p-720p-480p-avc-untouched-43gb-2gb-1gb-01-10-2023/&do=findComment&comment=354060)
 - [Mahabharatham &lpar;EP 1-257&rpar; ALL Episodes 1080p - FHD - MAX QUALITY - Dual Audio [Tamil &lpar;256Kbps&rpar;+ Hindi] [FULL SCREEN] Gdrive](https://www.1tamilmv.prof/index.php?/forums/topic/160694-mahabharatham-ep-1-257-all-episodes-1080p-fhd-max-quality-dual-audio-tamil-256kbps-hindi-full-screen-gdrive/&do=findComment&comment=354059)
 - [Mahabharatham &lpar;EP 1-257&rpar; ALL Episodes 1080p - FHD - MAX QUALITY - Dual Audio [Tamil &lpar;256Kbps&rpar;+ Hindi] [FULL SCREEN] Gdrive](https://www.1tamilmv.prof/index.php?/forums/topic/160694-mahabharatham-ep-1-257-all-episodes-1080p-fhd-max-quality-dual-audio-tamil-256kbps-hindi-full-screen-gdrive/&do=findComment&comment=354058)
-- [[TAMIL] JUJUTSU KAISEN S01 COMPLETE 1080p CR WEB-DL Tamil AAC2.0 x264 - Single Episodes - 32.4 GB](https://www.1tamilmv.prof/index.php?/forums/topic/175367-tamil-jujutsu-kaisen-s01-complete-1080p-cr-web-dl-tamil-aac20-x264-single-episodes-%C2%A0324-gb/&do=findComment&comment=354057)
-- [Bal Ganesh &lpar;2007&rpar; - AHA WEB-DL - [1080p - 720p &amp; 576p - x264 - &lpar;Telugu - AAC 2.0&rpar; - 1.8GB - 950MB &amp; 550MB - ESub [Google Drive]](https://www.1tamilmv.prof/index.php?/forums/topic/175374-bal-ganesh-2007-aha-web-dl-1080p-720p-576p-x264-telugu-aac-20-18gb-950mb-550mb-esub-google-drive/&do=findComment&comment=354056)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
