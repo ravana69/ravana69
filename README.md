@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manja Palunkan | Thumbolarcha | Vayalar | G Devarajan | P Susheela | Sheela | Old is Gold](https://www.youtube.com/watch?v=blFepvYYT8Q)
 - [അമ്മാനം ചെമ്മാനം | Ammanam Chemmanam  | Mayaponman Malayalam Movie Song | Dileep | Biju Narayanan](https://www.youtube.com/watch?v=4LaRirXT9N8)
 - [ഹൃദയം തരളിതമാക്കാൻ പോന്ന മികവുറ്റ മലയാളസിനിമയിലെ ആരും കൊതിക്കും മെലഡി ഗാനങ്ങൾ ! NISARI SONGS](https://www.youtube.com/watch?v=NmDsAc1g_Jc)
 - [Kannam Thumbi Poramo | Kakkothikkavile Appooppan Thaadikal | Kaveri | Baby Manthra | Chithra Hits](https://www.youtube.com/watch?v=YTlNnjiUep4)
 - [Ee Alatharayil | Gagul Joseph | Fr. Joseph Antony Palliparambil | Fr. Tijo Thomas | Christian Songs](https://www.youtube.com/watch?v=YChmvknSmrI)
 - [Manassil Oru Poomala | Innathe Chinthavishayam | Shorts  #malayalamfilmsongs #manoramafilmsongs](https://www.youtube.com/watch?v=1azE9YsnSQk)
-- [Azhake Nin Video Song | Amaram | Mammootty | Maathu | Ashokan | KJ Yesudas | KS Chithra | Raveendran](https://www.youtube.com/watch?v=-xHw8M7Uvjs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
