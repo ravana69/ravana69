@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Maina Penne | IG | Franco | Rasmi Vijayan | M Jayachandran | Gireesh Puthenchery](https://www.youtube.com/watch?v=CE1cpi1ssEw)
 - [ദൈവം നിന്നോടൊപ്പമുണ്ട് | Rev. Aneesh P Joseph |#shorts #jesusshorts #motivational](https://www.youtube.com/watch?v=DfuEK6bL0fY)
 - [മഞ്ഞിൻ യവനിക | Manjin Yavanika | Mayooranirtham Malayalam Movie Song | K J Yesudas | Everegreen Hits](https://www.youtube.com/watch?v=Dx4rbytWdv0)
 - [Kannil poovu  Video Song  | Vishukkani | Vani Jairam | Vidhubala |](https://www.youtube.com/watch?v=ezkt0QIxzMY)
 - [Kera Nirakaladum | Jalolsavam #shorts](https://www.youtube.com/watch?v=1RHI9pyZSXE)
 - [Unnam Maranna | 2 Harihar Nagar | Vineeth Sreenivasan | Ramesh Babu | Alex Paul | Bichu Thirumala](https://www.youtube.com/watch?v=6di9jkh3Fns)
-- [Aayirangal Veenalum |  | Praise and Worship Songs | Christian Melody Songs Malayalam](https://www.youtube.com/watch?v=ydPhEvECQxU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
