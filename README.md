@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Nun 2 &lpar;2023&rpar; English TRUE WEB-DL - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 19GB - 9.5GB - 2.7GB - 1.2GB &amp; 400MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175594-the-nun-2-2023-english-true-web-dl-4k-1080p-720p-x264-dd51-atmos-768kbps-19gb-95gb-27gb-12gb-400mb-esub/&do=findComment&comment=354109)
+- [Villain 2010 Telugu Disney+ Hotstar WEB DL HD x264 AVC [1080p - 2.2GB &amp; 720p - 1.1GB] [Google Drive]](https://www.1tamilmv.prof/index.php?/forums/topic/125965-villain-2010-telugu-disney-hotstar-web-dl-hd-x264-avc-1080p-22gb-720p-11gb-google-drive/&do=findComment&comment=354108)
 - [Mouna Ragam &lpar;1986&rpar; Tamil 1080p HDTVRip 10bit HEVC x265 AAC2.0 1.6GB](https://www.1tamilmv.prof/index.php?/forums/topic/140938-mouna-ragam-1986-tamil-1080p-hdtvrip-10bit-hevc-x265-aac20-16gb/&do=findComment&comment=354107)
 - [The Equalizer 3 &lpar;2023&rpar; English TRUE WEB-DL - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - 9.5GB - 2.7GB - 1.2GB &amp; 400MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175595-the-equalizer-3-2023-english-true-web-dl-4k-1080p-720p-x264-dd51-640kbps-95gb-27gb-12gb-400mb-esub/&do=findComment&comment=354106)
 - [The Nun 2 &lpar;2023&rpar; English TRUE WEB-DL - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 19GB - 9.5GB - 2.7GB - 1.2GB &amp; 400MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175594-the-nun-2-2023-english-true-web-dl-4k-1080p-720p-x264-dd51-atmos-768kbps-19gb-95gb-27gb-12gb-400mb-esub/&do=findComment&comment=354105)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Sandeep Clarifies His Position - 480p - AVC - UNTOUCHED - AAC - 77MB](https://www.1tamilmv.prof/index.php?/forums/topic/175593-bigg-boss-telugu-s07-unseen-sandeep-clarifies-his-position-480p-avc-untouched-aac-77mb/&do=findComment&comment=354104)
-- [50 Tamil Movies - AMZN/SUN NXT/SS/JC WEB DL - H264 - ESub - [1080p - 450GB] [Gdrive]](https://www.1tamilmv.prof/index.php?/forums/topic/143253-50-tamil-movies-amznsun-nxtssjc-web-dl-h264-esub-1080p-450gb-gdrive/&do=findComment&comment=354103)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
