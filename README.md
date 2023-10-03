@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [അമ്മാനം ചെമ്മാനം | Ammanam Chemmanam  | Mayaponman Malayalam Movie Song | Dileep | Biju Narayanan](https://www.youtube.com/watch?v=4LaRirXT9N8)
+- [ഹൃദയം തരളിതമാക്കാൻ പോന്ന മികവുറ്റ മലയാളസിനിമയിലെ ആരും കൊതിക്കും മെലഡി ഗാനങ്ങൾ ! NISARI SONGS](https://www.youtube.com/watch?v=NmDsAc1g_Jc)
+- [Kannam Thumbi Poramo | Kakkothikkavile Appooppan Thaadikal | Kaveri | Baby Manthra | Chithra Hits](https://www.youtube.com/watch?v=YTlNnjiUep4)
 - [Manassil Oru Poomala | Innathe Chinthavishayam | Shorts  #malayalamfilmsongs #manoramafilmsongs](https://www.youtube.com/watch?v=1azE9YsnSQk)
 - [Azhake Nin Video Song | Amaram | Mammootty | Maathu | Ashokan | KJ Yesudas | KS Chithra | Raveendran](https://www.youtube.com/watch?v=-xHw8M7Uvjs)
 - [Veshangal Janmangal | Vesham | Mammootty | KJ Yesudas | S A Rajkumar | Indrajith | V M Vinu](https://www.youtube.com/watch?v=W359ou7I4yA)
-- [Panchavarnnakkili | Oru Naal Innorunaal 1985 |M.G.Radhakrishnan | M.G.Sreekumar | MalayalamMovieSong](https://www.youtube.com/watch?v=y61cScNov0I)
-- [മഞ്ഞക്കിളിയേ കുഞ്ഞിക്കുരുന്നേ | Laalanam | Manjakiliye Malayalam Song | Jagathy Sreekumar, Sukumari](https://www.youtube.com/watch?v=iUDNKCvGGgI)
-- [Kilippenne Nilavin | Dhosth | Dileep | Kavya Madhavan | Yesudas | Vidyasagar](https://www.youtube.com/watch?v=m5F43peqDQg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
