@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP02 DAY 01 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 541MB &amp; 215MB | 02-10-2023]](https://www.1tamilmv.prof/index.php?/forums/topic/175583-bigg-boss-tamil-s07-ep02-day-01-true-web-dl-1080p-720p-480p-avc-untouched-1gb-541mb-215mb-02-10-2023/&do=findComment&comment=354096)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP02 DAY 01 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 541MB &amp; 215MB | 02-10-2023]](https://www.1tamilmv.prof/index.php?/forums/topic/175583-bigg-boss-tamil-s07-ep02-day-01-true-web-dl-1080p-720p-480p-avc-untouched-1gb-541mb-215mb-02-10-2023/&do=findComment&comment=354095)
-- [Dhoomam &lpar;2023&rpar; Malayalam HQ HDTV - [1080p &amp; 720p - AVC - AAC - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.prof/index.php?/forums/topic/175584-dhoomam-2023-malayalam-hq-hdtv-1080p-720p-avc-aac-28gb-14gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=354094)
-- [Harkara &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 10GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175567-harkara-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-10gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354093)
-- [Kushi &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175566-kushi-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354092)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Sandeep Clarifies His Position - 480p - AVC - UNTOUCHED - AAC - 77MB](https://www.1tamilmv.prof/index.php?/forums/topic/175593-bigg-boss-telugu-s07-unseen-sandeep-clarifies-his-position-480p-avc-untouched-aac-77mb/&do=findComment&comment=354104)
+- [50 Tamil Movies - AMZN/SUN NXT/SS/JC WEB DL - H264 - ESub - [1080p - 450GB] [Gdrive]](https://www.1tamilmv.prof/index.php?/forums/topic/143253-50-tamil-movies-amznsun-nxtssjc-web-dl-h264-esub-1080p-450gb-gdrive/&do=findComment&comment=354103)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 Exit Rathika&#39;s Interview - 480p - AVC - UNTOUCHED - AAC - 146MB](https://www.1tamilmv.prof/index.php?/forums/topic/175592-bigg-boss-telugu-s07-exit-rathikas-interview-480p-avc-untouched-aac-146mb/&do=findComment&comment=354102)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 Exit Damini&#39;s Interview - 480p - AVC - UNTOUCHED - AAC - 114MB](https://www.1tamilmv.prof/index.php?/forums/topic/175591-bigg-boss-telugu-s07-exit-daminis-interview-480p-avc-untouched-aac-114mb/&do=findComment&comment=354101)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 Exit Shakeela&#39;s Interview - 480p - AVC - UNTOUCHED - AAC - 122MB](https://www.1tamilmv.prof/index.php?/forums/topic/175590-bigg-boss-telugu-s07-exit-shakeelas-interview-480p-avc-untouched-aac-122mb/&do=findComment&comment=354100)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
