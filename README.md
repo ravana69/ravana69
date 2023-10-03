@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [7/G Brundhavana Colony &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175581-7g-brundhavana-colony-2004-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=354113)
+- [The Equalizer 3 &lpar;2023&rpar; English TRUE WEB-DL - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - 9.5GB - 2.7GB - 1.2GB &amp; 400MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175595-the-equalizer-3-2023-english-true-web-dl-4k-1080p-720p-x264-dd51-640kbps-95gb-27gb-12gb-400mb-esub/&do=findComment&comment=354112)
+- [The Nun 2 &lpar;2023&rpar; English TRUE WEB-DL - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 19GB - 9.5GB - 2.7GB - 1.2GB &amp; 400MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175594-the-nun-2-2023-english-true-web-dl-4k-1080p-720p-x264-dd51-atmos-768kbps-19gb-95gb-27gb-12gb-400mb-esub/&do=findComment&comment=354111)
+- [Dhoomam &lpar;2023&rpar; Malayalam HQ HDTV - [1080p &amp; 720p - AVC - AAC - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.prof/index.php?/forums/topic/175584-dhoomam-2023-malayalam-hq-hdtv-1080p-720p-avc-aac-28gb-14gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=354110)
 - [The Nun 2 &lpar;2023&rpar; English TRUE WEB-DL - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 19GB - 9.5GB - 2.7GB - 1.2GB &amp; 400MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175594-the-nun-2-2023-english-true-web-dl-4k-1080p-720p-x264-dd51-atmos-768kbps-19gb-95gb-27gb-12gb-400mb-esub/&do=findComment&comment=354109)
-- [Villain 2010 Telugu Disney+ Hotstar WEB DL HD x264 AVC [1080p - 2.2GB &amp; 720p - 1.1GB] [Google Drive]](https://www.1tamilmv.prof/index.php?/forums/topic/125965-villain-2010-telugu-disney-hotstar-web-dl-hd-x264-avc-1080p-22gb-720p-11gb-google-drive/&do=findComment&comment=354108)
-- [Mouna Ragam &lpar;1986&rpar; Tamil 1080p HDTVRip 10bit HEVC x265 AAC2.0 1.6GB](https://www.1tamilmv.prof/index.php?/forums/topic/140938-mouna-ragam-1986-tamil-1080p-hdtvrip-10bit-hevc-x265-aac20-16gb/&do=findComment&comment=354107)
-- [The Equalizer 3 &lpar;2023&rpar; English TRUE WEB-DL - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - 9.5GB - 2.7GB - 1.2GB &amp; 400MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175595-the-equalizer-3-2023-english-true-web-dl-4k-1080p-720p-x264-dd51-640kbps-95gb-27gb-12gb-400mb-esub/&do=findComment&comment=354106)
-- [The Nun 2 &lpar;2023&rpar; English TRUE WEB-DL - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 19GB - 9.5GB - 2.7GB - 1.2GB &amp; 400MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175594-the-nun-2-2023-english-true-web-dl-4k-1080p-720p-x264-dd51-atmos-768kbps-19gb-95gb-27gb-12gb-400mb-esub/&do=findComment&comment=354105)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
