@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കൊന്തമണികൾ കയ്യിലുരുളുമ്പോൾ എന്തൊരു ആത്മമോദമെന്നെനിൽ ...](https://www.youtube.com/watch?v=COmmPUyuD04)
 - [Tharam Valkannadi Video Song | Keli | Jayaram | Charmila | KS Chithra | Bharathan | Kaithapram](https://www.youtube.com/watch?v=obDpwR7e59A)
 - [Amruthamaayi | Snehaveedu | Shorts #Shorts #malayalamfilmsongs #manoramafilmsongs](https://www.youtube.com/watch?v=01ED0HjKItQ)
 - [Maina Penne | IG | Franco | Rasmi Vijayan | M Jayachandran | Gireesh Puthenchery](https://www.youtube.com/watch?v=CE1cpi1ssEw)
 - [ദൈവം നിന്നോടൊപ്പമുണ്ട് | Rev. Aneesh P Joseph |#shorts #jesusshorts #motivational](https://www.youtube.com/watch?v=DfuEK6bL0fY)
 - [മഞ്ഞിൻ യവനിക | Manjin Yavanika | Mayooranirtham Malayalam Movie Song | K J Yesudas | Everegreen Hits](https://www.youtube.com/watch?v=Dx4rbytWdv0)
-- [Kannil poovu  Video Song  | Vishukkani | Vani Jairam | Vidhubala |](https://www.youtube.com/watch?v=ezkt0QIxzMY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
