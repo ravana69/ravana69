@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Krooshithane udhithane # Christian Devotional Song # Audio Song # Kristheeya Bhakthigaanam](https://www.youtube.com/watch?v=izWCFYRllcU)
-- [Kanyaka Meri Amme Kaaval Malaghamare  # Audiosong # Christian Devotional Song](https://www.youtube.com/watch?v=BtCMnHOUhN4)
-- [Chembakappoom Kattile | Shorts #Shorts #malayalamfilmsongs #manoramafilmsongs](https://www.youtube.com/watch?v=Zw_9MS4uvVE)
-- [Manja Palunkan | Thumbolarcha | Vayalar | G Devarajan | P Susheela | Sheela | Old is Gold](https://www.youtube.com/watch?v=blFepvYYT8Q)
-- [അമ്മാനം ചെമ്മാനം | Ammanam Chemmanam  | Mayaponman Malayalam Movie Song | Dileep | Biju Narayanan](https://www.youtube.com/watch?v=4LaRirXT9N8)
-- [ഹൃദയം തരളിതമാക്കാൻ പോന്ന മികവുറ്റ മലയാളസിനിമയിലെ ആരും കൊതിക്കും മെലഡി ഗാനങ്ങൾ ! NISARI SONGS](https://www.youtube.com/watch?v=NmDsAc1g_Jc)
+- [ദൈവം നിന്നോടൊപ്പമുണ്ട് | Rev. Aneesh P Joseph |#shorts #jesusshorts #motivational](https://www.youtube.com/watch?v=DfuEK6bL0fY)
+- [മഞ്ഞിൻ യവനിക | Manjin Yavanika | Mayooranirtham Malayalam Movie Song | K J Yesudas | Everegreen Hits](https://www.youtube.com/watch?v=Dx4rbytWdv0)
+- [Kannil poovu  Video Song  | Vishukkani | Vani Jairam | Vidhubala |](https://www.youtube.com/watch?v=ezkt0QIxzMY)
+- [Kera Nirakaladum | Jalolsavam #shorts](https://www.youtube.com/watch?v=1RHI9pyZSXE)
+- [Unnam Maranna | 2 Harihar Nagar | Vineeth Sreenivasan | Ramesh Babu | Alex Paul | Bichu Thirumala](https://www.youtube.com/watch?v=6di9jkh3Fns)
+- [Aayirangal Veenalum |  | Praise and Worship Songs | Christian Melody Songs Malayalam](https://www.youtube.com/watch?v=ydPhEvECQxU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
