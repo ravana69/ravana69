@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മഞ്ഞക്കിളിയേ കുഞ്ഞിക്കുരുന്നേ | Laalanam | Manjakiliye Malayalam Song | Jagathy Sreekumar, Sukumari](https://www.youtube.com/watch?v=iUDNKCvGGgI)
+- [Kilippenne Nilavin | Dhosth | Dileep | Kavya Madhavan | Yesudas | Vidyasagar](https://www.youtube.com/watch?v=m5F43peqDQg)
+- [Alakadal | PS1 Malayalam | AR Rahman | Karthi, Aishwarya Lekshmi | Shweta Mohan](https://www.youtube.com/watch?v=7Yyrp6_oPLg)
 - [Badnahi | Kalimannu | Shorts #Shorts #malayalamfilmsongs #manoramafilmsongs](https://www.youtube.com/watch?v=vYsQURLfsns)
 - [പ്രിയ ഗായകൻ ബിജു നാരായണൻ ആലപിച്ച  മികച്ച ക്രിസ്തീയ ഗാനങ്ങൾ |Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=jsXI5yyPwF0)
 - [എനിക്കെന്‍റെ ആശ്രയം | RSV | Franco](https://www.youtube.com/watch?v=8EUHd_ElyOw)
-- [Japamala Masam Short October  | Holy Rosary Special Short](https://www.youtube.com/watch?v=Mmc40mymL8k)
-- [ദുഃഖത്തിന്റെ രഹസ്യങ്ങൾ# ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#october 3rd #japamala  new 2023#jojo](https://www.youtube.com/watch?v=FT97ZwPJzzA)
-- [Japamala 3rd of October 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 3rd of October 23](https://www.youtube.com/watch?v=SORPlkryYVI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
