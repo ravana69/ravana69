@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP02 DAY 01 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 541MB &amp; 215MB | 02-10-2023]](https://www.1tamilmv.prof/index.php?/forums/topic/175583-bigg-boss-tamil-s07-ep02-day-01-true-web-dl-1080p-720p-480p-avc-untouched-1gb-541mb-215mb-02-10-2023/&do=findComment&comment=354095)
+- [Dhoomam &lpar;2023&rpar; Malayalam HQ HDTV - [1080p &amp; 720p - AVC - AAC - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.prof/index.php?/forums/topic/175584-dhoomam-2023-malayalam-hq-hdtv-1080p-720p-avc-aac-28gb-14gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=354094)
 - [Harkara &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 10GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175567-harkara-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-10gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354093)
 - [Kushi &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175566-kushi-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354092)
 - [BIGG BOSS Tamil &lpar;2023&rpar; S07 EP01 - DAY 00 - TRUE WEB-DL - [1080p, 720p, 480p - AVC - UNTOUCHED - 4.3GB - 2GB &amp; 1GB] [01-10-2023]](https://www.1tamilmv.prof/index.php?/forums/topic/175578-bigg-boss-tamil-2023-s07-ep01-day-00-true-web-dl-1080p-720p-480p-avc-untouched-43gb-2gb-1gb-01-10-2023/&do=findComment&comment=354091)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP02 DAY 01 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 541MB &amp; 215MB | 02-10-2023]](https://www.1tamilmv.prof/index.php?/forums/topic/175583-bigg-boss-tamil-s07-ep02-day-01-true-web-dl-1080p-720p-480p-avc-untouched-1gb-541mb-215mb-02-10-2023/&do=findComment&comment=354090)
-- [Looper &lpar;2012&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.2GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/67655-looper-2012-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-32gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=354089)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
