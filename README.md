@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP32 DAY 31 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 985MB - 480MB &amp; 208MB | 04-10-2023]](https://www.1tamilmv.prof/index.php?/forums/topic/175610-bigg-boss-telugu-s07-ep32-day-31-hdtv-1080p-720p-480p-avc-untouched-985mb-480mb-208mb-04-10-2023/&do=findComment&comment=354164)
+- [RAJA &lpar;1999&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB](https://www.1tamilmv.prof/index.php?/forums/topic/175608-raja-1999-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-7gb/&do=findComment&comment=354163)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP32 DAY 31 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 985MB - 480MB &amp; 208MB | 04-10-2023]](https://www.1tamilmv.prof/index.php?/forums/topic/175610-bigg-boss-telugu-s07-ep32-day-31-hdtv-1080p-720p-480p-avc-untouched-985mb-480mb-208mb-04-10-2023/&do=findComment&comment=354162)
 - [The Equalizer 3 &lpar;2023&rpar; MA WEB-DL DDP5.1 Esubs - 2160p [HDR10-DoVi] | 1080p - 18.9 GB | 6.4 GB](https://www.1tamilmv.prof/index.php?/forums/topic/175603-the-equalizer-3-2023-ma-web-dl-ddp51-esubs-2160p-hdr10-dovi-1080p-189-gb-64-gb/&do=findComment&comment=354160)
 - [The Dark Knight Rises &lpar;2012&rpar; IMAX - BluRay - 4K , 1080p &amp; 720p - HEVC / AVC - [Tamil + Telugu + Hindi + English&lpar;DTS-HDMA 5.1&lpar;4037kbps&rpar;] - DD5.1&lpar;224kbps&rpar; - 12.3GB - 8.3GB - 3.5GB &amp; 2GB - ESub [GDrive]](https://www.1tamilmv.prof/index.php?/forums/topic/175606-the-dark-knight-rises-2012-imax-bluray-4k-1080p-720p-hevc-avc-tamil-telugu-hindi-englishdts-hdma-514037kbps-dd51224kbps-123gb-83gb-35gb-2gb-esub-gdrive/&do=findComment&comment=354159)
-- [Adiyae &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 3.2GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175514-adiyae-2023-tamil-true-web-dl-1080p-720p-avc-hevc-32gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354158)
-- [Missing Girl &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 5.1 - 256Kbps&rpar; - 2.3GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.prof/index.php?/forums/topic/175607-missing-girl-2023-malayalam-true-web-dl-1080p-720p-avc-aac-51-256kbps-23gb-12gb-x264-700mb-400mb/&do=findComment&comment=354157)
-- [RAJA &lpar;1999&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB](https://www.1tamilmv.prof/index.php?/forums/topic/175608-raja-1999-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-7gb/&do=findComment&comment=354156)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
