@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Njan |enthllu | Kalvarikrooshinmel #manoramachristiandevotionalsongs #shorts](https://www.youtube.com/watch?v=ykI_hzakTG4)
 - [Shorts | Pachatheeyanu Nee](https://www.youtube.com/watch?v=sF58YYbxTJ4)
 - [ലോകം ഏറ്റെടുത്ത ഏറ്റവും പുതിയ ജപമാല  കേട്ടവർ കേട്ടവർ വീണ്ടും വീണ്ടും കാതോർക്കുന്നു #kester song](https://www.youtube.com/watch?v=dGo1qpmLtcs)
 - [ലോകം ഏറ്റെടുത്ത ഏറ്റവും പുതിയ ജപമാല . കേട്ടവർ കേട്ടവർ വീണ്ടും വീണ്ടും കാതോർക്കുന്നു #new japamala](https://www.youtube.com/watch?v=rvz-_pLRl1s)
 - [Snehathinte Alakadalil | Christian Video Song | Atheeth Bhaskar | Ginisha P Manue l Joji Johns](https://www.youtube.com/watch?v=6wAnlHyx26g)
 - [Japamala 4th of October 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 4th of October 23](https://www.youtube.com/watch?v=HyMZqbna3ew)
-- [Japamala Masam Short October  | Holy Rosary Special Short](https://www.youtube.com/watch?v=8Q1kSm3UEPE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
