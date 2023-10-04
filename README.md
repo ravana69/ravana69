@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chiri Chiriyo | Chronic Bachelor | Deepak Dev | KJ Yesudas | Mammootty | Mukesh | Bhavana](https://www.youtube.com/watch?v=vpXMgErJmOM)
+- [Peelippoove Naanam - Lyrical Video | Anappaara Achamma | MG Sreekumar, Sujatha Mohan](https://www.youtube.com/watch?v=9mAhLO547wo)
+- [Kalapakkaara (Malayalam Lyric Video [From "King of Kotha"])](https://www.youtube.com/watch?v=AGmxFFC64I8)
+- [അരീരോ മയങ്ങു നീ പൂവേ | Aareero Mayangu Ne Poove | Mayaponman Malayalam Movie Song | Dileep](https://www.youtube.com/watch?v=Qy1MSEyO3ts)
 - [Idayan | Sarvadukhangalum Akattunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=B67ejPuHSaA)
 - [ചിങ്ങവും കന്നിയും ചിത്തിരമഴയുംചോതിയും ചൊവ്വയും പോയൊരു വനിയിൽ #mammootty #malayalamsongs  #moviemusic](https://www.youtube.com/watch?v=kn44H_KKkd0)
-- [Manohari | Shorts #viral #shorts](https://www.youtube.com/watch?v=FjglEcA08Qo)
-- [Muthaaram Muthunde Video Song | Mr butler | Dileep | Vidyasagar | Gireesh Puthenchery | MG Sreekumar](https://www.youtube.com/watch?v=lad68y1yY2Y)
-- [കേട്ടുകൊണ്ടിരിക്കെ കൂടുതൽ ഇഷ്ടം തോന്നുന്ന മലയാളസിനിമയിലെ പത്തരമാറ്റുള്ള സിനിമാഗാനങ്ങൾ | NISARI](https://www.youtube.com/watch?v=vKzfu27ahdc)
-- [Oru Penkidaavu | Prajapathi | Jassie Gift | Thej Mervin | Gireesh Puthenchery | Salim Kumar](https://www.youtube.com/watch?v=W3LV_h0U6fU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
