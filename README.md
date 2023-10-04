@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Playful #ShunakaYuvarajan | #Neymar | #Shorts | #saregamamalayalam | #ytshorts](https://www.youtube.com/watch?v=a0GO-HR2t4M)
+- [Droplets of steps for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=ZlwQ2hgHYns)
+- [Double moves for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=_m3ny56VpLI)
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 5th October 2023](https://www.youtube.com/watch?v=aBYKdw6NWKY)
+- [ഉത്തമൻ | മലയാളചലച്ചിത്രഗാനങ്ങൾ | കെ ജെ യേശുദാസ് | കെ എസ് ചിത്ര |](https://www.youtube.com/watch?v=hWAMP0SWBlI)
 - [നല്ലിളം തൂവലാൽ ഈ നടവഴിയിൽനാർമിടി കമ്പളം നീര്‍ത്തിയ നിങ്ങള്‍ #mammootty #evergeeenmalayalamhits](https://www.youtube.com/watch?v=sLaqX43FxTc)
-- [അമ്മയേക്കാളേറെ സ്നേഹിച്ചിടും ദിവ്യനാഥന്റെ അമ്മയാം സ്നേഹനാഥേ ...](https://www.youtube.com/watch?v=txfPSFaIQUY)
-- [Shorts | Manjumazhakkattil #shorts #viralshorts #malayalamfilmsongs #shortvideo](https://www.youtube.com/watch?v=2qJ1sV95EX4)
-- [നാം വീഴുമ്പോൾ അവിടുന്ന് നമ്മെ തന്റെ കരങ്ങളിൽ താങ്ങും |  Rev. Aneesh P Joseph |#shorts #jesusshorts](https://www.youtube.com/watch?v=VfA4MR17MIk)
-- [Nishi Raat Banka Chand - Video | Little Miss Rawther | Gouri Kishan | Vishnu Dev | Govind Vasantha](https://www.youtube.com/watch?v=CGS36ogkOI0)
-- [Ponmuraliyuthum Kattil|Aryan|Monisha|Ramya Krishnan|Mohanlal|](https://www.youtube.com/watch?v=qXndHQs8xVQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
