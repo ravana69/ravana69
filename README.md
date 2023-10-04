@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [30 Tamil Movies - ASTRO/AMZN/SS/SUN NXT WEB DL - H264/H265 - DD5.1/DDP5.1/AAC2.0 - ESub - [4K, 1080p &amp; 720p - 275GB] [GDRIVE]](https://www.1tamilmv.prof/index.php?/forums/topic/169176-30-tamil-movies-astroamznsssun-nxt-web-dl-h264h265-dd51ddp51aac20-esub-4k-1080p-720p-275gb-gdrive/&do=findComment&comment=354155)
 - [Missing Girl &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 5.1 - 256Kbps&rpar; - 2.3GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.prof/index.php?/forums/topic/175607-missing-girl-2023-malayalam-true-web-dl-1080p-720p-avc-aac-51-256kbps-23gb-12gb-x264-700mb-400mb/&do=findComment&comment=354154)
 - [Missing Girl &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 5.1 - 256Kbps&rpar; - 2.3GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.prof/index.php?/forums/topic/175607-missing-girl-2023-malayalam-true-web-dl-1080p-720p-avc-aac-51-256kbps-23gb-12gb-x264-700mb-400mb/&do=findComment&comment=354153)
 - [Missing Girl &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 5.1 - 256Kbps&rpar; - 2.3GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.prof/index.php?/forums/topic/175607-missing-girl-2023-malayalam-true-web-dl-1080p-720p-avc-aac-51-256kbps-23gb-12gb-x264-700mb-400mb/&do=findComment&comment=354152)
 - [The Dark Knight Rises &lpar;2012&rpar; IMAX - BluRay - 4K , 1080p &amp; 720p - HEVC / AVC - [Tamil + Telugu + Hindi + English&lpar;DTS-HDMA 5.1&lpar;4037kbps&rpar;] - DD5.1&lpar;224kbps&rpar; - 12.3GB - 8.3GB - 3.5GB &amp; 2GB - ESub [GDrive]](https://www.1tamilmv.prof/index.php?/forums/topic/175606-the-dark-knight-rises-2012-imax-bluray-4k-1080p-720p-hevc-avc-tamil-telugu-hindi-englishdts-hdma-514037kbps-dd51224kbps-123gb-83gb-35gb-2gb-esub-gdrive/&do=findComment&comment=354151)
-- [The Equalizer 3 &lpar;2023&rpar; English TRUE WEB-DL - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - 9.5GB - 2.7GB - 1.2GB &amp; 400MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175595-the-equalizer-3-2023-english-true-web-dl-4k-1080p-720p-x264-dd51-640kbps-95gb-27gb-12gb-400mb-esub/&do=findComment&comment=354150)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
