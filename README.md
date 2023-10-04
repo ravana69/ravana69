@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ചന്ദനകാറ്റേ കുളിര്‍ കൊണ്ടുവാ | Bheeshmacharya |ChandanaKate Malayalam Song | Manoj K.Jayan | Chithra](https://www.youtube.com/watch?v=iXOaqdpdcaA)
 - [Iniyumundoru Janmam Remastering Audio Ghazal Movie Song  KJ Yesudas KS Chithra Yusufali Kecheri](https://www.youtube.com/watch?v=5Xh9ASiQ_u0)
+- [Ee Vazhiyil | Pallimani Video Song | Vineeth Sreenivasan | KR Narayanan | Sreejith Ravi | Film Songs](https://www.youtube.com/watch?v=SVZVlA0NIOo)
 - [Enunde | Mukalparappu | Lyrical Video | Siby Padiyara | JP Thavarool | Pramod Sarang | Manikandan](https://www.youtube.com/watch?v=F-9hETBLjJ8)
 - [Oru Pennithaa - Audio Song | Kushi (Malayalam) | Vijay Deverakonda,Samantha| Hesham Abdul Wahab](https://www.youtube.com/watch?v=6qSfBx3s-I0)
 - [Ariyaathe Ariyaathe | Oru Kadha Oru Nunakkadha 1986 | Johnson | K. S. Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=740S49Q0fuw)
-- [വി. ഫ്രാൻസിസ് അസീസിയുടെ തിരുനാൾ ആശംസകൾ | Fr. Shaji Thumpechirayil | #shortvideo #shorts](https://www.youtube.com/watch?v=SJSDqF4PbDM)
-- [Aalilathaaliyumayi | Mizhi Randilum | Indrajith | Kavya Madhavan | Jayachandran | Raveendran](https://www.youtube.com/watch?v=NVYNrrlJXO8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
