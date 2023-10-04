@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Missing Girl &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.3GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.prof/index.php?/forums/topic/175607-missing-girl-2023-malayalam-true-web-dl-1080p-720p-avc-aac-23gb-12gb-x264-700mb-400mb/&do=findComment&comment=354152)
+- [The Dark Knight Rises &lpar;2012&rpar; IMAX - BluRay - 4K , 1080p &amp; 720p - HEVC / AVC - [Tamil + Telugu + Hindi + English&lpar;DTS-HDMA 5.1&lpar;4037kbps&rpar;] - DD5.1&lpar;224kbps&rpar; - 12.3GB - 8.3GB - 3.5GB &amp; 2GB - ESub [GDrive]](https://www.1tamilmv.prof/index.php?/forums/topic/175606-the-dark-knight-rises-2012-imax-bluray-4k-1080p-720p-hevc-avc-tamil-telugu-hindi-englishdts-hdma-514037kbps-dd51224kbps-123gb-83gb-35gb-2gb-esub-gdrive/&do=findComment&comment=354151)
+- [The Equalizer 3 &lpar;2023&rpar; English TRUE WEB-DL - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - 9.5GB - 2.7GB - 1.2GB &amp; 400MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175595-the-equalizer-3-2023-english-true-web-dl-4k-1080p-720p-x264-dd51-640kbps-95gb-27gb-12gb-400mb-esub/&do=findComment&comment=354150)
 - [The Swan &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 850MB &amp; 300MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175559-the-swan-2023-hd-original-audios-1080p-720p-avc-dd51-640kbps-tamil-telugu-hindi-eng-850mb-300mb-esub/&do=findComment&comment=354149)
 - [The Rat Catcher &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 850MB &amp; 300MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175557-the-rat-catcher-2023-hd-original-audios-1080p-720p-avc-dd51-640kbps-tamil-telugu-hindi-eng-850mb-300mb-esub/&do=findComment&comment=354148)
-- [Poison &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 750MB &amp; 300MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175558-poison-2023-hd-original-audios-1080p-720p-avc-dd51-640kbps-tamil-telugu-hindi-eng-750mb-300mb-esub/&do=findComment&comment=354147)
-- [After Everything &lpar;2023&rpar; AMZN WEB-DL DDP5.1 Esubs - 2160p | 1080p - 10.2 GB | 4.8 GB](https://www.1tamilmv.prof/index.php?/forums/topic/175605-after-everything-2023-amzn-web-dl-ddp51-esubs-2160p-1080p-102-gb-48-gb/&do=findComment&comment=354146)
-- [The Nun II &lpar;2023&rpar; MA WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p - 19.4 GB | 6.6 GB](https://www.1tamilmv.prof/index.php?/forums/topic/175604-the-nun-ii-2023-ma-web-dl-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-194-gb-66-gb/&do=findComment&comment=354145)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
