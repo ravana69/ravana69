@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Iniyumundoru Janmam Remastering Audio Ghazal Movie Song  KJ Yesudas KS Chithra Yusufali Kecheri](https://www.youtube.com/watch?v=5Xh9ASiQ_u0)
+- [Enunde | Mukalparappu | Lyrical Video | Siby Padiyara | JP Thavarool | Pramod Sarang | Manikandan](https://www.youtube.com/watch?v=F-9hETBLjJ8)
+- [Oru Pennithaa - Audio Song | Kushi (Malayalam) | Vijay Deverakonda,Samantha| Hesham Abdul Wahab](https://www.youtube.com/watch?v=6qSfBx3s-I0)
+- [Ariyaathe Ariyaathe | Oru Kadha Oru Nunakkadha 1986 | Johnson | K. S. Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=740S49Q0fuw)
 - [വി. ഫ്രാൻസിസ് അസീസിയുടെ തിരുനാൾ ആശംസകൾ | Fr. Shaji Thumpechirayil | #shortvideo #shorts](https://www.youtube.com/watch?v=SJSDqF4PbDM)
 - [Aalilathaaliyumayi | Mizhi Randilum | Indrajith | Kavya Madhavan | Jayachandran | Raveendran](https://www.youtube.com/watch?v=NVYNrrlJXO8)
-- [Njan |enthllu | Kalvarikrooshinmel #manoramachristiandevotionalsongs #shorts](https://www.youtube.com/watch?v=ykI_hzakTG4)
-- [Shorts | Pachatheeyanu Nee](https://www.youtube.com/watch?v=sF58YYbxTJ4)
-- [ലോകം ഏറ്റെടുത്ത ഏറ്റവും പുതിയ ജപമാല  കേട്ടവർ കേട്ടവർ വീണ്ടും വീണ്ടും കാതോർക്കുന്നു #kester song](https://www.youtube.com/watch?v=dGo1qpmLtcs)
-- [ലോകം ഏറ്റെടുത്ത ഏറ്റവും പുതിയ ജപമാല . കേട്ടവർ കേട്ടവർ വീണ്ടും വീണ്ടും കാതോർക്കുന്നു #new japamala](https://www.youtube.com/watch?v=rvz-_pLRl1s)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
