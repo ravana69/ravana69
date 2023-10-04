@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Miss Shetty Mr Polishetty &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 7.8GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175612-miss-shetty-mr-polishetty-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-78gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354168)
 - [Miss Shetty Mr Polishetty &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 7.8GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175612-miss-shetty-mr-polishetty-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-78gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354166)
 - [Miss Shetty Mr Polishetty &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175611-miss-shetty-mr-polishetty-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354165)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP32 DAY 31 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 985MB - 480MB &amp; 208MB | 04-10-2023]](https://www.1tamilmv.prof/index.php?/forums/topic/175610-bigg-boss-telugu-s07-ep32-day-31-hdtv-1080p-720p-480p-avc-untouched-985mb-480mb-208mb-04-10-2023/&do=findComment&comment=354164)
 - [RAJA &lpar;1999&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB](https://www.1tamilmv.prof/index.php?/forums/topic/175608-raja-1999-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-7gb/&do=findComment&comment=354163)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 EP32 DAY 31 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 985MB - 480MB &amp; 208MB | 04-10-2023]](https://www.1tamilmv.prof/index.php?/forums/topic/175610-bigg-boss-telugu-s07-ep32-day-31-hdtv-1080p-720p-480p-avc-untouched-985mb-480mb-208mb-04-10-2023/&do=findComment&comment=354162)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
