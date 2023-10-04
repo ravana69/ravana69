@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Idayan | Sarvadukhangalum Akattunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=B67ejPuHSaA)
+- [ചിങ്ങവും കന്നിയും ചിത്തിരമഴയുംചോതിയും ചൊവ്വയും പോയൊരു വനിയിൽ #mammootty #malayalamsongs  #moviemusic](https://www.youtube.com/watch?v=kn44H_KKkd0)
 - [Manohari | Shorts #viral #shorts](https://www.youtube.com/watch?v=FjglEcA08Qo)
 - [Muthaaram Muthunde Video Song | Mr butler | Dileep | Vidyasagar | Gireesh Puthenchery | MG Sreekumar](https://www.youtube.com/watch?v=lad68y1yY2Y)
 - [കേട്ടുകൊണ്ടിരിക്കെ കൂടുതൽ ഇഷ്ടം തോന്നുന്ന മലയാളസിനിമയിലെ പത്തരമാറ്റുള്ള സിനിമാഗാനങ്ങൾ | NISARI](https://www.youtube.com/watch?v=vKzfu27ahdc)
 - [Oru Penkidaavu | Prajapathi | Jassie Gift | Thej Mervin | Gireesh Puthenchery | Salim Kumar](https://www.youtube.com/watch?v=W3LV_h0U6fU)
-- [ചന്ദനകാറ്റേ കുളിര്‍ കൊണ്ടുവാ | Bheeshmacharya |ChandanaKate Malayalam Song | Manoj K.Jayan | Chithra](https://www.youtube.com/watch?v=iXOaqdpdcaA)
-- [Iniyumundoru Janmam Remastering Audio Ghazal Movie Song  KJ Yesudas KS Chithra Yusufali Kecheri](https://www.youtube.com/watch?v=5Xh9ASiQ_u0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
