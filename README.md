@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [അമ്മയേക്കാളേറെ സ്നേഹിച്ചിടും ദിവ്യനാഥന്റെ അമ്മയാം സ്നേഹനാഥേ ...](https://www.youtube.com/watch?v=txfPSFaIQUY)
+- [Shorts | Manjumazhakkattil #shorts #viralshorts #malayalamfilmsongs #shortvideo](https://www.youtube.com/watch?v=2qJ1sV95EX4)
 - [നാം വീഴുമ്പോൾ അവിടുന്ന് നമ്മെ തന്റെ കരങ്ങളിൽ താങ്ങും |  Rev. Aneesh P Joseph |#shorts #jesusshorts](https://www.youtube.com/watch?v=VfA4MR17MIk)
 - [Nishi Raat Banka Chand - Video | Little Miss Rawther | Gouri Kishan | Vishnu Dev | Govind Vasantha](https://www.youtube.com/watch?v=CGS36ogkOI0)
 - [Ponmuraliyuthum Kattil|Aryan|Monisha|Ramya Krishnan|Mohanlal|](https://www.youtube.com/watch?v=qXndHQs8xVQ)
 - [Thozhukai Koopi Video Song | Boeing Boeing | KJ Yesudas | Mohanlal | Lissy](https://www.youtube.com/watch?v=cYM26GbImRg)
-- [Gopeehridayam nirayunnu Video Song | Kankettu | KJ Yesudas | Sujatha Mohan](https://www.youtube.com/watch?v=G9kWzhRWWrY)
-- [Thaimavin Thanalil | Super Hit Malayalam Movie Song | Oru Yathramozhi | Mohanlal | Ranjitha](https://www.youtube.com/watch?v=3Ch04s0uRBY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
