@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [After Everything &lpar;2023&rpar; AMZN WEB-DL DDP5.1 Esubs - 2160p | 1080p - 10.2 GB | 4.8 GB](https://www.1tamilmv.prof/index.php?/forums/topic/175605-after-everything-2023-amzn-web-dl-ddp51-esubs-2160p-1080p-102-gb-48-gb/&do=findComment&comment=354146)
+- [The Nun II &lpar;2023&rpar; MA WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p - 19.4 GB | 6.6 GB](https://www.1tamilmv.prof/index.php?/forums/topic/175604-the-nun-ii-2023-ma-web-dl-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-194-gb-66-gb/&do=findComment&comment=354145)
+- [The Equalizer 3 &lpar;2023&rpar; MA WEB-DL DDP5.1 Esubs - 2160p [HDR10-DoVi] | 1080p - 18.9 GB | 6.4 GB](https://www.1tamilmv.prof/index.php?/forums/topic/175603-the-equalizer-3-2023-ma-web-dl-ddp51-esubs-2160p-hdr10-dovi-1080p-189-gb-64-gb/&do=findComment&comment=354144)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Who Will Pair Up with Teja - 480p - AVC - UNTOUCHED - AAC - 75MB](https://www.1tamilmv.prof/index.php?/forums/topic/175602-bigg-boss-telugu-s07-unseen-who-will-pair-up-with-teja-480p-avc-untouched-aac-75mb/&do=findComment&comment=354143)
 - [Mouna Ragam &lpar;1986&rpar; Tamil 1080p HDTVRip 10bit HEVC x265 AAC2.0 1.6GB](https://www.1tamilmv.prof/index.php?/forums/topic/140938-mouna-ragam-1986-tamil-1080p-hdtvrip-10bit-hevc-x265-aac20-16gb/&do=findComment&comment=354142)
-- [Dhoomam &lpar;2023&rpar; Hindi TRUE HQ HDTV - [1080p &amp; 720p - AVC - AAC - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.prof/index.php?/forums/topic/175586-dhoomam-2023-hindi-true-hq-hdtv-1080p-720p-avc-aac-28gb-14gb-x264-700mb-400mb/&do=findComment&comment=354141)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 EP31 DAY 30 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 547MB &amp; 227MB | 03-10-2023]](https://www.1tamilmv.prof/index.php?/forums/topic/175600-bigg-boss-telugu-s07-ep31-day-30-hdtv-1080p-720p-480p-avc-untouched-11gb-547mb-227mb-03-10-2023/&do=findComment&comment=354140)
-- [Van Helsing &lpar;2004&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/174627-van-helsing-2004-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-24gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=354139)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
