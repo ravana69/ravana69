@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Chiri Chiriyo | Chronic Bachelor | Deepak Dev | KJ Yesudas | Mammootty | Mukesh | Bhavana](https://www.youtube.com/watch?v=vpXMgErJmOM)
-- [Peelippoove Naanam - Lyrical Video | Anappaara Achamma | MG Sreekumar, Sujatha Mohan](https://www.youtube.com/watch?v=9mAhLO547wo)
-- [Kalapakkaara (Malayalam Lyric Video [From "King of Kotha"])](https://www.youtube.com/watch?v=AGmxFFC64I8)
-- [അരീരോ മയങ്ങു നീ പൂവേ | Aareero Mayangu Ne Poove | Mayaponman Malayalam Movie Song | Dileep](https://www.youtube.com/watch?v=Qy1MSEyO3ts)
-- [Idayan | Sarvadukhangalum Akattunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=B67ejPuHSaA)
-- [ചിങ്ങവും കന്നിയും ചിത്തിരമഴയുംചോതിയും ചൊവ്വയും പോയൊരു വനിയിൽ #mammootty #malayalamsongs  #moviemusic](https://www.youtube.com/watch?v=kn44H_KKkd0)
+- [നാം വീഴുമ്പോൾ അവിടുന്ന് നമ്മെ തന്റെ കരങ്ങളിൽ താങ്ങും |  Rev. Aneesh P Joseph |#shorts #jesusshorts](https://www.youtube.com/watch?v=VfA4MR17MIk)
+- [Nishi Raat Banka Chand - Video | Little Miss Rawther | Gouri Kishan | Vishnu Dev | Govind Vasantha](https://www.youtube.com/watch?v=CGS36ogkOI0)
+- [Ponmuraliyuthum Kattil|Aryan|Monisha|Ramya Krishnan|Mohanlal|](https://www.youtube.com/watch?v=qXndHQs8xVQ)
+- [Thozhukai Koopi Video Song | Boeing Boeing | KJ Yesudas | Mohanlal | Lissy](https://www.youtube.com/watch?v=cYM26GbImRg)
+- [Gopeehridayam nirayunnu Video Song | Kankettu | KJ Yesudas | Sujatha Mohan](https://www.youtube.com/watch?v=G9kWzhRWWrY)
+- [Thaimavin Thanalil | Super Hit Malayalam Movie Song | Oru Yathramozhi | Mohanlal | Ranjitha](https://www.youtube.com/watch?v=3Ch04s0uRBY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
