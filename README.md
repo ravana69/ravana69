@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Effortless moves for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=XfORhl67QNM)
+- [Group steps for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=lB0gbPetcIw)
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 6th October 2023](https://www.youtube.com/watch?v=et-HyYC-uBU)
+- [Malayalam Christian Devotional Songs | Non Stop Christian Songs | Popular Malayalam Christian Songs](https://www.youtube.com/watch?v=fh2P_wBO9j0)
 - [Kettille Kettile Ente | Pokkiriraja | Mammooty | Prithviraj | Shriya | Jassie Gift | Kaithapram](https://www.youtube.com/watch?v=Z5LNy1kwVho)
 - [സ്വർഗപിതാവിൻ സ്നേഹം നിറയും സ്വർഗീയ സുനമേ കന്യാംബേ ...](https://www.youtube.com/watch?v=CUUGAOjzcUA)
-- [Nannangadikal Njangal | Kakkothikavile Appoopanthadikal | Bichu thirumala | Ouseppachan | KS Chithra](https://www.youtube.com/watch?v=oywsrJUaVsc)
-- [Christian Melody Songs | P Jayachandran | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=frXWo0VOU0I)
-- [Punarum Puthumanam | Calendar | Cicily | Afzal Yusuf | Anil Panachooran](https://www.youtube.com/watch?v=bCSAoJMlAOk)
-- [ദൈവം നിനക്കായി ഒരുക്കിയ അനുഗ്രഹത്തിന്റെ വാതിലാണ് നീ നിൽക്കുന്നതെന്ന് മറക്കരുത് |Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=A7guxpMSQtE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
