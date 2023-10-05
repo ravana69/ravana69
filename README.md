@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Shorts | Kalakkatha #shorts #viralshorts #malayalamfilmsongs #shortvideo](https://www.youtube.com/watch?v=_kcNv7_dzSU)
-- [AGR - Nuvu Simhame Video | Silambarasan TR | A. R Rahman](https://www.youtube.com/watch?v=QB122_vIAl8)
-- [AGR - Raa Mari Video | Silambarasan TR | A. R Rahman](https://www.youtube.com/watch?v=Arj5F5fzr8g)
-- [LGM (Telugu) - Sai Raa Samarame Video | Harish Kalyan, Ivana](https://www.youtube.com/watch?v=hbu4niRVrEk)
-- [AGR - Rekkegaraga Video | Silambarasan TR | A. R Rahman](https://www.youtube.com/watch?v=pFE0KmtLH78)
-- [October 5](https://www.youtube.com/watch?v=qcSyosLs9XE)
+- [ദൈവം നിനക്കായി ഒരുക്കിയ അനുഗ്രഹത്തിന്റെ വാതിലാണ് നീ നിൽക്കുന്നതെന്ന് മറക്കരുത് |Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=A7guxpMSQtE)
+- [Vattathil Vattaaram Video Song | S Janaki | Marmaram | MS Viswanathan](https://www.youtube.com/watch?v=y12E9AfHJMg)
+- [Kandu Kandu | Mambazhakkalam | Sujatha Mohan | Gireesh Puthenchery #shorts](https://www.youtube.com/watch?v=AFML0RXQjMA)
+- [Eesho Varunnu | Kristheeya Bhakthigaanangal | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=fKUlbjs4eQE)
+- [Mazhayaal Menanja Koodukal | Meghatheertham | KS Chithra | Sharreth | Gireesh Puthenchery](https://www.youtube.com/watch?v=GoErXPH1IBg)
+- [Cheru Cheru Njaaru | Pullipulikalum Attinkuttiyum  | Kunchacko Boban, Namitha Pramod | Vidyasagar](https://www.youtube.com/watch?v=2KEQnGk-rY8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
