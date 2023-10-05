@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Great Indian Suicide &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps &amp; AAC 2.0&rpar; - 2GB &amp; 1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175629-the-great-indian-suicide-2023-telugu-true-web-dl-4k-1080p-720p-avc-dd51-384kbps-aac-20-2gb-1gb-x264-700mb-400mb-esub/&do=findComment&comment=354228)
 - [Miss Shetty Mr Polishetty &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175611-miss-shetty-mr-polishetty-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354227)
+- [Mr. Pregnant &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps &amp; AAC 2.0&rpar; - 3.5GB - 2.7GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175628-mr-pregnant-2023-telugu-true-web-dl-4k-1080p-720p-avc-dd51-384kbps-aac-20-35gb-27gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=354226)
 - [Khufiya &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Hindi] - 10GB - 2.9GB &amp; 1.6GB] - [x264 - 800MB &amp; 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175615-khufiya-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-hindi-10gb-29gb-16gb-x264-800mb-450mb-esub/&do=findComment&comment=354225)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP05 DAY 04 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 553MB &amp; 224MB | 05-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175622-bigg-boss-tamil-s07-ep05-day-04-true-web-dl-1080p-720p-480p-avc-untouched-1gb-553mb-224mb-05-10-2023/&do=findComment&comment=354224)
-- [[4KHDR10+DV] Jailer &lpar;2023&rpar; SNXT WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10Plus|DoVi] - 21.5 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175383-4khdr10dv-jailer-2023-snxt-web-dl-ddp51-atmos-esubs-2160p-hdr10plusdovi-215-gb/&do=findComment&comment=354223)
-- [Mumbai Diaries &lpar;2023&rpar; S02 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 6.3GB - 2.4GB &amp; 1B] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175624-mumbai-diaries-2023-s02-ep-01-08-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-63gb-24gb-1b-esub/&do=findComment&comment=354222)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
