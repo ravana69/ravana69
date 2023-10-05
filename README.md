@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Hits of Raveendran Master | Malayalam Selected Film Songs | Yesudas | Chithra | Sound Of Arts](https://www.youtube.com/watch?v=HrsCb4ckClc)
 - [Shorts | Vellaram Kannulla #shorts #viralshorts #malayalamfilmsongs #shortvideo](https://www.youtube.com/watch?v=rBv9Kc_QZ80)
 - [പരിശുദ്ധ ദൈവമാതാവിൻറെ  ലുത്തിനിയ # ലോകം ഇരുകൈയോടും സ്വീകരിച്ച ഏറ്റവും പുതിയ ജപമാല #japamala prayer](https://www.youtube.com/watch?v=G1tbU4zyHCM)
 - [Japamala 5th of October 23 # Mathavinte Japamala Prakashathinte Rahasyangal 5th of October 23](https://www.youtube.com/watch?v=SaR5jRHa4pI)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=eufZxSZJ6As)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=8eU36oh_UNk)
-- [പ്രഭാത പ്രാര്‍ത്ഥന  October 5 # Athiravile Prarthana 5th of October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=NNvyYFfXKnU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
