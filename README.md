@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന October 6 # Athiravile Prarthana 6th October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=M-HDDkXu6yg)
+- [ജപമാല ഗീതങ്ങള്‍ # Holy Rosary Special Songs Malayalam |  Month of Holy Rosary October 2023 Songs](https://www.youtube.com/watch?v=VwJuiys9gKo)
 - [Effortless moves for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=XfORhl67QNM)
 - [Group steps for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=lB0gbPetcIw)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 6th October 2023](https://www.youtube.com/watch?v=et-HyYC-uBU)
 - [Malayalam Christian Devotional Songs | Non Stop Christian Songs | Popular Malayalam Christian Songs](https://www.youtube.com/watch?v=fh2P_wBO9j0)
-- [Kettille Kettile Ente | Pokkiriraja | Mammooty | Prithviraj | Shriya | Jassie Gift | Kaithapram](https://www.youtube.com/watch?v=Z5LNy1kwVho)
-- [സ്വർഗപിതാവിൻ സ്നേഹം നിറയും സ്വർഗീയ സുനമേ കന്യാംബേ ...](https://www.youtube.com/watch?v=CUUGAOjzcUA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
