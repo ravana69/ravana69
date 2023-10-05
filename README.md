@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Ponnumkudathinu | Akashathile Paravakal 2001 |S.Balakrishnan| Yesudas, S.Janaki  |MalayalamMovieSong](https://www.youtube.com/watch?v=V6FUDiNc3yg)
-- [Vagdatham Cheythavan | Elizabeth Raju | Mohan Kanjiramannil #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=WPp5A5SivI4)
-- [പള്ളിമുക്കിലെ കള്ളുഷാപ്പിലെ | Pallimukkilu | Ikkarey Anente Manasam Movie Song | Kalabhavan Mani](https://www.youtube.com/watch?v=z5uWvwm64jg)
-- [Jai Ho Team India | Motivation Song Team India #shorts #shortsfeed #shankarmahadevan #djsaviofficial](https://www.youtube.com/watch?v=auUolVsXneQ)
-- [Pulare Poonkodiyil Remastering Audio Song Amaram Movie Song Kaithapram Raveendran KJ Yesudas Lathika](https://www.youtube.com/watch?v=biWs4Hlzpos)
-- [Panchavarna Kulire | Sooryaputhran | Jayaram | Divya Unni | Yesudas | Ouseppachan](https://www.youtube.com/watch?v=1-xcpK7MyIk)
+- [AGR - Nuvu Simhame Video | Silambarasan TR | A. R Rahman](https://www.youtube.com/watch?v=QB122_vIAl8)
+- [AGR - Raa Mari Video | Silambarasan TR | A. R Rahman](https://www.youtube.com/watch?v=Arj5F5fzr8g)
+- [LGM (Telugu) - Sai Raa Samarame Video | Harish Kalyan, Ivana](https://www.youtube.com/watch?v=hbu4niRVrEk)
+- [AGR - Rekkegaraga Video | Silambarasan TR | A. R Rahman](https://www.youtube.com/watch?v=pFE0KmtLH78)
+- [October 5](https://www.youtube.com/watch?v=qcSyosLs9XE)
+- [" ഓർമ്മകൾക്കെന്ത് സുഗന്ധം " NOSTALGIC SONGS MALAYALAM | EVERGREEN SONGS MALAYALAM | NISARI MUSIC](https://www.youtube.com/watch?v=pTw5Q_Ssp48)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
