@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP33 DAY 32 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 969MB - 473MB &amp; 205MB | 05-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175623-bigg-boss-telugu-s07-ep33-day-32-hdtv-1080p-720p-480p-avc-untouched-969mb-473mb-205mb-05-10-2023/&do=findComment&comment=354215)
+- [Baang &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175620-baang-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-26gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=354214)
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP05 DAY 04 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 553MB &amp; 224MB | 05-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175622-bigg-boss-tamil-s07-ep05-day-04-true-web-dl-1080p-720p-480p-avc-untouched-1gb-553mb-224mb-05-10-2023/&do=findComment&comment=354213)
+- [Baang &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175620-baang-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-26gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=354212)
 - [Baang &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175620-baang-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-26gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=354211)
-- [LEO - Official Trailer | Thalapathy Vijay | Lokesh Kanagaraj | Anirudh Ravichander](https://www.1tamilmv.phd/index.php?/forums/topic/175619-leo-official-trailer-thalapathy-vijay-lokesh-kanagaraj-anirudh-ravichander/&do=findComment&comment=354210)
-- [LEO - Official Trailer | Thalapathy Vijay | Lokesh Kanagaraj | Anirudh Ravichander](https://www.1tamilmv.phd/index.php?/forums/topic/175619-leo-official-trailer-thalapathy-vijay-lokesh-kanagaraj-anirudh-ravichander/&do=findComment&comment=354209)
-- [Khufiya &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Hindi] - 10GB - 2.9GB &amp; 1.6GB] - [x264 - 800MB &amp; 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175615-khufiya-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-hindi-10gb-29gb-16gb-x264-800mb-450mb-esub/&do=findComment&comment=354208)
-- [Lupin &lpar;2023&rpar; S03 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Eng] - 3.9GB - 1.6GB &amp; 900MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175617-lupin-2023-s03-ep-01-07-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-eng-39gb-16gb-900mb-esub/&do=findComment&comment=354207)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
