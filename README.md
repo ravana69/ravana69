@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Miss Shetty Mr Polishetty &lpar;2023&rpar; 1080p NF WEB-DL Multi DDP5.1 Esubs x264 - 7.8 GB](https://www.1tamilmv.prof/index.php?/forums/topic/175614-miss-shetty-mr-polishetty-2023-1080p-nf-web-dl-multi-ddp51-esubs-x264-78-gb/&do=findComment&comment=354171)
 - [The Equalizer 3 &lpar;2023&rpar; MA WEB-DL DDP5.1 Esubs - 2160p [HDR10-DoVi] | 1080p - 18.9 GB | 6.4 GB](https://www.1tamilmv.prof/index.php?/forums/topic/175603-the-equalizer-3-2023-ma-web-dl-ddp51-esubs-2160p-hdr10-dovi-1080p-189-gb-64-gb/&do=findComment&comment=354170)
 - [RAJA &lpar;1999&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB](https://www.1tamilmv.prof/index.php?/forums/topic/175608-raja-1999-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-7gb/&do=findComment&comment=354169)
 - [Miss Shetty Mr Polishetty &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 7.8GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175612-miss-shetty-mr-polishetty-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-78gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354168)
 - [Miss Shetty Mr Polishetty &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 7.8GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175612-miss-shetty-mr-polishetty-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-78gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354166)
-- [Miss Shetty Mr Polishetty &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.prof/index.php?/forums/topic/175611-miss-shetty-mr-polishetty-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354165)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
