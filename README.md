@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Partner &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 10GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175627-partner-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-10gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354287)
 - [Lupin &lpar;2023&rpar; Complete S03 EP &lpar;01-07&rpar; Merged TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Eng] - 3.9GB - 1.6GB &amp; 900MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175657-lupin-2023-complete-s03-ep-01-07-merged-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-eng-39gb-16gb-900mb-esub/&do=findComment&comment=354286)
 - [Mumbai Diaries &lpar;2023&rpar; Complete S02 EP &lpar;01-08&rpar; Merged TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 6.3GB - 2.4GB &amp; 1GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175656-mumbai-diaries-2023-complete-s02-ep-01-08-merged-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-63gb-24gb-1gb-esub/&do=findComment&comment=354285)
 - [[FIRST ON NET🔥] Dilse &lpar;2023&rpar; S01 EP09 ETV-WIN WEB-DL- [1080p - 720p &amp; 480p AVC - Telugu - &lpar;AAC 2.0 - 192Kbps&rpar; - 550MB - 250MB - 150MB] - x264 [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/175655-first-on-net%F0%9F%94%A5-dilse-2023-s01-ep09-etv-win-web-dl-1080p-720p-480p-avc-telugu-aac-20-192kbps-550mb-250mb-150mb-x264-google-drive/&do=findComment&comment=354284)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP34 DAY 33 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 969MB - 473MB &amp; 205MB | 06-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175654-bigg-boss-telugu-s07-ep34-day-33-hdtv-1080p-720p-480p-avc-untouched-969mb-473mb-205mb-06-10-2023/&do=findComment&comment=354283)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 EP34 DAY 33 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 969MB - 473MB &amp; 205MB | 06-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175654-bigg-boss-telugu-s07-ep34-day-33-hdtv-1080p-720p-480p-avc-untouched-969mb-473mb-205mb-06-10-2023/&do=findComment&comment=354282)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
