@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Partner &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175627-partner-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354252)
+- [Partner &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175627-partner-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354251)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Five Golden Words from Sandeep - 480p - AVC - UNTOUCHED - AAC - 76MB](https://www.1tamilmv.phd/index.php?/forums/topic/175646-bigg-boss-telugu-s07-unseen-five-golden-words-from-sandeep-480p-avc-untouched-aac-76mb/&do=findComment&comment=354250)
 - [LOKI &lpar;2023&rpar; S02 EP01 TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - &lpar;Tamil + Telugu + Hindi + English&rpar; - 4.6GB - 1.2GB - 650MB &amp; 300MB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175632-loki-2023-s02-ep01-true-web-dl-4k-1080p-720p-hevc-avc-tamil-telugu-hindi-english-46gb-12gb-650mb-300mb-esub/&do=findComment&comment=354249)
 - [Loki S02E01 DSNP WEB-DL Multi DDP5.1 Atmos Esubs - 2160p [HDR] | 1080p - 5.22 GB | 1.8 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175645-loki-s02e01-dsnp-web-dl-multi-ddp51-atmos-esubs-2160p-hdr-1080p-522-gb-18-gb/&do=findComment&comment=354248)
-- [Partner &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175627-partner-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354247)
-- [LOKI &lpar;2023&rpar; S02 EP01 TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - &lpar;Tamil + Telugu + Hindi + English&rpar; - 4.6GB - 1.2GB - 650MB &amp; 300MB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175632-loki-2023-s02-ep01-true-web-dl-4k-1080p-720p-hevc-avc-tamil-telugu-hindi-english-46gb-12gb-650mb-300mb-esub/&do=findComment&comment=354246)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
