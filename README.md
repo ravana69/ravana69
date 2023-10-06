@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ദുഃഖത്തിൻറെ  രഹസ്യങ്ങൾ #sangeetha #japamala dhukkam #6th october 23 #maadhavinte japamala sangeetha](https://www.youtube.com/watch?v=t6MWOqpP8Go)
+- [Songs of The Week | Biju Mookkannor | Anumol | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=JcRUmfpRQIk)
+- [Japamala 6th of October 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 6th of October 23](https://www.youtube.com/watch?v=qm2THMsF42s)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=BvYuQc-xvVs)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=m8N6I6h-JsM)
 - [October 6](https://www.youtube.com/watch?v=2YW0h0CaRJc)
-- [രാവിലെ പ്രാര്‍ത്ഥന October 6 # Athiravile Prarthana 6th October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=M-HDDkXu6yg)
-- [ജപമാല ഗീതങ്ങള്‍ # Holy Rosary Special Songs Malayalam |  Month of Holy Rosary October 2023 Songs](https://www.youtube.com/watch?v=VwJuiys9gKo)
-- [Effortless moves for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=XfORhl67QNM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
