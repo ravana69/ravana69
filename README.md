@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 7th October 2023](https://www.youtube.com/watch?v=Uqak6Q1cSVE)
+- [കണ്ണെത്താദൂരെ മറുതീരം..| ഭരതൻ ഹിറ്റ്‌സ് | K J Yesudas | KS Chithra | Bharathan Hits](https://www.youtube.com/watch?v=tZu1XpFfM-A)
 - [Paalaazhee Theeram Kandu Njaan Remastered Audio Song Uthaman  Gayathri Asokan Kaithapram Johnson](https://www.youtube.com/watch?v=olHrnISGlu0)
 - [ESCAPE AND ACCIDENT |  Mayaanadhi | Movie scene | Aashiq Abu |](https://www.youtube.com/watch?v=WX62WcUBrOc)
 - [MATHAM AND APPU MEETS  Mayaanadhi | Movie scene | Tovino Thomas | Aishwarya Lakshmi | Aashiq Abu |](https://www.youtube.com/watch?v=HRGmPgnZFuM)
 - [എന്നോട് ഒരു തരി ഇഷ്ടം പോലും തോന്നുന്നില്ലെ. Mayaanadhi | Movie scene |  Aashiq Abu |](https://www.youtube.com/watch?v=vDTcyUY-BpY)
-- [DRIVE WITH AASHAN.  Mayaanadhi | Movie scene | Tovino Thomas | Aishwarya Lakshmi | Aashiq Abu |](https://www.youtube.com/watch?v=JsJmx0IbzzE)
-- [ഒരു ഹീറോയിനായിട്ട് വരണമെന്നാണ് എന്റെ ആഗ്രഹം. Mayaanadhi | Movie scene |  Aashiq Abu |](https://www.youtube.com/watch?v=5HBRYwZVY1w)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
