@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Chinna &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175633-chinna-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=354266)
 - [The Wheel Of Time &lpar;2023&rpar; S02 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Malayalam + Kannada + Eng] - 3.9GB - 1.6GB &amp; 900MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175118-the-wheel-of-time-2023-s02-ep-01-08-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-eng-39gb-16gb-900mb-esub/&do=findComment&comment=354262)
 - [Gen V &lpar;2023&rpar; S01 EP&lpar;01-04&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada + Eng] - 3GB - 1.2GB &amp; 600MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175537-gen-v-2023-s01-ep01-04-true-web-dl-1080p-720p-avc-dd51-192kbps-tamil-telugu-hindi-malayalam-kannada-eng-3gb-12gb-600mb-esub/&do=findComment&comment=354261)
 - [Partner &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 10GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175627-partner-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-10gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354260)
 - [LOKI &lpar;2023&rpar; S02 EP01 TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - &lpar;Tamil + Telugu + Hindi + English&rpar; - 4.6GB - 1.2GB - 650MB &amp; 300MB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175632-loki-2023-s02-ep01-true-web-dl-4k-1080p-720p-hevc-avc-tamil-telugu-hindi-english-46gb-12gb-650mb-300mb-esub/&do=findComment&comment=354259)
-- [LOKI &lpar;2023&rpar; S02 EP01 TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - &lpar;Tamil + Telugu + Hindi + English&rpar; - 4.6GB - 1.2GB - 650MB &amp; 300MB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175632-loki-2023-s02-ep01-true-web-dl-4k-1080p-720p-hevc-avc-tamil-telugu-hindi-english-46gb-12gb-650mb-300mb-esub/&do=findComment&comment=354258)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
