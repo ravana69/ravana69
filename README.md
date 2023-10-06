@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Shorts | Kukkurukukku Kurukkan #shorts #viralshorts #shortvideo](https://www.youtube.com/watch?v=BR4sxCP99eA)
+- [Poovukal Peyyum | Pattabhishekam | K J Yesudas | Berny Ignatius | Bichu Thirumala](https://www.youtube.com/watch?v=3LQMVkIbY38)
 - [നമ്മുടെയൊക്കെ മനസ്സിൽ ചില നൊമ്പരങ്ങളില്ലേ ആരോടും പറയാത്ത ചില സങ്കടങ്ങൾ| Rev. Aneesh P Joseph|#shorts](https://www.youtube.com/watch?v=Z76PmowzzEA)
 - [I Love you Mummy Animation Video | Animation Video Songs | Animation Film Songs](https://www.youtube.com/watch?v=4st3eCb7DNg)
 - [Oru Penkidavu | Prajapathi | Gireesh Puthanchery | Thej Merlin | Jassie Gift](https://www.youtube.com/watch?v=XxCg0d3UaZs)
 - [Thumbikale Onathumbikale Video Song | Pathamudayam  | Mohanlal | Urvashi |](https://www.youtube.com/watch?v=-vmsJ1SiCVE)
-- [Chembarathi Poove Chollu | Shyama | K S Chithra | Raghukumar | Shibhu Chakravarthy](https://www.youtube.com/watch?v=usoxgTmljk4)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 6th of October 2023](https://www.youtube.com/watch?v=rnHtXL8Bbbg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
