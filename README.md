@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP34 DAY 33 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 969MB - 473MB &amp; 205MB | 06-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175654-bigg-boss-telugu-s07-ep34-day-33-hdtv-1080p-720p-480p-avc-untouched-969mb-473mb-205mb-06-10-2023/&do=findComment&comment=354282)
+- [BIGG BOSS Tamil &lpar;2023&rpar; S07 EP06 - DAY 05 - TRUE WEB-DL - [1080p, 720p, 480p - AVC - UNTOUCHED - 950MB - 450MB &amp; 200MB] [06-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175653-bigg-boss-tamil-2023-s07-ep06-day-05-true-web-dl-1080p-720p-480p-avc-untouched-950mb-450mb-200mb-06-10-2023/&do=findComment&comment=354281)
 - [The Road &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175637-the-road-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=354280)
 - [A History Of Violence &lpar;2005&rpar; English - BluRay - 1080p &amp; 720p - AVC / HEVC - DD5.1&lpar;640kbps&rpar; - 6.6GB - 1.8GB &amp; 1.1GB - ESub [GDrive]](https://www.1tamilmv.phd/index.php?/forums/topic/175652-a-history-of-violence-2005-english-bluray-1080p-720p-avc-hevc-dd51640kbps-66gb-18gb-11gb-esub-gdrive/&do=findComment&comment=354279)
 - [Ayalaan &lpar;2023&rpar; Official [Tamil + Telugu] Teaser | Sivakarthikeyan | A.R.Rahman | Rakul Preet Singh | R.Ravikumar](https://www.1tamilmv.phd/index.php?/forums/topic/175651-ayalaan-2023-official-tamil-telugu-teaser-sivakarthikeyan-arrahman-rakul-preet-singh-rravikumar/&do=findComment&comment=354278)
-- [Gen V &lpar;2023&rpar; S01 EP&lpar;01-04&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada + Eng] - 3GB - 1.2GB &amp; 600MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175537-gen-v-2023-s01-ep01-04-true-web-dl-1080p-720p-avc-dd51-192kbps-tamil-telugu-hindi-malayalam-kannada-eng-3gb-12gb-600mb-esub/&do=findComment&comment=354277)
-- [Chinna &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175633-chinna-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=354276)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
