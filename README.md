@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Shorts | Kukkurukukku Kurukkan #shorts #viralshorts #shortvideo](https://www.youtube.com/watch?v=BR4sxCP99eA)
-- [Poovukal Peyyum | Pattabhishekam | K J Yesudas | Berny Ignatius | Bichu Thirumala](https://www.youtube.com/watch?v=3LQMVkIbY38)
-- [നമ്മുടെയൊക്കെ മനസ്സിൽ ചില നൊമ്പരങ്ങളില്ലേ ആരോടും പറയാത്ത ചില സങ്കടങ്ങൾ| Rev. Aneesh P Joseph|#shorts](https://www.youtube.com/watch?v=Z76PmowzzEA)
-- [I Love you Mummy Animation Video | Animation Video Songs | Animation Film Songs](https://www.youtube.com/watch?v=4st3eCb7DNg)
-- [Oru Penkidavu | Prajapathi | Gireesh Puthanchery | Thej Merlin | Jassie Gift](https://www.youtube.com/watch?v=XxCg0d3UaZs)
-- [Thumbikale Onathumbikale Video Song | Pathamudayam  | Mohanlal | Urvashi |](https://www.youtube.com/watch?v=-vmsJ1SiCVE)
+- [ESCAPE AND ACCIDENT |  Mayaanadhi | Movie scene | Aashiq Abu |](https://www.youtube.com/watch?v=WX62WcUBrOc)
+- [MATHAM AND APPU MEETS  Mayaanadhi | Movie scene | Tovino Thomas | Aishwarya Lakshmi | Aashiq Abu |](https://www.youtube.com/watch?v=HRGmPgnZFuM)
+- [എന്നോട് ഒരു തരി ഇഷ്ടം പോലും തോന്നുന്നില്ലെ. Mayaanadhi | Movie scene |  Aashiq Abu |](https://www.youtube.com/watch?v=vDTcyUY-BpY)
+- [DRIVE WITH AASHAN.  Mayaanadhi | Movie scene | Tovino Thomas | Aishwarya Lakshmi | Aashiq Abu |](https://www.youtube.com/watch?v=JsJmx0IbzzE)
+- [ഒരു ഹീറോയിനായിട്ട് വരണമെന്നാണ് എന്റെ ആഗ്രഹം. Mayaanadhi | Movie scene |  Aashiq Abu |](https://www.youtube.com/watch?v=5HBRYwZVY1w)
+- [മലയാള സിനിമ തുലഞ്ഞ്‌പോട്ടെ.  Mayaanadhi | Movie scene |  Aashiq Abu |](https://www.youtube.com/watch?v=glEYLGrBkiA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
