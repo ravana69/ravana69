@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാഗ സുധാരസ Raaga Sudharasa Remastered Sargam Movie Song   K. J. Yesudas Thyagaraja](https://www.youtube.com/watch?v=hESOb87SIFM)
+- [Paranjilla Njan | Mambazhakkalam | Beautiful Song by K J Yesudas  #shorts](https://www.youtube.com/watch?v=YLJE0lK0rn0)
+- [First Friday | മാതാവിനോട് പ്രാർത്ഥിക്കാം ഈ ഗാനത്തിലൂടെ | #shorts #christianshorts #mathavu](https://www.youtube.com/watch?v=__DHtK_DBFA)
 - [Kanakachilankachaarthum | Oru Raagam Pala Thaalam1979 | Vani Jairam | Malayalam Movie Song](https://www.youtube.com/watch?v=pRXLgsJNfdw)
 - [Maarimalar Choriyunna | Maram | Yousafali Kecheri | Madhuri | KPAC Lalitha | Devarajan Master](https://www.youtube.com/watch?v=QlT9XIlqCHg)
 - [Kshanakathu Malayalam Film Songs | Yesudas | Chithra | Sharreth | Sound of Arts | Audio Jukebox](https://www.youtube.com/watch?v=KO9tWl3g1Ao)
-- [Shorts | Johny Mone Johny #shorts #viralshorts #malayalamfilmsongs #shortvideo](https://www.youtube.com/watch?v=SfrRxeIc_Vw)
-- [ദുഃഖത്തിൻറെ  രഹസ്യങ്ങൾ #sangeetha #japamala dhukkam #6th october 23 #maadhavinte japamala sangeetha](https://www.youtube.com/watch?v=t6MWOqpP8Go)
-- [Songs of The Week | Biju Mookkannor | Anumol | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=JcRUmfpRQIk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
