@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [OMG 2 &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175658-omg-2-2023-hindi-true-web-dl-1080p-720p-avc-dd51-640kbps-6gb-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=354321)
+- [Melody Drama &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/175663-melody-drama-2023-kannada-true-web-dl-1080p-720p-avc-25gb-13gb-x264-700mb-400mb/&do=findComment&comment=354320)
+- [Amrutham &lpar;2001&rpar; Complete S01 &lpar;EP01 - EP313&rpar; Merged ZEE5 WEB-DL - [720p &amp; 576p - AVC - Telugu - 7.5GB - 3.5GB] - x265 [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/175664-amrutham-2001-complete-s01-ep01-ep313-merged-zee5-web-dl-720p-576p-avc-telugu-75gb-35gb-x265-google-drive/&do=findComment&comment=354319)
 - [Shikkari Shambhu &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Malayalam] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175631-shikkari-shambhu-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-malayalam-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354318)
 - [BIGG BOSS Tamil &lpar;2023&rpar; S07 EP06 - DAY 05 - TRUE WEB-DL - [1080p, 720p, 480p - AVC - UNTOUCHED - 950MB - 450MB &amp; 200MB] [06-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175653-bigg-boss-tamil-2023-s07-ep06-day-05-true-web-dl-1080p-720p-480p-avc-untouched-950mb-450mb-200mb-06-10-2023/&do=findComment&comment=354317)
-- [Loki S02E01 DSNP WEB-DL Multi DDP5.1 Atmos Esubs - 2160p [HDR] | 1080p - 5.22 GB | 1.8 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175645-loki-s02e01-dsnp-web-dl-multi-ddp51-atmos-esubs-2160p-hdr-1080p-522-gb-18-gb/&do=findComment&comment=354316)
-- [Melody Drama &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175663-melody-drama-2023-kannada-true-web-dl-1080p-720p-avc-25gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=354315)
-- [Mad &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175642-mad-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=354314)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
