@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Melody Drama &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/175663-melody-drama-2023-kannada-true-web-dl-1080p-720p-avc-25gb-13gb-x264-700mb-400mb/&do=findComment&comment=354330)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP07 DAY 06 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.5GB - 777MB &amp; 345MB | 07-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175668-bigg-boss-tamil-s07-ep07-day-06-true-web-dl-1080p-720p-480p-avc-untouched-15gb-777mb-345mb-07-10-2023/&do=findComment&comment=354329)
 - [Gen V &lpar;2023&rpar; S01 EP&lpar;01-04&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada + Eng] - 3GB - 1.2GB &amp; 600MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175537-gen-v-2023-s01-ep01-04-true-web-dl-1080p-720p-avc-dd51-192kbps-tamil-telugu-hindi-malayalam-kannada-eng-3gb-12gb-600mb-esub/&do=findComment&comment=354328)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP35 DAY 34 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.2GB - 595MB &amp; 259MB | 07-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175666-bigg-boss-telugu-s07-ep35-day-34-hdtv-1080p-720p-480p-avc-untouched-12gb-595mb-259mb-07-10-2023/&do=findComment&comment=354326)
 - [25 Tamil Movies - 720p HDRip - AVC/HEVC - AAC - 40GB](https://www.1tamilmv.phd/index.php?/forums/topic/110124-25-tamil-movies-720p-hdrip-avchevc-aac-40gb/&do=findComment&comment=354325)
-- [OMG 2 &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175658-omg-2-2023-hindi-true-web-dl-1080p-720p-avc-dd51-640kbps-6gb-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=354324)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
