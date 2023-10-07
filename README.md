@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP35 DAY 34 HDTV - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.2GB - 595MB &amp; 259MB | 07-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175666-bigg-boss-telugu-s07-ep35-day-34-hdtv-1080p-720p-480p-avc-untouched-12gb-595mb-259mb-07-10-2023/&do=findComment&comment=354326)
+- [25 Tamil Movies - 720p HDRip - AVC/HEVC - AAC - 40GB](https://www.1tamilmv.phd/index.php?/forums/topic/110124-25-tamil-movies-720p-hdrip-avchevc-aac-40gb/&do=findComment&comment=354325)
+- [OMG 2 &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175658-omg-2-2023-hindi-true-web-dl-1080p-720p-avc-dd51-640kbps-6gb-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=354324)
+- [Naan Avanillai &lpar;2007&rpar; Tamil TRUE WEB-DL - 480p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 1.4GB - HC-ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/175665-naan-avanillai-2007-tamil-true-web-dl-480p-avc-untouched-aac20-14gb-hc-esub-gdflix/&do=findComment&comment=354323)
 - [Maama Mascheendra &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175649-maama-mascheendra-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=354322)
-- [OMG 2 &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175658-omg-2-2023-hindi-true-web-dl-1080p-720p-avc-dd51-640kbps-6gb-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=354321)
-- [Melody Drama &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/175663-melody-drama-2023-kannada-true-web-dl-1080p-720p-avc-25gb-13gb-x264-700mb-400mb/&do=findComment&comment=354320)
-- [Amrutham &lpar;2001&rpar; Complete S01 &lpar;EP01 - EP313&rpar; Merged ZEE5 WEB-DL - [720p &amp; 576p - AVC - Telugu - 7.5GB - 3.5GB] - x265 [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/175664-amrutham-2001-complete-s01-ep01-ep313-merged-zee5-web-dl-720p-576p-avc-telugu-75gb-35gb-x265-google-drive/&do=findComment&comment=354319)
-- [Shikkari Shambhu &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Malayalam] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175631-shikkari-shambhu-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-malayalam-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354318)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
