@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manasa nilayil HD Video Song|Dhwani|Shobhana|Jayaram|](https://www.youtube.com/watch?v=WG-dCWfChYM)
 - [Poonthinkale Moovanthiyaai | Gaandhiyan | KJ Yesudas | Gireesh Puthenchery | Nadhirsha](https://www.youtube.com/watch?v=o6sgOlAOuN4)
 - [Shorts | Enundodi #malayalamfilmsongs #shortvideo](https://www.youtube.com/watch?v=kafjOmxluyg)
 - [Marivillin Gopurangal Video Song | HD | Summer in Bethlehem Movie Song | REMASTERED |](https://www.youtube.com/watch?v=YHzl1KMwpR4)
 - [ഒരു വെണ്‍‌പിറാവു | Oru Venpiravu | Newspaper Boy Movie Song | Gireesh Puthenchery| KJYesudas |Mukesh](https://www.youtube.com/watch?v=nFzuxqpC-4g)
 - [ഒരു തൂവൽ നഷ്ടപ്പെട്ടെന്ന്  കരുതി ഒരു പക്ഷിയും പറക്കാതിരുന്നിട്ടില്ല | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=FGHcNQo0xWg)
-- [Ormakal Verodum | Doctor Love | Kunchacko Boban #shorts](https://www.youtube.com/watch?v=oRJOo1fYirw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
