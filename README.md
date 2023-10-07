@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Varuthanteoppam | Akashathile Paravakal 2001 |S.Balakrishnan|  Kalabhavan Mani |Malayalam Movie Song](https://www.youtube.com/watch?v=p_zyiniG1Lc)
+- [Thalirvalayo Thamaravalayo | Cheenavala | Prem Nazeer | Jayabharathi | Yesudas | Vayalar Ramavarma](https://www.youtube.com/watch?v=9XA2U1z444c)
 - [Anthikkudamothiri Monthi Remastered Audio Song Uthaman Movie Song MG Sreekumar Kaithapram Johnson](https://www.youtube.com/watch?v=LEPnqbIHLVo)
 - [Daisy Malayalam Movie Songs  | Yesudas | Shyam | Chithra | Sound of Arts | Audio Jukebox](https://www.youtube.com/watch?v=ZWTUnR_VqKM)
 - [ആശ്വാസ ദായകനാം ദൈവം | Ft. John Britto, Pretty Philip, Sushan Thomas Latest Christian Devotional Song](https://www.youtube.com/watch?v=2yaiL4YKOyU)
 - [Shorts | Kusumavadana  #malayalamfilmsongs](https://www.youtube.com/watch?v=7UNmsbuerng)
-- [2023 ലെ ഏറ്റവും പുതിയ സംഗീത ജപമാല. കേട്ടവർ കേട്ടവർ വീണ്ടും കേൾക്കാൻ കൊതിക്കും തീർച്ച  .അതിമനോഹരം](https://www.youtube.com/watch?v=OrADKIF4esA)
-- [Christian Video Songs | KG Markose | Rithuraj | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=88jNaAcp5CE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
