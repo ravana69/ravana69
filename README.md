@@ -71,11 +71,11 @@
 <!--START_SECTION:waka-->
 
 ```txt
-From: 29 September 2023 - To: 06 October 2023
+From: 30 September 2023 - To: 07 October 2023
 
-Total Time: 41 hrs 15 mins
+Total Time: 41 hrs 9 mins
 
-Other   41 hrs 15 mins  ▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰   100.00 %
+Other   41 hrs 9 mins   ▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰   100.00 %
 ```
 
 <!--END_SECTION:waka-->
