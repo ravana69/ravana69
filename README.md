@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [[4K] Jujubee &lpar;From &quot;Jailer&quot;&rpar; Video Song 2160p YT-DL OPUS2.0 x264 - 208 MB](https://www.1tamilmv.phd/index.php?/forums/topic/175662-4k-jujubee-from-jailer-video-song-2160p-yt-dl-opus20-x264-208-mb/&do=findComment&comment=354311)
-- [Marvel Cinematic Universe - BluRay / DSNP WEB DL - H264/H265 - DD5.1/DDP5.1 - ESub - [4K &amp; 1080p - 300GB] [GDRIVE]](https://www.1tamilmv.phd/index.php?/forums/topic/140591-marvel-cinematic-universe-bluray-dsnp-web-dl-h264h265-dd51ddp51-esub-4k-1080p-300gb-gdrive/&do=findComment&comment=354310)
-- [110 Tamil Movies - 1080p - Bluray / TK / JC / AMZN / SUN NXT WEB DL - H264 - DDP5.1/DD2.0/AAC2.0 - 550GB [GDRIVE]]](https://www.1tamilmv.phd/index.php?/forums/topic/125622-110-tamil-movies-1080p-bluray-tk-jc-amzn-sun-nxt-web-dl-h264-ddp51dd20aac20-550gb-gdrive/&do=findComment&comment=354309)
-- [75 Tamil Movies - AMZN/SUN NXT/SS/JC WEB DL - H264 - ESub - [1080p - 600GB] [Gdrive]](https://www.1tamilmv.phd/index.php?/forums/topic/143253-75-tamil-movies-amznsun-nxtssjc-web-dl-h264-esub-1080p-600gb-gdrive/&do=findComment&comment=354308)
-- [Acid &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 5.1 - 256Kbps&rpar; - 3GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/175661-acid-2023-malayalam-true-web-dl-1080p-720p-avc-aac-51-256kbps-3gb-14gb-x264-700mb-400mb/&do=findComment&comment=354307)
+- [Shikkari Shambhu &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Malayalam] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175631-shikkari-shambhu-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-malayalam-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354318)
+- [BIGG BOSS Tamil &lpar;2023&rpar; S07 EP06 - DAY 05 - TRUE WEB-DL - [1080p, 720p, 480p - AVC - UNTOUCHED - 950MB - 450MB &amp; 200MB] [06-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175653-bigg-boss-tamil-2023-s07-ep06-day-05-true-web-dl-1080p-720p-480p-avc-untouched-950mb-450mb-200mb-06-10-2023/&do=findComment&comment=354317)
+- [Loki S02E01 DSNP WEB-DL Multi DDP5.1 Atmos Esubs - 2160p [HDR] | 1080p - 5.22 GB | 1.8 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175645-loki-s02e01-dsnp-web-dl-multi-ddp51-atmos-esubs-2160p-hdr-1080p-522-gb-18-gb/&do=findComment&comment=354316)
+- [Melody Drama &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175663-melody-drama-2023-kannada-true-web-dl-1080p-720p-avc-25gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=354315)
+- [Mad &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175642-mad-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=354314)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
