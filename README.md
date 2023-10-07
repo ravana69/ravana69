@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [OMG 2 &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175658-omg-2-2023-hindi-true-web-dl-1080p-720p-avc-dd51-640kbps-6gb-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=354304)
+- [OMG 2 &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175658-omg-2-2023-hindi-true-web-dl-1080p-720p-avc-dd51-640kbps-6gb-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=354303)
 - [The.Continental.From.the.World.of.John.Wick.S01 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/175660-thecontinentalfromtheworldofjohnwicks01-direct-download/&do=findComment&comment=354302)
 - [Mumbai.Diaries.S01.2160p.CBR.AMZN.WEB-DL.MULTI.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/175659-mumbaidiariess012160pcbramznweb-dlmultiddp51-direct-download/&do=findComment&comment=354301)
 - [OMG 2 &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175658-omg-2-2023-hindi-true-web-dl-1080p-720p-avc-dd51-640kbps-6gb-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=354300)
-- [The Exorcist: Believer &lpar;2023&rpar; Telugu HQ HDTS - [1080p &amp; 720p - x264 - AAC - 2.4GB &amp; 1GB | x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175639-the-exorcist-believer-2023-telugu-hq-hdts-1080p-720p-x264-aac-24gb-1gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=354299)
-- [Rules Ranjann &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175641-rules-ranjann-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=354298)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
