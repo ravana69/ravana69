@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Marvel Cinematic Universe - BluRay / DSNP WEB DL - H264/H265 - DD5.1/DDP5.1 - ESub - [4K &amp; 1080p - 300GB] [GDRIVE]](https://www.1tamilmv.phd/index.php?/forums/topic/140591-marvel-cinematic-universe-bluray-dsnp-web-dl-h264h265-dd51ddp51-esub-4k-1080p-300gb-gdrive/&do=findComment&comment=354310)
+- [110 Tamil Movies - 1080p - Bluray / TK / JC / AMZN / SUN NXT WEB DL - H264 - DDP5.1/DD2.0/AAC2.0 - 550GB [GDRIVE]]](https://www.1tamilmv.phd/index.php?/forums/topic/125622-110-tamil-movies-1080p-bluray-tk-jc-amzn-sun-nxt-web-dl-h264-ddp51dd20aac20-550gb-gdrive/&do=findComment&comment=354309)
+- [75 Tamil Movies - AMZN/SUN NXT/SS/JC WEB DL - H264 - ESub - [1080p - 600GB] [Gdrive]](https://www.1tamilmv.phd/index.php?/forums/topic/143253-75-tamil-movies-amznsun-nxtssjc-web-dl-h264-esub-1080p-600gb-gdrive/&do=findComment&comment=354308)
+- [Acid &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 5.1 - 256Kbps&rpar; - 3GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/175661-acid-2023-malayalam-true-web-dl-1080p-720p-avc-aac-51-256kbps-3gb-14gb-x264-700mb-400mb/&do=findComment&comment=354307)
 - [Acid &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 5.1 - 256Kbps&rpar; - 3GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/175661-acid-2023-malayalam-true-web-dl-1080p-720p-avc-aac-51-256kbps-3gb-14gb-x264-700mb-400mb/&do=findComment&comment=354306)
-- [Acid &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 5.1 - 256Kbps&rpar; - 3GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/175661-acid-2023-malayalam-true-web-dl-1080p-720p-avc-aac-51-256kbps-3gb-14gb-x264-700mb-400mb/&do=findComment&comment=354305)
-- [OMG 2 &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175658-omg-2-2023-hindi-true-web-dl-1080p-720p-avc-dd51-640kbps-6gb-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=354304)
-- [OMG 2 &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175658-omg-2-2023-hindi-true-web-dl-1080p-720p-avc-dd51-640kbps-6gb-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=354303)
-- [The.Continental.From.the.World.of.John.Wick.S01 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/175660-thecontinentalfromtheworldofjohnwicks01-direct-download/&do=findComment&comment=354302)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
