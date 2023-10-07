@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Alakadalin Alakalil | December | Manjulan | Jyotsna | Jassie Gift | Kaithapram | Aparna Pillai](https://www.youtube.com/watch?v=FBLNifvMccM)
-- [Neela Nilave - Audio Song | RDX | Kapil Kapilan | Sam CS | Shane Nigam,Antony Varghese,Neeraj Madhav](https://www.youtube.com/watch?v=AQiC_qjSDUQ)
-- [Enne Karuthunna Vidhangal Christian Devotional Reels 02](https://www.youtube.com/watch?v=-aHZzVLnMAs)
-- [Azhakaalila Manjacharadilu Video Song | Ashwaroodan | Suresh Gopi | Padmapriya | Jassie Gift| Akhila](https://www.youtube.com/watch?v=uzeIg2mDV1g)
-- [Neeyeyulloo Ennumen - Lyrical | Chovvazhcha | Azmal, Ajay Bhupathi | Payal Rajput | Ajaneesh Loknath](https://www.youtube.com/watch?v=DPGlsvfcwGI)
-- [മലയാളികൾ നൂറിൽ നൂറുപേരും ഒരേ മനസോടെ അംഗീകരിക്കുന്ന മമ്മൂട്ടിയുടെ മെഗാഹിറ്റ്ഗാനങ്ങൾ |  MAMMOOTTY HITS](https://www.youtube.com/watch?v=hkHbWl94sVs)
+- [Marivillin Gopurangal Video Song | HD | Summer in Bethlehem Movie Song | REMASTERED |](https://www.youtube.com/watch?v=YHzl1KMwpR4)
+- [ഒരു തൂവൽ നഷ്ടപ്പെട്ടെന്ന്  കരുതി ഒരു പക്ഷിയും പറക്കാതിരുന്നിട്ടില്ല | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=FGHcNQo0xWg)
+- [Ormakal Verodum | Doctor Love | Kunchacko Boban #shorts](https://www.youtube.com/watch?v=oRJOo1fYirw)
+- [Ekaanthamaam Ee Bhoomiyil | Shyama | P Jayachandran | Raghukumar | Shibhu Chakravarthy](https://www.youtube.com/watch?v=CWi2hRMXAxc)
+- [Aaradhyan | Fr. Bibin George | Fr. Augustine Laiju Kandanattuthara | New Malayalam Christian Songs](https://www.youtube.com/watch?v=1ceipes0cj4)
+- [Vasantham Varnappookkuda Choodi | K S Chithra | Johnson | Kunchacko Boban , Samyuktha Varma, Asin](https://www.youtube.com/watch?v=-Jw2XpTau3E)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
