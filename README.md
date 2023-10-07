@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 8th October 2023](https://www.youtube.com/watch?v=LTBXMGX_lBU)
 - [Ariyaatha Pushpavum  Video Song ( F) | Thirakal Ezhuthiya Kavitha |  P Susheela](https://www.youtube.com/watch?v=M9qWyXM_WsE)
 - [ജപമാല ചൊല്ലി പ്രാർത്ഥിക്കും ഞങ്ങളെ , കാത്തീടണേ എൻ ദൈവ മാതേ...](https://www.youtube.com/watch?v=3pnyBKHbjRU)
 - [Manasa nilayil HD Video Song|Dhwani|Shobhana|Jayaram|](https://www.youtube.com/watch?v=WG-dCWfChYM)
 - [Poonthinkale Moovanthiyaai | Gaandhiyan | KJ Yesudas | Gireesh Puthenchery | Nadhirsha](https://www.youtube.com/watch?v=o6sgOlAOuN4)
 - [Shorts | Enundodi #malayalamfilmsongs #shortvideo](https://www.youtube.com/watch?v=kafjOmxluyg)
-- [Marivillin Gopurangal Video Song | HD | Summer in Bethlehem Movie Song | REMASTERED |](https://www.youtube.com/watch?v=YHzl1KMwpR4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
