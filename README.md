@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [2023 ലെ ഏറ്റവും പുതിയ സംഗീത ജപമാല. കേട്ടവർ കേട്ടവർ വീണ്ടും കേൾക്കാൻ കൊതിക്കും തീർച്ച  .അതിമനോഹരം](https://www.youtube.com/watch?v=OrADKIF4esA)
+- [Christian Video Songs | KG Markose | Rithuraj | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=88jNaAcp5CE)
+- [Japamala 7th of October 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 7th of October 23](https://www.youtube.com/watch?v=m3glIp8IV3E)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=tbGGyii_59c)
 - [October 7](https://www.youtube.com/watch?v=va9zUdwrTk8)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=EnS5GJY1L3I)
-- [പ്രഭാത പ്രാര്‍ത്ഥന  October 7 # Athiravile Prarthana 7th of October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=abN7sWoKvoA)
-- [ജപമാല ഗീതങ്ങള്‍ # Holy Rosary Special Songs Malayalam |  Month of Holy Rosary October 2023 Songs](https://www.youtube.com/watch?v=SCbuM0LzaC8)
-- [Back to back vibe for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=lTS00NsAoS0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
