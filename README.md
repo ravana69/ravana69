@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Neela Nilave - Audio Song | RDX | Kapil Kapilan | Sam CS | Shane Nigam,Antony Varghese,Neeraj Madhav](https://www.youtube.com/watch?v=AQiC_qjSDUQ)
+- [Enne Karuthunna Vidhangal Christian Devotional Reels 02](https://www.youtube.com/watch?v=-aHZzVLnMAs)
+- [Azhakaalila Manjacharadilu Video Song | Ashwaroodan | Suresh Gopi | Padmapriya | Jassie Gift| Akhila](https://www.youtube.com/watch?v=uzeIg2mDV1g)
+- [Neeyeyulloo Ennumen - Lyrical | Chovvazhcha | Azmal, Ajay Bhupathi | Payal Rajput | Ajaneesh Loknath](https://www.youtube.com/watch?v=DPGlsvfcwGI)
 - [മലയാളികൾ നൂറിൽ നൂറുപേരും ഒരേ മനസോടെ അംഗീകരിക്കുന്ന മമ്മൂട്ടിയുടെ മെഗാഹിറ്റ്ഗാനങ്ങൾ |  MAMMOOTTY HITS](https://www.youtube.com/watch?v=hkHbWl94sVs)
 - [Katte Nee Veesaruthippol | Kattu Vannu Vilichappol | KS Chithra | M G Radhakrishnan | Chippy](https://www.youtube.com/watch?v=oEUhkgFiEr0)
-- [സ്വന്തം കുഞ്ഞിനെപ്പോലെ മനസ്സിൽ താലോലിക്കുന്ന മലയാളസിനിമയിലെ എക്കാലത്തെയും മികച്ച ഗാനങ്ങൾ | EVERGREEN](https://www.youtube.com/watch?v=PKT5NUTbU9I)
-- [കുളിരോളമായ്‌ | Kulirolamaay | Padanayakan Malayalam Movie Song | Dileep hit Songs](https://www.youtube.com/watch?v=aPW0Qk-7QcE)
-- [#manoramachristiandevotionalsongs #shorts](https://www.youtube.com/watch?v=XSvO7ywm_LM)
-- [Vagdatham Cheythavan | Elizabeth Raju | Mohan Kanjiramannil #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=9PJ1Y4ywFEA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
