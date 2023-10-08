@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ghajini &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB](https://www.1tamilmv.phd/index.php?/forums/topic/175671-ghajini-2005-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-71gb/&do=findComment&comment=354349)
+- [Ghajini &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB](https://www.1tamilmv.phd/index.php?/forums/topic/175671-ghajini-2005-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-71gb/&do=findComment&comment=354348)
 - [Chinna &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175633-chinna-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=354347)
 - [800 The Movie &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175648-800-the-movie-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=354346)
 - [Rules Ranjann &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175641-rules-ranjann-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=354345)
-- [The Exorcist: Believer &lpar;2023&rpar; Telugu HQ HDTS - [1080p &amp; 720p - x264 - AAC - 2.4GB &amp; 1GB | x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175639-the-exorcist-believer-2023-telugu-hq-hdts-1080p-720p-x264-aac-24gb-1gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=354344)
-- [Mad &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175642-mad-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=354343)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
