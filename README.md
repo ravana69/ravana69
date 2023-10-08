@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കൊന്തമാസ ഗാനങ്ങൾ #ജപമാല മാസ ഗാനങ്ങൾ #ഇത്ര ശക്തമായ പ്രാർത്ഥന # മഹിമയുടെ രഹസ്യങ്ങൾ #Ammayune Punnyam N](https://www.youtube.com/watch?v=4ID9oa6qKqU)
+- [ദൈവത്തിന്റെ അനുഗ്രഹ ഗാനങ്ങൾ നിങ്ങൾക്കായി പങ്കുവെക്കുന്നു | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=pA6Rxb3Hfps)
+- [Japamala 8th of October 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 8th of October 23](https://www.youtube.com/watch?v=lDqLzokYN9U)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=UuZAQvrUYbI)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=Ni1DewoRPvM)
 - [രാവിലെ പ്രാര്‍ത്ഥന October 8 # Athiravile Prarthana 8th October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=uYE0rDUYHuI)
-- [ജപമാല ഗീതങ്ങള്‍ # Holy Rosary Special Songs Malayalam |  Month of Holy Rosary October 2023 Songs](https://www.youtube.com/watch?v=iSTL-jvsPMs)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 8th October 2023](https://www.youtube.com/watch?v=LTBXMGX_lBU)
-- [Ariyaatha Pushpavum  Video Song ( F) | Thirakal Ezhuthiya Kavitha |  P Susheela](https://www.youtube.com/watch?v=M9qWyXM_WsE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
