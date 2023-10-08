@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [NINAKKU VENDI NJAAN DHARAYIL|നിനക്ക് വേണ്ടി ഞാൻ ധരയിൽI ROY PUTHUR & TEAM|SHINU VARUGHESE||9048210439](https://www.youtube.com/watch?v=2wbuM3JgE8E)
+- [പാട്ടുപെട്ടി - Paattupetti Vol 28 | Malayalam Film Songs](https://www.youtube.com/watch?v=517GXqN7KRk)
+- [Pranayamayi Radha | Lyrical Video | Aami | Shreya Ghoshal | Vijay Yesudas | M Jayachandran](https://www.youtube.com/watch?v=WX05PhgWccA)
 - [Paalaazhee Theeram Kandu Remastered Audio Song Uthaman Movie Song KJ Yesudas Kaithapram Johnson](https://www.youtube.com/watch?v=oO6xSORXlTM)
 - [Enthinaay Nin | Mizhi Randilum | Kavya Madhavan | Ranjith | Raveendran | Chithra](https://www.youtube.com/watch?v=UvVJ_hcEGm0)
 - [Thathapennu | Akashathile Paravakal 2001 | S.Balakrishnan | K. S. Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=NLvTLDL_xXY)
-- [Selected Malayalam Hit Songs | Yesudas | Bombay Ravi | Chithra | Sound of Arts | Audio Jukebox](https://www.youtube.com/watch?v=I5fMAqoEqFw)
-- [Japamala Masam Short October  | Holy Rosary Special Short](https://www.youtube.com/watch?v=yNz72-5-8CQ)
-- [Shorts | Kandille Neram Pularanu](https://www.youtube.com/watch?v=gvd8Wp8AFEg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
