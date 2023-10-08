@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP08 DAY 07 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.4GB - 752MB &amp; 326MB | 08-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175674-bigg-boss-tamil-s07-ep08-day-07-true-web-dl-1080p-720p-480p-avc-untouched-14gb-752mb-326mb-08-10-2023/&do=findComment&comment=354359)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 2.0 EP36 DAY 35 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 3.7GB - 1.8GB &amp; 766MB | 08-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175672-bigg-boss-telugu-s07-20-ep36-day-35-true-web-dl-1080p-720p-480p-avc-untouched-37gb-18gb-766mb-08-10-2023/&do=findComment&comment=354357)
 - [The Equalizer 3 &lpar;2023&rpar; MA WEB-DL DDP5.1 Esubs - 2160p [HDR10-DoVi] | 1080p - 18.9 GB | 6.4 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175603-the-equalizer-3-2023-ma-web-dl-ddp51-esubs-2160p-hdr10-dovi-1080p-189-gb-64-gb/&do=findComment&comment=354356)
 - [Naan Avanillai &lpar;2007&rpar; Tamil TRUE WEB-DL - 480p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 1.4GB - HC-ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/175665-naan-avanillai-2007-tamil-true-web-dl-480p-avc-untouched-aac20-14gb-hc-esub-gdflix/&do=findComment&comment=354355)
 - [Dheena &lpar;2001&rpar; ASTRO WEB-DL AAC.2.0 Esubs x264 - 1080p | 720p - 5.5 GB | 2.5 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175669-dheena-2001-astro-web-dl-aac20-esubs-x264-1080p-720p-55-gb-25-gb/&do=findComment&comment=354354)
-- [Ghajini &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB](https://www.1tamilmv.phd/index.php?/forums/topic/175671-ghajini-2005-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-71gb/&do=findComment&comment=354353)
-- [Irugapatru &lpar;2023&rpar; [UNCUT] [NO ADS] Tamil - Proper HQ PreDVD - 1080p - AVC - AAC2.0&lpar;320kbps&rpar;[HQ CLEAN UPMIXED] - 4.2GB [HYBRID VERSION] [GDrive]](https://www.1tamilmv.phd/index.php?/forums/topic/175670-irugapatru-2023-uncut-no-ads-tamil-proper-hq-predvd-1080p-avc-aac20320kbpshq-clean-upmixed-42gb-hybrid-version-gdrive/&do=findComment&comment=354352)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
