@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Irugapatru &lpar;2023&rpar; [UNCUT] [NO ADS] Tamil - Proper HQ PreDVD - 1080p - AVC - AAC2.0&lpar;320kbps&rpar;[HQ CLEAN UPMIXED] - 4.2GB [HYBRID VERSION] [GDrive]](https://www.1tamilmv.phd/index.php?/forums/topic/175670-irugapatru-2023-uncut-no-ads-tamil-proper-hq-predvd-1080p-avc-aac20320kbpshq-clean-upmixed-42gb-hybrid-version-gdrive/&do=findComment&comment=354336)
 - [Dheena &lpar;2001&rpar; ASTRO WEB-DL AAC.2.0 Esubs x264 - 1080p | 720p - 5.5 GB | 2.5 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175669-dheena-2001-astro-web-dl-aac20-esubs-x264-1080p-720p-55-gb-25-gb/&do=findComment&comment=354335)
 - [Dheena &lpar;2001&rpar; ASTRO WEB-DL AAC.2.0 Esubs x264 - 1080p | 720p - 5.5 GB | 2.5 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175669-dheena-2001-astro-web-dl-aac20-esubs-x264-1080p-720p-55-gb-25-gb/&do=findComment&comment=354334)
 - [Anaconda.1997.BluRay DD5.1 Tamil + DD5.1 Telugu + DD5.1 Hindi + DD5.1 English 1080p True HD 5.1 AVC REMUX](https://www.1tamilmv.phd/index.php?/forums/topic/153339-anaconda1997bluray-dd51-tamil-dd51-telugu-dd51-hindi-dd51-english-1080p-true-hd-51-avc-remux/&do=findComment&comment=354333)
 - [Naan Avanillai &lpar;2007&rpar; Tamil TRUE WEB-DL - 480p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 1.4GB - HC-ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/175665-naan-avanillai-2007-tamil-true-web-dl-480p-avc-untouched-aac20-14gb-hc-esub-gdflix/&do=findComment&comment=354332)
-- [Maama Mascheendra &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175649-maama-mascheendra-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=354331)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
