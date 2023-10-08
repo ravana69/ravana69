@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മനുഷ്യന്റെ നൊമ്പരങ്ങളെ മനസ്സിലാക്കുക. | Rev. Aneesh P Joseph | #shorts #motiationalspeech](https://www.youtube.com/watch?v=pNNTQK8h7R4)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 8th of October 2023](https://www.youtube.com/watch?v=osPkWzwz-Ss)
+- [നീറുന്ന നൊമ്പരങ്ങൾ ഏറ്റെടുക്കുന്ന ഈശോയുടെ സ്നേഹം നിറഞ്ഞ ഗാനങ്ങൾ](https://www.youtube.com/watch?v=oUx7wvU_dms)
 - [Karkuzhali Thenkuruvi | Kasthooriman | Kunchakko Boban | Meera Jasmine | Ouseppachan | Sujatha Mohan](https://www.youtube.com/watch?v=67_J83hGAMo)
 - [Pulli Movie | Jiju Asokan | Dev Mohan | Indrans | Kalabhavan Shajohn](https://www.youtube.com/watch?v=SYY4LP9yRjY)
 - [Melleyonnu Paadi Ninne Video Song | Manassinakkare | Ilayaraja | KJ Yesudas | Nayanthara | Jayaram](https://www.youtube.com/watch?v=BVMntT3IJmQ)
-- [Swargangal Swapnam Kanum | Malootty | Johnson | Pazhavila Ramesan | Sujatha | G Venugopal | Jayaram](https://www.youtube.com/watch?v=uLYbeiUyOtQ)
-- [എന്റെ പേര് വിളിക്കയാണോ #varnakazhchakal #shortsyoutube #dileep #poornimaindrajith](https://www.youtube.com/watch?v=jwj5zE2AtV0)
-- [Mandasameeranil Video Song | Chattakari | K. J. Yesudas | Vayalar Ramavarma | Romantic Song](https://www.youtube.com/watch?v=XBT0ijZPdNQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
