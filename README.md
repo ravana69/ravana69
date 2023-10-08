@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Karkuzhali Thenkuruvi | Kasthooriman | Kunchakko Boban | Meera Jasmine | Ouseppachan | Sujatha Mohan](https://www.youtube.com/watch?v=67_J83hGAMo)
+- [Pulli Movie | Jiju Asokan | Dev Mohan | Indrans | Kalabhavan Shajohn](https://www.youtube.com/watch?v=SYY4LP9yRjY)
 - [Melleyonnu Paadi Ninne Video Song | Manassinakkare | Ilayaraja | KJ Yesudas | Nayanthara | Jayaram](https://www.youtube.com/watch?v=BVMntT3IJmQ)
 - [Swargangal Swapnam Kanum | Malootty | Johnson | Pazhavila Ramesan | Sujatha | G Venugopal | Jayaram](https://www.youtube.com/watch?v=uLYbeiUyOtQ)
 - [എന്റെ പേര് വിളിക്കയാണോ #varnakazhchakal #shortsyoutube #dileep #poornimaindrajith](https://www.youtube.com/watch?v=jwj5zE2AtV0)
 - [Mandasameeranil Video Song | Chattakari | K. J. Yesudas | Vayalar Ramavarma | Romantic Song](https://www.youtube.com/watch?v=XBT0ijZPdNQ)
-- [Aakasham Dhooreyenatho | Dr. Love | Najim Arshad |Vivekanandan](https://www.youtube.com/watch?v=YtlBAPv0zUY)
-- [Ente Sambathennu Cholluvan | Sadhu Kochukunjupadeshi #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=F2L1Vt3wgKs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
