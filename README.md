@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [I Love you Mummy | Shorts #shorts](https://www.youtube.com/watch?v=8XNstmMamH8)
+- [Ellam Ellam Dhanamalle | Rev. Sajan P. Mathew | Elizabeth Raju  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=HqIu0bOTzIo)
 - [സന്തോഷത്തിന്റെ രഹസ്യങ്ങൾ #japamala prayer Malayalam #Daily japamala #ജപമാല കേട്ട് ഉണരാം #October 9th](https://www.youtube.com/watch?v=ej4EXLkUk0A)
 - [Prabhatha Geethangal | P Jayachandran | Christian Morning Prayer Songs |Joji Johns | Christian SOngs](https://www.youtube.com/watch?v=q-5aONMlti0)
 - [Japamala 9th of October 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 9th of October 23](https://www.youtube.com/watch?v=t8W1Y_NlFA4)
 - [ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #october 9th japamala maasam special songs 2023](https://www.youtube.com/watch?v=fxY24gIAoz8)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=G-C_6SjHAHU)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=SS-D2hAyOaY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
