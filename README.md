@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [സന്തോഷത്തിന്റെ രഹസ്യങ്ങൾ #japamala prayer Malayalam #Daily japamala #ജപമാല കേട്ട് ഉണരാം #October 9th](https://www.youtube.com/watch?v=ej4EXLkUk0A)
+- [Prabhatha Geethangal | P Jayachandran | Christian Morning Prayer Songs |Joji Johns | Christian SOngs](https://www.youtube.com/watch?v=q-5aONMlti0)
+- [Japamala 9th of October 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 9th of October 23](https://www.youtube.com/watch?v=t8W1Y_NlFA4)
+- [ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #october 9th japamala maasam special songs 2023](https://www.youtube.com/watch?v=fxY24gIAoz8)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=G-C_6SjHAHU)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=SS-D2hAyOaY)
-- [പ്രഭാത പ്രാര്‍ത്ഥന  October 9 # Athiravile Prarthana 9th of October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=J5f9KFOZFzU)
-- [October 9](https://www.youtube.com/watch?v=fzflMCxQRSM)
-- [ജപമാല ഗീതങ്ങള്‍ # Holy Rosary Special Songs Malayalam |  Month of Holy Rosary October 2023 Songs](https://www.youtube.com/watch?v=F8ghn2NU9CM)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 9th October 2023](https://www.youtube.com/watch?v=_IfZGTD0e08)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
