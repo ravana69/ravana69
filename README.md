@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP08 DAY 07 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.4GB - 752MB &amp; 326MB | 08-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175674-bigg-boss-tamil-s07-ep08-day-07-true-web-dl-1080p-720p-480p-avc-untouched-14gb-752mb-326mb-08-10-2023/&do=findComment&comment=354359)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 2.0 EP36 DAY 35 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 3.7GB - 1.8GB &amp; 766MB | 08-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175672-bigg-boss-telugu-s07-20-ep36-day-35-true-web-dl-1080p-720p-480p-avc-untouched-37gb-18gb-766mb-08-10-2023/&do=findComment&comment=354357)
-- [The Equalizer 3 &lpar;2023&rpar; MA WEB-DL DDP5.1 Esubs - 2160p [HDR10-DoVi] | 1080p - 18.9 GB | 6.4 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175603-the-equalizer-3-2023-ma-web-dl-ddp51-esubs-2160p-hdr10-dovi-1080p-189-gb-64-gb/&do=findComment&comment=354356)
-- [Naan Avanillai &lpar;2007&rpar; Tamil TRUE WEB-DL - 480p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 1.4GB - HC-ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/175665-naan-avanillai-2007-tamil-true-web-dl-480p-avc-untouched-aac20-14gb-hc-esub-gdflix/&do=findComment&comment=354355)
-- [Dheena &lpar;2001&rpar; ASTRO WEB-DL AAC.2.0 Esubs x264 - 1080p | 720p - 5.5 GB | 2.5 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175669-dheena-2001-astro-web-dl-aac20-esubs-x264-1080p-720p-55-gb-25-gb/&do=findComment&comment=354354)
+- [Roja &lpar;1992&rpar; 1080p AMZN WEB-DL Multi DDP2.0 Esubs x264 - 9.6 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175677-roja-1992-1080p-amzn-web-dl-multi-ddp20-esubs-x264-96-gb/&do=findComment&comment=354365)
+- [Olympus Has Fallen &lpar;2013&rpar; &lpar;BDRip TRUE Original Audio&rpar; - [1080p - 720p  [Tamil + Telugu + Hindi + English] - [&lpar;DD5.1 - 640kbps&rpar; + &lpar;DD5.1 - 224kbps&rpar;] - x264 - Esub] - [6GB + 3.4GB + 2.9 GB + 2.2GB + 1.4GB] ~ Hulk4k.mkv](https://www.1tamilmv.phd/index.php?/forums/topic/132833-olympus-has-fallen-2013-bdrip-true-original-audio-1080p-720p-tamil-telugu-hindi-english-dd51-640kbps-dd51-224kbps-x264-esub-6gb-34gb-29-gb-22gb-14gb-~-hulk4kmkv/&do=findComment&comment=354364)
+- [[4K] Friends &lpar;2001&rpar; 2160p SS WEB.DL DD5.1 Esubs x264 - 8.6 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175676-4k-friends-2001-2160p-ss-webdl-dd51-esubs-x264-86-gb/&do=findComment&comment=354363)
+- [Akkada Ammayi Ikkada Abbayi &lpar;1996&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps&lpar;DD+5.1&rpar; - 6.5GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175675-akkada-ammayi-ikkada-abbayi-1996-telugu-dvd9-untouched-480p-448kbpsdd51-65gb-esub/&do=findComment&comment=354362)
+- [Irugapatru &lpar;2023&rpar; [UNCUT] [NO ADS] Tamil - Proper HQ PreDVD - 1080p - AVC - AAC2.0&lpar;320kbps&rpar;[HQ CLEAN UPMIXED] - 4.2GB [HYBRID VERSION] [GDrive]](https://www.1tamilmv.phd/index.php?/forums/topic/175670-irugapatru-2023-uncut-no-ads-tamil-proper-hq-predvd-1080p-avc-aac20320kbpshq-clean-upmixed-42gb-hybrid-version-gdrive/&do=findComment&comment=354361)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
