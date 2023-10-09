@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Akkada Ammayi Ikkada Abbayi &lpar;1996&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps&lpar;DD+5.1&rpar; - 6.5GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175675-akkada-ammayi-ikkada-abbayi-1996-telugu-dvd9-untouched-480p-448kbpsdd51-65gb-esub/&do=findComment&comment=354369)
 - [Club House &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 2.4GB - 1.2GB &amp; 750MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175678-club-house-2023-tamil-true-web-dl-1080p-720p-avc-hevc-24gb-12gb-750mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354368)
 - [Thotti Jaya &lpar;2005&rpar; Tamil TRUE WEB-DL - 480p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 1.5GB - HC-ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/175679-thotti-jaya-2005-tamil-true-web-dl-480p-avc-untouched-aac20-15gb-hc-esub-gdflix/&do=findComment&comment=354367)
 - [Club House &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 2.4GB - 1.2GB &amp; 750MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175678-club-house-2023-tamil-true-web-dl-1080p-720p-avc-hevc-24gb-12gb-750mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354366)
 - [Roja &lpar;1992&rpar; 1080p AMZN WEB-DL Multi DDP2.0 Esubs x264 - 9.6 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175677-roja-1992-1080p-amzn-web-dl-multi-ddp20-esubs-x264-96-gb/&do=findComment&comment=354365)
-- [Olympus Has Fallen &lpar;2013&rpar; &lpar;BDRip TRUE Original Audio&rpar; - [1080p - 720p  [Tamil + Telugu + Hindi + English] - [&lpar;DD5.1 - 640kbps&rpar; + &lpar;DD5.1 - 224kbps&rpar;] - x264 - Esub] - [6GB + 3.4GB + 2.9 GB + 2.2GB + 1.4GB] ~ Hulk4k.mkv](https://www.1tamilmv.phd/index.php?/forums/topic/132833-olympus-has-fallen-2013-bdrip-true-original-audio-1080p-720p-tamil-telugu-hindi-english-dd51-640kbps-dd51-224kbps-x264-esub-6gb-34gb-29-gb-22gb-14gb-~-hulk4kmkv/&do=findComment&comment=354364)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
