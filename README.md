@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Club House &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 2.4GB - 1.2GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175678-club-house-2023-tamil-true-web-dl-1080p-720p-avc-hevc-24gb-12gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354366)
 - [Roja &lpar;1992&rpar; 1080p AMZN WEB-DL Multi DDP2.0 Esubs x264 - 9.6 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175677-roja-1992-1080p-amzn-web-dl-multi-ddp20-esubs-x264-96-gb/&do=findComment&comment=354365)
 - [Olympus Has Fallen &lpar;2013&rpar; &lpar;BDRip TRUE Original Audio&rpar; - [1080p - 720p  [Tamil + Telugu + Hindi + English] - [&lpar;DD5.1 - 640kbps&rpar; + &lpar;DD5.1 - 224kbps&rpar;] - x264 - Esub] - [6GB + 3.4GB + 2.9 GB + 2.2GB + 1.4GB] ~ Hulk4k.mkv](https://www.1tamilmv.phd/index.php?/forums/topic/132833-olympus-has-fallen-2013-bdrip-true-original-audio-1080p-720p-tamil-telugu-hindi-english-dd51-640kbps-dd51-224kbps-x264-esub-6gb-34gb-29-gb-22gb-14gb-~-hulk4kmkv/&do=findComment&comment=354364)
 - [[4K] Friends &lpar;2001&rpar; 2160p SS WEB.DL DD5.1 Esubs x264 - 8.6 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175676-4k-friends-2001-2160p-ss-webdl-dd51-esubs-x264-86-gb/&do=findComment&comment=354363)
 - [Akkada Ammayi Ikkada Abbayi &lpar;1996&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps&lpar;DD+5.1&rpar; - 6.5GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175675-akkada-ammayi-ikkada-abbayi-1996-telugu-dvd9-untouched-480p-448kbpsdd51-65gb-esub/&do=findComment&comment=354362)
-- [Irugapatru &lpar;2023&rpar; [UNCUT] [NO ADS] Tamil - Proper HQ PreDVD - 1080p - AVC - AAC2.0&lpar;320kbps&rpar;[HQ CLEAN UPMIXED] - 4.2GB [HYBRID VERSION] [GDrive]](https://www.1tamilmv.phd/index.php?/forums/topic/175670-irugapatru-2023-uncut-no-ads-tamil-proper-hq-predvd-1080p-avc-aac20320kbpshq-clean-upmixed-42gb-hybrid-version-gdrive/&do=findComment&comment=354361)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
