@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Azhalaayi Nee | Velutha Madhuram | Vineeth Sreenivasan | Shyju Pallikkunnu | Jithin Devasya](https://www.youtube.com/watch?v=VyMPz86jyZU)
+- [Enne Karuthunna Vidhangal Christian Devotional Reels 03](https://www.youtube.com/watch?v=ZuZQLQxxtqM)
 - [നമ്മുടെ ഓരോ ദിവസവും വിശേഷദിവസമായി മാറ്റും സൂപ്പർഹിറ്റ് സിനിമാഗാനങ്ങൾ ! MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=xrTFslpWd48)
 - [Aayiram Kannumay | Nokkethadhoorathu Kannum Nattu |Nadiya Moithu | Evergreen Hits |Yesudas](https://www.youtube.com/watch?v=g2XS0xf0FJI)
 - [Pulare Poonkodiyil Remastering Audio Song Amaram Movie Song KJ Yesudas Kaithapram Raveendran](https://www.youtube.com/watch?v=JH0FhxorAO4)
 - [Janikkumpol | Oru Raagam Pala Thaalam1979 | P. Jayachandran | Malayalam Movie Song](https://www.youtube.com/watch?v=oUWtNvnC72U)
-- [Ente Mounaragam | Kottaram Veettile Appoottan | Jayaram | Shruthi | Yesudas | Chithra | Rajasenan](https://www.youtube.com/watch?v=8eqUNmJyxMI)
-- [Karaoke Padipukazhthidam Devadevane | Rev. C. John | Malayalam Christian Songs Karaoke | Minus Track](https://www.youtube.com/watch?v=eF_IFGCqEH0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
