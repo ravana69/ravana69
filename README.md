@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Neelavanam Poothuninnu | Kuyilinethedi | Chunakkara Ramankutty | Shyam | KJ Yesudas | Vani Jairam](https://www.youtube.com/watch?v=vZRuUnMyzAw)
+- [#manoramachristiandevotionalsongs #shorts](https://www.youtube.com/watch?v=BH42e9ZEyic)
 - [Enikkoru Pennundu Video Song | Thilakkam | Dileep | Kavya Madhavan | KJ Yesudas | Kaithapram](https://www.youtube.com/watch?v=44jj3dQRUIE)
 - [അമ്മയെൻ പുണ്യം #ഒരുപാട് ആശ്വാസം മനസിന് കിട്ടുന്ന ഒരു ഗാനം.  എത്രയോ മനോഹരം ഈ ഗാനം  കെസ്റ്റർ ചേട്ടാ](https://www.youtube.com/watch?v=iRx6sIp6jOo)
 - [ആരാണ് യഥാർത്ഥ സ്നേഹിതൻ? | Rev. Aneesh P Joseph | #shorts #motivationalvideo](https://www.youtube.com/watch?v=7kxhkeEv1_0)
 - [Pottatha Ponnin Kinavu | Bhargavi Nilayam | S.Janaki](https://www.youtube.com/watch?v=MV_q51BUPNg)
-- [Sankrama Vishuppakshi Video Song | Chukku Movie | Madhu | Sheela](https://www.youtube.com/watch?v=AFGDI11FzXk)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 10th of October 2023](https://www.youtube.com/watch?v=jjhAjb8g53c)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
