@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Kunnimanikoottil | Summer in Bethlehem | MG Sreekumar | KS Chithra | Jayaram | Suresh Gopi](https://www.youtube.com/watch?v=E56_Iz8RRdM)
-- [Pakaliravukal - RnB Soul Mix | Kurup (Malayalam) | Sushin Shyam | Neha Nair | Jeruson](https://www.youtube.com/watch?v=sGXrjIn4lyE)
-- [നിർമ്മലയാം കന്യകയേ.. Hail Mary Tune #haimary #rosary #shorts #mobetrajan](https://www.youtube.com/watch?v=T3oCOJ2dJZ0)
-- [കേരളത്തിലെ ജനങ്ങൾ സകുടുംബം സന്തോഷത്തോടെ ആസ്വദിക്കുന്ന മലയാളസിനിമയിലെ ചലച്ചിത്രഗാനങ്ങൾ !](https://www.youtube.com/watch?v=kdRBQR7bkpQ)
-- [Mallakshi Madirakshi | Thumbolaarcha | Vayalar | G Devarajan | KJ Yesudas | P Madhuri | Prem Nazir](https://www.youtube.com/watch?v=n7ZfpTilLSc)
-- [Silk Bar - Audio Song | Dasara (Malayalam) | Nani, Keerthy Suresh | Santhosh Narayanan](https://www.youtube.com/watch?v=NXpOKAqwczc)
+- [ആരാണ് യഥാർത്ഥ സ്നേഹിതൻ? | Rev. Aneesh P Joseph | #shorts #motivationalvideo](https://www.youtube.com/watch?v=7kxhkeEv1_0)
+- [Pottatha Ponnin Kinavu | Bhargavi Nilayam | S.Janaki](https://www.youtube.com/watch?v=MV_q51BUPNg)
+- [Sankrama Vishuppakshi Video Song | Chukku Movie | Madhu | Sheela](https://www.youtube.com/watch?v=AFGDI11FzXk)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 10th of October 2023](https://www.youtube.com/watch?v=jjhAjb8g53c)
+- [Kiliye Kiliye - Chill HipHop Mix | Aa Raathri | Ilaiyaraaja | S. Janaki | DJ VIM](https://www.youtube.com/watch?v=OqnvFNcbFLE)
+- [Ethra Bhagyavan Njan | Kester | Praise and Worship Songs | Christian Melody Songs Malayalam](https://www.youtube.com/watch?v=7xugny0AkE0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
