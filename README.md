@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chimmi Chimmi | Shorts #shorts](https://www.youtube.com/watch?v=vlPfVub67Ts)
+- [Ente Sambathennu Cholluvan | Sadhu Kochukunjupadeshi #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=5Ce3r1yRUXI)
 - [Singer Of The Week | Shibu Antony |  Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=wYMFmRz7yEY)
 - [തളരുന്ന മനസുകളിൽ ആശ്വസത്തിന്റെ കുളിര്മഴയായ്‌ പരിശുദ്ധ അമ്മയുടെ ജപമാല](https://www.youtube.com/watch?v=BTJtZWbZ9Ec)
 - [Japamala 10th of October 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 10th of October 23](https://www.youtube.com/watch?v=1Kxn8MNhjrw)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=M7hkA2J6AoA)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=TK2Ndbwge_4)
-- [പ്രഭാത പ്രാര്‍ത്ഥന  October 10 # Athiravile Prarthana 10th of October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=h78LiN0cmww)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
