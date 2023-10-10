@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Pilarnnatham Paraye | Christian Devotional Reels  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=unYykotgkCo)
 - [Nee Vida Parayumbol Remastering Song Dhanam Movie Song KJ Yesudas  PK Gopi Raveendran](https://www.youtube.com/watch?v=ak35I814QHg)
 - [Daivathe Arinjiduvan Vaikaruthe | Kristheeya Bhakthigaanangal | Christian Devotional Songs | Jukebox](https://www.youtube.com/watch?v=45p_ip9WIR8)
 - [Omal Kanmani |  Naran | Beautiful Song by K S Chithra  #shorts](https://www.youtube.com/watch?v=yfthAmNi2uM)
 - [Scene Mone - Audio Song | RDX | Neeraj Madhav, Shane Nigam, Antony Varghese | Nahas Hidhayath | Rzee](https://www.youtube.com/watch?v=WWABJt1EYnI)
 - [Slick moves for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=gHoDUBz3p-w)
-- [Thamburuvil Shruthi | C. I. Mahadevan 5 Adi 4 Inchu 2004 | Madhu Balakrishnan | Malayalam Movie Song](https://www.youtube.com/watch?v=qGaHrut0AlM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
