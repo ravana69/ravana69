@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thamburuvil Shruthi | C. I. Mahadevan 5 Adi 4 Inchu 2004 | Madhu Balakrishnan | Malayalam Movie Song](https://www.youtube.com/watch?v=qGaHrut0AlM)
+- [Chenkadhali Kumbilile | Chattambinadu | Mammootty | Lakshmi Rai | Rimi Tomy](https://www.youtube.com/watch?v=_PJEkjknqBM)
 - [Shyamambharam Neele | Artham | Yesudas | Johnson | Mammootty | Sound of Arts](https://www.youtube.com/watch?v=w-DsbCvxc-Q)
 - [രാവിലെ കേൾക്കാൻ ഇത്ര നല്ല ഗാനം ഉണ്ടോ  അളവില്ലാ നന്മയാം ദൈവമേ #Ammayune Punniyam #jojo johny #johnson](https://www.youtube.com/watch?v=QcGRToi5U3M)
 - [Chimmi Chimmi | Shorts #shorts](https://www.youtube.com/watch?v=vlPfVub67Ts)
 - [Ente Sambathennu Cholluvan | Sadhu Kochukunjupadeshi #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=5Ce3r1yRUXI)
-- [Singer Of The Week | Shibu Antony |  Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=wYMFmRz7yEY)
-- [തളരുന്ന മനസുകളിൽ ആശ്വസത്തിന്റെ കുളിര്മഴയായ്‌ പരിശുദ്ധ അമ്മയുടെ ജപമാല](https://www.youtube.com/watch?v=BTJtZWbZ9Ec)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
