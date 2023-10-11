@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Padavettu - Video Jukebox | Nivin Pauly | Aditi Balan | Govind Vasantha | Liju Krishna](https://www.youtube.com/watch?v=e4aS-lOuPsU)
-- [മലയാളികളുടെ എക്കാലത്തെയും ഇഷ്ട ഗായകൻ എം ജി ശ്രീകുമാർ ആലപിച്ച പാടി നടക്കും സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=-KuCOEmFdAw)
-- [Pilarnnatham Paraye | Shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=NohL9EJ833A)
-- [രാത്രിയുടെ യാമങ്ങളിൽ  ഒഴുകിയെത്തുന്ന മലയാള സിനിമയിലെ മധുര ഗാനങ്ങൾ|Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=r5JCKgNnumo)
-- [Feast of Blessed Carlo Acutis | October 12 | Fr. Shaji Thumpechirayil #shortvideo #shorts](https://www.youtube.com/watch?v=n88Bb49ovdY)
-- [Maarikko Maarikko | Onningu Vannengil | Nadiya Moidu | Lissy Priyadarshan | Mammootty | Shyaam](https://www.youtube.com/watch?v=WK8cepZwpzI)
+- [നിന്നെ മാനിക്കുന്ന ഒരു ദിവസം ദൈവം ഒരുക്കിയിട്ടുണ്ട് | Rev. Aneesh P Joseph | #shorts #jesus](https://www.youtube.com/watch?v=syCk0eHj9wA)
+- [Vannanayu Parishudhathma | Jeevithathil Divyaprakasham Choriyunna Kristheeya Bhakthigaanangal](https://www.youtube.com/watch?v=HSYB8tZVcoM)
+- [Pottatha Ponnin Kinavu | Bhargavi Nilayam #shorts](https://www.youtube.com/watch?v=mRDQBEY4JdU)
+- [Poomarakombil - Lyrical Video | Boomerang | Shine Tom Chacko | Samyuktha | Vaikom Vijayalakshmi](https://www.youtube.com/watch?v=I5RkM-5_HGQ)
+- [Bale Bale Video Song  | Thirakal Ezhuthiya Kavitha |  P Susheela](https://www.youtube.com/watch?v=90mcd3uB7Dg)
+- [Athmave Poo - Audio Song | Romancham | Sushin Shyam | Johnpaul George Productions | Jithu Madhavan](https://www.youtube.com/watch?v=DjqobflIAIE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
