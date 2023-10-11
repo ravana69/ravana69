@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thirayezhuthum Mannil | Meenakshi Kalyanam 1998 | Nadirsha | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=_CruWdcYSx0)
+- [Poovenam Pooppada | Nedumudi Venu | Parvathy | Yesudas | Sharada | Johnson](https://www.youtube.com/watch?v=h2HiuniSO3E)
 - [Enne Karuthunna Vidhangal Christian Devotional Reels 04](https://www.youtube.com/watch?v=AqbFsl86Z40)
 - [Mohanalal Hit Movie Songs | Yesudas | Chithra | Kaithapram | Sound of Arts](https://www.youtube.com/watch?v=CmWgGmUrI4k)
 - [Pravu Movie Promotion | Shorts](https://www.youtube.com/watch?v=Ff1G4fqmYx0)
 - [Arhathayillethumenikk | Christian Video Song | Sigi Deepak | Joji Johns | Kester| Christian Song](https://www.youtube.com/watch?v=QJPqdw7Hh8Q)
-- [അമ്മയെൻ പുണ്യം #ഏറ്റവും പുതിയ സംഗീത ജപമാല # മഹിമയുടെ രഹസ്യങ്ങൾ # കേട്ടവർ  വീണ്ടും കേൾക്കാൻ കൊതിക്കും](https://www.youtube.com/watch?v=DVWfT44L2Yw)
-- [Japamala 11th of October 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 11th of October 23](https://www.youtube.com/watch?v=e0bqs0Kmza4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
