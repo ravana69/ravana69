@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Maamannan &lpar;2023&rpar; TRUE WEB-DL - 4K SDR - 2160p - HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - [Tamil + Telugu + Malayalam + Kannada] - 22GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175697-maamannan%C2%A02023-true-web-dl-4k-sdr-2160p-%C2%A0hevc-dd51-640kbps-tamil-telugu-malayalam-kannada-22gb-esub/&do=findComment&comment=354450)
+- [Kushi &lpar;2023&rpar; TRUE WEB-DL - 4K SDR - 2160p - HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - [Tamil + Telugu] - 19GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175696-kushi-2023-true-web-dl-4k-sdr-2160p-hevc-dd51-640kbps-tamil-telugu-19gb-esub/&do=findComment&comment=354449)
+- [Ben 10/Generator Rex: Heroes United &lpar;2011&rpar; SDTV - 576p - x264 - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi] - 426MB](https://www.1tamilmv.phd/index.php?/forums/topic/175687-ben-10generator-rex-heroes-united-2011-sdtv-576p-x264-aac-20-tamil-telugu-hindi-426mb/&do=findComment&comment=354448)
+- [Ben 10/Generator Rex: Heroes United &lpar;2011&rpar; SDTV - 576p - x264 - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi] - 426MB](https://www.1tamilmv.phd/index.php?/forums/topic/175687-ben-10generator-rex-heroes-united-2011-sdtv-576p-x264-aac-20-tamil-telugu-hindi-426mb/&do=findComment&comment=354447)
 - [Alien.vs.Ninja.2010 [AAC 2.0 Tel + Tam + Hin + Eng+ DD5.1 Rus+Japn] 1080p BluRay.Remux  18GB [G-Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/170556-alienvsninja2010-aac-20-tel-tam-hin-eng-dd51-rusjapn-1080p-blurayremux-18gb-g-drive/&do=findComment&comment=354446)
-- [50 Tamil Movies - TK / JC / SS / SUN NXT WEB DL H264 - DDP5.1/AAC2.0 - [1080p &amp; 720p - 500GB] [Gdrive]](https://www.1tamilmv.phd/index.php?/forums/topic/142918-50-tamil-movies-tk-jc-ss-sun-nxt-web-dl-h264-ddp51aac20-1080p-720p-500gb-gdrive/&do=findComment&comment=354445)
-- [Maamannan &lpar;2023&rpar; TRUE WEB-DL - 4K SDR - 2160p - HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - [Tamil + Telugu + Malayalam + Kannada] - 22GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175697-maamannan%C2%A02023-true-web-dl-4k-sdr-2160p-%C2%A0hevc-dd51-640kbps-tamil-telugu-malayalam-kannada-22gb-esub/&do=findComment&comment=354444)
-- [Police Story: Lockdown &lpar;2013&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/174584-police-story-lockdown-2013-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-24gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=354443)
-- [Maamannan &lpar;2023&rpar; TRUE WEB-DL - 4K SDR - 2160p - HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - [Tamil + Telugu + Malayalam + Kannada] - 22GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175697-maamannan%C2%A02023-true-web-dl-4k-sdr-2160p-%C2%A0hevc-dd51-640kbps-tamil-telugu-malayalam-kannada-22gb-esub/&do=findComment&comment=354442)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
