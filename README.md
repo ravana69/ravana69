@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Mission: Impossible - Dead Reckoning Part One &lpar;2023&rpar; TRUE WEB-DL - 4K &amp; 1080p - HEVC / AVC - UNTOUCHED - [Tamil + Telugu + Hindi + English&lpar;DD+5.1&lpar;768kbps&rpar; Atmos&rpar;] - DD+5.1&lpar;640kbps&rpar; - 20.2GB &amp; 14GB - ESub [GDrive]](https://www.1tamilmv.phd/index.php?/forums/topic/175707-mission-impossible-dead-reckoning-part-one-2023-true-web-dl-4k-1080p-hevc-avc-untouched-tamil-telugu-hindi-englishdd51768kbps-atmos-dd51640kbps-202gb-14gb-esub-gdrive/&do=findComment&comment=354462)
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP11 DAY 10 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 558MB &amp; 223MB | 11-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175705-bigg-boss-tamil-s07-ep11-day-10-true-web-dl-1080p-720p-480p-avc-untouched-1gb-558mb-223mb-11-10-2023/&do=findComment&comment=354460)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 2.0 EP39 DAY 38 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 526MB &amp; 221MB | 11-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175704-bigg-boss-telugu-s07-20-ep39-day-38-true-web-dl-1080p-720p-480p-avc-untouched-1gb-526mb-221mb-11-10-2023/&do=findComment&comment=354459)
 - [Anbenum &lpar;From &quot;Leo&quot;&rpar; Master Quality 24bit 96kHz - FLAC - Anirudh Ravichander Musical - 56 MB](https://www.1tamilmv.phd/index.php?/forums/topic/175703-anbenum-from-leo-master-quality-24bit-96khz-flac-anirudh-ravichander-musical-56-mb/&do=findComment&comment=354458)
 - [LEO - Anbenum Lyric | Thalapathy Vijay | Lokesh Kanagaraj | Anirudh Ravichander](https://www.1tamilmv.phd/index.php?/forums/topic/175702-leo-anbenum-lyric-thalapathy-vijay-lokesh-kanagaraj-anirudh-ravichander/&do=findComment&comment=354457)
-- [LEO - Anbenum Lyric | Thalapathy Vijay | Lokesh Kanagaraj | Anirudh Ravichander](https://www.1tamilmv.phd/index.php?/forums/topic/175701-leo-anbenum-lyric-thalapathy-vijay-lokesh-kanagaraj-anirudh-ravichander/&do=findComment&comment=354456)
-- [Anbenum &lpar;From &quot;Leo&quot;&rpar; 3rd Single - &lpar;2023&rpar; Tamil MP3 [320Kbps &amp; 128Kbps] - Anirudh Musical](https://www.1tamilmv.phd/index.php?/forums/topic/175700-anbenum-from-leo-3rd-single-2023-tamil-mp3-320kbps-128kbps-anirudh-musical/&do=findComment&comment=354455)
-- [Kushi &lpar;2023&rpar; TRUE WEB-DL - 4K SDR - 2160p - HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - [Tamil + Telugu] - 19GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175696-kushi-2023-true-web-dl-4k-sdr-2160p-hevc-dd51-640kbps-tamil-telugu-19gb-esub/&do=findComment&comment=354454)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
