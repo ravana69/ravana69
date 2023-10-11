@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ben 10/Generator Rex: Heroes United &lpar;2011&rpar; SDTV - 576p - x264 - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi] - 426MB](https://www.1tamilmv.phd/index.php?/forums/topic/175687-ben-10generator-rex-heroes-united-2011-sdtv-576p-x264-aac-20-tamil-telugu-hindi-426mb/&do=findComment&comment=354434)
 - [Annamalai &lpar;1992&rpar; 720p JIO WEB-DL AAC2.0 x264 - 9.4 GB | 2.9 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175695-annamalai-1992-720p-jio-web-dl-aac20-x264-94-gb-29-gb/&do=findComment&comment=354433)
 - [Captain Prabhakaran &lpar;1991&rpar; 1080p AMZN WEB-DL DDP2.0 x264 - 9 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175694-captain-prabhakaran-1991-1080p-amzn-web-dl-ddp20-x264-9-gb/&do=findComment&comment=354432)
 - [His Name is John [From Dhruva Natchathiram] &lpar;2023&rpar; [VIBER VERSION] - Tamil - [24bit / 16bit - FLAC] - [320kbps / 128kbps - MP3] - 33.2MB - 17.7MB - 6.7MB &amp; 2.7MB [GDrive]](https://www.1tamilmv.phd/index.php?/forums/topic/175693-his-name-is-john-from-dhruva-natchathiram-2023-viber-version-tamil-24bit-16bit-flac-320kbps-128kbps-mp3-332mb-177mb-67mb-27mb-gdrive/&do=findComment&comment=354431)
 - [Maamadura [From Jigarthanda DoubleX] &lpar;2023&rpar; Tamil - [24bit - FLAC] - [320kbps / 128kbps - MP3] - 18.7MB - 6.4MB &amp; 2.6MB [GDrive]](https://www.1tamilmv.phd/index.php?/forums/topic/175692-maamadura-from-jigarthanda-doublex-2023-tamil-24bit-flac-320kbps-128kbps-mp3-187mb-64mb-26mb-gdrive/&do=findComment&comment=354430)
-- [Vada Chennai &lpar;2018&rpar; [UNCENSORED] Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 9.4GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - ESub [GDrive]](https://www.1tamilmv.phd/index.php?/forums/topic/175691-vada-chennai-2018-uncensored-tamil-true-web-dl-1080p-720p-avc-hevc-untouched-dd51640kbps-94gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub-gdrive/&do=findComment&comment=354429)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
