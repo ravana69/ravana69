@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mohanalal Hit Movie Songs | Yesudas | Chithra | Kaithapram | Sound of Arts](https://www.youtube.com/watch?v=CmWgGmUrI4k)
+- [Pravu Movie Promotion | Shorts](https://www.youtube.com/watch?v=Ff1G4fqmYx0)
 - [Arhathayillethumenikk | Christian Video Song | Sigi Deepak | Joji Johns | Kester| Christian Song](https://www.youtube.com/watch?v=QJPqdw7Hh8Q)
 - [അമ്മയെൻ പുണ്യം #ഏറ്റവും പുതിയ സംഗീത ജപമാല # മഹിമയുടെ രഹസ്യങ്ങൾ # കേട്ടവർ  വീണ്ടും കേൾക്കാൻ കൊതിക്കും](https://www.youtube.com/watch?v=DVWfT44L2Yw)
 - [Japamala 11th of October 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 11th of October 23](https://www.youtube.com/watch?v=e0bqs0Kmza4)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=Gdh5anZamT0)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=uZ1vCpdFt2Y)
-- [രാവിലെ പ്രാര്‍ത്ഥന October 11 # Athiravile Prarthana 11th October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=hdoCtQqQC-w)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
