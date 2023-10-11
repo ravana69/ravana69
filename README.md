@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [October 12 Feast of Carlo Acutis | Fr. Shaji Thumpechirayil | #shortsvideo #shorts](https://www.youtube.com/watch?v=sh8ee2W95HY)
 - [നിന്നെ മാനിക്കുന്ന ഒരു ദിവസം ദൈവം ഒരുക്കിയിട്ടുണ്ട് | Rev. Aneesh P Joseph | #shorts #jesus](https://www.youtube.com/watch?v=syCk0eHj9wA)
 - [Thalatherichavar - Audio | Romancham | Sushin Shyam | Johnpaul George Productions | Jithu Madhavan](https://www.youtube.com/watch?v=Kr7RwSy48OI)
 - [Vannanayu Parishudhathma | Jeevithathil Divyaprakasham Choriyunna Kristheeya Bhakthigaanangal](https://www.youtube.com/watch?v=HSYB8tZVcoM)
 - [Pottatha Ponnin Kinavu | Bhargavi Nilayam #shorts](https://www.youtube.com/watch?v=mRDQBEY4JdU)
 - [Poomarakombil - Lyrical Video | Boomerang | Shine Tom Chacko | Samyuktha | Vaikom Vijayalakshmi](https://www.youtube.com/watch?v=I5RkM-5_HGQ)
-- [Bale Bale Video Song  | Thirakal Ezhuthiya Kavitha |  P Susheela](https://www.youtube.com/watch?v=90mcd3uB7Dg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
