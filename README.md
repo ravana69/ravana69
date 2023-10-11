@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളികളുടെ എക്കാലത്തെയും ഇഷ്ട ഗായകൻ എം ജി ശ്രീകുമാർ ആലപിച്ച പാടി നടക്കും സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=-KuCOEmFdAw)
+- [Pilarnnatham Paraye | Shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=NohL9EJ833A)
 - [രാത്രിയുടെ യാമങ്ങളിൽ  ഒഴുകിയെത്തുന്ന മലയാള സിനിമയിലെ മധുര ഗാനങ്ങൾ|Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=r5JCKgNnumo)
 - [Feast of Blessed Carlo Acutis | October 12 | Fr. Shaji Thumpechirayil #shortvideo #shorts](https://www.youtube.com/watch?v=n88Bb49ovdY)
 - [Maarikko Maarikko | Onningu Vannengil | Nadiya Moidu | Lissy Priyadarshan | Mammootty | Shyaam](https://www.youtube.com/watch?v=WK8cepZwpzI)
 - [Kadalum kadangalum Remastered Audio Song Uthaman Movie Song Palakkadu KL Sreeram Kaithapram Johnson](https://www.youtube.com/watch?v=M24Gu29ZS9w)
-- [Thirayezhuthum Mannil | Meenakshi Kalyanam 1998 | Nadirsha | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=_CruWdcYSx0)
-- [Poovenam Pooppada | Nedumudi Venu | Parvathy | Yesudas | Sharada | Johnson](https://www.youtube.com/watch?v=h2HiuniSO3E)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
