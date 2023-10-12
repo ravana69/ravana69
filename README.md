@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [പുന്നാരം തുടി | Punnaram Thudi | Newspaper Boy Movie Song | Gireesh Puthenchery | Yesudas | Mukesh](https://www.youtube.com/watch?v=UxRxNcCiTG0)
-- [Eshoyku Enthoru Sneham | Njan Marana Sneham | Anupa  Ann Sam | Teenu Treesa | Christian Song](https://www.youtube.com/watch?v=zFa9rsWfcZE)
-- [നല്ല മെലഡി ഗാനങ്ങൾ കേൾക്കാനാഗ്രഹിക്കുന്നവർ എപ്പോഴും കേൾക്കാൻ കൊതിക്കുന്ന സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=HuBvq1e8S7Q)
-- [Mounathin Idanazhiyil - Malootty  | Johnson | Sujatha Mohan | Urvasi | Jayaram | Evergreen Hit Songs](https://www.youtube.com/watch?v=Q3MhvMUYf2w)
-- [Manjaninja maamalakal Remastering Song Kottayam Kunjachan KJ Yesudas Chunakkara Ramankutty Shyam](https://www.youtube.com/watch?v=6vcaWXUOkYQ)
-- [മാഘമാസ രഥമണഞ്ഞു |  Magha Masam Radhamananju |  Raid Malayalam Movie Super Hit Song | Ks Chithra](https://www.youtube.com/watch?v=a2AqTSqFgd0)
+- [Shiva Trance Video Song | Class By A Soldier | Meenakshi Anoop | Chinmayi Nair | SR Suraj | Avani](https://www.youtube.com/watch?v=a_x6L2QUdak)
+- [ഓരോ പ്രാർത്ഥനയും ദൈവത്തോടുള്ള നന്ദി പറച്ചിലാകട്ടെ | Rev. Aneesh P Joseph | #shorts #jesus](https://www.youtube.com/watch?v=5aujQ2rXMBM)
+- [Ezham Kooliyivan | Pattabhishekam | MG Sreekumar | Berny Ignatius | Bichu Thirumala](https://www.youtube.com/watch?v=jEVqtow8VHE)
+- [Kunnimani Koottil Video Song | Manju Warrier | Jayaram | Suresh Gopi | KS Chithra | MG Sreekumar](https://www.youtube.com/watch?v=uZLykAlE9Qw)
+- [Raappadi Paadunna Video Song  | Vishukkani | P Susheela | Prem Nazir | Vidhubala |](https://www.youtube.com/watch?v=ceO04sStMmo)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 12th of October 2023](https://www.youtube.com/watch?v=Ktp5-3eDSlw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
