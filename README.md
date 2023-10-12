@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kaattum Kadalum | Ottayadipathakal 1993 | Mohan Sithara | Arundhathi | Malayalam Movie Song](https://www.youtube.com/watch?v=y8xgFwIjPc0)
+- [Kalyanakuyilu Vilikkum | Sparsham | Manoj K Jayan | Kaveri | Chithra | Sharreth | Mohan Roop](https://www.youtube.com/watch?v=rSgxa5L1iQM)
 - [Malayalam Selected Hit Songs | Yesudas | Raveendran | Mammootty | Sound of Arts](https://www.youtube.com/watch?v=bCSs1jh8C7Q)
 - [HAPPY FEAST DAY BLESSED CARLO ACUTIS | Fr. Shaji Thumpechirayil #shortvideo #short #shorts](https://www.youtube.com/watch?v=8AB4J06m3wg)
 - [Ente Sambathennu Cholluvan | Sadhu Kochukunjupadeshi #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=Uol3LUekW-4)
 - [2023 ലെ ഏറ്റവും പുതിയ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala Malaylam 2023 #october 12th](https://www.youtube.com/watch?v=X-6169pDHxM)
-- [ഹൃദയം പൊട്ടി തകരന്നവർക്കു ആശ്വാസമേകുന്ന ഗാനങ്ങൾ | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=E1bur4xBMNc)
-- [October 12](https://www.youtube.com/watch?v=6KQ4xvSiej0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
