@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പുന്നാരം തുടി | Punnaram Thudi | Newspaper Boy Movie Song | Gireesh Puthenchery | Yesudas | Mukesh](https://www.youtube.com/watch?v=UxRxNcCiTG0)
+- [Eshoyku Enthoru Sneham | Njan Marana Sneham | Anupa  Ann Sam | Teenu Treesa | Christian Song](https://www.youtube.com/watch?v=zFa9rsWfcZE)
 - [നല്ല മെലഡി ഗാനങ്ങൾ കേൾക്കാനാഗ്രഹിക്കുന്നവർ എപ്പോഴും കേൾക്കാൻ കൊതിക്കുന്ന സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=HuBvq1e8S7Q)
 - [Mounathin Idanazhiyil - Malootty  | Johnson | Sujatha Mohan | Urvasi | Jayaram | Evergreen Hit Songs](https://www.youtube.com/watch?v=Q3MhvMUYf2w)
 - [Manjaninja maamalakal Remastering Song Kottayam Kunjachan KJ Yesudas Chunakkara Ramankutty Shyam](https://www.youtube.com/watch?v=6vcaWXUOkYQ)
 - [മാഘമാസ രഥമണഞ്ഞു |  Magha Masam Radhamananju |  Raid Malayalam Movie Super Hit Song | Ks Chithra](https://www.youtube.com/watch?v=a2AqTSqFgd0)
-- [Anthikallu Pole | Praavu | Lyrical Video | Bijibal | Jaison J Nair | B K Harinarayanan | Film Songs](https://www.youtube.com/watch?v=PE0dLoKnsUI)
-- [Kaattum Kadalum | Ottayadipathakal 1993 | Mohan Sithara | Arundhathi | Malayalam Movie Song](https://www.youtube.com/watch?v=y8xgFwIjPc0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
