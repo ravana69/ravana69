@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [2023 ലെ ഏറ്റവും പുതിയ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala Malaylam 2023 #october 12th](https://www.youtube.com/watch?v=X-6169pDHxM)
+- [ഹൃദയം പൊട്ടി തകരന്നവർക്കു ആശ്വാസമേകുന്ന ഗാനങ്ങൾ | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=E1bur4xBMNc)
+- [October 12](https://www.youtube.com/watch?v=6KQ4xvSiej0)
+- [Japamala 12th of October 23 # Mathavinte Japamala Prakashathinte Rahasyangal 12th of October 23](https://www.youtube.com/watch?v=pHBLMFb4Sko)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=inDpj9flCIs)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=5tcCzaN4peU)
-- [രാവിലെ പ്രാര്‍ത്ഥന October 12 # Athiravile Prarthana 12th October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=-7kiedH2QDs)
-- [ജപമാല ഗീതങ്ങള്‍ # Holy Rosary Special Songs Malayalam |  Month of Holy Rosary October 2023 Songs](https://www.youtube.com/watch?v=tprKCdz5UAU)
-- [Vibing with #KiliyeKiliye | #AaRaathri | #Ilayaraja | #SJanaki | #shorts #ytshorts](https://www.youtube.com/watch?v=vFHX1KQVU6k)
-- [Joining the trend with #KiliyeKiliye | #AaRaathri | #Ilayaraja | #SJanaki | #shorts #ytshorts](https://www.youtube.com/watch?v=op9xJQobzl8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
