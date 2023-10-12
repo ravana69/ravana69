@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kannil Nilaavu | Chronic Bachelor | Deepak Dev | KS Chithra | Mammootty | Mukesh | Rambha](https://www.youtube.com/watch?v=EECRyysKGB4)
+- [Poonthinkale Moovanthiyaai | Gaandhiyan | KS Chithra | Gireesh Puthenchery | Nadhirsha](https://www.youtube.com/watch?v=3LmGVOuupr4)
 - [Shiva Trance Video Song | Class By A Soldier | Meenakshi Anoop | Chinmayi Nair | SR Suraj | Avani](https://www.youtube.com/watch?v=a_x6L2QUdak)
 - [ഓരോ പ്രാർത്ഥനയും ദൈവത്തോടുള്ള നന്ദി പറച്ചിലാകട്ടെ | Rev. Aneesh P Joseph | #shorts #jesus](https://www.youtube.com/watch?v=5aujQ2rXMBM)
 - [Ezham Kooliyivan | Pattabhishekam | MG Sreekumar | Berny Ignatius | Bichu Thirumala](https://www.youtube.com/watch?v=jEVqtow8VHE)
 - [Kunnimani Koottil Video Song | Manju Warrier | Jayaram | Suresh Gopi | KS Chithra | MG Sreekumar](https://www.youtube.com/watch?v=uZLykAlE9Qw)
-- [Raappadi Paadunna Video Song  | Vishukkani | P Susheela | Prem Nazir | Vidhubala |](https://www.youtube.com/watch?v=ceO04sStMmo)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 12th of October 2023](https://www.youtube.com/watch?v=Ktp5-3eDSlw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
