@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Enne Ninakkay Njaan - Lyrical Video | Tiger Nageswara Rao (Malayalam) | Ravi Teja | GV Prakash Kumar](https://www.youtube.com/watch?v=67hKIdk0ftM)
+- [സമുദ്രതാരമേ മേരി മാതേ...](https://www.youtube.com/watch?v=1Gj7yt9spMc)
 - [Doore Oru Thaaram|Meenathil Thalikettu|Dileep|Sulekha|](https://www.youtube.com/watch?v=2jK5gRw2BCw)
 - [Neela Nilave (Female Version) - Promo | RDX | Shweta Mohan | Sam CS | Shane, Antony, Neeraj, Mahima](https://www.youtube.com/watch?v=oejTvV5Ia1g)
 - [Kannil Nilaavu | Chronic Bachelor | Deepak Dev | KS Chithra | Mammootty | Mukesh | Rambha](https://www.youtube.com/watch?v=EECRyysKGB4)
 - [Poonthinkale Moovanthiyaai | Gaandhiyan | KS Chithra | Gireesh Puthenchery | Nadhirsha](https://www.youtube.com/watch?v=3LmGVOuupr4)
-- [Shiva Trance Video Song | Class By A Soldier | Meenakshi Anoop | Chinmayi Nair | SR Suraj | Avani](https://www.youtube.com/watch?v=a_x6L2QUdak)
-- [ഓരോ പ്രാർത്ഥനയും ദൈവത്തോടുള്ള നന്ദി പറച്ചിലാകട്ടെ | Rev. Aneesh P Joseph | #shorts #jesus](https://www.youtube.com/watch?v=5aujQ2rXMBM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
