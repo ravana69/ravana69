@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന  October 13 # Athiravile Prarthana 13th of October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=a8whhuS_b9Y)
+- [ജപമാല ഗീതങ്ങള്‍ # Holy Rosary Special Songs Malayalam |  Month of Holy Rosary October 2023 Songs](https://www.youtube.com/watch?v=1I8hRMUu8BQ)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 13th October 23](https://www.youtube.com/watch?v=fKsrjeeLtBg)
 - [Pleasant music of #KiliyeKiliye | #AaRaathri | #Ilayaraja | #SJanaki | #shorts #ytshorts](https://www.youtube.com/watch?v=Z5KRfWkgc30)
 - [Riding through life with #KiliyeKiliye | #AaRaathri | #Ilayaraja | #SJanaki | #shorts #ytshorts](https://www.youtube.com/watch?v=DHez28_7S6U)
 - [Enne Ninakkay Njaan - Lyrical Video | Tiger Nageswara Rao (Malayalam) | Ravi Teja | GV Prakash Kumar](https://www.youtube.com/watch?v=67hKIdk0ftM)
-- [സമുദ്രതാരമേ മേരി മാതേ...](https://www.youtube.com/watch?v=1Gj7yt9spMc)
-- [Doore Oru Thaaram|Meenathil Thalikettu|Dileep|Sulekha|](https://www.youtube.com/watch?v=2jK5gRw2BCw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
