@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Chandramukhi 2 &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0 - 320Kbps&rpar; - 3.8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175727-chandramukhi-2-2023-tamil-true-web-dl-1080p-720p-avc-hevc-aac-20-320kbps-38gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=354528)
+- [Sultan of Delhi &lpar;2023&rpar; S01 EP &lpar;01-09&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 8GB - 3GB &amp; 1GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175728-sultan-of-delhi-2023-s01-ep-01-09-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-8gb-3gb-1gb-esub/&do=findComment&comment=354527)
 - [Chandramukhi 2 &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0 - 320Kbps&rpar; - 3.8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175727-chandramukhi-2-2023-tamil-true-web-dl-1080p-720p-avc-hevc-aac-20-320kbps-38gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=354526)
 - [Kasargold &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Kannada] - 7GB - 2.9GB &amp; 1.6GB] - [x264 - 800MB &amp; 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175718-kasargold-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-kannada-7gb-29gb-16gb-x264-800mb-450mb-esub/&do=findComment&comment=354525)
 - [Mark Antony &lpar;2023&rpar; AMZN WEB-DL DDP5.1 Esubs - 2160p | 1080p | 720p - 16.2 GB | 11.1 GB | 5.3 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175726-mark-antony-2023-amzn-web-dl-ddp51-esubs-2160p-1080p-720p-162-gb-111-gb-53-gb/&do=findComment&comment=354524)
-- [Loki S02E02 DSNP WEB.DL Multi DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p - 5.6 GB | 2.3 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175725-loki-s02e02-dsnp-webdl-multi-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-56-gb-23-gb/&do=findComment&comment=354523)
-- [Mark Antony &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 17GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175716-mark-antony-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-17gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354522)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
