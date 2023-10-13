@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [God [Iraivan] &lpar;2023&rpar; Telugu UnCut HD - [1080p &amp; 720p - x264 - 2.8GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio - HC-ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175732-god-iraivan-2023-telugu-uncut-hd-1080p-720p-x264-28gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio-hc-esub/&do=findComment&comment=354557)
 - [Iraivan &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175729-iraivan-2023-tamil-web-dl-1080p-720p-avc-hevc-aac-20-28gb-14gb-850mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=354556)
 - [Chandramukhi 2 &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0 - 320Kbps&rpar; - 3.8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175727-chandramukhi-2-2023-tamil-true-web-dl-1080p-720p-avc-hevc-aac-20-320kbps-38gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=354555)
 - [Chandramukhi 2 &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0 - 320Kbps&rpar; - 3.8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175727-chandramukhi-2-2023-tamil-true-web-dl-1080p-720p-avc-hevc-aac-20-320kbps-38gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=354554)
 - [Mark Antony &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 17GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175716-mark-antony-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-17gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354553)
-- [Mark Antony &lpar;2023&rpar; AMZN WEB-DL H264 - [Tamil + Telugu] - &lpar;DD+5.1 - 640Kbps &amp; AAC 2.0&rpar; - ESub - [4K, 1080p &amp; 720p - 16.5GB - 8.9GB - 3.3GB - 1.8GB] [GDrive]](https://www.1tamilmv.phd/index.php?/forums/topic/165003-mark-antony-2023-amzn-web-dl-h264-tamil-telugu-dd51-640kbps-aac-20-esub-4k-1080p-720p-165gb-89gb-33gb-18gb-gdrive/&do=findComment&comment=354552)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
