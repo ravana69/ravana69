@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP13 DAY 12 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 996MB - 521MB &amp; 210MB | 13-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175744-bigg-boss-tamil-s07-ep13-day-12-true-web-dl-1080p-720p-480p-avc-untouched-996mb-521mb-210mb-13-10-2023/&do=findComment&comment=354570)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 2.0 EP41 DAY 40 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 535MB &amp; 224MB | 13-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175742-bigg-boss-telugu-s07-20-ep41-day-40-true-web-dl-1080p-720p-480p-avc-untouched-1gb-535mb-224mb-13-10-2023/&do=findComment&comment=354568)
 - [Mark Antony &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175741-mark-antony-2023-true-web-dl-1080p-720p-avc-malayalam-kannada-dd51-192kbps-26gb-14gb-x264-750mb-450mb-esub/&do=findComment&comment=354567)
 - [Sultan of Delhi &lpar;2023&rpar; Complete S01 EP &lpar;01-09&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 6GB - 3GB &amp; 1GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/175740-sultan-of-delhi-2023-complete-s01-ep-01-09-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-6gb-3gb-1gb-esub-google-drive/&do=findComment&comment=354566)
 - [Dilse &lpar;2023&rpar; S01 EP11 ETV-WIN WEB-DL- [1080p - 720p &amp; 480p AVC - Telugu - &lpar;AAC 2.0 - 192Kbps&rpar; - 450MB - 250MB - 100MB] - x264 [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/175739-dilse-2023-s01-ep11-etv-win-web-dl-1080p-720p-480p-avc-telugu-aac-20-192kbps-450mb-250mb-100mb-x264-google-drive/&do=findComment&comment=354565)
-- [Loki S02E02 DSNP WEB.DL Multi DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p - 5.6 GB | 2.3 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175725-loki-s02e02-dsnp-webdl-multi-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-56-gb-23-gb/&do=findComment&comment=354564)
-- [KRRISH &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.7GB](https://www.1tamilmv.phd/index.php?/forums/topic/175738-krrish-2006-telugu-dvd9-untouched-480p-dd51-448kbps-67gb/&do=findComment&comment=354563)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
