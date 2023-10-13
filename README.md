@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന October 14 # Athiravile Prarthana 14th October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=BfjVaFLXS_4)
+- [ജപമാല ഗീതങ്ങള്‍ # Holy Rosary Special Songs Malayalam |  Month of Holy Rosary October 2023 Songs](https://www.youtube.com/watch?v=wShyex57Yng)
 - [ദീപം കയ്യിൽ സന്ധ്യാദീപം..| കെ ജെ യേശുദാസ് | Chitra | Original Audio Remastered movie songs](https://www.youtube.com/watch?v=dTbxTC0tluM)
 - [Beauty of #KiliyeKiliye | #AaRaathri | #Ilayaraja | #SJanaki | #shorts #ytshorts](https://www.youtube.com/watch?v=PhTvktjlW2Q)
 - [Feel the joy of #KiliyeKiliye | #AaRaathri | #Ilayaraja | #SJanaki | #shorts #ytshorts](https://www.youtube.com/watch?v=LVLXXwVMb6k)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 14th October 23](https://www.youtube.com/watch?v=hJl4r1BZqJ8)
-- [കനിവിൻ ഉറവയാം നാഥേ ... നിൻ കരുണയിലഭയം തേടുന്നു ഞാൻ .](https://www.youtube.com/watch?v=m09ktC4XHsg)
-- [Vaarmazhaville | Mizhi Randilum | Indrajith | Ranjith | Raveendran | Kavya Madhavan | KS Chithra](https://www.youtube.com/watch?v=T35QUIztWPY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
