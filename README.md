@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Enne Karuthunna Vidhangal | Christian Devotional Shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=xawoI_XgaSQ)
 - [sangeetha japamala prayer #dhukkathinte rahasyangal #അമ്മയെൻ പുണ്യം#ദുഃഖത്തിൻറെ രഹസ്യങ്ങൾ](https://www.youtube.com/watch?v=KFhoFc0Uxdw)
 - [Songs Of The Week | Ziya Ul Haq | Christian Devotional Songs Malayalam | Joji Johns | Kester](https://www.youtube.com/watch?v=Jb2xyGkjMhU)
 - [Japamala 13th of October 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 13th of October 23](https://www.youtube.com/watch?v=K7SkdXrDfG0)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=q9qEfWI-hYg)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=R9wtaSuRnlk)
-- [പ്രഭാത പ്രാര്‍ത്ഥന  October 13 # Athiravile Prarthana 13th of October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=a8whhuS_b9Y)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
