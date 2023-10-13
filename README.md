@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Sultan of Delhi &lpar;2023&rpar; Complete S01 EP &lpar;01-09&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 6GB - 3GB &amp; 1GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/175740-sultan-of-delhi-2023-complete-s01-ep-01-09-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-6gb-3gb-1gb-esub-google-drive/&do=findComment&comment=354566)
 - [Dilse &lpar;2023&rpar; S01 EP11 ETV-WIN WEB-DL- [1080p - 720p &amp; 480p AVC - Telugu - &lpar;AAC 2.0 - 192Kbps&rpar; - 450MB - 250MB - 100MB] - x264 [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/175739-dilse-2023-s01-ep11-etv-win-web-dl-1080p-720p-480p-avc-telugu-aac-20-192kbps-450mb-250mb-100mb-x264-google-drive/&do=findComment&comment=354565)
 - [Loki S02E02 DSNP WEB.DL Multi DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p - 5.6 GB | 2.3 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175725-loki-s02e02-dsnp-webdl-multi-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-56-gb-23-gb/&do=findComment&comment=354564)
 - [KRRISH &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.7GB](https://www.1tamilmv.phd/index.php?/forums/topic/175738-krrish-2006-telugu-dvd9-untouched-480p-dd51-448kbps-67gb/&do=findComment&comment=354563)
-- [God [Iraivan] &lpar;2023&rpar; Telugu UnCut HD - [1080p &amp; 720p - x264 - 2.8GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio - HC-ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175732-god-iraivan-2023-telugu-uncut-hd-1080p-720p-x264-28gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio-hc-esub/&do=findComment&comment=354557)
-- [Iraivan &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175729-iraivan-2023-tamil-web-dl-1080p-720p-avc-hevc-aac-20-28gb-14gb-850mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=354556)
+- [Month of Madhu &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175734-month-of-madhu-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=354559)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
