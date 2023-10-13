@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Samara &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175733-samara-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=354571)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP13 DAY 12 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 996MB - 521MB &amp; 210MB | 13-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175744-bigg-boss-tamil-s07-ep13-day-12-true-web-dl-1080p-720p-480p-avc-untouched-996mb-521mb-210mb-13-10-2023/&do=findComment&comment=354570)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 2.0 EP41 DAY 40 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 535MB &amp; 224MB | 13-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175742-bigg-boss-telugu-s07-20-ep41-day-40-true-web-dl-1080p-720p-480p-avc-untouched-1gb-535mb-224mb-13-10-2023/&do=findComment&comment=354568)
 - [Mark Antony &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175741-mark-antony-2023-true-web-dl-1080p-720p-avc-malayalam-kannada-dd51-192kbps-26gb-14gb-x264-750mb-450mb-esub/&do=findComment&comment=354567)
 - [Sultan of Delhi &lpar;2023&rpar; Complete S01 EP &lpar;01-09&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 6GB - 3GB &amp; 1GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/175740-sultan-of-delhi-2023-complete-s01-ep-01-09-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-6gb-3gb-1gb-esub-google-drive/&do=findComment&comment=354566)
-- [Dilse &lpar;2023&rpar; S01 EP11 ETV-WIN WEB-DL- [1080p - 720p &amp; 480p AVC - Telugu - &lpar;AAC 2.0 - 192Kbps&rpar; - 450MB - 250MB - 100MB] - x264 [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/175739-dilse-2023-s01-ep11-etv-win-web-dl-1080p-720p-480p-avc-telugu-aac-20-192kbps-450mb-250mb-100mb-x264-google-drive/&do=findComment&comment=354565)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
