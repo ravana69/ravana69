@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vaarmazhaville | Mizhi Randilum | Indrajith | Ranjith | Raveendran | Kavya Madhavan | KS Chithra](https://www.youtube.com/watch?v=T35QUIztWPY)
+- [വിധിയെന്ന ഭുവനൈക ശില്പി | Shilpi Vishwa Shilpi Vidhiyenna |  Mayooranirtham Movie Song | KJ Yesudas](https://www.youtube.com/watch?v=E19PIqCWDjo)
 - [Chanchala Druthapada Thalam Video Song | Ishtam | KS Chithra | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=__5luSa3XoM)
 - [ITHA SUTHAN NISARANAYI | #shortvideo | Super Hit Christmas Chorus Song | Fr Shaji Thumpechirayil](https://www.youtube.com/watch?v=rOuWckR2D-E)
 - [Raghupati Raghava Raja Ram | Gaandhiyan | MG Sreekumar | Sreenivas | Baby Rincy | Salim | Nadhirsha](https://www.youtube.com/watch?v=bZR1mt2l3a0)
 - [അകന്ന് പോകുന്നു എന്നുള്ളത് ഏതൊരാൾക്കും വേഗം പിടുത്തം കിട്ടുന്ന അനുഭവമാണ് | Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=ccq-VJ1UMxw)
-- [Oru Penkidavu Song | Prajapathi #shorts](https://www.youtube.com/watch?v=iwu79VvVy_o)
-- [Mariye Amalamaanojne | Mathavinte Divyaanugrahamarulunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=DFjHL4a-Crs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
