@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kunkumam Charthumee | Poothumbiyum Poovalanmarum | Vani Vishwanath | Harisree Ashokan | MG Sreekumar](https://www.youtube.com/watch?v=nYn-MuF4eao)
 - [അമ്മയെൻ പുണ്യം എന്ന ആൽബത്തിൽ നിന്നു ഒരു അതിമനോഹര ഗാനം #ജോജോ ജോണി #ജോൺസൺ  kk](https://www.youtube.com/watch?v=Sk5ywNPZuP8)
 - [അമ്മേ ഈ വീട്ടിൽ വന്നീടണേ ... ഇനിയുള്ള ജീവിത കാലമെല്ലാം ..](https://www.youtube.com/watch?v=6PaM3qi7GJ8)
 - [Muttathe Mulle Chollu Video Song | Mayavi | Mammootty | Gopika | KJ Yesudas | Manjari | Alex Paul](https://www.youtube.com/watch?v=FVPio6AbqKA)
 - [എസ് പി വെങ്കിടേഷിന്റെ മനസ്സിൽ നിന്നും മായാത്ത ഒരുപിടി മനോഹര  ഗാനങ്ങൾ ! HITS OF SP VENKITESH](https://www.youtube.com/watch?v=KW_F_0Hx9uE)
 - [KUNJUVAVAYAYI | #shortvideo | MEGHA JOSEKUTTY | FR SHAJI THUMPECHIRAYIL | ALEX](https://www.youtube.com/watch?v=HHy9_09RJZM)
-- [Paramaraja Guruvarane | Mithila Michael #shorts  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=0j-WI_uANE4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
