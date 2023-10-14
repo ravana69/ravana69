@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ninavinte Kaayalil Remastered Audio Song Maniyara Movie Song KJ Yesudas  Ambili P Bhaskaran AT Ummer](https://www.youtube.com/watch?v=SeymGE74kJ0)
+- [Kiliye Kiliye | Nokketha Doorath Kannnum MNattu | Mohanlal | Nadiya Moidu | Chithra | Fazil](https://www.youtube.com/watch?v=F2OqVI1FEOw)
+- [Kaayaaduthe | Chithrakoodam 2003 | S. P. Venkitesh | Malgudi Subha| Malayalam Movie Song](https://www.youtube.com/watch?v=iXfMmronhN0)
 - [കാനായിലെ  ആദ്യ അത്ഭുതം . അമ്മയെൻ  പുണ്യം എന്ന ആൽബത്തിൽ നിന്ന് #mothermarysongs #malayalam](https://www.youtube.com/watch?v=WsMhznoeZpg)
 - [Merikkundoru Kunjadu | Shorts](https://www.youtube.com/watch?v=B3tGCUZQffU)
 - [Pranavam Malayalam Devotional Songs | K J Yesudas | Jayavijaya | Sound of Arts](https://www.youtube.com/watch?v=F-mimM3lOQA)
-- [എത്രപ്രാവിശ്യം കേട്ടു എന്ന് എനിക്കുതന്നെ അറിയില്ല  അതിമനോഹരം ഈ വരികളും സംഗീതവും #അമ്മയെൻ പുണ്യം](https://www.youtube.com/watch?v=g0t2d3u7r40)
-- [japamala #santhoshathinte sangeetha japamala malayalam #fr shaji thumbechirayil #jojo johny #johnson](https://www.youtube.com/watch?v=VVtywF_Wztw)
-- [Christian Video Songs Malayalam | Kester | Sujatha | Mariyan Songs | Christian Songs | Joji Johns](https://www.youtube.com/watch?v=tafChe2J3LY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
