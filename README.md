@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Arjun, Ashwini on Duty - 480p - AVC - UNTOUCHED - AAC - 85MB](https://www.1tamilmv.phd/index.php?/forums/topic/175751-bigg-boss-telugu-s07-unseen-arjun-ashwini-on-duty-480p-avc-untouched-aac-85mb/&do=findComment&comment=354581)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Ashwini Gets Pranked - 480p - AVC - UNTOUCHED - AAC - 72MB](https://www.1tamilmv.phd/index.php?/forums/topic/175750-bigg-boss-telugu-s07-unseen-ashwini-gets-pranked-480p-avc-untouched-aac-72mb/&do=findComment&comment=354580)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Priyanka Draws the Line - 480p - AVC - UNTOUCHED - AAC - 75MB](https://www.1tamilmv.phd/index.php?/forums/topic/175749-bigg-boss-telugu-s07-unseen-priyanka-draws-the-line-480p-avc-untouched-aac-75mb/&do=findComment&comment=354579)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Prince Yawar&#39;s Clarification - 480p - AVC - UNTOUCHED - AAC - 56MB](https://www.1tamilmv.phd/index.php?/forums/topic/175748-bigg-boss-telugu-s07-unseen-prince-yawars-clarification-480p-avc-untouched-aac-56mb/&do=findComment&comment=354578)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Why is Amardeep Upset with Shivaji - 480p - AVC - UNTOUCHED - AAC - 86MB](https://www.1tamilmv.phd/index.php?/forums/topic/175747-bigg-boss-telugu-s07-unseen-why-is-amardeep-upset-with-shivaji-480p-avc-untouched-aac-86mb/&do=findComment&comment=354577)
+- [Outlander &lpar;2008&rpar; English 1080p BluRay x264 DTS 5.1 [GDRIVE]](https://www.1tamilmv.phd/index.php?/forums/topic/151173-outlander-2008-english-1080p-bluray-x264-dts-51-gdrive/&do=findComment&comment=354591)
+- [Mistake &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps &amp; AAC 2.0&rpar; - 2GB &amp; 1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175721-mistake-2023-telugu-true-web-dl-1080p-720p-avc-dd51-384kbps-aac-20-2gb-1gb-x264-700mb-400mb-esub/&do=findComment&comment=354590)
+- [Chandramukhi 2 &lpar;2023&rpar; Tamil WEB-DL - 1080p HQ - AVC - &lpar;DD5.1 640Kbps Upmixed + AAC 2.0 - 320Kbps&rpar; - 4.5GB - HC-ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175754-chandramukhi-2-2023-tamil-web-dl-1080p-hq-avc-dd51-640kbps-upmixed-aac-20-320kbps-45gb-hc-esub/&do=findComment&comment=354589)
+- [The Expendables 4 &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.6GB - 1.1GB &amp; 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175723-the-expendables-4-2023-english-true-web-dl-1080p-720p-avc-dd51-384kbps-26gb-11gb-450mb-esub/&do=findComment&comment=354588)
+- [Kasargold &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175720-kasargold-2023-malayalam-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354587)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
