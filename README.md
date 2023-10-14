@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP13 DAY 12 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 996MB - 521MB &amp; 210MB | 13-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175744-bigg-boss-tamil-s07-ep13-day-12-true-web-dl-1080p-720p-480p-avc-untouched-996mb-521mb-210mb-13-10-2023/&do=findComment&comment=354593)
+- [Chandramukhi 2 &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175502-chandramukhi-2-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=354592)
 - [Outlander &lpar;2008&rpar; English 1080p BluRay x264 DTS 5.1 [GDRIVE]](https://www.1tamilmv.phd/index.php?/forums/topic/151173-outlander-2008-english-1080p-bluray-x264-dts-51-gdrive/&do=findComment&comment=354591)
 - [Mistake &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps &amp; AAC 2.0&rpar; - 2GB &amp; 1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175721-mistake-2023-telugu-true-web-dl-1080p-720p-avc-dd51-384kbps-aac-20-2gb-1gb-x264-700mb-400mb-esub/&do=findComment&comment=354590)
 - [Chandramukhi 2 &lpar;2023&rpar; Tamil WEB-DL - 1080p HQ - AVC - &lpar;DD5.1 640Kbps Upmixed + AAC 2.0 - 320Kbps&rpar; - 4.5GB - HC-ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175754-chandramukhi-2-2023-tamil-web-dl-1080p-hq-avc-dd51-640kbps-upmixed-aac-20-320kbps-45gb-hc-esub/&do=findComment&comment=354589)
-- [The Expendables 4 &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.6GB - 1.1GB &amp; 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175723-the-expendables-4-2023-english-true-web-dl-1080p-720p-avc-dd51-384kbps-26gb-11gb-450mb-esub/&do=findComment&comment=354588)
-- [Kasargold &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175720-kasargold-2023-malayalam-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354587)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
