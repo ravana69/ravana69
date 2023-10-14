@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [PANJAA &lpar;2011&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175755-panjaa-2011-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-7gb-esub/&do=findComment&comment=354604)
+- [Chandramukhi 2 &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0 - 320Kbps&rpar; - 3.8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175727-chandramukhi-2-2023-tamil-true-web-dl-1080p-720p-avc-hevc-aac-20-320kbps-38gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=354603)
+- [50 Tamil Movies - SS/TK/AMZN/SUN NXT/JC - WEB DL - H264/H265 - DDP5.1/DD2.0 - Esub - [2160p, 1080p &amp; 720p - 375GB] [GDRIVE]](https://www.1tamilmv.phd/index.php?/forums/topic/169110-50-tamil-movies-sstkamznsun-nxtjc-web-dl-h264h265-ddp51dd20-esub-2160p-1080p-720p-375gb-gdrive/&do=findComment&comment=354602)
+- [75 Tamil Movies - AMZN/SUN NXT/SS/JC WEB DL - H264 - ESub - [1080p - 600GB] [Gdrive]](https://www.1tamilmv.phd/index.php?/forums/topic/143253-75-tamil-movies-amznsun-nxtssjc-web-dl-h264-esub-1080p-600gb-gdrive/&do=findComment&comment=354601)
 - [Aravaan 2012 Tamil KTV HD 720p HDTVRip UNTOUCHED x264 AVC 2.8GB [GD]](https://www.1tamilmv.phd/index.php?/forums/topic/131675-aravaan-2012-tamil-ktv-hd-720p-hdtvrip-untouched-x264-avc-28gb-gd/&do=findComment&comment=354600)
-- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;25-27&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175667-vera-maari-office-2023-s01-ep-25-27-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=354599)
-- [100 Telugu Movies - BluRay/AMZN/SUN NXT/ZEE5/HS WEB DL - H264 - DD5.1/AAC2.0 - ESub [GDRIVE]](https://www.1tamilmv.phd/index.php?/forums/topic/166971-100-telugu-movies-blurayamznsun-nxtzee5hs-web-dl-h264-dd51aac20-esub-gdrive/&do=findComment&comment=354598)
-- [Mistake &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps &amp; AAC 2.0&rpar; - 2GB &amp; 1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175721-mistake-2023-telugu-true-web-dl-1080p-720p-avc-dd51-384kbps-aac-20-2gb-1gb-x264-700mb-400mb-esub/&do=findComment&comment=354597)
-- [God [Iraivan] &lpar;2023&rpar; Telugu UnCut HD - [1080p &amp; 720p - x264 - 2.8GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio - HC-ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175732-god-iraivan-2023-telugu-uncut-hd-1080p-720p-x264-28gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio-hc-esub/&do=findComment&comment=354596)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
