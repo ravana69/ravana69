@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Expend4bles &lpar;2023&rpar; AMZN WEB-DL DDP5.1 Atmos Esubs - 2160P [HDR10-DoVi] | 1080p | 720p - 17.8 GB | 4.8 GB | 2.2 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175745-expend4bles-2023-amzn-web-dl-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-720p-178-gb-48-gb-22-gb/&do=findComment&comment=354574)
-- [Sultan of Delhi &lpar;2023&rpar; Complete S01 EP &lpar;01-09&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 6GB - 3GB &amp; 1GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/175740-sultan-of-delhi-2023-complete-s01-ep-01-09-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-6gb-3gb-1gb-esub-google-drive/&do=findComment&comment=354573)
-- [Samara &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175733-samara-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=354571)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP13 DAY 12 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 996MB - 521MB &amp; 210MB | 13-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175744-bigg-boss-tamil-s07-ep13-day-12-true-web-dl-1080p-720p-480p-avc-untouched-996mb-521mb-210mb-13-10-2023/&do=findComment&comment=354570)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 2.0 EP41 DAY 40 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 535MB &amp; 224MB | 13-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175742-bigg-boss-telugu-s07-20-ep41-day-40-true-web-dl-1080p-720p-480p-avc-untouched-1gb-535mb-224mb-13-10-2023/&do=findComment&comment=354568)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Arjun, Ashwini on Duty - 480p - AVC - UNTOUCHED - AAC - 85MB](https://www.1tamilmv.phd/index.php?/forums/topic/175751-bigg-boss-telugu-s07-unseen-arjun-ashwini-on-duty-480p-avc-untouched-aac-85mb/&do=findComment&comment=354581)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Ashwini Gets Pranked - 480p - AVC - UNTOUCHED - AAC - 72MB](https://www.1tamilmv.phd/index.php?/forums/topic/175750-bigg-boss-telugu-s07-unseen-ashwini-gets-pranked-480p-avc-untouched-aac-72mb/&do=findComment&comment=354580)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Priyanka Draws the Line - 480p - AVC - UNTOUCHED - AAC - 75MB](https://www.1tamilmv.phd/index.php?/forums/topic/175749-bigg-boss-telugu-s07-unseen-priyanka-draws-the-line-480p-avc-untouched-aac-75mb/&do=findComment&comment=354579)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Prince Yawar&#39;s Clarification - 480p - AVC - UNTOUCHED - AAC - 56MB](https://www.1tamilmv.phd/index.php?/forums/topic/175748-bigg-boss-telugu-s07-unseen-prince-yawars-clarification-480p-avc-untouched-aac-56mb/&do=findComment&comment=354578)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Why is Amardeep Upset with Shivaji - 480p - AVC - UNTOUCHED - AAC - 86MB](https://www.1tamilmv.phd/index.php?/forums/topic/175747-bigg-boss-telugu-s07-unseen-why-is-amardeep-upset-with-shivaji-480p-avc-untouched-aac-86mb/&do=findComment&comment=354577)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
