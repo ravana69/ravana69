@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [സംഗീതാസ്വാദകരുടെ മനം കവർന്ന തൊണ്ണൂറുകളിലെ ജനപ്രിയ ഗാനങ്ങൾ ! SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=ths7CdSRMsI)
+- [കേൾക്കുന്ന മാത്രയിൽ കോരിത്തരിച്ചു പോകുന്ന അത്രമേൽ  സുഖകരമാം സിനിമാഗാനങ്ങൾ ! SUPERHIT FILM SONGS](https://www.youtube.com/watch?v=jTmfvLziwDg)
 - [Maanazhako | Vellinakshathram | Beautiful Song by K J Yesudas #shorts](https://www.youtube.com/watch?v=keY0Km4Z3S4)
 - [Ninavinte Kaayalil Remastered Audio Song Maniyara Movie Song KJ Yesudas  Ambili P Bhaskaran AT Ummer](https://www.youtube.com/watch?v=SeymGE74kJ0)
 - [Kiliye Kiliye | Nokketha Doorath Kannnum MNattu | Mohanlal | Nadiya Moidu | Chithra | Fazil](https://www.youtube.com/watch?v=F2OqVI1FEOw)
 - [Kaayaaduthe | Chithrakoodam 2003 | S. P. Venkitesh | Malgudi Subha| Malayalam Movie Song](https://www.youtube.com/watch?v=iXfMmronhN0)
-- [കാനായിലെ  ആദ്യ അത്ഭുതം . അമ്മയെൻ  പുണ്യം എന്ന ആൽബത്തിൽ നിന്ന് #mothermarysongs #malayalam](https://www.youtube.com/watch?v=WsMhznoeZpg)
-- [Merikkundoru Kunjadu | Shorts](https://www.youtube.com/watch?v=B3tGCUZQffU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
