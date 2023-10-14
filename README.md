@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Muttathe Mulle Chollu Video Song | Mayavi | Mammootty | Gopika | KJ Yesudas | Manjari | Alex Paul](https://www.youtube.com/watch?v=FVPio6AbqKA)
+- [എസ് പി വെങ്കിടേഷിന്റെ മനസ്സിൽ നിന്നും മായാത്ത ഒരുപിടി മനോഹര  ഗാനങ്ങൾ ! HITS OF SP VENKITESH](https://www.youtube.com/watch?v=KW_F_0Hx9uE)
 - [KUNJUVAVAYAYI | #shortvideo | MEGHA JOSEKUTTY | FR SHAJI THUMPECHIRAYIL | ALEX](https://www.youtube.com/watch?v=HHy9_09RJZM)
 - [Paramaraja Guruvarane | Mithila Michael #shorts  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=0j-WI_uANE4)
 - [Neelakkurinjikal Poothu | Kathakku Pinnil | KG Markose | Selma George | Ouseppachan | ONV Kurup](https://www.youtube.com/watch?v=hnWdBMhsyCc)
 - [Chandirante | Thenkashikkattu | Engandiyur Chandrasekharan | Ritwik S Chand | Malayalam Film Songs](https://www.youtube.com/watch?v=gNi4vDZ0y-8)
-- [പൊള്ളയായ വാക്കുകളേക്കാൾ നല്ലത് എന്നും മൗനം തന്നെയാണ് | Rev. Aneesh P Joseph | #shorts #jesus](https://www.youtube.com/watch?v=aadcwpWHXII)
-- [Kalyana Kachery | Maayaajaalam | KJ Yesudas | Bichu Thirumala | Mukesh](https://www.youtube.com/watch?v=wODOTJZTc4o)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
