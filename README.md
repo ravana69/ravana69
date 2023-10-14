@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [PANJAA &lpar;2011&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175755-panjaa-2011-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-7gb-esub/&do=findComment&comment=354604)
-- [Chandramukhi 2 &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0 - 320Kbps&rpar; - 3.8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175727-chandramukhi-2-2023-tamil-true-web-dl-1080p-720p-avc-hevc-aac-20-320kbps-38gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=354603)
-- [50 Tamil Movies - SS/TK/AMZN/SUN NXT/JC - WEB DL - H264/H265 - DDP5.1/DD2.0 - Esub - [2160p, 1080p &amp; 720p - 375GB] [GDRIVE]](https://www.1tamilmv.phd/index.php?/forums/topic/169110-50-tamil-movies-sstkamznsun-nxtjc-web-dl-h264h265-ddp51dd20-esub-2160p-1080p-720p-375gb-gdrive/&do=findComment&comment=354602)
-- [75 Tamil Movies - AMZN/SUN NXT/SS/JC WEB DL - H264 - ESub - [1080p - 600GB] [Gdrive]](https://www.1tamilmv.phd/index.php?/forums/topic/143253-75-tamil-movies-amznsun-nxtssjc-web-dl-h264-esub-1080p-600gb-gdrive/&do=findComment&comment=354601)
-- [Aravaan 2012 Tamil KTV HD 720p HDTVRip UNTOUCHED x264 AVC 2.8GB [GD]](https://www.1tamilmv.phd/index.php?/forums/topic/131675-aravaan-2012-tamil-ktv-hd-720p-hdtvrip-untouched-x264-avc-28gb-gd/&do=findComment&comment=354600)
+- [Partner &lpar;2023&rpar; Tamil HQ HDRip - 720p - HEVC - AAC - 600MB - Esub](https://www.1tamilmv.phd/index.php?/forums/topic/175764-partner-2023-tamil-hq-hdrip-720p-hevc-aac-600mb-esub/&do=findComment&comment=354613)
+- [Prema Vimanam [Kadhal Vimanam] &lpar;2023&rpar; HQ HDRip - 720p - HEVC - x265 - Tamil - &lpar;DD+5.1 - 192Kbps&rpar; - 800MB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175763-prema-vimanam-kadhal-vimanam-2023-hq-hdrip-720p-hevc-x265-tamil-dd51-192kbps-800mb-esub/&do=findComment&comment=354612)
+- [Mark Antony &lpar;2023&rpar; Tamil HQ HDRip - 720p - HEVC - AAC - 950MB - Esub](https://www.1tamilmv.phd/index.php?/forums/topic/175762-mark-antony-2023-tamil-hq-hdrip-720p-hevc-aac-950mb-esub/&do=findComment&comment=354611)
+- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;28-30&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175761-vera-maari-office-2023-s01-ep-28-30-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=354610)
+- [City of Dreams &lpar;2023&rpar; Complete S03 EP &lpar;01-09&rpar; Merged TRUE WEB-DL - [1080p &amp; 720p - &lpar;Tamil + Telugu + Hindi + Kannada + Malayalam&rpar; - 4.9GB - 2.6GB &amp; 1.2GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/175760-city-of-dreams-2023-complete-s03-ep-01-09-merged-true-web-dl-1080p-720p-tamil-telugu-hindi-kannada-malayalam-49gb-26gb-12gb-esub-google-drive/&do=findComment&comment=354609)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
