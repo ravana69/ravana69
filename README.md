@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [KUNJUVAVAYAYI | #shortvideo | MEGHA JOSEKUTTY | FR SHAJI THUMPECHIRAYIL | ALEX](https://www.youtube.com/watch?v=HHy9_09RJZM)
+- [Paramaraja Guruvarane | Mithila Michael #shorts  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=0j-WI_uANE4)
 - [Neelakkurinjikal Poothu | Kathakku Pinnil | KG Markose | Selma George | Ouseppachan | ONV Kurup](https://www.youtube.com/watch?v=hnWdBMhsyCc)
 - [Chandirante | Thenkashikkattu | Engandiyur Chandrasekharan | Ritwik S Chand | Malayalam Film Songs](https://www.youtube.com/watch?v=gNi4vDZ0y-8)
 - [പൊള്ളയായ വാക്കുകളേക്കാൾ നല്ലത് എന്നും മൗനം തന്നെയാണ് | Rev. Aneesh P Joseph | #shorts #jesus](https://www.youtube.com/watch?v=aadcwpWHXII)
 - [Kalyana Kachery | Maayaajaalam | KJ Yesudas | Bichu Thirumala | Mukesh](https://www.youtube.com/watch?v=wODOTJZTc4o)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 14th of October 2023](https://www.youtube.com/watch?v=w-Bv3Vs8uug)
-- [Makkasai Makkasai Video Song | Vettam | Dileep | Kalabhavan Mani |  Naadirsha | M.G. Sreekumar](https://www.youtube.com/watch?v=_Y0Wh_s5D9s)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
