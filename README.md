@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [അമ്മേ .. വന്നീടാമേ ,എൻ ചാരെ വന്നീടാമേ...](https://www.youtube.com/watch?v=j9L0O65O-fw)
+- [Eshoyku Enthoru Sneham | Njan Marana Sneham  Teenu Treesa |  #christiandevotionalsongsmalayalam](https://www.youtube.com/watch?v=wS5N7J5GUGw)
 - [Varna Vrindhavanam | Kaliyoonjal | Dileep | Shobana | Ilayaraja | Mammootty | Anil Babu](https://www.youtube.com/watch?v=bZf7MoALlSo)
 - [Azhagaka Sirithathu   December Pookal   Ilaiyaraaja   Hi Res Audio](https://www.youtube.com/watch?v=wfTFV6wtMR0)
 - [DHIVYATHARAME | #shortvideo | Bobby Xavier | Fr Shaji Thumpechirayil | Santaclaus](https://www.youtube.com/watch?v=KxIg-kmT9vA)
 - [കണ്ണുനീർ തൂകുമ്പോൾ മനസ്സലിയുന്നൊരു ദൈവം നിനക്കുണ്ട്  | Rev. Aneesh P Joseph | #shorts #jesus](https://www.youtube.com/watch?v=ZFV8LWlZno4)
-- [Kalyana Kachery | Maayaajaalam | KJ Yesudas #shorts](https://www.youtube.com/watch?v=fuJ_mxQHKLo)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 15th of October 2023](https://www.youtube.com/watch?v=IFjLY8x7YRw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
