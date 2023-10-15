@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന October 16 # Athiravile Prarthana 16th October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=LttGAd_Qhuw)
+- [ജപമാല ഗീതങ്ങള്‍ # Holy Rosary Special Songs Malayalam |  Month of Holy Rosary October 2023 Songs](https://www.youtube.com/watch?v=xZ-ubR-CDzs)
 - [Street Steps for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=-149xZz4GuM)
 - [Mini herself for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=WSb--AjQhIw)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 16th October 23](https://www.youtube.com/watch?v=2bCKIOZvNQw)
 - [ആയിരം കണ്ണുമായ് .. | കെ ജെ യേശുദാസ് | Chitra | Original Audio Remastered movie songs](https://www.youtube.com/watch?v=2a_8NHqCH2c)
-- [അമ്മേ .. വന്നീടാമേ ,എൻ ചാരെ വന്നീടാമേ...](https://www.youtube.com/watch?v=j9L0O65O-fw)
-- [Eshoyku Enthoru Sneham | Njan Marana Sneham  Teenu Treesa |  #christiandevotionalsongsmalayalam](https://www.youtube.com/watch?v=wS5N7J5GUGw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
