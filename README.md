@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP15 DAY 14 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.3GB - 693MB &amp; 305MB | 15-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175778-bigg-boss-tamil-s07-ep15-day-14-true-web-dl-1080p-720p-480p-avc-untouched-13gb-693mb-305mb-15-10-2023/&do=findComment&comment=354667)
+- [Dhak Dhak &lpar;2023&rpar; Hindi HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175735-dhak-dhak-2023-hindi-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=354666)
+- [Kondaveeti Donga &lpar;1990&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps &amp; DD+2.0 - 192Kbps&rpar; - 3.6GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175776-kondaveeti-donga-1990-telugu-dvd5-untouched-480p-dd51-448kbps-dd20-192kbps-36gb-esub/&do=findComment&comment=354665)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 2.0 EP43 DAY 42 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.6GB - 789MB &amp; 337MB | 15-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175777-bigg-boss-telugu-s07-20-ep43-day-42-true-web-dl-1080p-720p-480p-avc-untouched-16gb-789mb-337mb-15-10-2023/&do=findComment&comment=354664)
 - [Outlander &lpar;2008&rpar; English 1080p BluRay x264 DTS 5.1 [GDRIVE]](https://www.1tamilmv.phd/index.php?/forums/topic/151173-outlander-2008-english-1080p-bluray-x264-dts-51-gdrive/&do=findComment&comment=354663)
-- [The Expendables 4 &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.6GB - 1.1GB &amp; 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175723-the-expendables-4-2023-english-true-web-dl-1080p-720p-avc-dd51-384kbps-26gb-11gb-450mb-esub/&do=findComment&comment=354662)
-- [Kondaveeti Donga &lpar;1990&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps &amp; DD+2.0 - 192Kbps&rpar; - 3.6GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175776-kondaveeti-donga-1990-telugu-dvd5-untouched-480p-dd51-448kbps-dd20-192kbps-36gb-esub/&do=findComment&comment=354661)
-- [Aravaan 2012 Tamil KTV HD 720p HDTVRip UNTOUCHED x264 AVC 2.8GB [GD]](https://www.1tamilmv.phd/index.php?/forums/topic/131675-aravaan-2012-tamil-ktv-hd-720p-hdtvrip-untouched-x264-avc-28gb-gd/&do=findComment&comment=354660)
-- [Kondaveeti Donga &lpar;1990&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps &amp; DD+2.0 - 192Kbps&rpar; - 3.6GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175776-kondaveeti-donga-1990-telugu-dvd5-untouched-480p-dd51-448kbps-dd20-192kbps-36gb-esub/&do=findComment&comment=354659)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
