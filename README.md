@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Anaganaga O Dheerudu &lpar;2011&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps &amp; DD+2.0 - 224Kbps&rpar; - 4GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175775-anaganaga-o-dheerudu-2011-telugu-dvd5-untouched-480p-dd51-448kbps-dd20-224kbps-4gb-esub/&do=findComment&comment=354648)
 - [Miss Shetty Mr Polishetty &lpar;2023&rpar; Tamil HQ HDRip - 720p - HEVC - x265 - AAC - 700MB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175774-miss-shetty-mr-polishetty-2023-tamil-hq-hdrip-720p-hevc-x265-aac-700mb-esub/&do=findComment&comment=354647)
 - [Men in Black Quadrilogy &lpar;1997 - 2019&rpar; UHD 4K 2160p BluRay HEVC Multi Original Audios [ Telugu  + Tamil  + Hindi  + English&lpar;DDP7.1&rpar;] - x265 - 55GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175746-men-in-black-quadrilogy-1997-2019-uhd-4k-2160p-bluray-hevc-multi-original-audios-telugu-tamil-hindi-englishddp71-x265-55gb-esub/&do=findComment&comment=354646)
 - [Men in Black Quadrilogy &lpar;1997 - 2019&rpar; UHD 4K 2160p BluRay HEVC Multi Original Audios [ Telugu  + Tamil  + Hindi  + English&lpar;DDP7.1&rpar;] - x265 - 55GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175746-men-in-black-quadrilogy-1997-2019-uhd-4k-2160p-bluray-hevc-multi-original-audios-telugu-tamil-hindi-englishddp71-x265-55gb-esub/&do=findComment&comment=354645)
 - [Krish Trish &amp; Baltiboy : Bharat Hain Hum &lpar;2023&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - 4GB - 1.7GB &amp; 500MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175772-krish-trish-baltiboy-bharat-hain-hum-2023-s01-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-4gb-17gb-500mb-esub/&do=findComment&comment=354644)
-- [Talk to Me &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0&rpar; &lpar;Tamil + Eng&rpar; - 1.8GB &amp; 900MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175773-talk-to-me-2022-bluray-original-audios-1080p-720p-x264-aac-20-tamil-eng-18gb-900mb-esub/&do=findComment&comment=354643)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
