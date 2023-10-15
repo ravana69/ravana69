@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നോവുന്ന മനസിൻറെ താളങ്ങൾ അറിയുന്നു നീ # കെസ്റ്റർ ചേട്ടൻറെ അതിമനോഹര ശബ്ദത്തിൽ#kesterdevotionalsongs](https://www.youtube.com/watch?v=H6rnJJEdg1A)
+- [Kallayi Puzhayoru | Maram | Prem Nazeer | P Madhuri | Devarajan | K P A C Lalitha](https://www.youtube.com/watch?v=pgjX4_OuUlc)
+- [Kiliye Kiliye - Visualizer Lyric Video | Aa Raathri | Ilaiyaraaja | S. Janaki | Jeruson](https://www.youtube.com/watch?v=REYkNhp1YNg)
+- [Kuttichathan | C. I. Mahadevan 5 Adi 4 Inchu 2004 | M. G. Sreekumar | Malayalam Movie Song](https://www.youtube.com/watch?v=ApcEPctD73w)
 - [CHRISTIAN DEVOTIONAL SONG | എന്റെ ദൈവം മഹത്വത്തിൽ  | ROY PUTHUR | MITHILA #royputhur #devotional](https://www.youtube.com/watch?v=K2dvdeMX_hA)
 - [Devi Navaratri Geetham | Devotional Jukebox | Back-to-Back Navaratri Songs](https://www.youtube.com/watch?v=Ync3HlJqoag)
-- [മരണമില്ലാത്ത അനശ്വര ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Manoj Christy | Christian Songs](https://www.youtube.com/watch?v=Y5OvQCen1H0)
-- [സംഗീത ജപമാല കേട്ട് ഇന്ന് ഉണരാം # ജപമാല പോലെ ശക്തമായ പ്രാർത്ഥന ഇല്ല # മഹിമയുടെ രഹസ്യങ്ങൾ #japamala](https://www.youtube.com/watch?v=Ft99AsNxuB0)
-- [Japamala 15th of October 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 15th of October 23](https://www.youtube.com/watch?v=c2blFp1LAQ8)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം # oct 15th mother mary songs malayalam #mothermary](https://www.youtube.com/watch?v=__cmvjzvvzE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
