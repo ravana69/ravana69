@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Siva Putrudu &lpar;2004&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps &amp; DD+2.0 - 192Kbps&rpar; - 3.4GB](https://www.1tamilmv.phd/index.php?/forums/topic/175771-siva-putrudu-2004-telugu-dvd5-untouched-480p-dd51-448kbps-dd20-192kbps-34gb/&do=findComment&comment=354636)
+- [Siva Putrudu &lpar;2004&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps &amp; DD+2.0 - 192Kbps&rpar; - 3.4GB](https://www.1tamilmv.phd/index.php?/forums/topic/175771-siva-putrudu-2004-telugu-dvd5-untouched-480p-dd51-448kbps-dd20-192kbps-34gb/&do=findComment&comment=354635)
 - [Desingu Raja &lpar;2013&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 2.8GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/175753-desingu-raja-2013-tamil-true-web-dl-1080p-avc-untouched-aac20-28gb-gdflix/&do=findComment&comment=354634)
 - [Sultan of Delhi &lpar;2023&rpar; Complete S01 EP &lpar;01-09&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 6GB - 3GB &amp; 1GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/175740-sultan-of-delhi-2023-complete-s01-ep-01-09-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-6gb-3gb-1gb-esub-google-drive/&do=findComment&comment=354633)
 - [Men in Black Quadrilogy &lpar;1997 - 2019&rpar; UHD 4K 2160p BluRay HEVC Multi Original Audios [ Telugu  + Tamil  + Hindi  + English&lpar;DDP7.1&rpar;] - x265 - 55GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175746-men-in-black-quadrilogy-1997-2019-uhd-4k-2160p-bluray-hevc-multi-original-audios-telugu-tamil-hindi-englishddp71-x265-55gb-esub/&do=findComment&comment=354632)
-- [Indian &lpar;1996&rpar; AHA WEB-DL AAC2.0 Esubs x264 - 1080p | 720p - 3.8 GB | 2 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175770-indian-1996-aha-web-dl-aac20-esubs-x264-1080p-720p-38-gb-2-gb/&do=findComment&comment=354631)
-- [KRRISH &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.7GB](https://www.1tamilmv.phd/index.php?/forums/topic/175738-krrish-2006-telugu-dvd9-untouched-480p-dd51-448kbps-67gb/&do=findComment&comment=354630)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
