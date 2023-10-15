@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മരണമില്ലാത്ത അനശ്വര ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Manoj Christy | Christian Songs](https://www.youtube.com/watch?v=Y5OvQCen1H0)
+- [സംഗീത ജപമാല കേട്ട് ഇന്ന് ഉണരാം # ജപമാല പോലെ ശക്തമായ പ്രാർത്ഥന ഇല്ല # മഹിമയുടെ രഹസ്യങ്ങൾ #japamala](https://www.youtube.com/watch?v=Ft99AsNxuB0)
+- [Japamala 15th of October 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 15th of October 23](https://www.youtube.com/watch?v=c2blFp1LAQ8)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം # oct 15th mother mary songs malayalam #mothermary](https://www.youtube.com/watch?v=__cmvjzvvzE)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=RllgVY2Ytfw)
 - [October 15](https://www.youtube.com/watch?v=J9bhlMRA61k)
-- [October 14](https://www.youtube.com/watch?v=94lMUsJKpTw)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=9SjdpEjbxXY)
-- [പ്രഭാത പ്രാര്‍ത്ഥന  October 15 # Athiravile Prarthana 15th of October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=Li9I-uhT0y4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
