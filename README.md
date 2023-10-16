@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Hits of Prithviraj | Audio Jukebox | Super Hit Malayalam Film Songs | K.J.Yesudas | M G Sreekumar](https://www.youtube.com/watch?v=YKSoRs2VMLQ)
 - [Dhwani Malayalam Movie Songs | Jayaram | Yesudas | | Noushad | Malayalam Audio Jukebox](https://www.youtube.com/watch?v=ldHRPr24yk4)
 - [Karuthunnavan | #manoramachristiandevotionalsongs #Shorts](https://www.youtube.com/watch?v=l9sfb4joicQ)
 - [ലോകജനത  ഇരുകൈകളാൽ  സ്വീകരിച്ച  ഏറ്റവും  പുതിയ ഗാനം # തീർച്ച  ഈ ഗാനം നിങ്ങൾക്കും ഇഷ്ടപെടും](https://www.youtube.com/watch?v=7L3EzWgxdPw)
 - [സംഗീത ജപമാല #sangeetha #japamala  #അമ്മയെൻ പുണ്യം #ammayenne punnyam #santhoshathinte rahasyangal](https://www.youtube.com/watch?v=EbwXgaw9Z3E)
 - [Prabhatha Geethangal | Cicily | Morning Prayer Songs | Wilson Piravom | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=2tFRnN7lvF4)
-- [Japamala 16th of October 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 16th of October 23](https://www.youtube.com/watch?v=RpFBKpsNnSA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
