@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vijanamoru Theeram - Video Song | Kushi (Malayalam) | Vijay Deverakonda,Samantha| Hesham Abdul Wahab](https://www.youtube.com/watch?v=gAPelVFyPSg)
 - [Happy Birthday Prithviraj | Prithviraj Sukumaran | #Shorts #prithvirajsukumaran](https://www.youtube.com/watch?v=V2DPcZUE9VA)
 - [Athinigoodakananam | Nigoodam Lyrical Video | Sudheep Kumar | Vineeth Rajan | Anoop Menon | Indrans](https://www.youtube.com/watch?v=LjqbIaU_W-E)
 - [Thekkannam | Nanma Niranjavan Sreenivasan 1990 | Johnson | M.G.Sreekumar | Malayalam Movie Song](https://www.youtube.com/watch?v=XI2ryaV4ddQ)
 - [Hridaya Raaga Thanthri Remastering Audio Song Amaram Movie Song Lathika Kaithapram Raveendran](https://www.youtube.com/watch?v=SZQdk8zdQjg)
 - [Omane Thankame | Mizhi Randilum | Dileep | Kavya | Raveendran | Ranjith](https://www.youtube.com/watch?v=n1gVtp8KW3U)
-- [Hits of Prithviraj | Audio Jukebox | Super Hit Malayalam Film Songs | K.J.Yesudas | M G Sreekumar](https://www.youtube.com/watch?v=YKSoRs2VMLQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
