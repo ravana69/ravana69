@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Captain Prabhakaran &lpar;1991&rpar; 1080p AMZN WEB-DL DDP2.0 x264 - 9 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175694-captain-prabhakaran-1991-1080p-amzn-web-dl-ddp20-x264-9-gb/&do=findComment&comment=354683)
+- [Thotti Jaya &lpar;2005&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/175783-thotti-jaya-2005-tamil-true-web-dl-1080p-720p-avc-26gb-14gb-x264-700mb-400mb/&do=findComment&comment=354682)
+- [Jodi &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175787-jodi-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354681)
 - [Tiger 3 Official Trailer | [Tamil + Telugu + Hindi] - Salman Khan, Katrina Kaif, Emraan Hashmi | Maneesh Sharma | YRF](https://www.1tamilmv.phd/index.php?/forums/topic/175784-tiger-3-official-trailer-tamil-telugu-hindi-salman-khan-katrina-kaif-emraan-hashmi-maneesh-sharma-yrf/&do=findComment&comment=354678)
 - [Thotti Jaya &lpar;2005&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/175783-thotti-jaya-2005-tamil-true-web-dl-1080p-720p-avc-26gb-14gb-x264-700mb-400mb/&do=findComment&comment=354677)
-- [Varuthapadatha Valibar Sangam &lpar;2013&rpar; Tamil TRUE WEB-DL - 1080p HQ - x265 HEVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 5.5GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/175781-varuthapadatha-valibar-sangam-2013-tamil-true-web-dl-1080p-hq-x265-hevc-untouched-ddp51-55gb-esub-gdflix/&do=findComment&comment=354676)
-- [Iraivan &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175729-iraivan-2023-tamil-web-dl-1080p-720p-avc-hevc-aac-20-28gb-14gb-850mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=354675)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 2.0 EP43 DAY 42 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.6GB - 789MB &amp; 337MB | 15-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175777-bigg-boss-telugu-s07-20-ep43-day-42-true-web-dl-1080p-720p-480p-avc-untouched-16gb-789mb-337mb-15-10-2023/&do=findComment&comment=354674)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
