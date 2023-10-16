@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Aravaan &lpar;2012&rpar; Tamil TRUE WEB-DL 480p UNTOUCHED AVC AAC - 1.6GB - [HC-Esub] - [Direct Link] - [Major]](https://www.1tamilmv.phd/index.php?/forums/topic/131441-aravaan-2012-tamil-true-web-dl-480p-untouched-avc-aac-16gb-hc-esub-direct-link-major/&do=findComment&comment=354692)
 - [Thotti Jaya &lpar;2005&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/175783-thotti-jaya-2005-tamil-true-web-dl-1080p-720p-avc-26gb-14gb-x264-700mb-400mb/&do=findComment&comment=354691)
 - [75 Tamil Movies - AMZN/SUN NXT/SS/JC WEB DL - H264 - ESub - [1080p - 600GB] [Gdrive]](https://www.1tamilmv.phd/index.php?/forums/topic/143253-75-tamil-movies-amznsun-nxtssjc-web-dl-h264-esub-1080p-600gb-gdrive/&do=findComment&comment=354690)
 - [75 Tamil Movies - AMZN/SUN NXT/SS/JC WEB DL - H264 - ESub - [1080p - 600GB] [Gdrive]](https://www.1tamilmv.phd/index.php?/forums/topic/143253-75-tamil-movies-amznsun-nxtssjc-web-dl-h264-esub-1080p-600gb-gdrive/&do=findComment&comment=354689)
 - [The Nun II &lpar;2023&rpar; &lpar;UHD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 6.7GB - 2.8GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175788-the-nun-ii-2023-uhd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-67gb-28gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=354688)
-- [The Nun II &lpar;2023&rpar; &lpar;UHD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 6.7GB - 2.8GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175788-the-nun-ii-2023-uhd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-67gb-28gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=354687)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
