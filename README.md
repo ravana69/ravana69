@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Happy Birthday Prithviraj | Prithviraj Sukumaran | #Shorts #prithvirajsukumaran](https://www.youtube.com/watch?v=V2DPcZUE9VA)
+- [Athinigoodakananam | Nigoodam Lyrical Video | Sudheep Kumar | Vineeth Rajan | Anoop Menon | Indrans](https://www.youtube.com/watch?v=LjqbIaU_W-E)
+- [Thekkannam | Nanma Niranjavan Sreenivasan 1990 | Johnson | M.G.Sreekumar | Malayalam Movie Song](https://www.youtube.com/watch?v=XI2ryaV4ddQ)
 - [Hridaya Raaga Thanthri Remastering Audio Song Amaram Movie Song Lathika Kaithapram Raveendran](https://www.youtube.com/watch?v=SZQdk8zdQjg)
 - [Omane Thankame | Mizhi Randilum | Dileep | Kavya | Raveendran | Ranjith](https://www.youtube.com/watch?v=n1gVtp8KW3U)
 - [Hits of Prithviraj | Audio Jukebox | Super Hit Malayalam Film Songs | K.J.Yesudas | M G Sreekumar](https://www.youtube.com/watch?v=YKSoRs2VMLQ)
-- [Dhwani Malayalam Movie Songs | Jayaram | Yesudas | | Noushad | Malayalam Audio Jukebox](https://www.youtube.com/watch?v=ldHRPr24yk4)
-- [Karuthunnavan | #manoramachristiandevotionalsongs #Shorts](https://www.youtube.com/watch?v=l9sfb4joicQ)
-- [ലോകജനത  ഇരുകൈകളാൽ  സ്വീകരിച്ച  ഏറ്റവും  പുതിയ ഗാനം # തീർച്ച  ഈ ഗാനം നിങ്ങൾക്കും ഇഷ്ടപെടും](https://www.youtube.com/watch?v=7L3EzWgxdPw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
