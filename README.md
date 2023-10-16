@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thankathinkal Vaanil Video Song | Nayanthara | Jayaram | Ilayaraja | Vijay Yesudas | Asha Menon](https://www.youtube.com/watch?v=lWWKJ7tPFo8)
+- [Ee Puzhayum Kulirkattum|Mayookham|Mamtha Mohandas|Shaiju Kuruppu|](https://www.youtube.com/watch?v=eK-nBVHi4Ss)
+- [സ്നേഹലാളനം | Snehalalanam | Lalanam Super Hit Movie Song | K J Yesudas](https://www.youtube.com/watch?v=lyprVD33Qg4)
 - [തളിയൂർ ഗ്രാമത്തിൽ പണ്ട് താരമ്പൻ പോലൊരു പയ്യൻഇഷ്ടം കൂടാൻ വന്നിട്ടുണ്ടോ  #Dada Sahib #mammootty](https://www.youtube.com/watch?v=bQ1nDmxqNmA)
 - [16 October 2023](https://www.youtube.com/watch?v=qjnu4x3K8xI)
 - [Oru Padham Thedi | Kathakku Pinnil | KS Chithra | Ouseppachan | ONV Kurup](https://www.youtube.com/watch?v=Qzbg1zz3z3Y)
-- [ജീവിതമൊരു യാത്രയാണ്. ചുറ്റും നോക്കിയാൽ മുൻപോട്ട് പോകാനാകില്ല | Rev. Aneesh P Joseph | #shorts #jesus](https://www.youtube.com/watch?v=lz-4908-QHg)
-- [Vasantha Panchami Naalil | Bhargavi Nilayam | S Janaki | P Bhaskaran | M.S Baburaj](https://www.youtube.com/watch?v=xgfXL3hudb0)
-- [Chella Cheru Veedu Tharam | Nyayavidhi | KS Chithra | MK Arjunan | Shibu Chakravarthy](https://www.youtube.com/watch?v=6yettjlJK1Q)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
