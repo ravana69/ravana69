@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [BALI KUTEERANGALE ( bit song ) | KALAPAM | VIDEO SONG](https://www.youtube.com/watch?v=rvoN6Zwd7Rg)
-- [Shorts | Midumidu Midukkan #shorts #ytshorts #viral](https://www.youtube.com/watch?v=7zV4R_-gPc4)
-- [വാചാല മൗനം | Vachala Maunam | Urukku Mushtikal Malayalam Superhit Movie Song | K J Yesudas](https://www.youtube.com/watch?v=8D_8p89rEvk)
-- [Kanya Suthane | Aashwasamekunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=zbhx2NtSG00)
-- [മലയാള മണ്ണിന്റെ സുഗന്ധമൂറും ഗൃഹാതുരുത്വമേകും  മലയാള സിനിമ ഗാനങ്ങൾ](https://www.youtube.com/watch?v=pWNGz6gLjqs)
-- [Vijanamoru Theeram - Video Song | Kushi (Malayalam) | Vijay Deverakonda,Samantha| Hesham Abdul Wahab](https://www.youtube.com/watch?v=gAPelVFyPSg)
+- [ജീവിതമൊരു യാത്രയാണ്. ചുറ്റും നോക്കിയാൽ മുൻപോട്ട് പോകാനാകില്ല | Rev. Aneesh P Joseph | #shorts #jesus](https://www.youtube.com/watch?v=lz-4908-QHg)
+- [Vasantha Panchami Naalil | Bhargavi Nilayam | S Janaki | P Bhaskaran | M.S Baburaj](https://www.youtube.com/watch?v=xgfXL3hudb0)
+- [Chella Cheru Veedu Tharam | Nyayavidhi | KS Chithra | MK Arjunan | Shibu Chakravarthy](https://www.youtube.com/watch?v=6yettjlJK1Q)
+- [Christian Superhit Songs | Kester | Joji Johns | Christian Devotional Songs Malayalam | Melody Songs](https://www.youtube.com/watch?v=b5TrdvDwFfQ)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 16th of October 2023](https://www.youtube.com/watch?v=RlhiF-YvI2U)
+- [കതിരോലത്തുമ്പി | Kathirolathumpi Mayaponman | Mayaponman Super Hit Movie Song | Dileep Hit Song](https://www.youtube.com/watch?v=RPGtn5nDM-4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
