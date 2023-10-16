@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന  October 17 # Athiravile Prarthana 17th of October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=NYX90nHigMA)
+- [ജപമാല ഗീതങ്ങള്‍ # Holy Rosary Special Songs Malayalam |  Month of Holy Rosary October 2023 Songs](https://www.youtube.com/watch?v=A-eaUkpNaZ8)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 17th October 23](https://www.youtube.com/watch?v=VwvAVsq_n-Y)
 - [Eshoyku Enthoru Sneham | Njan Marana Sneham | Anupa  Ann Sam | Teenu Treesa | Christian Song](https://www.youtube.com/watch?v=PR3rwvYqV4U)
 - [Ente Chithirathamara | 4 Friends | Jayaram | Kunchakko Boban | Jayasurya | Meera Jasmine | Anikha](https://www.youtube.com/watch?v=tClhCHkJs2Y)
 - [Thankathinkal Vaanil Video Song | Nayanthara | Jayaram | Ilayaraja | Vijay Yesudas | Asha Menon](https://www.youtube.com/watch?v=lWWKJ7tPFo8)
-- [Ee Puzhayum Kulirkattum|Mayookham|Mamtha Mohandas|Shaiju Kuruppu|](https://www.youtube.com/watch?v=eK-nBVHi4Ss)
-- [സ്നേഹലാളനം | Snehalalanam | Lalanam Super Hit Movie Song | K J Yesudas](https://www.youtube.com/watch?v=lyprVD33Qg4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
