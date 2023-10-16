@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Varuthapadatha Valibar Sangam &lpar;2013&rpar; Tamil TRUE WEB-DL - 1080p HQ - x265 HEVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 5.5GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/175781-varuthapadatha-valibar-sangam-2013-tamil-true-web-dl-1080p-hq-x265-hevc-untouched-ddp51-55gb-esub-gdflix/&do=findComment&comment=354671)
+- [Talk to Me &lpar;2023&rpar; BluRay - 1080p - Org  Auds [Tam DD5.1 640Kbps Upmxied + &lpar;Tel + Hin + Eng AAC2.0&rpar; ].ESub - 2.4GB](https://www.1tamilmv.phd/index.php?/forums/topic/175780-talk-to-me-2023-bluray-1080p-org-auds-tam-dd51-640kbps-upmxied-tel-hin-eng-aac20-esub-24gb/&do=findComment&comment=354670)
 - [Uzhaippali &lpar;1993&rpar; 576p AMZN WEB-DL DDP2.0 x264 - 2.6 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175779-uzhaippali-1993-576p-amzn-web-dl-ddp20-x264-26-gb/&do=findComment&comment=354669)
 - [Vettaiyaadu Vilaiyaadu &lpar;2006&rpar; TRUE WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - [Tamil + Telugu] - [DD+5.1&lpar;640Kbps&rpar; + DD+2.0&lpar;224Kbps&rpar;] - 13.2GB - 8.5GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 750MB - 450MB &amp; 300MB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/174733-vettaiyaadu-vilaiyaadu-2006-true-web-dl-1080p-720p-avc-hevc-untouched-tamil-telugu-dd51640kbps-dd20224kbps-132gb-85gb-55gb-27gb-18gb-14gb-950mb-x264-750mb-450mb-300mb-esub/&do=findComment&comment=354668)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP15 DAY 14 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.3GB - 693MB &amp; 305MB | 15-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175778-bigg-boss-tamil-s07-ep15-day-14-true-web-dl-1080p-720p-480p-avc-untouched-13gb-693mb-305mb-15-10-2023/&do=findComment&comment=354667)
-- [Dhak Dhak &lpar;2023&rpar; Hindi HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175735-dhak-dhak-2023-hindi-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=354666)
-- [Kondaveeti Donga &lpar;1990&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps &amp; DD+2.0 - 192Kbps&rpar; - 3.6GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175776-kondaveeti-donga-1990-telugu-dvd5-untouched-480p-dd51-448kbps-dd20-192kbps-36gb-esub/&do=findComment&comment=354665)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
