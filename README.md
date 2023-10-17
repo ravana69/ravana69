@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Penne Manavaattippenne Remastered Audio Song Maniyara KJ Yesudas Vani Jairam AT Ummer P Bhaskaran](https://www.youtube.com/watch?v=KybXEd7Y1es)
+- [Adhisaya Nadamidum   Sirayil Pootha Chinna Malar   Ilaiyaraaja   Hi Res Audio](https://www.youtube.com/watch?v=Kq3GBWKXbSM)
+- [Manithinkal Thidambinmel | Kilukil Pambaram | Jayaram | Vani Viswanath | Thulasidas](https://www.youtube.com/watch?v=xoDBF8mKffg)
+- [Tu Mile Dil Khile   Criminal   M M Keeravani   Hi Res Audio](https://www.youtube.com/watch?v=oXr2RMhEhaw)
 - [Sanchaari | Cheenatrophy | Shorts  #manoramamusic](https://www.youtube.com/watch?v=3nBUAWFyNS4)
 - [Sanchaari | Cheenatrophy | Shorts  #manoramamusic](https://www.youtube.com/watch?v=XIWSj1KjVns)
-- [Sanchaari | Cheenatrophy | Shorts  #manoramamusic](https://www.youtube.com/watch?v=McxDAJgM63c)
-- [Uthaman Malyalam Film Songs | Jayaram | Yesudas | Johnson | Sound Of Arts | Audo Jukebox](https://www.youtube.com/watch?v=m1hnRT-hm7k)
-- [Vazhivakkil | Annayum Rasoolum | Shorts #malayalamfilmsongs](https://www.youtube.com/watch?v=Wnlm8xF91a0)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mother mary songs oct 17th 23 #japamalaamalayalam](https://www.youtube.com/watch?v=0q_Hi6l2FFo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
