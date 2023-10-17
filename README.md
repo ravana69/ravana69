@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കാരുണ്യം തൂകന്ന മാതാവേ... വാത്സല്യമേകുന്ന സ്നേഹനിധേ.](https://www.youtube.com/watch?v=BmLDIWmt_BM)
 - [Mangalam Manjulam | Onningu Vannengil | Short video | Malayalam Shorts #evergreenmalayalam](https://www.youtube.com/watch?v=CCgHS3fzrTQ)
 - [Sare Sare Sambare Video Song | Thilakkam | Dileep | Kavya Madhavan | Kaithapram | Sujatha Mohan](https://www.youtube.com/watch?v=lnUt3hoZvTI)
 - [Mangalam Manjulam | Onningu Vannengil | Nadiya Moidu | Shankar | Mammootty | Shyam | Yesudas](https://www.youtube.com/watch?v=frMvG3VYMWk)
 - [മകരമാസക്കുളിരിൽ അവളുടെ നിറഞ്ഞമാറിൻ ചൂടിൽ  #malayalamsongs #yesudas #evergeeenmalayalamhits](https://www.youtube.com/watch?v=8KueSOluA2I)
 - [Rathisukhasaaramayi Remastered Audio Song Dhwani Movie KJ Yesudas Yusufali Kecheri Naushad](https://www.youtube.com/watch?v=V1plXBdm9So)
-- [Thurannitta Jalakangal | Dathuputhran | G Devarajan | Vayalar Ramavarma | Jayabharathi | P Susheela](https://www.youtube.com/watch?v=Wdk4n3nWSck)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
