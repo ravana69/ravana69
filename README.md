@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Dilse &lpar;2023&rpar; S01 EP12 ETV-WIN WEB-DL- [1080p - 720p &amp; 480p AVC - Telugu - &lpar;AAC 2.0 - 192Kbps&rpar; - 700MB - 400MB - 200MB] - x264 [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/175803-dilse-2023-s01-ep12-etv-win-web-dl-1080p-720p-480p-avc-telugu-aac-20-192kbps-700mb-400mb-200mb-x264-google-drive/&do=findComment&comment=354744)
+- [Vetadu Ventadu &lpar;2013&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 4.1GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175802-vetadu-ventadu-2013-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-41gb-esub/&do=findComment&comment=354743)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Ashwini in the Limelight - 480p - AVC - UNTOUCHED - AAC - 93MB](https://www.1tamilmv.phd/index.php?/forums/topic/175801-bigg-boss-telugu-s07-unseen-ashwini-in-the-limelight-480p-avc-untouched-aac-93mb/&do=findComment&comment=354742)
 - [Hunger Games Quadrilogy &lpar;2012 - 2015&rpar; UHD 4K 2160p SDR BluRay HEVC Multi &lpar;DD5.1&rpar; Original Audios [ Telugu + Tamil + Hindi + English&lpar;DDP7.1&rpar;] - x265 - 30GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175800-hunger-games-quadrilogy-2012-2015-uhd-4k-2160p-sdr-bluray-hevc-multi-dd51-original-audios-telugu-tamil-hindi-englishddp71-x265-30gb-esub/&do=findComment&comment=354741)
 - [Borrego &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175798-borrego-2022-bluray-original-audios-1080p-720p-x264-aac-20-tamil-telugu-hindi-eng-24gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=354740)
-- [25 Tamil Movies - JC / NF / SS WEB DL - H264 / H265 - DDP5.1 - [2160p &amp; 1080p &amp; 720p - 225GB] [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/136595-25-tamil-movies-jc-nf-ss-web-dl-h264-h265-ddp51-2160p-1080p-720p-225gb-google-drive/&do=findComment&comment=354739)
-- [Thotti Jaya &lpar;2005&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/175783-thotti-jaya-2005-tamil-true-web-dl-1080p-720p-avc-26gb-14gb-x264-700mb-400mb/&do=findComment&comment=354738)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
