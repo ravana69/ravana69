@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Uthaman Malyalam Film Songs | Jayaram | Yesudas | Johnson | Sound Of Arts | Audo Jukebox](https://www.youtube.com/watch?v=m1hnRT-hm7k)
+- [Vazhivakkil | Annayum Rasoolum | Shorts #malayalamfilmsongs](https://www.youtube.com/watch?v=Wnlm8xF91a0)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mother mary songs oct 17th 23 #japamalaamalayalam](https://www.youtube.com/watch?v=0q_Hi6l2FFo)
 - [Singer Of The Week | Sujatha Mohan | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=CpvBbhxTXfw)
 - [എത്രയോ മനോഹരം ഇതിലെ വരികളും സംഗീതവും # എത്രപ്രാവിശ്യം കേട്ടാലും വീണ്ടും  നിങ്ങൾ കേൾക്കാൻ  കൊതിക്കും](https://www.youtube.com/watch?v=74VGVYyArHs)
 - [ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #  ഏറ്റവും പുതിയ ജപമാല പ്രാർത്ഥന #ദുഃഖത്തിൻറെ രഹസ്യങ്ങൾ](https://www.youtube.com/watch?v=SqPOjkNSrlc)
-- [Japamala 17th of October 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 17th of October 23](https://www.youtube.com/watch?v=CCeKO0ioD_Y)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=q7DrZKNdz8g)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
