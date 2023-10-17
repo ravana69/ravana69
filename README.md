@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മകരമാസക്കുളിരിൽ അവളുടെ നിറഞ്ഞമാറിൻ ചൂടിൽ  #malayalamsongs #yesudas #evergeeenmalayalamhits](https://www.youtube.com/watch?v=8KueSOluA2I)
+- [Rathisukhasaaramayi Remastered Audio Song Dhwani Movie KJ Yesudas Yusufali Kecheri Naushad](https://www.youtube.com/watch?v=V1plXBdm9So)
+- [Thurannitta Jalakangal | Dathuputhran | G Devarajan | Vayalar Ramavarma | Jayabharathi | P Susheela](https://www.youtube.com/watch?v=Wdk4n3nWSck)
 - [Neelakkurinjikal Poothu | Kathakku Pinnil | KG Markose | Ouseppachan | ONV Kurup](https://www.youtube.com/watch?v=fcIG1gTzECg)
 - [അടഞ്ഞ വാതിലുകൾ എന്നത്  അടഞ്ഞ സാധ്യതകളല്ല | Rev. Aneesh P Joseph | #shorts #jesus #motivation](https://www.youtube.com/watch?v=6enXdAdApio)
 - [Vasantha Panchami Naalil Video Song | Bhargavi Nilayam | S Janaki #shorts](https://www.youtube.com/watch?v=WmacgK4HnMY)
-- [Vida Parayaanay | Lyrical Video | Shubhadinam | Vijay Yesudas | Gireesh Neyyar | Arjun Rajkumar](https://www.youtube.com/watch?v=LsgfaPSSgkE)
-- [Kelikalayude | Thirumanassu | Super Hit Song | Saikumar | Charmila | Narendraprasad - Yesudas Hits](https://www.youtube.com/watch?v=9UdIXmTt3q8)
-- [അമ്പിളി പാതി | Ambili Paathi | Sharreth | Sasikala Menon | Strawberrry Theyyam | Folk Songs](https://www.youtube.com/watch?v=irwzbWtY29o)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
