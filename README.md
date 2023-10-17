@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mother mary songs oct 17th 23 #japamalaamalayalam](https://www.youtube.com/watch?v=0q_Hi6l2FFo)
+- [Singer Of The Week | Sujatha Mohan | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=CpvBbhxTXfw)
+- [എത്രയോ മനോഹരം ഇതിലെ വരികളും സംഗീതവും # എത്രപ്രാവിശ്യം കേട്ടാലും വീണ്ടും  നിങ്ങൾ കേൾക്കാൻ  കൊതിക്കും](https://www.youtube.com/watch?v=74VGVYyArHs)
+- [ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #  ഏറ്റവും പുതിയ ജപമാല പ്രാർത്ഥന #ദുഃഖത്തിൻറെ രഹസ്യങ്ങൾ](https://www.youtube.com/watch?v=SqPOjkNSrlc)
+- [Japamala 17th of October 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 17th of October 23](https://www.youtube.com/watch?v=CCeKO0ioD_Y)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=q7DrZKNdz8g)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=HDtmi6yBrzk)
-- [പ്രഭാത പ്രാര്‍ത്ഥന  October 17 # Athiravile Prarthana 17th of October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=NYX90nHigMA)
-- [ജപമാല ഗീതങ്ങള്‍ # Holy Rosary Special Songs Malayalam |  Month of Holy Rosary October 2023 Songs](https://www.youtube.com/watch?v=A-eaUkpNaZ8)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 17th October 23](https://www.youtube.com/watch?v=VwvAVsq_n-Y)
-- [Eshoyku Enthoru Sneham | Njan Marana Sneham | Anupa  Ann Sam | Teenu Treesa | Christian Song](https://www.youtube.com/watch?v=PR3rwvYqV4U)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
