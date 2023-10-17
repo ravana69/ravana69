@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Nun II &lpar;2023&rpar; &lpar;Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Eng&rpar; - 2.3GB &amp; 1.1GB | 720p - x265 - AAC - 600MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175796-the-nun-ii-2023-original-audios-1080p-720p-x264-dd51-640kbps-tamil-eng-23gb-11gb-720p-x265-aac-600mb-esub/&do=findComment&comment=354725)
 - [Kaddha Chitra &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175786-kaddha-chitra-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=354724)
 - [The Nun II &lpar;2023&rpar; AMZN WEB-DL Multi DDP5.1 Esubs - 2160p [HDR] | 1080p | 720p - 17.2 GB | 6 GB | 3 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175795-the-nun-ii-2023-amzn-web-dl-multi-ddp51-esubs-2160p-hdr-1080p-720p-172-gb-6-gb-3-gb/&do=findComment&comment=354723)
 - [Thotti Jaya &lpar;2005&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/175783-thotti-jaya-2005-tamil-true-web-dl-1080p-720p-avc-26gb-14gb-x264-700mb-400mb/&do=findComment&comment=354722)
 - [Kaddha Chitra &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175786-kaddha-chitra-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=354721)
-- [The Nun II &lpar;2023&rpar; &lpar;UHD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 6.7GB - 2.8GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175788-the-nun-ii-2023-uhd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-67gb-28gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=354720)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
