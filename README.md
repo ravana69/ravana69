@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Borrego &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175798-borrego-2022-bluray-original-audios-1080p-720p-x264-aac-20-tamil-telugu-hindi-eng-24gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=354740)
+- [25 Tamil Movies - JC / NF / SS WEB DL - H264 / H265 - DDP5.1 - [2160p &amp; 1080p &amp; 720p - 225GB] [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/136595-25-tamil-movies-jc-nf-ss-web-dl-h264-h265-ddp51-2160p-1080p-720p-225gb-google-drive/&do=findComment&comment=354739)
 - [Thotti Jaya &lpar;2005&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/175783-thotti-jaya-2005-tamil-true-web-dl-1080p-720p-avc-26gb-14gb-x264-700mb-400mb/&do=findComment&comment=354738)
 - [50 Tamil Movies - AMZN/JC/SS/TK/SUN NXT WEB DL - H264/H265 - DDP5.1/AAC2.0 - [4K, 1080p &amp; 720p - 550GB] [GDRIVE]](https://www.1tamilmv.phd/index.php?/forums/topic/129789-50-tamil-movies-amznjcsstksun-nxt-web-dl-h264h265-ddp51aac20-4k-1080p-720p-550gb-gdrive/&do=findComment&comment=354737)
 - [Borrego &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175798-borrego-2022-bluray-original-audios-1080p-720p-x264-aac-20-tamil-telugu-hindi-eng-24gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=354736)
-- [Kaddha Chitra &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175786-kaddha-chitra-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=354735)
-- [Mansion 24 &lpar;2023&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 4GB - 1.9GB &amp; 850MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175794-mansion-24-2023-s01-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-4gb-19gb-850mb-esub/&do=findComment&comment=354734)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
