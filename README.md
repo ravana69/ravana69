@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Aravaan &lpar;2012&rpar; Tamil TRUE WEB-DL 480p UNTOUCHED AVC AAC - 1.6GB - [HC-Esub] - [Direct Link] - [Major]](https://www.1tamilmv.phd/index.php?/forums/topic/131441-aravaan-2012-tamil-true-web-dl-480p-untouched-avc-aac-16gb-hc-esub-direct-link-major/&do=findComment&comment=354731)
 - [Mansion 24 &lpar;2023&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 4GB - 1.9GB &amp; 850MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175794-mansion-24-2023-s01-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-4gb-19gb-850mb-esub/&do=findComment&comment=354730)
 - [Ananthapuram 1980 &lpar;2008&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 3.7GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175797-ananthapuram-1980-2008-telugu-dvd5-untouched-480p-dts-754kbps-dd51-448kbps-37gb-esub/&do=findComment&comment=354729)
 - [Ananthapuram 1980 &lpar;2008&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 3.7GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175797-ananthapuram-1980-2008-telugu-dvd5-untouched-480p-dts-754kbps-dd51-448kbps-37gb-esub/&do=findComment&comment=354728)
 - [Mansion 24 &lpar;2023&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 4GB - 1.9GB &amp; 850MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175794-mansion-24-2023-s01-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-4gb-19gb-850mb-esub/&do=findComment&comment=354727)
-- [Ananthapuram 1980 &lpar;2008&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 3.7GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175797-ananthapuram-1980-2008-telugu-dvd5-untouched-480p-dts-754kbps-dd51-448kbps-37gb-esub/&do=findComment&comment=354726)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
