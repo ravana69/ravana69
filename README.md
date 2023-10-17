@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oh Chandrika - Chill Trap | Shyam Singha Roy (Malayalam) | Mickey J. Meyer | Anurag Kulkarni](https://www.youtube.com/watch?v=dOuz3t5JFPs)
 - [മഞ്ഞു വീഴും ഈ രാവിൽ  | Manju Veezhum Ee Ravil | Urukku Mushtikal Movie Song | Poovachal Khader](https://www.youtube.com/watch?v=9ui4xdqa_YA)
 - [Thillaana Paadi Varoo | Meenakshi Kalyanam 1998 | Nadirsha | M. G. Sreekumar | Malayalam Movie Song](https://www.youtube.com/watch?v=108dkB4sDz0)
 - [Penne Manavaattippenne Remastered Audio Song Maniyara KJ Yesudas Vani Jairam AT Ummer P Bhaskaran](https://www.youtube.com/watch?v=KybXEd7Y1es)
 - [Adhisaya Nadamidum   Sirayil Pootha Chinna Malar   Ilaiyaraaja   Hi Res Audio](https://www.youtube.com/watch?v=Kq3GBWKXbSM)
 - [Manithinkal Thidambinmel | Kilukil Pambaram | Jayaram | Vani Viswanath | Thulasidas](https://www.youtube.com/watch?v=xoDBF8mKffg)
-- [Tu Mile Dil Khile   Criminal   M M Keeravani   Hi Res Audio](https://www.youtube.com/watch?v=oXr2RMhEhaw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
