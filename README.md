@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉഷകാലം നാം എഴുന്നേൽക്കുക | CHRISTIAN DEVOTIONAL SONG  | ROY PUTHUR | MITHILA #royputhur #devotional](https://www.youtube.com/watch?v=pfplBmFqef4)
 - [Oo Nadhe Mariye | Christian Video Song | Kester | Mariyan Song | Gisha Sony | Joji Johns|Melody Song](https://www.youtube.com/watch?v=Pg-njMrq4qs)
 - [October 18](https://www.youtube.com/watch?v=_bk8434xrsg)
 - [മഹിമയുടെ രഹസ്യങ്ങൾ  #സംഗീത ജപമാല #sangeetha japamala #2023 new japamala #jojo johny #johnson kk](https://www.youtube.com/watch?v=nkozec4l6aM)
 - [Japamala 18th of October 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 18th of October 23](https://www.youtube.com/watch?v=dEyoBybQVjU)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=P5t2TVkJ-Qc)
-- [രാവിലെ പ്രാര്‍ത്ഥന October 18 # Athiravile Prarthana 18th October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=d345qS9XRcE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
