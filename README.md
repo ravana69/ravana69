@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Malabar Police &lpar;1999&rpar;.Tamil.1080p.Web-dl.x264.AAC2.0 - 4GB - GDRIVE](https://www.1tamilmv.phd/index.php?/forums/topic/112432-malabar-police-1999tamil1080pweb-dlx264aac20-4gb-gdrive/&do=findComment&comment=354771)
+- [ANJI &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.6GB - Volga DVD](https://www.1tamilmv.phd/index.php?/forums/topic/175814-anji-2004-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-66gb-volga-dvd/&do=findComment&comment=354770)
 - [ANJI &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.6GB - Volga DVD](https://www.1tamilmv.phd/index.php?/forums/topic/175814-anji-2004-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-66gb-volga-dvd/&do=findComment&comment=354769)
 - [ANJI &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.6GB - Volga DVD](https://www.1tamilmv.phd/index.php?/forums/topic/175814-anji-2004-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-66gb-volga-dvd/&do=findComment&comment=354768)
 - [Padaiyappa [Narasimha] &lpar;1999&rpar; UPSCALED - TRUE WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - [Tamil + Telugu] - AAC2.0&lpar;125kbps&rpar; - 8GB - 5.5GB - 2.7GB - 1.8GB - 1.5GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB [GDrive]](https://www.1tamilmv.phd/index.php?/forums/topic/175809-padaiyappa-narasimha-1999-upscaled-true-web-dl-1080p-720p-avc-hevc-untouched-tamil-telugu-aac20125kbps-8gb-55gb-27gb-18gb-15gb-950mb-x264-700mb-400mb-250mb-gdrive/&do=findComment&comment=354767)
-- [Borrego &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175798-borrego-2022-bluray-original-audios-1080p-720p-x264-aac-20-tamil-telugu-hindi-eng-24gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=354765)
-- [Gran Turismo &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 5.1 - 384Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.4GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175613-gran-turismo-2023-hd-original-audios-1080p-720p-x264-aac-51-384kbps-tamil-telugu-hindi-eng-34gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=354764)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
