@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kunju kunju | Newspaper Boy 1997 | Nissar | M. G. Sreekumar | Malayalam Movie Song](https://www.youtube.com/watch?v=Y4nUWY9Xvb0)
+- [Poovarashin Kuda Nivarthi Remastered Audio Song Dilliwaala Raajakumaaran KS Chithra Ouseppachan](https://www.youtube.com/watch?v=vknajSrRKVQ)
+- [Chandhanamukile | Vellinakshathram | Beautiful Song by K S Chithra #shorts](https://www.youtube.com/watch?v=Is70EYIQiQ4)
 - [Karuthunnavan Njanallayo | Shorts  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=EBALu5HxYbE)
 - [Utharaayanakkili Paadi | Thaara | Vayalar | G Devarajan | KJ Yesudas | Vayalar Ramavarma](https://www.youtube.com/watch?v=MAUo7CNRvCA)
 - [THALARUNNU NJAN NADHA | NEW CHRISTIAN SONG | DHANYA | PAVITHRAN AMACHAL | JINO KUNNUMPURATH | REEL 1](https://www.youtube.com/watch?v=xbjLmIttaZQ)
-- [ഉഷകാലം നാം എഴുന്നേൽക്കുക | CHRISTIAN DEVOTIONAL SONG  | ROY PUTHUR | MITHILA #royputhur #devotional](https://www.youtube.com/watch?v=pfplBmFqef4)
-- [Oo Nadhe Mariye | Christian Video Song | Kester | Mariyan Song | Gisha Sony | Joji Johns|Melody Song](https://www.youtube.com/watch?v=Pg-njMrq4qs)
-- [October 18](https://www.youtube.com/watch?v=_bk8434xrsg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
