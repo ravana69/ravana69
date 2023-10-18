@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന  October 19 # Athiravile Prarthana 19th of October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=ntWdhcaZ93g)
+- [October 19](https://www.youtube.com/watch?v=i0KQWhp5z7I)
+- [ജപമാല ഗീതങ്ങള്‍ # Holy Rosary Special Songs Malayalam |  Month of Holy Rosary October 2023 Songs](https://www.youtube.com/watch?v=fWaBrFdPW2Q)
 - [Hippity Hop #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=93E8NMopY-k)
 - [Awesome recreation of #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=gXuhxMl4eBQ)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 19th October 23](https://www.youtube.com/watch?v=QE41FxyYNjU)
-- [Kannadi Koodum   Pranayavarnangal   Vidyasagar   Hi Res Audio](https://www.youtube.com/watch?v=l3aXY3nLh0g)
-- [Vaanidavum Sagaravum | Mudra | Mammootty | Sudheesh | Baiju | Mohan Sithara | MG Sreekumar](https://www.youtube.com/watch?v=k3_AvITHBo4)
-- [സൂര്യ തേജസോടെ വാഴുന്ന സ്വർഗീയ കാരുണ്യ മാതേ...](https://www.youtube.com/watch?v=3M_uGC6Ts8Q)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
