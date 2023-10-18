@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Lokesh Cinematic Universe [LCU] Ultimate Collection [GDrive]](https://www.1tamilmv.bet/index.php?/forums/topic/175682-lokesh-cinematic-universe-lcu-ultimate-collection-gdrive/&do=findComment&comment=354782)
+- [Nam Naani Maduve Prasanga &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.bet/index.php?/forums/topic/175817-nam-naani-maduve-prasanga-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=354781)
 - [Dilse &lpar;2023&rpar; S01 EP12 ETV-WIN WEB-DL- [1080p - 720p &amp; 480p AVC - Telugu - &lpar;AAC 2.0 - 192Kbps&rpar; - 700MB - 400MB - 200MB] - x264 [Google Drive]](https://www.1tamilmv.bet/index.php?/forums/topic/175803-dilse-2023-s01-ep12-etv-win-web-dl-1080p-720p-480p-avc-telugu-aac-20-192kbps-700mb-400mb-200mb-x264-google-drive/&do=findComment&comment=354779)
 - [Kaala Paani &lpar;2023&rpar; S01 EP&lpar;01-07&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi] - 5.8GB - 2.6GB &amp; 1GB] - ESub](https://www.1tamilmv.bet/index.php?/forums/topic/175812-kaala-paani-2023-s01-ep01-07-true-web-dl-1080p-720p-avc-dd51-192kbps-tamil-telugu-hindi-58gb-26gb-1gb-esub/&do=findComment&comment=354778)
 - [Gran Turismo &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 5.1 - 384Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.4GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.bet/index.php?/forums/topic/175613-gran-turismo-2023-hd-original-audios-1080p-720p-x264-aac-51-384kbps-tamil-telugu-hindi-eng-34gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=354777)
-- [Kaala Paani &lpar;2023&rpar; S01 EP&lpar;01-07&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi] - 5.8GB - 2.6GB &amp; 1GB] - ESub](https://www.1tamilmv.bet/index.php?/forums/topic/175812-kaala-paani-2023-s01-ep01-07-true-web-dl-1080p-720p-avc-dd51-192kbps-tamil-telugu-hindi-58gb-26gb-1gb-esub/&do=findComment&comment=354776)
-- [Triple Riding &lpar;2022&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Telugu + Malayalam] - 2.8GB &amp; 1.4GB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.bet/index.php?/forums/topic/175815-triple-riding-2022-true-web-dl-1080p-720p-avc-dd51-192kbps-telugu-malayalam-28gb-14gb-x264-750mb-450mb-esub/&do=findComment&comment=354775)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
