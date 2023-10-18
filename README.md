@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Anganavaadiyile Teachere - Lyrical Video | Krishnanum Radhayum | Santhosh Pandit](https://www.youtube.com/watch?v=eJWwuR5ywlo)
-- [Aathmaavin Sangeetham Nee | Kshamichu Ennoru Vakku | P Jayachandran | Syam | Poovachal Khader](https://www.youtube.com/watch?v=YU-HonwuqVs)
-- [Swaragaminnente Vdeo Song | Sagaram Sakshi | Mammootty | Sukanya | Kaithapram | KJ Yesudas| Sharreth](https://www.youtube.com/watch?v=RcEgXOYDTVA)
-- [കാക്കേ കാക്കേ കാവതി കാക്കേ | Kakke Kakke Kaavathikkakke | Daivatheyorthu Film Song | P Jayachandran](https://www.youtube.com/watch?v=01k-g2ITKJU)
-- [Kunukune | Yodha | Bichu Thirumala | AR Rahman | KJ Yesudas | Sujatha Mohan | Mohanlal Hits](https://www.youtube.com/watch?v=Ad8xz3s2i6g)
-- [തിരക്കേറിയ ജീവിതത്തിനിടയിൽ സംഗീതം കൊണ്ട് തെല്ലാശ്വാസമേകുന്ന സിനിമാഗാനങ്ങൾ | NISARI FILM SONGS](https://www.youtube.com/watch?v=ATPEimUOU4U)
+- [ചില്ലു വിളക്കുമായ് | Chillu Vilakkumayi | Churam Movie Song | Johnson |  K J Yesudas  | Divya Unni](https://www.youtube.com/watch?v=TznaUV1PWyE)
+- [Kavil Nalloru | Pachathappu | Film Songs | Rajeev Elanthoor | Madhu Balakrishnan | Sharma S P Nair](https://www.youtube.com/watch?v=YpHdMkJWm5k)
+- [നാം വിശ്വസിക്കുന്നവർ നമ്മെ വഞ്ചിക്കുമ്പോൾ വല്ലാത്തൊരു നൊമ്പരമാണ് | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=-F2DxzMAfcg)
+- [Mangalam Padunna Video Song | K J Yesudas | KS Chithra | Mohanlal |  Urvashi](https://www.youtube.com/watch?v=pxVlxC9LAKE)
+- [Christian Superhit Songs | Abhijith Kollam | Joji Johns |Christian Devotional Songs Malayalam|Manoj](https://www.youtube.com/watch?v=E_HmFRu0tKg)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 18th of October 2023](https://www.youtube.com/watch?v=aQPSRGSl1aQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
