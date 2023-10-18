@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Karuthunnavan Njanallayo | Shorts  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=EBALu5HxYbE)
+- [Utharaayanakkili Paadi | Thaara | Vayalar | G Devarajan | KJ Yesudas | Vayalar Ramavarma](https://www.youtube.com/watch?v=MAUo7CNRvCA)
 - [THALARUNNU NJAN NADHA | NEW CHRISTIAN SONG | DHANYA | PAVITHRAN AMACHAL | JINO KUNNUMPURATH | REEL 1](https://www.youtube.com/watch?v=xbjLmIttaZQ)
 - [ഉഷകാലം നാം എഴുന്നേൽക്കുക | CHRISTIAN DEVOTIONAL SONG  | ROY PUTHUR | MITHILA #royputhur #devotional](https://www.youtube.com/watch?v=pfplBmFqef4)
 - [Oo Nadhe Mariye | Christian Video Song | Kester | Mariyan Song | Gisha Sony | Joji Johns|Melody Song](https://www.youtube.com/watch?v=Pg-njMrq4qs)
 - [October 18](https://www.youtube.com/watch?v=_bk8434xrsg)
-- [മഹിമയുടെ രഹസ്യങ്ങൾ  #സംഗീത ജപമാല #sangeetha japamala #2023 new japamala #jojo johny #johnson kk](https://www.youtube.com/watch?v=nkozec4l6aM)
-- [Japamala 18th of October 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 18th of October 23](https://www.youtube.com/watch?v=dEyoBybQVjU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
