@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kaala Paani &lpar;2023&rpar; S01 EP&lpar;01-07&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi] - 5.8GB - 2.6GB &amp; 1GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175812-kaala-paani-2023-s01-ep01-07-true-web-dl-1080p-720p-avc-dd51-192kbps-tamil-telugu-hindi-58gb-26gb-1gb-esub/&do=findComment&comment=354774)
+- [Thimuru Pudichavan &lpar;2018&rpar; Tamil TRUE WEB-DL - 1080p - UNTOUCHED - AVC - &lpar;DD+5.1 - 192Kbps &amp; AAC - 2.0&rpar; - 4.7GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/128270-thimuru-pudichavan-2018-tamil-true-web-dl-1080p-untouched-avc-dd51-192kbps-aac-20-47gb-esub/&do=findComment&comment=354773)
+- [Mansion 24 &lpar;2023&rpar; Complete S01 EP &lpar;01-06&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 4GB - 1.9GB &amp; 850MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/175799-mansion-24-2023-complete-s01-ep-01-06-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-4gb-19gb-850mb-esub-google-drive/&do=findComment&comment=354772)
 - [Malabar Police &lpar;1999&rpar;.Tamil.1080p.Web-dl.x264.AAC2.0 - 4GB - GDRIVE](https://www.1tamilmv.phd/index.php?/forums/topic/112432-malabar-police-1999tamil1080pweb-dlx264aac20-4gb-gdrive/&do=findComment&comment=354771)
 - [ANJI &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.6GB - Volga DVD](https://www.1tamilmv.phd/index.php?/forums/topic/175814-anji-2004-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-66gb-volga-dvd/&do=findComment&comment=354770)
-- [ANJI &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.6GB - Volga DVD](https://www.1tamilmv.phd/index.php?/forums/topic/175814-anji-2004-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-66gb-volga-dvd/&do=findComment&comment=354769)
-- [ANJI &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.6GB - Volga DVD](https://www.1tamilmv.phd/index.php?/forums/topic/175814-anji-2004-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-66gb-volga-dvd/&do=findComment&comment=354768)
-- [Padaiyappa [Narasimha] &lpar;1999&rpar; UPSCALED - TRUE WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - [Tamil + Telugu] - AAC2.0&lpar;125kbps&rpar; - 8GB - 5.5GB - 2.7GB - 1.8GB - 1.5GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB [GDrive]](https://www.1tamilmv.phd/index.php?/forums/topic/175809-padaiyappa-narasimha-1999-upscaled-true-web-dl-1080p-720p-avc-hevc-untouched-tamil-telugu-aac20125kbps-8gb-55gb-27gb-18gb-15gb-950mb-x264-700mb-400mb-250mb-gdrive/&do=findComment&comment=354767)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
