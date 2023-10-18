@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Anganavaadiyile Teachere - Lyrical Video | Krishnanum Radhayum | Santhosh Pandit](https://www.youtube.com/watch?v=eJWwuR5ywlo)
+- [Aathmaavin Sangeetham Nee | Kshamichu Ennoru Vakku | P Jayachandran | Syam | Poovachal Khader](https://www.youtube.com/watch?v=YU-HonwuqVs)
 - [Swaragaminnente Vdeo Song | Sagaram Sakshi | Mammootty | Sukanya | Kaithapram | KJ Yesudas| Sharreth](https://www.youtube.com/watch?v=RcEgXOYDTVA)
 - [കാക്കേ കാക്കേ കാവതി കാക്കേ | Kakke Kakke Kaavathikkakke | Daivatheyorthu Film Song | P Jayachandran](https://www.youtube.com/watch?v=01k-g2ITKJU)
 - [Kunukune | Yodha | Bichu Thirumala | AR Rahman | KJ Yesudas | Sujatha Mohan | Mohanlal Hits](https://www.youtube.com/watch?v=Ad8xz3s2i6g)
 - [തിരക്കേറിയ ജീവിതത്തിനിടയിൽ സംഗീതം കൊണ്ട് തെല്ലാശ്വാസമേകുന്ന സിനിമാഗാനങ്ങൾ | NISARI FILM SONGS](https://www.youtube.com/watch?v=ATPEimUOU4U)
-- [മലയാള സിനിമാസംഗീതത്തിന്റെ നെടുംതൂണുകളായ പ്രഗത്ഭന്മാരുടെ ജനങ്ങൾ ഏറ്റെടുത്ത ഗാനങ്ങൾ | EVERGREEN HITS](https://www.youtube.com/watch?v=7h-AyxovAPs)
-- [Maravi - Theme Song | Kallns Band | Saurav Suryaprabha | Vinayak sajeev | Amal Vinod | Jithu](https://www.youtube.com/watch?v=7wLgRwaJ1yg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
