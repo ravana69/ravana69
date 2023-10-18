@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kannadi Koodum   Pranayavarnangal   Vidyasagar   Hi Res Audio](https://www.youtube.com/watch?v=l3aXY3nLh0g)
+- [Vaanidavum Sagaravum | Mudra | Mammootty | Sudheesh | Baiju | Mohan Sithara | MG Sreekumar](https://www.youtube.com/watch?v=k3_AvITHBo4)
 - [സൂര്യ തേജസോടെ വാഴുന്ന സ്വർഗീയ കാരുണ്യ മാതേ...](https://www.youtube.com/watch?v=3M_uGC6Ts8Q)
 - [ചില്ലു വിളക്കുമായ് | Chillu Vilakkumayi | Churam Movie Song | Johnson |  K J Yesudas  | Divya Unni](https://www.youtube.com/watch?v=TznaUV1PWyE)
 - [Kavil Nalloru | Pachathappu | Film Songs | Rajeev Elanthoor | Madhu Balakrishnan | Sharma S P Nair](https://www.youtube.com/watch?v=YpHdMkJWm5k)
 - [നാം വിശ്വസിക്കുന്നവർ നമ്മെ വഞ്ചിക്കുമ്പോൾ വല്ലാത്തൊരു നൊമ്പരമാണ് | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=-F2DxzMAfcg)
-- [Mangalam Padunna Video Song | K J Yesudas | KS Chithra | Mohanlal |  Urvashi](https://www.youtube.com/watch?v=pxVlxC9LAKE)
-- [Christian Superhit Songs | Abhijith Kollam | Joji Johns |Christian Devotional Songs Malayalam|Manoj](https://www.youtube.com/watch?v=E_HmFRu0tKg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
