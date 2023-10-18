@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kunukune | Yodha | Bichu Thirumala | AR Rahman | KJ Yesudas | Sujatha Mohan | Mohanlal Hits](https://www.youtube.com/watch?v=Ad8xz3s2i6g)
+- [തിരക്കേറിയ ജീവിതത്തിനിടയിൽ സംഗീതം കൊണ്ട് തെല്ലാശ്വാസമേകുന്ന സിനിമാഗാനങ്ങൾ | NISARI FILM SONGS](https://www.youtube.com/watch?v=ATPEimUOU4U)
+- [മലയാള സിനിമാസംഗീതത്തിന്റെ നെടുംതൂണുകളായ പ്രഗത്ഭന്മാരുടെ ജനങ്ങൾ ഏറ്റെടുത്ത ഗാനങ്ങൾ | EVERGREEN HITS](https://www.youtube.com/watch?v=7h-AyxovAPs)
 - [Kunju kunju | Newspaper Boy 1997 | Nissar | M. G. Sreekumar | Malayalam Movie Song](https://www.youtube.com/watch?v=Y4nUWY9Xvb0)
 - [Poovarashin Kuda Nivarthi Remastered Audio Song Dilliwaala Raajakumaaran KS Chithra Ouseppachan](https://www.youtube.com/watch?v=vknajSrRKVQ)
 - [Chandhanamukile | Vellinakshathram | Beautiful Song by K S Chithra #shorts](https://www.youtube.com/watch?v=Is70EYIQiQ4)
-- [Karuthunnavan Njanallayo | Shorts  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=EBALu5HxYbE)
-- [Utharaayanakkili Paadi | Thaara | Vayalar | G Devarajan | KJ Yesudas | Vayalar Ramavarma](https://www.youtube.com/watch?v=MAUo7CNRvCA)
-- [THALARUNNU NJAN NADHA | NEW CHRISTIAN SONG | DHANYA | PAVITHRAN AMACHAL | JINO KUNNUMPURATH | REEL 1](https://www.youtube.com/watch?v=xbjLmIttaZQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
