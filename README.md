@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 2.0 EP46 DAY 45 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 965MB - 470MB &amp; 200MB | 18-10-2023]](https://www.1tamilmv.lat/index.php?/forums/topic/175820-bigg-boss-telugu-s07-20-ep46-day-45-true-web-dl-1080p-720p-480p-avc-untouched-965mb-470mb-200mb-18-10-2023/&do=findComment&comment=354786)
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP18 DAY 17 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 560MB &amp; 224MB | 18-10-2023]](https://www.1tamilmv.lat/index.php?/forums/topic/175819-bigg-boss-tamil-s07-ep18-day-17-true-web-dl-1080p-720p-480p-avc-untouched-1gb-560mb-224mb-18-10-2023/&do=findComment&comment=354785)
 - [The LCU Night has Successfully Started!!! - [INSIDE SOURCES]](https://www.1tamilmv.lat/index.php?/forums/topic/175818-the-lcu-night-has-successfully-started-inside-sources/&do=findComment&comment=354784)
 - [Mansion 24 &lpar;2023&rpar; Complete S01 EP &lpar;01-06&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 4GB - 1.9GB &amp; 850MB] - ESub [Google Drive]](https://www.1tamilmv.lat/index.php?/forums/topic/175799-mansion-24-2023-complete-s01-ep-01-06-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-4gb-19gb-850mb-esub-google-drive/&do=findComment&comment=354783)
 - [Lokesh Cinematic Universe [LCU] Ultimate Collection [GDrive]](https://www.1tamilmv.lat/index.php?/forums/topic/175682-lokesh-cinematic-universe-lcu-ultimate-collection-gdrive/&do=findComment&comment=354782)
-- [Nam Naani Maduve Prasanga &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.lat/index.php?/forums/topic/175817-nam-naani-maduve-prasanga-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=354781)
-- [Dilse &lpar;2023&rpar; S01 EP12 ETV-WIN WEB-DL- [1080p - 720p &amp; 480p AVC - Telugu - &lpar;AAC 2.0 - 192Kbps&rpar; - 700MB - 400MB - 200MB] - x264 [Google Drive]](https://www.1tamilmv.lat/index.php?/forums/topic/175803-dilse-2023-s01-ep12-etv-win-web-dl-1080p-720p-480p-avc-telugu-aac-20-192kbps-700mb-400mb-200mb-x264-google-drive/&do=findComment&comment=354779)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
