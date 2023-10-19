@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 2.0 EP47 DAY 46 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 550MB &amp; 219MB | 19-10-2023]](https://www.1tamilmv.lat/index.php?/forums/topic/175839-bigg-boss-telugu-s07-20-ep47-day-46-true-web-dl-1080p-720p-480p-avc-untouched-1gb-550mb-219mb-19-10-2023/&do=findComment&comment=354831)
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP19 DAY 18 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 559MB &amp; 217MB | 19-10-2023]](https://www.1tamilmv.lat/index.php?/forums/topic/175838-bigg-boss-tamil-s07-ep19-day-18-true-web-dl-1080p-720p-480p-avc-untouched-1gb-559mb-217mb-19-10-2023/&do=findComment&comment=354830)
 - [Leo &lpar;2023&rpar; Tamil Proper HQ PreDVD - 1080p - HEVC - HQ Clean Aud - 3.5GB &lpar;Aspect Ratio Corrected&rpar;](https://www.1tamilmv.lat/index.php?/forums/topic/175837-leo-2023-tamil%C2%A0proper-hq-predvd-1080p-hevc-hq-clean-aud-35gb-aspect-ratio-corrected/&do=findComment&comment=354829)
 - [The Nun II &lpar;2023&rpar; &lpar;UHD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 6.7GB - 2.8GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.lat/index.php?/forums/topic/175788-the-nun-ii-2023-uhd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-67gb-28gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=354828)
 - [[4K60FPS|144FPS] Vikram &lpar;2022&rpar; DSNP WEBRip SDR Multi DDP5.1 Esubs x265 HEVC - 2160p [4K60FPS] | 1080p [144FPS|60FPS] - 33 GB | 18.5 GB | 11.7 GB](https://www.1tamilmv.lat/index.php?/forums/topic/175823-4k60fps144fps-vikram-2022-dsnp-webrip-sdr-multi-ddp51-esubs-x265-hevc-2160p-4k60fps-1080p-144fps60fps-33-gb-185-gb-117-gb/&do=findComment&comment=354827)
-- [Ghost &lpar;2023&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.lat/index.php?/forums/topic/175827-ghost-2023-kannada-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=354826)
-- [Dilse &lpar;2023&rpar; Complete S01 EP&lpar;01-12&rpar; ETV-WIN WEB-DL- [1080p - 720p &amp; 480p AVC - Telugu - &lpar;AAC 2.0 - 192Kbps&rpar; - 6.3GB - 3.2GB - 1.2GB] - x264 [Google Drive]](https://www.1tamilmv.lat/index.php?/forums/topic/175836-dilse-2023-complete-s01-ep01-12-etv-win-web-dl-1080p-720p-480p-avc-telugu-aac-20-192kbps-63gb-32gb-12gb-x264-google-drive/&do=findComment&comment=354825)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
