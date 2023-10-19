@@ -24,10 +24,10 @@
 
 <!-- BLOG-POST-LIST:START -->
 - [Dream Girl 2 &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub§](https://www.1tamilmv.lat/index.php?/forums/topic/175847-dream-girl-2-2023-hindi-true-web-dl-1080p-720p-avc-dd51-640kbps-6gb-29gb-14gb-x264-700mb-400mb-esub%C2%A7/&do=findComment&comment=354840)
+- [Tatsama Tadbhava &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.lat/index.php?/forums/topic/175846-tatsama-tadbhava-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=354839)
 - [Maama Maschindra &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.lat/index.php?/forums/topic/175845-maama-maschindra-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354838)
+- [My Heart Puppy &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 5.1 - 384Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.8GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.lat/index.php?/forums/topic/175844-my-heart-puppy-2023-hd-original-audios-1080p-720p-x264-aac-51-384kbps-tamil-telugu-hindi-eng-28gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=354837)
 - [LEO &lpar;2023&rpar; Tamil Full Album - [FLAC - 24Bit &amp; 16Bit - 371MB &amp; 126MB] - Anirudh Ravichander](https://www.1tamilmv.lat/index.php?/forums/topic/175843-leo-2023-tamil-full-album-flac-24bit-16bit-371mb-126mb-anirudh-ravichander/&do=findComment&comment=354836)
-- [LEO &lpar;2023&rpar; Tamil Full Album - [FLAC - 24Bit &amp; 16Bit - 371MB &amp; 126MB] - Anirudh Ravichander](https://www.1tamilmv.lat/index.php?/forums/topic/175843-leo-2023-tamil-full-album-flac-24bit-16bit-371mb-126mb-anirudh-ravichander/&do=findComment&comment=354835)
-- [Leo &lpar;2023&rpar; Multi [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - Anirudh Musical](https://www.1tamilmv.lat/index.php?/forums/topic/175842-leo-2023-multi-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-anirudh-musical/&do=findComment&comment=354834)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
