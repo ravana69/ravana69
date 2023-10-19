@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 20th October 23](https://www.youtube.com/watch?v=ldDcZQSUBfs)
 - [Nilaa Thinkal Chirimaayum Remastered Audio Song Dilliwaala Raajakumaaran KS Chithra Ouseppachan](https://www.youtube.com/watch?v=X0WWBu-wVL0)
 - [19 October 2023](https://www.youtube.com/watch?v=evcATYkJ6NY)
 - [Sindhumani Punnagaiyil | Nee Sirithal Deepavali | Ilaiyaraaja | K.J.Yesudas | Hi-Res Audio](https://www.youtube.com/watch?v=ycPVzKMQ14A)
 - [Sneham Thenalla | Mayavi | Mammootty | Gopika | MG Sreekumar | G Venugopal | Shafi](https://www.youtube.com/watch?v=NFMtS5a7NOE)
 - [സ്വർഗ്ഗം ഇനിയെനിക്ക്  | Swargam Ini Enik | Bhishmachariya Movie Song | Manoj K. Jayan](https://www.youtube.com/watch?v=Nps8YDlXgpk)
-- [Chakkikothoru Chankaran | Acharam ammini osharam Omana | P Bhaskaran | G Devarajan | Prem Nazir](https://www.youtube.com/watch?v=jbpGeVhGVho)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
