@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Kunnum Keri | Cheena Trophy | Shorts  #malayalamfilmsongs  #malayalammoviesongs](https://www.youtube.com/watch?v=EAJUnq48SFU)
-- [ശില്‍പ്പി വിശ്വശില്പി | Shilppi Viswa Shilppi | Mayooranirtham Movie Song | K J Yesudas](https://www.youtube.com/watch?v=_HBOwLNs0gk)
-- [മലങ്കര തൻ പുണ്യം |പരിശുദ്ധനായ പരുമല തിരുമേനിയോടുള്ള  മാദ്ധ്യസ്ഥാ ഗീതം | ROY PUTHUR & SHIBU PUTHURAN](https://www.youtube.com/watch?v=HcsnrraFHZE)
-- [Malarmaasam Video Song | Nirnnayam | Mohanlal | Heera Rajagopal | MG Sreekumar | Gireesh Puthenchery](https://www.youtube.com/watch?v=wgBlyqjmwro)
-- [അല്പവിശ്രമവേളകൾ ലഭിക്കുമ്പോൾ ഒത്തിരി കേൾക്കാൻ കൊതിക്കുന്ന മലയാളസിനിമാഗാനങ്ങൾ | NISARI MUSIC](https://www.youtube.com/watch?v=lt4Q7cEHY1A)
-- [Padakaali | 𝐑𝐞𝐦𝐚𝐬𝐭𝐞𝐫𝐞𝐝 | Yodha | KJ Yesudas & MG Sreekumar | Mohanlal | Jagathi Sreekumar](https://www.youtube.com/watch?v=uxO2v4tCDJU)
+- [Kasargold - Full Album | Asif Ali, Sunny Wayne, Vinayakan | Vishnu Vijay, Niranj Suresh |Mridul Nair](https://www.youtube.com/watch?v=gtbr6Ynn0Po)
+- [അധ്വാനിക്കുന്നവരേ ഭാരം ചുമക്കുന്നവരേ എന്റെ അടുക്കൽ വരുവിൻ | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=3jS54Ld-LFQ)
+- [Oru Punnaram Kinnaram Shorts | Boeing Boeing | Yesudas | KS Chithra #shorts](https://www.youtube.com/watch?v=-41bH4U4UVI)
+- [Pattuduthu Pottu Thotta | Vellathooval | Rimi Tomy | Immanuel | Johnson | Gireesh Puthenchery](https://www.youtube.com/watch?v=QS7HIUhLrWg)
+- [Pathinezhaam Vayassil Video Song | Thirakal Ezhuthiya Kavitha Movie | S Janaki](https://www.youtube.com/watch?v=7K5QsdVntAQ)
+- [ഈ ഗാനങ്ങളിലുണ്ട് ദൈവീക അനുഭൂതി | Christian Devotional Songs Malayalam | Melody Songs](https://www.youtube.com/watch?v=yjFKol8Rnc4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
