@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Paramaraja Guruvarane | Mithila Michael #shorts  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=nVsXaupm7MI)
 - [Christian Superhit Songs | Jayachandran | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=Lahe8lpFqRw)
 - [അതിമനോഹരമായ പഴയകാല ഗാനങ്ങൾ old christian songs malayalam with lyrics ! daily worship songs malayalam](https://www.youtube.com/watch?v=VmmkKHM0Mfg)
 - [Mega hits 2023 japamala prayer #ലോകജനത ഇരുകൈയാൽ സ്വീകരിച്ച സംഗീത ജപമാല](https://www.youtube.com/watch?v=LL1lpfOth1s)
 - [Japamala 19th of October 23 # Mathavinte Japamala Prakashathinte Rahasyangal 19th of October 23](https://www.youtube.com/watch?v=51KVcfnYB5M)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=p6uqRK0r2u4)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #october 19th mother mary japamala prayer and songs](https://www.youtube.com/watch?v=lqQ640dD46M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
