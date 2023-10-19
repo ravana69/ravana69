@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ghost &lpar;2023&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.lat/index.php?/forums/topic/175827-ghost-2023-kannada-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=354826)
 - [Dilse &lpar;2023&rpar; Complete S01 EP&lpar;01-12&rpar; ETV-WIN WEB-DL- [1080p - 720p &amp; 480p AVC - Telugu - &lpar;AAC 2.0 - 192Kbps&rpar; - 6.3GB - 3.2GB - 1.2GB] - x264 [Google Drive]](https://www.1tamilmv.lat/index.php?/forums/topic/175836-dilse-2023-complete-s01-ep01-12-etv-win-web-dl-1080p-720p-480p-avc-telugu-aac-20-192kbps-63gb-32gb-12gb-x264-google-drive/&do=findComment&comment=354825)
 - [Khaidi &lpar;2019&rpar; Telugu TRUE WEB-DL - [4K - 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 3GB - 2.2GB &amp; 1.1GB] - [x264 - 700MB &amp; 500MB] - ESub [Google Drive]](https://www.1tamilmv.lat/index.php?/forums/topic/175835-khaidi-2019-telugu-true-web-dl-4k-1080p-720p-avc-dd51-192kbps-3gb-22gb-11gb-x264-700mb-500mb-esub-google-drive/&do=findComment&comment=354824)
 - [ANJI &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.6GB - Volga DVD](https://www.1tamilmv.lat/index.php?/forums/topic/175814-anji-2004-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-66gb-volga-dvd/&do=findComment&comment=354823)
 - [ANJI &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.6GB - Volga DVD](https://www.1tamilmv.lat/index.php?/forums/topic/175814-anji-2004-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-66gb-volga-dvd/&do=findComment&comment=354822)
-- [ANJI &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.6GB - Volga DVD](https://www.1tamilmv.lat/index.php?/forums/topic/175814-anji-2004-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-66gb-volga-dvd/&do=findComment&comment=354821)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
