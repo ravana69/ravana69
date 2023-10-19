@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലങ്കര തൻ പുണ്യം |പരിശുദ്ധനായ പരുമല തിരുമേനിയോടുള്ള  മാദ്ധ്യസ്ഥാ ഗീതം | ROY PUTHUR & SHIBU PUTHURAN](https://www.youtube.com/watch?v=HcsnrraFHZE)
+- [Malarmaasam Video Song | Nirnnayam | Mohanlal | Heera Rajagopal | MG Sreekumar | Gireesh Puthenchery](https://www.youtube.com/watch?v=wgBlyqjmwro)
+- [അല്പവിശ്രമവേളകൾ ലഭിക്കുമ്പോൾ ഒത്തിരി കേൾക്കാൻ കൊതിക്കുന്ന മലയാളസിനിമാഗാനങ്ങൾ | NISARI MUSIC](https://www.youtube.com/watch?v=lt4Q7cEHY1A)
+- [Padakaali | 𝐑𝐞𝐦𝐚𝐬𝐭𝐞𝐫𝐞𝐝 | Yodha | KJ Yesudas & MG Sreekumar | Mohanlal | Jagathi Sreekumar](https://www.youtube.com/watch?v=uxO2v4tCDJU)
+- [മയില്‍പ്പീലിക്കണ്‍കളില്‍ | Mayilpeeli Kankalil | Soundaryappinakkam Movie Song | KJ Yesudas| Chithra](https://www.youtube.com/watch?v=P7yIV0bi7kM)
 - [Kunnum Keri | Cheena Trophy | Shorts](https://www.youtube.com/watch?v=qI42a4Cy228)
-- [Hook steps for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=phiIGveekbc)
-- [Dancin with the gang #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=cPrKXIQaLWY)
-- [എക്കാലവും പ്രിയങ്കരങ്ങളായ ജോൺസൻ മാഷിൻറെ ഗാനങ്ങൾ | Johnson master Hits | K J Yesudas](https://www.youtube.com/watch?v=bVZ8KzrEii4)
-- [Vaasara Kshethrathil Nadathurannu | Ariyappedatha Rahasyam 1981 | S. Janaki | Malayalam Movie Song](https://www.youtube.com/watch?v=aO_MbqdO-Hc)
-- [Maanasa Nilayil Ponnolangal Remastered Audio Song Dhwani Movie KJ Yesudas Yusufali Kecheri Naushad](https://www.youtube.com/watch?v=so_HvBgVH5A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
