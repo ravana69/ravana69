@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Orukili Paattumoolave|Vadakkumnadhan|Mohanlal|Padmapriya|](https://www.youtube.com/watch?v=5y70lOPntpM)
+- [Karmukil Vasanthathe | Dalamarmarangal | KS Chithra | Mohan Sithara | Vijayakrishnan](https://www.youtube.com/watch?v=KWZkK7QWuSo)
 - [Kasargold - Full Album | Asif Ali, Sunny Wayne, Vinayakan | Vishnu Vijay, Niranj Suresh |Mridul Nair](https://www.youtube.com/watch?v=gtbr6Ynn0Po)
 - [അധ്വാനിക്കുന്നവരേ ഭാരം ചുമക്കുന്നവരേ എന്റെ അടുക്കൽ വരുവിൻ | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=3jS54Ld-LFQ)
 - [Oru Punnaram Kinnaram Shorts | Boeing Boeing | Yesudas | KS Chithra #shorts](https://www.youtube.com/watch?v=-41bH4U4UVI)
 - [Pattuduthu Pottu Thotta | Vellathooval | Rimi Tomy | Immanuel | Johnson | Gireesh Puthenchery](https://www.youtube.com/watch?v=QS7HIUhLrWg)
-- [Pathinezhaam Vayassil Video Song | Thirakal Ezhuthiya Kavitha Movie | S Janaki](https://www.youtube.com/watch?v=7K5QsdVntAQ)
-- [ഈ ഗാനങ്ങളിലുണ്ട് ദൈവീക അനുഭൂതി | Christian Devotional Songs Malayalam | Melody Songs](https://www.youtube.com/watch?v=yjFKol8Rnc4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
