@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Leo &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.lat/index.php?/forums/topic/175825-leo-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=354801)
 - [Leo &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.lat/index.php?/forums/topic/175824-leo-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=354800)
 - [Karumegangal Kalaigindrana &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 5.3GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.lat/index.php?/forums/topic/175816-karumegangal-kalaigindrana-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-53gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354799)
 - [Varuthapadatha Valibar Sangam &lpar;2013&rpar; Tamil TRUE WEB-DL - 1080p HQ - x265 HEVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 5.5GB - ESub - GDFlix](https://www.1tamilmv.lat/index.php?/forums/topic/175781-varuthapadatha-valibar-sangam-2013-tamil-true-web-dl-1080p-hq-x265-hevc-untouched-ddp51-55gb-esub-gdflix/&do=findComment&comment=354798)
 - [[4K60FPS|144FPS] Vikram &lpar;2022&rpar; DSNP WEBRip SDR Multi DDP5.1 Esubs x265 HEVC - 2160p [4K60FPS] | 1080p [144FPS|60FPS] - 33 GB | 18.5 GB | 11.7 GB](https://www.1tamilmv.lat/index.php?/forums/topic/175823-4k60fps144fps-vikram-2022-dsnp-webrip-sdr-multi-ddp51-esubs-x265-hevc-2160p-4k60fps-1080p-144fps60fps-33-gb-185-gb-117-gb/&do=findComment&comment=354797)
-- [Karumegangal Kalaigindrana &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 5.3GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.lat/index.php?/forums/topic/175816-karumegangal-kalaigindrana-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-53gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354796)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
