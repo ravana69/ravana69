@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Sindhumani Punnagaiyil | Nee Sirithal Deepavali | Ilaiyaraaja | K.J.Yesudas | Hi-Res Audio](https://www.youtube.com/watch?v=ycPVzKMQ14A)
+- [Sneham Thenalla | Mayavi | Mammootty | Gopika | MG Sreekumar | G Venugopal | Shafi](https://www.youtube.com/watch?v=NFMtS5a7NOE)
 - [സ്വർഗ്ഗം ഇനിയെനിക്ക്  | Swargam Ini Enik | Bhishmachariya Movie Song | Manoj K. Jayan](https://www.youtube.com/watch?v=Nps8YDlXgpk)
 - [Chakkikothoru Chankaran | Acharam ammini osharam Omana | P Bhaskaran | G Devarajan | Prem Nazir](https://www.youtube.com/watch?v=jbpGeVhGVho)
 - [Orukili Paattumoolave|Vadakkumnadhan|Mohanlal|Padmapriya|](https://www.youtube.com/watch?v=5y70lOPntpM)
 - [Karmukil Vasanthathe | Dalamarmarangal | KS Chithra | Mohan Sithara | Vijayakrishnan](https://www.youtube.com/watch?v=KWZkK7QWuSo)
-- [Kasargold - Full Album | Asif Ali, Sunny Wayne, Vinayakan | Vishnu Vijay, Niranj Suresh |Mridul Nair](https://www.youtube.com/watch?v=gtbr6Ynn0Po)
-- [അധ്വാനിക്കുന്നവരേ ഭാരം ചുമക്കുന്നവരേ എന്റെ അടുക്കൽ വരുവിൻ | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=3jS54Ld-LFQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
