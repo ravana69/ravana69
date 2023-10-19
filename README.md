@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Dream Girl 2 &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub§](https://www.1tamilmv.lat/index.php?/forums/topic/175847-dream-girl-2-2023-hindi-true-web-dl-1080p-720p-avc-dd51-640kbps-6gb-29gb-14gb-x264-700mb-400mb-esub%C2%A7/&do=findComment&comment=354840)
+- [Maama Maschindra &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.lat/index.php?/forums/topic/175845-maama-maschindra-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354838)
 - [LEO &lpar;2023&rpar; Tamil Full Album - [FLAC - 24Bit &amp; 16Bit - 371MB &amp; 126MB] - Anirudh Ravichander](https://www.1tamilmv.lat/index.php?/forums/topic/175843-leo-2023-tamil-full-album-flac-24bit-16bit-371mb-126mb-anirudh-ravichander/&do=findComment&comment=354836)
 - [LEO &lpar;2023&rpar; Tamil Full Album - [FLAC - 24Bit &amp; 16Bit - 371MB &amp; 126MB] - Anirudh Ravichander](https://www.1tamilmv.lat/index.php?/forums/topic/175843-leo-2023-tamil-full-album-flac-24bit-16bit-371mb-126mb-anirudh-ravichander/&do=findComment&comment=354835)
 - [Leo &lpar;2023&rpar; Multi [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - Anirudh Musical](https://www.1tamilmv.lat/index.php?/forums/topic/175842-leo-2023-multi-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps-anirudh-musical/&do=findComment&comment=354834)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 2.0 EP47 DAY 46 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 550MB &amp; 219MB | 19-10-2023]](https://www.1tamilmv.lat/index.php?/forums/topic/175839-bigg-boss-telugu-s07-20-ep47-day-46-true-web-dl-1080p-720p-480p-avc-untouched-1gb-550mb-219mb-19-10-2023/&do=findComment&comment=354831)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP19 DAY 18 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 559MB &amp; 217MB | 19-10-2023]](https://www.1tamilmv.lat/index.php?/forums/topic/175838-bigg-boss-tamil-s07-ep19-day-18-true-web-dl-1080p-720p-480p-avc-untouched-1gb-559mb-217mb-19-10-2023/&do=findComment&comment=354830)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
