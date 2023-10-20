@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന  October 21 # Athiravile Prarthana 21st of October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=jSNQ9RpXjkU)
+- [ജപമാല ഗീതങ്ങള്‍ # Holy Rosary Special Songs Malayalam |  Month of Holy Rosary October 2023 Songs](https://www.youtube.com/watch?v=kbHD8TbzCY8)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 21st October 23](https://www.youtube.com/watch?v=vYv4hdslVQ0)
 - [Couple steps for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=E65v_V99j_c)
 - [Cool recreation of #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=yON89UBg8ZY)
 - [OWN MEDIA MUSIC : AMMATHAN THARATTUPATTINTE EENAM/ അമ്മതൻ താരാട്ടു പാട്ടിന്റെ ഈണം/](https://www.youtube.com/watch?v=saV0R_LC9dg)
-- [അമ്മതൻ താരാട്ടു പാട്ടിന്റെ ഈണം ഇന്നെന്റെ കാതിൽ ഒഴുകിയെത്തി ....](https://www.youtube.com/watch?v=MVpOfLoamZg)
-- [Dhanumaasa Kulirala Choodi | Mazha Peyyunnu Maddhalam Kottunnu | P Jayachandran | KS Chithra](https://www.youtube.com/watch?v=a6pMG1mOT7o)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
