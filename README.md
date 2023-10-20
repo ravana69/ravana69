@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Sarvam Shakthi Mayam &lpar;2023&rpar; S01 EP &lpar;01-10&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu] - &lpar;DD+5.1 - 192Kbps&rpar; - 4.9GB - 2.4GB &amp; 950MB] - ESub](https://www.1tamilmv.lat/index.php?/forums/topic/175850-sarvam-shakthi-mayam-2023-s01-ep-01-10-true-web-dl-1080p-720p-avc-tamil-telugu-dd51-192kbps-49gb-24gb-950mb-esub/&do=findComment&comment=354845)
 - [Thudikkum Karangal &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 11GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.lat/index.php?/forums/topic/175840-thudikkum-karangal-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-11gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354844)
 - [Born to Fly &lpar;2023&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0&rpar; &lpar;Tamil + Telugu + Hindi + Chi&rpar; - 2.8GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.lat/index.php?/forums/topic/175849-born-to-fly-2023-bluray-original-audios-1080p-720p-x264-aac-20-tamil-telugu-hindi-chi-28gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=354843)
 - [Born to Fly &lpar;2023&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0&rpar; &lpar;Tamil + Telugu + Hindi + Chi&rpar; - 2.8GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.lat/index.php?/forums/topic/175849-born-to-fly-2023-bluray-original-audios-1080p-720p-x264-aac-20-tamil-telugu-hindi-chi-28gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=354842)
 - [King Of Kotha &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.7GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.lat/index.php?/forums/topic/175848-king-of-kotha-2023-hindi-true-web-dl-1080p-720p-avc-dd51-192kbps-27gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=354841)
-- [Dream Girl 2 &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub§](https://www.1tamilmv.lat/index.php?/forums/topic/175847-dream-girl-2-2023-hindi-true-web-dl-1080p-720p-avc-dd51-640kbps-6gb-29gb-14gb-x264-700mb-400mb-esub%C2%A7/&do=findComment&comment=354840)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
