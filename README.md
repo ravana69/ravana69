@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Anuraaga Lola Gaathri Remastered Audio Song Dhwani Movie KJ Yesudas Yusufali Kecheri Naushad](https://www.youtube.com/watch?v=1oEgiKcag_s)
+- [Nee Oru Vasantham | Beena | Bichu Thirumala | Kannur Rajan | K J Yesudas](https://www.youtube.com/watch?v=eGcRN1NhN5Y)
+- [Raavinte Tholil | Adukkan Entheluppam 1986 | Jerry Amaldev | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=6VDH9rPwmk4)
 - [Vanamala Malayalam Devotional Songs Lord Krishna | Yesudas | S.Rameshan Nair | Sound of Arts](https://www.youtube.com/watch?v=OITTGUEkg3w)
 - [October 20](https://www.youtube.com/watch?v=nm04INf8YXg)
 - [Daivam Tharunnathenthum | K.S. Chithra #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=ht0FwY6iBtQ)
-- [Ormakal Osthiyil | Christian Video Song | Abhijith Kollam | Holy Communion Song | Fr.Phinil Ezharath](https://www.youtube.com/watch?v=d2dEkqecZ0E)
-- [Japamala 20th of October 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 20th of October 23](https://www.youtube.com/watch?v=QwzO2RzXYhA)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം # october 20th  mother mary prayer and songs](https://www.youtube.com/watch?v=QYM5RKuTAMM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
