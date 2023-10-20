@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Red Sandal Wood &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.3GB - 1.6GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.lat/index.php?/forums/topic/175841-red-sandal-wood-2023-tamil-true-web-dl-4k-1080p-720p-avc-dd51-384kbps-23gb-16gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354849)
 - [Curse.of.Chucky.2013 DD2.0 Tamil +DD5.1 Hindi + DD5.1 English 720p &amp; 1080p BluRay [G-Drive]](https://www.1tamilmv.lat/index.php?/forums/topic/153175-curseofchucky2013-dd20-tamil-dd51-hindi-dd51-english-720p-1080p-bluray-g-drive/&do=findComment&comment=354848)
 - [Loki S02E03 DSNP WEB-DL Multi DDP5.1 Esubs - 2160p [HDR10] | 1080p | 720p - 6.6 GB | 2.5 GB | 0.9 GB](https://www.1tamilmv.lat/index.php?/forums/topic/175852-loki-s02e03-dsnp-web-dl-multi-ddp51-esubs-2160p-hdr10-1080p-720p-66-gb-25-gb-09-gb/&do=findComment&comment=354847)
 - [Dream Girl 2 &lpar;2023&rpar; 720p 10bit NF WEBRip x265 HEVC Hindi AAC 5.1 ESub - Immortal [TipsMovieZ]](https://www.1tamilmv.lat/index.php?/forums/topic/175851-dream-girl-2-2023-720p-10bit-nf-webrip-x265-hevc-hindi-aac-51-esub-immortal-tipsmoviez/&do=findComment&comment=354846)
 - [Sarvam Shakthi Mayam &lpar;2023&rpar; S01 EP &lpar;01-10&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu] - &lpar;DD+5.1 - 192Kbps&rpar; - 4.9GB - 2.4GB &amp; 950MB] - ESub](https://www.1tamilmv.lat/index.php?/forums/topic/175850-sarvam-shakthi-mayam-2023-s01-ep-01-10-true-web-dl-1080p-720p-avc-tamil-telugu-dd51-192kbps-49gb-24gb-950mb-esub/&do=findComment&comment=354845)
-- [Thudikkum Karangal &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 11GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.lat/index.php?/forums/topic/175840-thudikkum-karangal-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-11gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354844)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
