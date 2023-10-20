@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Sarvam Shakthi Mayam &lpar;2023&rpar; Complete S01 EP &lpar;01-10&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu] - &lpar;DD+5.1 - 192Kbps&rpar; - 4.9GB - 2.4GB &amp; 950MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/175863-sarvam-shakthi-mayam-2023-complete-s01-ep-01-10-merged-true-web-dl-1080p-720p-avc-tamil-telugu-dd51-192kbps-49gb-24gb-950mb-esub-google-drive/&do=findComment&comment=354890)
 - [Saw X &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 2.5GB &amp; 1.1GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175853-saw-x-2023-english-true-web-dl-1080p-720p-avc-dd51-atmos-768kbps-25gb-11gb-esub/&do=findComment&comment=354889)
 - [Saw X &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 2.5GB &amp; 1.1GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175853-saw-x-2023-english-true-web-dl-1080p-720p-avc-dd51-atmos-768kbps-25gb-11gb-esub/&do=findComment&comment=354888)
 - [Leo &lpar;2023&rpar; Tamil New HQ PreDVD - [1080p &amp; 720p - x264 - 7GB - 3GB - 1.6GB &amp; 1GB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175832-leo-2023-tamil-new-hq-predvd-1080p-720p-x264-7gb-3gb-16gb-1gb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=354887)
 - [Routine Love Story &lpar;2012&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 3.6GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175860-routine-love-story-2012-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-36gb-esub/&do=findComment&comment=354886)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP20 DAY 19 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 578MB &amp; 222MB | 20-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175862-bigg-boss-tamil-s07-ep20-day-19-true-web-dl-1080p-720p-480p-avc-untouched-11gb-578mb-222mb-20-10-2023/&do=findComment&comment=354885)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
