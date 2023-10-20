@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Cheenatrophy | Official Teaser | Dhyan Sreenivasan |  Kendy Zirdo | Jaffer Idukki  | Anil Lal](https://www.youtube.com/watch?v=k3WZr7_aeTc)
-- [കിളിയെ കിളിയെ | Kiliye Kiliye Kilimakale | Dheem Tharikida Thom Malayalam Movie Song | MG Sreekumar](https://www.youtube.com/watch?v=z9S8i40v8ow)
-- [മഞ്ഞിൻ കുളിരുപോൽ മനസിനെ തണുപ്പിക്കുന്ന മലയാളസിനിമയിലെ " MINT FRESH " ഗാനങ്ങൾ | EVERGREEN SONGS](https://www.youtube.com/watch?v=thVJsO8wT34)
-- [മലയാളികൾ  നെഞ്ചോടു  മലയാള സിനിമയിലെ  പ്രശസ്ത ഗാനങ്ങൾ |Evergreen Malayalam Film Songs |K J Yesudas](https://www.youtube.com/watch?v=45BAER769Sc)
-- [Enne Snehikkunna Daivam | Sneham Thulumbunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=B9KIZaOIqgU)
-- [Mukilvarna Mukunda | Karaoke Video | Bahubali 2 - The Conclusion | Swetha Mohan | M M Keeravani](https://www.youtube.com/watch?v=wwTqN0my2YU)
+- [ഇളമാവിന്‍ തുഞ്ചത്തെ | Ilamavin Thunchathe | Ikkareyanente Manasam Malayalam Movie Song | KS Chithra](https://www.youtube.com/watch?v=fWrrBLYuNPY)
+- [Eriyunna Karalinte Video Song | HD |  Punjabi House Movie Song | REMASTERED |](https://www.youtube.com/watch?v=m8edfHw4D_0)
+- [Puthu Manju Pol | Dr. Patient | Gayathri | Balu Thankachan | Bennet Veetraag | Rafeeq Ahammed](https://www.youtube.com/watch?v=gD447PBWLcM)
+- [Anweshippin Kandethum - First Glance | Tovino Thomas | Darwin Kuriakose | Dec 2023](https://www.youtube.com/watch?v=B4n7PD2kuZU)
+- [ശൂന്യതയിൽ നിന്നും ദൈവം നിനക്കുവേണ്ടി പ്രവർത്തിക്കും | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=a8OC6AO3_BA)
+- [Mozhiyazhakum Video Song | Kalippaattam | K J Yesudas | KS Chithra | Raveendran | Konniyoor Bhas](https://www.youtube.com/watch?v=lfqLJtgqkuo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
