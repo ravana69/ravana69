@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [അമ്മതൻ താരാട്ടു പാട്ടിന്റെ ഈണം ഇന്നെന്റെ കാതിൽ ഒഴുകിയെത്തി ....](https://www.youtube.com/watch?v=MVpOfLoamZg)
+- [Dhanumaasa Kulirala Choodi | Mazha Peyyunnu Maddhalam Kottunnu | P Jayachandran | KS Chithra](https://www.youtube.com/watch?v=a6pMG1mOT7o)
 - [Karunanidhiye | കരുണാനിധിയെ... #shrots #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=YFA7GLdswhw)
 - [Kaanumpol Parayamo Video Song | Ishtam | Dileep | Navya Nair | KJ Yesudas| KS Chithra |Mohan Sithara](https://www.youtube.com/watch?v=IQPjBH-4Qn4)
 - [ഇളമാവിന്‍ തുഞ്ചത്തെ | Ilamavin Thunchathe | Ikkareyanente Manasam Malayalam Movie Song | KS Chithra](https://www.youtube.com/watch?v=fWrrBLYuNPY)
 - [Eriyunna Karalinte Video Song | HD |  Punjabi House Movie Song | REMASTERED |](https://www.youtube.com/watch?v=m8edfHw4D_0)
-- [Puthu Manju Pol | Dr. Patient | Gayathri | Balu Thankachan | Bennet Veetraag | Rafeeq Ahammed](https://www.youtube.com/watch?v=gD447PBWLcM)
-- [Anweshippin Kandethum - First Glance | Tovino Thomas | Darwin Kuriakose | Dec 2023](https://www.youtube.com/watch?v=B4n7PD2kuZU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
