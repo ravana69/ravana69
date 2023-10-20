@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Enne Snehikkunna Daivam | Sneham Thulumbunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=B9KIZaOIqgU)
+- [Mukilvarna Mukunda | Karaoke Video | Bahubali 2 - The Conclusion | Swetha Mohan | M M Keeravani](https://www.youtube.com/watch?v=wwTqN0my2YU)
 - [Anuraaga Lola Gaathri Remastered Audio Song Dhwani Movie KJ Yesudas Yusufali Kecheri Naushad](https://www.youtube.com/watch?v=1oEgiKcag_s)
 - [Nee Oru Vasantham | Beena | Bichu Thirumala | Kannur Rajan | K J Yesudas](https://www.youtube.com/watch?v=eGcRN1NhN5Y)
 - [Raavinte Tholil | Adukkan Entheluppam 1986 | Jerry Amaldev | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=6VDH9rPwmk4)
 - [Vanamala Malayalam Devotional Songs Lord Krishna | Yesudas | S.Rameshan Nair | Sound of Arts](https://www.youtube.com/watch?v=OITTGUEkg3w)
-- [October 20](https://www.youtube.com/watch?v=nm04INf8YXg)
-- [Daivam Tharunnathenthum | K.S. Chithra #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=ht0FwY6iBtQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
