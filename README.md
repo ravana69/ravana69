@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #october 21st 2023 mother mary hits evergreen](https://www.youtube.com/watch?v=4foY1g2EdFU)
+- [മനം അറിയാതെ എപ്പോഴും ഏറ്റുപാടുന്ന സ്തുതിഗീതങ്ങൾ ethratholam jayam tanna | Kester | christian songs](https://www.youtube.com/watch?v=w572PgpRV9k)
+- [Christian Video Songs Malayalam | Sreya Jayadeep | Christian Melody Songs | Abhijith |Joji Johns](https://www.youtube.com/watch?v=Gmri645IL5Q)
+- [സന്തോഷത്തിൻറെ രഹസങ്ങൾ  #അമ്മയെൻ പുണ്യം എന്ന ആൽബത്തിൽ നിന്നും](https://www.youtube.com/watch?v=2jdyv7Qf_zE)
+- [Japamala 21st of October 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 21st of October 23](https://www.youtube.com/watch?v=lsSL2g61_Ls)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=3-dBVHbdJ2s)
-- [പ്രഭാത പ്രാര്‍ത്ഥന  October 21 # Athiravile Prarthana 21st of October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=jSNQ9RpXjkU)
-- [ജപമാല ഗീതങ്ങള്‍ # Holy Rosary Special Songs Malayalam |  Month of Holy Rosary October 2023 Songs](https://www.youtube.com/watch?v=kbHD8TbzCY8)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 21st October 23](https://www.youtube.com/watch?v=vYv4hdslVQ0)
-- [Couple steps for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=E65v_V99j_c)
-- [Cool recreation of #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=yON89UBg8ZY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
