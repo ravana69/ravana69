@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Dehiyilla Dehikkippol - Lyrical Video | Krishnanum Radhayum | Santhosh Pandit | MG Sreekumar](https://www.youtube.com/watch?v=EkD6pOf0zzk)
+- [Thenral Thaan   Keladi Kannmanii   Ilaiyaraaja   Hi Res Audio](https://www.youtube.com/watch?v=mndVFuWIJbw)
+- [RDX - Video Jukebox | Shane Nigam, Antony Varghese, Neeraj Madhav | Nahas Hidhayath | Sam C S](https://www.youtube.com/watch?v=Z-sAKEDWbfw)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 21st of October 2023](https://www.youtube.com/watch?v=KmkFqhYnpec)
 - [Vikaara Naukayumayi Video Song | Amaram | Mammootty | KJ Yesudas | Raveendran | Kaithapram](https://www.youtube.com/watch?v=qboVkft8TtI)
 - [PAAVANACHARITHAN|പാവനചരിതൻ |PARUMALA THIRUMENI SONG| #royputhur #rayanmedia #parumalathirumenisongs](https://www.youtube.com/watch?v=bWEybmnC0nI)
-- [Athiravile | Anna Baby | Shorts  #manoramachristiandevotionalsongs #shorts](https://www.youtube.com/watch?v=5BdapGC2hdk)
-- [ഒത്തിരി ആഗ്രഹത്തോടെ മലയാളികൾ എന്നും കേൾക്കുന്ന മലയാളത്തിലെ പ്രശസ്ത ഗാനങ്ങൾ  |Evergreen  Film Songs](https://www.youtube.com/watch?v=OwkPlzvBWjY)
-- [Nee Oru Vasantham Short Video | Malayalam Shorts | Malayalam Song Shorts](https://www.youtube.com/watch?v=tI6P1l1xlM8)
-- [Japamala Masam Short October  | Holy Rosary Special Short](https://www.youtube.com/watch?v=dgXx1vmSLMo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
