@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Thudikkum Karangal &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 11GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175840-thudikkum-karangal-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-11gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354901)
+- [Villain Yaaru &lpar;From &quot;Leo&quot;&rpar; Master Quality 24bit 96kHz - FLAC - Anirudh Ravichander Musical - 64 MB](https://www.1tamilmv.phd/index.php?/forums/topic/175868-villain-yaaru-from-leo-master-quality-24bit-96khz-flac-anirudh-ravichander-musical-64-mb/&do=findComment&comment=354900)
 - [A Film by Aravind &lpar;2005&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 4GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175869-a-film-by-aravind-2005-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-4gb-esub/&do=findComment&comment=354899)
 - [A Film by Aravind &lpar;2005&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 4GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175869-a-film-by-aravind-2005-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-4gb-esub/&do=findComment&comment=354898)
 - [Villain Yaaru &lpar;From &quot;Leo&quot;&rpar; Master Quality 24bit 96kHz - FLAC - Anirudh Ravichander Musical - 64 MB](https://www.1tamilmv.phd/index.php?/forums/topic/175868-villain-yaaru-from-leo-master-quality-24bit-96khz-flac-anirudh-ravichander-musical-64-mb/&do=findComment&comment=354897)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Why Did Shobha Nominate Ashwini - 480p - AVC - UNTOUCHED - AAC - 83MB](https://www.1tamilmv.phd/index.php?/forums/topic/175867-bigg-boss-telugu-s07-unseen-why-did-shobha-nominate-ashwini-480p-avc-untouched-aac-83mb/&do=findComment&comment=354896)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 Exit Nayani&#39;s Interview - 480p - AVC - UNTOUCHED - AAC - 138MB](https://www.1tamilmv.phd/index.php?/forums/topic/175866-bigg-boss-telugu-s07-exit-nayanis-interview-480p-avc-untouched-aac-138mb/&do=findComment&comment=354895)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
