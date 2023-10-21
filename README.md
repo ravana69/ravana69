@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manjutharasree | Mizhikal Sakshi | Sukumari | Vineeth | Mohanlal | V Dakshinamoorthi | ONV Kuruppu](https://www.youtube.com/watch?v=uLR9xIOs_0c)
 - [Kunu Kune   Yoddha   A R Rahman   Hi Res Audio](https://www.youtube.com/watch?v=odJGuPxRdCM)
 - [Puzhayozhukum Pole #shrots #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=wgbrrfNJr2A)
 - [Arattukadavil | Acharam Ammini Osharam Omana | P Bhaskaran | G Devarajan | KJ Yesudas | P Madhuri](https://www.youtube.com/watch?v=UXcEEg8Qsv0)
 - [മറ്റൊരാളുടെ സന്തോഷത്തിൽ നമുക്ക് സന്തോഷിക്കാൻ കഴിയണം. | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=KAGofQhktM4)
 - [Aarum Kanathe | Thenkasikkattu | Vineeth Sreenivasan | Aan Amie | Santhosh Varma | Rithwik S Chand](https://www.youtube.com/watch?v=vXsAQXCTNTY)
-- [Karmukil Vasanthathe | Dalamarmarangal | Vijay Yesudas | Mohan Sithara | Vijayakrishnan](https://www.youtube.com/watch?v=CMq74dDQWKw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
