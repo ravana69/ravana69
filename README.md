@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oru Raaga Maala Korthu Remastered Audio Song Dhwani Movie KJ Yesudas Yusufali Kecheri Naushad](https://www.youtube.com/watch?v=4Gb2l5Jwz4s)
+- [Kannikkaavadi poonirangal | Nanma Niranjavan Sreenivasan 1990 | Johnson | Malayalam Movie Song](https://www.youtube.com/watch?v=e10h04cfh6Q)
+- [Jyothirmayi Nee | Kannukal | Jayabharathi | Sukumaran | P Gopakumar | Ravi Vilagan](https://www.youtube.com/watch?v=XEWCzQUt1a0)
 - [Paramaraja | Mithila Michael #shorts  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=Paaz_PjG-b8)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #october 21st 2023 mother mary hits evergreen](https://www.youtube.com/watch?v=4foY1g2EdFU)
 - [മനം അറിയാതെ എപ്പോഴും ഏറ്റുപാടുന്ന സ്തുതിഗീതങ്ങൾ ethratholam jayam tanna | Kester | christian songs](https://www.youtube.com/watch?v=w572PgpRV9k)
-- [Christian Video Songs Malayalam | Sreya Jayadeep | Christian Melody Songs | Abhijith |Joji Johns](https://www.youtube.com/watch?v=Gmri645IL5Q)
-- [സന്തോഷത്തിൻറെ രഹസങ്ങൾ  #അമ്മയെൻ പുണ്യം എന്ന ആൽബത്തിൽ നിന്നും](https://www.youtube.com/watch?v=2jdyv7Qf_zE)
-- [Japamala 21st of October 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 21st of October 23](https://www.youtube.com/watch?v=lsSL2g61_Ls)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
