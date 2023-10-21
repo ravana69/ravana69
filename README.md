@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Thuppakki &lpar;2012&rpar; DIRECTOR&#39;S CUT - Tamil - BluRay - 1080p &amp; 720p - TRUE HD - AVC / HEVC - DTS-HDMA 5.1&lpar;4424kbps&rpar; - 10.5GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - ESub [GDrive]](https://www.1tamilmv.phd/index.php?/forums/topic/175713-thuppakki-2012-directors-cut-tamil-bluray-1080p-720p-true-hd-avc-hevc-dts-hdma-514424kbps-105gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub-gdrive/&do=findComment&comment=354902)
 - [Thudikkum Karangal &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 11GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175840-thudikkum-karangal-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-11gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354901)
 - [Villain Yaaru &lpar;From &quot;Leo&quot;&rpar; Master Quality 24bit 96kHz - FLAC - Anirudh Ravichander Musical - 64 MB](https://www.1tamilmv.phd/index.php?/forums/topic/175868-villain-yaaru-from-leo-master-quality-24bit-96khz-flac-anirudh-ravichander-musical-64-mb/&do=findComment&comment=354900)
 - [A Film by Aravind &lpar;2005&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 4GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175869-a-film-by-aravind-2005-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-4gb-esub/&do=findComment&comment=354899)
 - [A Film by Aravind &lpar;2005&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 4GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175869-a-film-by-aravind-2005-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-4gb-esub/&do=findComment&comment=354898)
-- [Villain Yaaru &lpar;From &quot;Leo&quot;&rpar; Master Quality 24bit 96kHz - FLAC - Anirudh Ravichander Musical - 64 MB](https://www.1tamilmv.phd/index.php?/forums/topic/175868-villain-yaaru-from-leo-master-quality-24bit-96khz-flac-anirudh-ravichander-musical-64-mb/&do=findComment&comment=354897)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
