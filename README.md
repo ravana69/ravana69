@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Villain Yaaru &lpar;From &quot;Leo&quot;&rpar; Master Quality 24bit 96kHz - FLAC - Anirudh Ravichander Musical - 64 MB](https://www.1tamilmv.phd/index.php?/forums/topic/175868-villain-yaaru-from-leo-master-quality-24bit-96khz-flac-anirudh-ravichander-musical-64-mb/&do=findComment&comment=354897)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Why Did Shobha Nominate Ashwini - 480p - AVC - UNTOUCHED - AAC - 83MB](https://www.1tamilmv.phd/index.php?/forums/topic/175867-bigg-boss-telugu-s07-unseen-why-did-shobha-nominate-ashwini-480p-avc-untouched-aac-83mb/&do=findComment&comment=354896)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 Exit Nayani&#39;s Interview - 480p - AVC - UNTOUCHED - AAC - 138MB](https://www.1tamilmv.phd/index.php?/forums/topic/175866-bigg-boss-telugu-s07-exit-nayanis-interview-480p-avc-untouched-aac-138mb/&do=findComment&comment=354895)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 Exit Subhashree&#39;s Interview - 480p - AVC - UNTOUCHED - AAC - 109MB](https://www.1tamilmv.phd/index.php?/forums/topic/175865-bigg-boss-telugu-s07-exit-subhashrees-interview-480p-avc-untouched-aac-109mb/&do=findComment&comment=354894)
 - [ELITE &lpar;2023&rpar; S07 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + English&rpar; - 5GB &amp; 2.2GB | x264 - 1GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175855-elite-2023-s07-ep-01-08-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-english-5gb-22gb-x264-1gb-esub/&do=findComment&comment=354893)
-- [Corona Dhavan &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175859-corona-dhavan-2023-malayalam-true-web-dl-1080p-720p-avc-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=354892)
-- [ELITE &lpar;2023&rpar; Complete S07 EP &lpar;01-08&rpar; Merged TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + English&rpar; - 5GB &amp; 2.2GB | x264 - 1GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/175864-elite-2023-complete-s07-ep-01-08-merged-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-english-5gb-22gb-x264-1gb-esub-google-drive/&do=findComment&comment=354891)
-- [Sarvam Shakthi Mayam &lpar;2023&rpar; Complete S01 EP &lpar;01-10&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu] - &lpar;DD+5.1 - 192Kbps&rpar; - 4.9GB - 2.4GB &amp; 950MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/175863-sarvam-shakthi-mayam-2023-complete-s01-ep-01-10-merged-true-web-dl-1080p-720p-avc-tamil-telugu-dd51-192kbps-49gb-24gb-950mb-esub-google-drive/&do=findComment&comment=354890)
-- [Saw X &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 2.5GB &amp; 1.1GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175853-saw-x-2023-english-true-web-dl-1080p-720p-avc-dd51-atmos-768kbps-25gb-11gb-esub/&do=findComment&comment=354889)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
