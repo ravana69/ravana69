@@ -34,10 +34,10 @@
 <!-- BLOGPOSTS:START -->
 - [മറ്റൊരാളുടെ സന്തോഷത്തിൽ നമുക്ക് സന്തോഷിക്കാൻ കഴിയണം. | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=KAGofQhktM4)
 - [Aarum Kanathe | Thenkasikkattu | Vineeth Sreenivasan | Aan Amie | Santhosh Varma | Rithwik S Chand](https://www.youtube.com/watch?v=vXsAQXCTNTY)
+- [Karmukil Vasanthathe | Dalamarmarangal | Vijay Yesudas | Mohan Sithara | Vijayakrishnan](https://www.youtube.com/watch?v=CMq74dDQWKw)
 - [Malayalam Old Melodies❤️ | Neelaponman | S Janaki #shorts](https://www.youtube.com/watch?v=OKLF_I8o-nM)
 - [Kannuneer Puzhayude | 1080p | Meerayude Dukhavum Muthuvinte Swapnavum | Prithviraj | Ambili Devi](https://www.youtube.com/watch?v=_JV2GbiosYI)
 - [GLORIA PATTUKAL | #shortvideo | Malayalam Carol Chorus Song | Fr Shaji Thumpechirayil](https://www.youtube.com/watch?v=xhmHTb05KYE)
-- [വിദ്യാധരേ ദേവി | Vidhyadhare Devi | Swethambari | Hindu Devotional Songs](https://www.youtube.com/watch?v=ULJ__JkymcY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
