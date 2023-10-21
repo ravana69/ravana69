@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രഘുവിൻറെ സ്വന്തം റസിയ | മലയാളചലച്ചിത്രഗാനങ്ങൾ | കെ ജെ യേശുദാസ് | Karthik |Malayalam Full Audio songs](https://www.youtube.com/watch?v=mVtvfwe7Iso)
+- [Move to the beats of #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=FzennRpiF94)
+- [Moving slick of #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=FV2gk0NSxiM)
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 22nd October 23](https://www.youtube.com/watch?v=TOq1w8QKp4E)
 - [Athramelennum-(light music )Vinod velayudhan](https://www.youtube.com/watch?v=ScO1ug3TUTc)
 - [കാൽവരിക്കുന്നിലെ കുരിശിൻ ചുവട്ടിൽ തിരുരക്തമൊഴുകുന്ന നേരം...](https://www.youtube.com/watch?v=2CW5UC2vVCU)
-- [Nattu Maavin | Chakoram | Short Video | Malyalamsongshorts | Murali | Yesudas](https://www.youtube.com/watch?v=jHJI_HHhK4k)
-- [Manjutharasree | Mizhikal Sakshi | Sukumari | Vineeth | Mohanlal | V Dakshinamoorthi | ONV Kuruppu](https://www.youtube.com/watch?v=uLR9xIOs_0c)
-- [Kunu Kune   Yoddha   A R Rahman   Hi Res Audio](https://www.youtube.com/watch?v=odJGuPxRdCM)
-- [Puzhayozhukum Pole #shrots #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=wgbrrfNJr2A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
