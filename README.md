@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Athramelennum-(light music )Vinod velayudhan](https://www.youtube.com/watch?v=ScO1ug3TUTc)
+- [കാൽവരിക്കുന്നിലെ കുരിശിൻ ചുവട്ടിൽ തിരുരക്തമൊഴുകുന്ന നേരം...](https://www.youtube.com/watch?v=2CW5UC2vVCU)
 - [Nattu Maavin | Chakoram | Short Video | Malyalamsongshorts | Murali | Yesudas](https://www.youtube.com/watch?v=jHJI_HHhK4k)
 - [Manjutharasree | Mizhikal Sakshi | Sukumari | Vineeth | Mohanlal | V Dakshinamoorthi | ONV Kuruppu](https://www.youtube.com/watch?v=uLR9xIOs_0c)
 - [Kunu Kune   Yoddha   A R Rahman   Hi Res Audio](https://www.youtube.com/watch?v=odJGuPxRdCM)
 - [Puzhayozhukum Pole #shrots #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=wgbrrfNJr2A)
-- [Arattukadavil | Acharam Ammini Osharam Omana | P Bhaskaran | G Devarajan | KJ Yesudas | P Madhuri](https://www.youtube.com/watch?v=UXcEEg8Qsv0)
-- [മറ്റൊരാളുടെ സന്തോഷത്തിൽ നമുക്ക് സന്തോഷിക്കാൻ കഴിയണം. | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=KAGofQhktM4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
