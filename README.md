@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [PAAVANACHARITHAN|പാവനചരിതൻ |PARUMALA THIRUMENI SONG| #royputhur #rayanmedia #parumalathirumenisongs](https://www.youtube.com/watch?v=bWEybmnC0nI)
+- [Athiravile | Anna Baby | Shorts  #manoramachristiandevotionalsongs #shorts](https://www.youtube.com/watch?v=5BdapGC2hdk)
+- [ഒത്തിരി ആഗ്രഹത്തോടെ മലയാളികൾ എന്നും കേൾക്കുന്ന മലയാളത്തിലെ പ്രശസ്ത ഗാനങ്ങൾ  |Evergreen  Film Songs](https://www.youtube.com/watch?v=OwkPlzvBWjY)
 - [Nee Oru Vasantham Short Video | Malayalam Shorts | Malayalam Song Shorts](https://www.youtube.com/watch?v=tI6P1l1xlM8)
 - [Japamala Masam Short October  | Holy Rosary Special Short](https://www.youtube.com/watch?v=dgXx1vmSLMo)
 - [Malyalam Film Compilation Hits | Yesudas | Jonson | Jerry Amaldev | Sound of Arts](https://www.youtube.com/watch?v=gMJRyim7dX8)
-- [THALARUNNU NJAN NADHA | NEW CHRISTIAN SONG | DHANYA | PAVITHRAN AMACHAL | JINO KUNNUMPURATH | REEL 2](https://www.youtube.com/watch?v=1L9vDSE6vfI)
-- [Oru Raaga Maala Korthu Remastered Audio Song Dhwani Movie KJ Yesudas Yusufali Kecheri Naushad](https://www.youtube.com/watch?v=4Gb2l5Jwz4s)
-- [Kannikkaavadi poonirangal | Nanma Niranjavan Sreenivasan 1990 | Johnson | Malayalam Movie Song](https://www.youtube.com/watch?v=e10h04cfh6Q)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
