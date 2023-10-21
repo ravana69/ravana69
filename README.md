@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Dehiyilla Dehikkippol - Lyrical Video | Krishnanum Radhayum | Santhosh Pandit | MG Sreekumar](https://www.youtube.com/watch?v=EkD6pOf0zzk)
-- [Thenral Thaan   Keladi Kannmanii   Ilaiyaraaja   Hi Res Audio](https://www.youtube.com/watch?v=mndVFuWIJbw)
-- [RDX - Video Jukebox | Shane Nigam, Antony Varghese, Neeraj Madhav | Nahas Hidhayath | Sam C S](https://www.youtube.com/watch?v=Z-sAKEDWbfw)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 21st of October 2023](https://www.youtube.com/watch?v=KmkFqhYnpec)
-- [Vikaara Naukayumayi Video Song | Amaram | Mammootty | KJ Yesudas | Raveendran | Kaithapram](https://www.youtube.com/watch?v=qboVkft8TtI)
-- [PAAVANACHARITHAN|പാവനചരിതൻ |PARUMALA THIRUMENI SONG| #royputhur #rayanmedia #parumalathirumenisongs](https://www.youtube.com/watch?v=bWEybmnC0nI)
+- [മറ്റൊരാളുടെ സന്തോഷത്തിൽ നമുക്ക് സന്തോഷിക്കാൻ കഴിയണം. | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=KAGofQhktM4)
+- [Aarum Kanathe | Thenkasikkattu | Vineeth Sreenivasan | Aan Amie | Santhosh Varma | Rithwik S Chand](https://www.youtube.com/watch?v=vXsAQXCTNTY)
+- [Malayalam Old Melodies❤️ | Neelaponman | S Janaki #shorts](https://www.youtube.com/watch?v=OKLF_I8o-nM)
+- [Kannuneer Puzhayude | 1080p | Meerayude Dukhavum Muthuvinte Swapnavum | Prithviraj | Ambili Devi](https://www.youtube.com/watch?v=_JV2GbiosYI)
+- [GLORIA PATTUKAL | #shortvideo | Malayalam Carol Chorus Song | Fr Shaji Thumpechirayil](https://www.youtube.com/watch?v=xhmHTb05KYE)
+- [വിദ്യാധരേ ദേവി | Vidhyadhare Devi | Swethambari | Hindu Devotional Songs](https://www.youtube.com/watch?v=ULJ__JkymcY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
