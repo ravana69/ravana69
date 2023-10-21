@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP21 DAY 20 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.4GB - 738MB &amp; 311MB | 21-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175877-bigg-boss-tamil-s07-ep21-day-20-true-web-dl-1080p-720p-480p-avc-untouched-14gb-738mb-311mb-21-10-2023/&do=findComment&comment=354916)
+- [Nodadha Putagalu &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.6GB - 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/175872-nodadha-putagalu-2023-kannada-true-web-dl-1080p-720p-avc-26gb-14gb-x264-700mb-400mb/&do=findComment&comment=354915)
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP21 DAY 20 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.4GB - 738MB &amp; 311MB | 21-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175877-bigg-boss-tamil-s07-ep21-day-20-true-web-dl-1080p-720p-480p-avc-untouched-14gb-738mb-311mb-21-10-2023/&do=findComment&comment=354914)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 2.0 EP49 DAY 48 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 979MB - 476MB &amp; 211MB | 21-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175876-bigg-boss-telugu-s07-20-ep49-day-48-true-web-dl-1080p-720p-480p-avc-untouched-979mb-476mb-211mb-21-10-2023/&do=findComment&comment=354913)
 - [Villain Yaaru &lpar;From &quot;Leo&quot;&rpar; Master Quality 24bit 96kHz - FLAC - Anirudh Ravichander Musical - 64 MB](https://www.1tamilmv.phd/index.php?/forums/topic/175868-villain-yaaru-from-leo-master-quality-24bit-96khz-flac-anirudh-ravichander-musical-64-mb/&do=findComment&comment=354912)
-- [Thaamirabharani &lpar;2007&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 7.8GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/175871-thaamirabharani-2007-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-78gb-esub-gdflix/&do=findComment&comment=354911)
-- [Creature.S01.1080p., 720p NF.WEB-DL.MULTI.DDP5.1.Atmos &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/175875-creatures011080p-720p-nfweb-dlmultiddp51atmos-direct-download/&do=findComment&comment=354910)
-- [Elite.S07.1080p, 720p.NF.WEB-DL.MULTI.DDP5.1.Atmos &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/175874-elites071080p-720pnfweb-dlmultiddp51atmos-direct-download/&do=findComment&comment=354909)
-- [Doona.S01.1080p, 720p.NF.WEB-DL.MULTI.DDP5.1.Atmos &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/175873-doonas011080p-720pnfweb-dlmultiddp51atmos-direct-download/&do=findComment&comment=354908)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
