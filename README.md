@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Mark Antony &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175741-mark-antony-2023-true-web-dl-1080p-720p-avc-malayalam-kannada-dd51-192kbps-26gb-14gb-x264-750mb-450mb-esub/&do=findComment&comment=354906)
 - [Thakita Thakita &lpar;2010&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 3.6GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175870-thakita-thakita-2010-telugu-dvd5-untouched-480p-dd51-448kbps-36gb-esub/&do=findComment&comment=354905)
 - [Thaamirabharani &lpar;2007&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 7.8GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/175871-thaamirabharani-2007-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-78gb-esub-gdflix/&do=findComment&comment=354904)
 - [Thakita Thakita &lpar;2010&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 3.6GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175870-thakita-thakita-2010-telugu-dvd5-untouched-480p-dd51-448kbps-36gb-esub/&do=findComment&comment=354903)
 - [Thuppakki &lpar;2012&rpar; DIRECTOR&#39;S CUT - Tamil - BluRay - 1080p &amp; 720p - TRUE HD - AVC / HEVC - DTS-HDMA 5.1&lpar;4424kbps&rpar; - 10.5GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - ESub [GDrive]](https://www.1tamilmv.phd/index.php?/forums/topic/175713-thuppakki-2012-directors-cut-tamil-bluray-1080p-720p-true-hd-avc-hevc-dts-hdma-514424kbps-105gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub-gdrive/&do=findComment&comment=354902)
-- [Thudikkum Karangal &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 11GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175840-thudikkum-karangal-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-11gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354901)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
