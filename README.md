@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [75 Tamil Movies - AMZN/SUN NXT/SS/JC WEB DL - H264 - ESub - [1080p - 600GB] [Gdrive]](https://www.1tamilmv.phd/index.php?/forums/topic/143253-75-tamil-movies-amznsun-nxtssjc-web-dl-h264-esub-1080p-600gb-gdrive/&do=findComment&comment=354928)
+- [Mark Antony &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 17GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175716-mark-antony-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-17gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354927)
+- [Iraivan &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175729-iraivan-2023-tamil-web-dl-1080p-720p-avc-hevc-aac-20-28gb-14gb-850mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=354926)
+- [Thimuru Pudichavan &lpar;2018&rpar; Tamil TRUE WEB-DL - 1080p - UNTOUCHED - AVC - &lpar;DD+5.1 - 192Kbps &amp; AAC - 2.0&rpar; - 4.7GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/128270-thimuru-pudichavan-2018-tamil-true-web-dl-1080p-untouched-avc-dd51-192kbps-aac-20-47gb-esub/&do=findComment&comment=354925)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 2.0 EP47 DAY 46 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 550MB &amp; 219MB | 19-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175839-bigg-boss-telugu-s07-20-ep47-day-46-true-web-dl-1080p-720p-480p-avc-untouched-1gb-550mb-219mb-19-10-2023/&do=findComment&comment=354924)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 2.0 EP48 DAY 47 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 943MB - 462MB &amp; 200MB | 20-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175861-bigg-boss-telugu-s07-20-ep48-day-47-true-web-dl-1080p-720p-480p-avc-untouched-943mb-462mb-200mb-20-10-2023/&do=findComment&comment=354923)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 2.0 EP49 DAY 48 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 979MB - 476MB &amp; 211MB | 21-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175876-bigg-boss-telugu-s07-20-ep49-day-48-true-web-dl-1080p-720p-480p-avc-untouched-979mb-476mb-211mb-21-10-2023/&do=findComment&comment=354922)
-- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;31-33&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175878-vera-maari-office-2023-s01-ep-31-33-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=354921)
-- [Thakita Thakita &lpar;2010&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 3.6GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175870-thakita-thakita-2010-telugu-dvd5-untouched-480p-dd51-448kbps-36gb-esub/&do=findComment&comment=354920)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
