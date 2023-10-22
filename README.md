@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉള്ളു കൊതിക്കുന്ന സ്നേഹ മുത്തങ്ങളും പെന്നേ എന്നോതിയ അമ്മതൻ സ്വരവും ...](https://www.youtube.com/watch?v=WhTW6wqXXn8)
 - [Mangalappaala   Oral Mathram   Johnson   Hi Res Audio](https://www.youtube.com/watch?v=dnBufYn16gk)
 - [Manchadichoppu Minungum | Thiruthalvaadi | Jagadheesh | Siddique | Chithra | S.P.Venkitesh](https://www.youtube.com/watch?v=TNGF6XaI8x4)
 - [Melle Melle Video Song | Parvathy | Devan | ONV Kurup | Johnson | KJ Yesudas | Bharathan](https://www.youtube.com/watch?v=yqpTiXft2Xc)
 - [കനത്ത ഇരുട്ടിൽ നടക്കുന്നവർക്ക് ഇടയൻ വെളിച്ചമായി കൂടെയുണ്ട് |Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=Yf9aOQT-tz4)
 - [Devasangeetham Video Song | Guru | Super Hit Song | Ilayaraja Music | Mohanlal](https://www.youtube.com/watch?v=C1GQenNDhmw)
-- [Sharanamayappaa(ജീവിതം )Vinod velayudhan](https://www.youtube.com/watch?v=SsWMaVmocxY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
