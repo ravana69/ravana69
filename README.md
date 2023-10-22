@@ -35,9 +35,9 @@
 - [കനത്ത ഇരുട്ടിൽ നടക്കുന്നവർക്ക് ഇടയൻ വെളിച്ചമായി കൂടെയുണ്ട് |Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=Yf9aOQT-tz4)
 - [Devasangeetham Video Song | Guru | Super Hit Song | Ilayaraja Music | Mohanlal](https://www.youtube.com/watch?v=C1GQenNDhmw)
 - [Sharanamayappaa(ജീവിതം )Vinod velayudhan](https://www.youtube.com/watch?v=SsWMaVmocxY)
+- [Mandasameeranil | Chattakari | K. J. Yesudas | Vayalar Ramavarma | Romantic Song](https://www.youtube.com/watch?v=vhIUfVP1wmo)
 - [Christian Melody Songs | Manoj Christy |Joji Johns |Christian Devotional Songs Malayalam | Wilswaraj](https://www.youtube.com/watch?v=mR7TgkzLN4A)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 22nd of October 2023](https://www.youtube.com/watch?v=DbmwSwLSTtw)
-- [New Marian Song Coming Soon](https://www.youtube.com/watch?v=4CfvxCSRMx8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
