@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Yaadhum Oore Yaavarum Kelir &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC- [Telugu + Kannada] - 2.5GB - 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175880-yaadhum-oore-yaavarum-kelir-2023-true-web-dl-1080p-720p-avc-telugu-kannada-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=354935)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP22 DAY 21 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.5GB - 764MB &amp; 324MB | 22-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175882-bigg-boss-tamil-s07-ep22-day-21-true-web-dl-1080p-720p-480p-avc-untouched-15gb-764mb-324mb-22-10-2023/&do=findComment&comment=354934)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 Dasara Celebrations EP50 DAY 49 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 3.8GB - 1.9GB &amp; 715MB | 22-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175881-bigg-boss-telugu-s07-dasara-celebrations-ep50-day-49-true-web-dl-1080p-720p-480p-avc-untouched-38gb-19gb-715mb-22-10-2023/&do=findComment&comment=354933)
 - [Yaadhum Oore Yaavarum Kelir &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC- [Telugu + Kannada] - 2.5GB - 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175880-yaadhum-oore-yaavarum-kelir-2023-true-web-dl-1080p-720p-avc-telugu-kannada-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=354932)
 - [Thaamirabharani &lpar;2007&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 7.8GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/175871-thaamirabharani-2007-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-78gb-esub-gdflix/&do=findComment&comment=354931)
-- [Iraivan &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175729-iraivan-2023-tamil-web-dl-1080p-720p-avc-hevc-aac-20-28gb-14gb-850mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=354930)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
