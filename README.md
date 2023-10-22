@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Unniye Ponnunniye Kanuvanay | #shortvideo | Christmas Carol Song](https://www.youtube.com/watch?v=moyljTIKG-4)
+- [Devangane | Kayam | Shorts  #malayalamfilmsongs](https://www.youtube.com/watch?v=OjC1LeE0-vI)
+- [കരുണാനിധിയെ... #shrots #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=JZNO_4sebu4)
 - [Feast of St.John Paul 2 | ഇന്ന് ജോൺപോൾ രണ്ടാമൻ മാർപാപ്പായുടെ തിരുനാൾ #frshajithumpechirayil](https://www.youtube.com/watch?v=ZggrGMOOtYU)
 - [തകർന്ന മനസുകളെ തലോടിയ സുന്ദര ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Kester](https://www.youtube.com/watch?v=oZpSVqDrGf8)
 - [Japamala 22nd of October 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 22nd of October 23](https://www.youtube.com/watch?v=9wtk7cujm7I)
-- [എത്രയോ മനോഹരം ഇതിലെ പ്രാത്ഥനയും ഗാനങ്ങളും #ജപമാല പ്രാർത്ഥന #japamalaamalayalam](https://www.youtube.com/watch?v=J3_CcFJnoMU)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=g_MTi0G6pmw)
-- [രാവിലെ പ്രാര്‍ത്ഥന October 22 # Athiravile Prarthana 22nd October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=QzFFfgdeLeA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
