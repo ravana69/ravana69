@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;31-33&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175878-vera-maari-office-2023-s01-ep-31-33-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=354919)
 - [Karenjit Kaur Complete S01 - S03 Merged - 720p ZEE5 WEB-DL - &lpar;Tamil &amp; Telugu&rpar; [AAC 2.0 - 64kbps] - ×264 ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/175879-karenjit-kaur-complete-s01-s03-merged-720p-zee5-web-dl-tamil-telugu-aac-20-64kbps-%C3%97264-esub-google-drive/&do=findComment&comment=354918)
 - [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;31-33&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175878-vera-maari-office-2023-s01-ep-31-33-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=354917)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP21 DAY 20 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.4GB - 738MB &amp; 311MB | 21-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175877-bigg-boss-tamil-s07-ep21-day-20-true-web-dl-1080p-720p-480p-avc-untouched-14gb-738mb-311mb-21-10-2023/&do=findComment&comment=354916)
 - [Nodadha Putagalu &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.6GB - 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/175872-nodadha-putagalu-2023-kannada-true-web-dl-1080p-720p-avc-26gb-14gb-x264-700mb-400mb/&do=findComment&comment=354915)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP21 DAY 20 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.4GB - 738MB &amp; 311MB | 21-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175877-bigg-boss-tamil-s07-ep21-day-20-true-web-dl-1080p-720p-480p-avc-untouched-14gb-738mb-311mb-21-10-2023/&do=findComment&comment=354914)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
