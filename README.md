@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന  October 23 # Athiravile Prarthana 23rd of October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=Krph6uhI9SI)
+- [ജപമാല ഗീതങ്ങള്‍ # Holy Rosary Special Songs Malayalam |  Month of Holy Rosary October 2023 Songs](https://www.youtube.com/watch?v=kBsLjcWu6fY)
+- [Oru Penkidavu Song | Prajapathi #shorts](https://www.youtube.com/watch?v=ITSnusKlBeY)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 23rd October 23](https://www.youtube.com/watch?v=Qsqt6m94LgI)
 - [Show your steps for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=xxyiy1GweAc)
 - [Couple moves for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=xB4mBpKpOQw)
-- [ഉള്ളു കൊതിക്കുന്ന സ്നേഹ മുത്തങ്ങളും പെന്നേ എന്നോതിയ അമ്മതൻ സ്വരവും ...](https://www.youtube.com/watch?v=WhTW6wqXXn8)
-- [Mangalappaala   Oral Mathram   Johnson   Hi Res Audio](https://www.youtube.com/watch?v=dnBufYn16gk)
-- [Manchadichoppu Minungum | Thiruthalvaadi | Jagadheesh | Siddique | Chithra | S.P.Venkitesh](https://www.youtube.com/watch?v=TNGF6XaI8x4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
