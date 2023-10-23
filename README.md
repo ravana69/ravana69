@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കാണാതെ പോകുന്ന ഇടങ്ങളിൽ തേടിയെത്തുന്ന നാഥൻ | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=7VMmFTAhXyU)
+- [Chandanathin Gandhamarinju Video Song | Chakkikkotha Chankaran | KS Chithra | Krishnachandran](https://www.youtube.com/watch?v=HGZM3ED_8vA)
+- [Christian Superhit Songs | Midhila Michael | | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=K1sJypS4abM)
+- [Paikurumbiye Meykkum Full Video Song | HD | - Gramaphone Movie  Song | HD |](https://www.youtube.com/watch?v=CVZkNYckIGk)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 23rd of October 2023](https://www.youtube.com/watch?v=av4kcZEXf98)
 - [Kannum Kannum | Don Vasco | Rajesh Vijay | Chandana Rajesh | Remesh VR](https://www.youtube.com/watch?v=BK4StZroMSg)
-- [Polika Polika  | Mukalpparappu | Video Song | JP Thavarool | Siby Padiyara | Allen Varghese](https://www.youtube.com/watch?v=1bm2rBI47zE)
-- [ഐശ്വര്യപൂർണ്ണമായ ദിനത്തിൽ മനം നിറയെ ആസ്വദിക്കാൻ ഉന്നതനിലവാരമുള്ള സിനിമാഗാനങ്ങൾ ! NISARI MUSIC](https://www.youtube.com/watch?v=uS07ha7_c7M)
-- [ഹൃദയമാം അലമാരയിൽ നിധിപോലെ കാത്തുസൂക്ഷിക്കുന്ന മനം കുളിർപ്പിക്കും മെലഡി ഗാനങ്ങൾ | MELODY HITS](https://www.youtube.com/watch?v=gHHR2Wo6TQc)
-- [Malayalam Selected Film Songs | Yesudas | Raveendran | Mohanlal | Sound of Arts | Audio Jukebox](https://www.youtube.com/watch?v=rAkby5asmD4)
-- [Shaakuntalam(Malayalam) Movie Songs - Video Jukebox |Samantha Ruth Prabhu, Dev Mohan|Malayalam Songs](https://www.youtube.com/watch?v=_omE-YUfG08)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
