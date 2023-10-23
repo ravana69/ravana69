@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Paramporul &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175892-paramporul-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354981)
 - [Paramporul &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175892-paramporul-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354979)
 - [Surapanam &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.5GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175891-surapanam-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-25gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=354978)
 - [Case 30 &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 1.7GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175890-case-30-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-17gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=354977)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP51 DAY 50 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 525MB &amp; 229MB | 23-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175889-bigg-boss-telugu-s07-ep51-day-50-true-web-dl-1080p-720p-480p-avc-untouched-1gb-525mb-229mb-23-10-2023/&do=findComment&comment=354976)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP23 DAY 22 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 551MB &amp; 223MB | 23-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175888-bigg-boss-tamil-s07-ep23-day-22-true-web-dl-1080p-720p-480p-avc-untouched-1gb-551mb-223mb-23-10-2023/&do=findComment&comment=354975)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
