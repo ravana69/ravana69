@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Chatrapathi &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.3GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175883-chatrapathi-2005-telugu-dvd9-untouched-480p-dd51-448kbps-63gb-esub/&do=findComment&comment=354936)
-- [Yaadhum Oore Yaavarum Kelir &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC- [Telugu + Kannada] - 2.5GB - 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175880-yaadhum-oore-yaavarum-kelir-2023-true-web-dl-1080p-720p-avc-telugu-kannada-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=354935)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP22 DAY 21 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.5GB - 764MB &amp; 324MB | 22-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175882-bigg-boss-tamil-s07-ep22-day-21-true-web-dl-1080p-720p-480p-avc-untouched-15gb-764mb-324mb-22-10-2023/&do=findComment&comment=354934)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 Dasara Celebrations EP50 DAY 49 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 3.8GB - 1.9GB &amp; 715MB | 22-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175881-bigg-boss-telugu-s07-dasara-celebrations-ep50-day-49-true-web-dl-1080p-720p-480p-avc-untouched-38gb-19gb-715mb-22-10-2023/&do=findComment&comment=354933)
-- [Yaadhum Oore Yaavarum Kelir &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC- [Telugu + Kannada] - 2.5GB - 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175880-yaadhum-oore-yaavarum-kelir-2023-true-web-dl-1080p-720p-avc-telugu-kannada-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=354932)
+- [Thaamirabharani &lpar;2007&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 7.8GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/175871-thaamirabharani-2007-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-78gb-esub-gdflix/&do=findComment&comment=354944)
+- [JAILER - Official ShowCase &lpar;Telugu&rpar; | Superstar Rajinikanth | Sun Pictures | Anirudh | Nelson](https://www.1tamilmv.phd/index.php?/forums/topic/174628-jailer-official-showcase-telugu-superstar-rajinikanth-sun-pictures-anirudh-nelson/&do=findComment&comment=354943)
+- [Tiger Nageswara Rao Trailer - &lpar;Telugu&rpar; | Ravi Teja | Vamsee | Abhishek Agarwal](https://www.1tamilmv.phd/index.php?/forums/topic/175598-tiger-nageswara-rao-trailer-telugu-ravi-teja-vamsee-abhishek-agarwal/&do=findComment&comment=354942)
+- [2022 Top Hits &lpar;Tamil&rpar; &lpar;2022&rpar; [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps]](https://www.1tamilmv.phd/index.php?/forums/topic/171070-2022-top-hits-tamil-2022-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps/&do=findComment&comment=354941)
+- [Chatrapathi &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.3GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175883-chatrapathi-2005-telugu-dvd9-untouched-480p-dd51-448kbps-63gb-esub/&do=findComment&comment=354940)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
