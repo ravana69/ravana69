@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [[60FPS] Kaithi &lpar;2019&rpar; 1080p BluRay DDP.5.1 Esubs x265 HEVC - 10.1 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175884-60fps-kaithi-2019-1080p-bluray-ddp51-esubs-x265-hevc-101-gb/&do=findComment&comment=354945)
 - [Thaamirabharani &lpar;2007&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 7.8GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/175871-thaamirabharani-2007-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-78gb-esub-gdflix/&do=findComment&comment=354944)
 - [JAILER - Official ShowCase &lpar;Telugu&rpar; | Superstar Rajinikanth | Sun Pictures | Anirudh | Nelson](https://www.1tamilmv.phd/index.php?/forums/topic/174628-jailer-official-showcase-telugu-superstar-rajinikanth-sun-pictures-anirudh-nelson/&do=findComment&comment=354943)
 - [Tiger Nageswara Rao Trailer - &lpar;Telugu&rpar; | Ravi Teja | Vamsee | Abhishek Agarwal](https://www.1tamilmv.phd/index.php?/forums/topic/175598-tiger-nageswara-rao-trailer-telugu-ravi-teja-vamsee-abhishek-agarwal/&do=findComment&comment=354942)
 - [2022 Top Hits &lpar;Tamil&rpar; &lpar;2022&rpar; [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps]](https://www.1tamilmv.phd/index.php?/forums/topic/171070-2022-top-hits-tamil-2022-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps/&do=findComment&comment=354941)
-- [Chatrapathi &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.3GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175883-chatrapathi-2005-telugu-dvd9-untouched-480p-dd51-448kbps-63gb-esub/&do=findComment&comment=354940)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
