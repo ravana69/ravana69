@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Corona Dhavan &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175859-corona-dhavan-2023-malayalam-true-web-dl-1080p-720p-avc-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=354953)
+- [ELITE &lpar;2023&rpar; S07 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + English&rpar; - 5GB &amp; 2.2GB | x264 - 1GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175855-elite-2023-s07-ep-01-08-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-english-5gb-22gb-x264-1gb-esub/&do=findComment&comment=354952)
 - [Maneater 2022 1080p &amp; 720p ZEE5 WEB-DL ×264 [&lpar;Tamil + Telugu + Hindi &lpar;AAC 2.0 - 128kbps&rpar;]_Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/168971-maneater-2022-1080p-720p-zee5-web-dl-%C3%97264-tamil-telugu-hindi-aac-20-128kbps_leyon/&do=findComment&comment=354951)
 - [Detective Dee Murder in Changan 2021 1080p &amp; 720p ZEE5 WEB-DL ×264 [&lpar;Tamil + Telugu + Hindi &lpar;AAC 2.0 - 128kbps&rpar;]_Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/169040-detective-dee-murder-in-changan-2021-1080p-720p-zee5-web-dl-%C3%97264-tamil-telugu-hindi-aac-20-128kbps_leyon/&do=findComment&comment=354950)
 - [The Legend of Loulan 2021 1080p &amp; 720p ZEE5 WEB-DL ×264 [&lpar;Tamil + Telugu + Hindi &lpar;AAC 2.0 - 128kbps&rpar;]_Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/169099-the-legend-of-loulan-2021-1080p-720p-zee5-web-dl-%C3%97264-tamil-telugu-hindi-aac-20-128kbps_leyon/&do=findComment&comment=354949)
-- [Deat of Me 2020 1080p &amp; 720p ZEE5 WEB-DL ×264 [&lpar;Tamil + Telugu + Hindi &lpar;AAC 2.0 - 128kbps&rpar;]_Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/169166-deat-of-me-2020-1080p-720p-zee5-web-dl-%C3%97264-tamil-telugu-hindi-aac-20-128kbps_leyon/&do=findComment&comment=354948)
-- [The Wolf Witch 2020 1080p &amp; 720p ZEE5 WEB-DL ×264 [&lpar;Tamil + Telugu + Hindi &lpar;AAC 2.0 - 128kbps&rpar;]_Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/169157-the-wolf-witch-2020-1080p-720p-zee5-web-dl-%C3%97264-tamil-telugu-hindi-aac-20-128kbps_leyon/&do=findComment&comment=354947)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
