@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Villain Yaaru &lpar;From &quot;Leo&quot;&rpar; Master Quality 24bit 96kHz - FLAC - Anirudh Ravichander Musical - 64 MB](https://www.1tamilmv.phd/index.php?/forums/topic/175868-villain-yaaru-from-leo-master-quality-24bit-96khz-flac-anirudh-ravichander-musical-64-mb/&do=findComment&comment=354964)
+- [Jailer &lpar;2023&rpar; Trio Original Soundtrack Master Quality 24bit - FLAC - Anirudh Ravichander Musical - 100 MB](https://www.1tamilmv.phd/index.php?/forums/topic/175232-jailer-2023-trio-original-soundtrack-master-quality-24bit-flac-anirudh-ravichander-musical-100-mb/&do=findComment&comment=354963)
+- [Jailer &lpar;2023&rpar; Trio Original Soundtrack Master Quality 24bit - FLAC - Anirudh Ravichander Musical - 100 MB](https://www.1tamilmv.phd/index.php?/forums/topic/175232-jailer-2023-trio-original-soundtrack-master-quality-24bit-flac-anirudh-ravichander-musical-100-mb/&do=findComment&comment=354962)
 - [Bumper &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/174221-bumper-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=354961)
 - [2022 Top Hits &lpar;Tamil&rpar; &lpar;2022&rpar; [ALAC &amp; FLAC] [24Bit/16Bit] iTunes HQ MP3 [320Kbps &amp; 128Kbps]](https://www.1tamilmv.phd/index.php?/forums/topic/171070-2022-top-hits-tamil-2022-alac-flac-24bit16bit-itunes-hq-mp3-320kbps-128kbps/&do=findComment&comment=354960)
-- [Bumper &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/174221-bumper-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=354959)
-- [The Wolf Witch 2020 1080p &amp; 720p ZEE5 WEB-DL ×264 [&lpar;Tamil + Telugu + Hindi &lpar;AAC 2.0 - 128kbps&rpar;]_Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/169157-the-wolf-witch-2020-1080p-720p-zee5-web-dl-%C3%97264-tamil-telugu-hindi-aac-20-128kbps_leyon/&do=findComment&comment=354958)
-- [Krishna Gadu Ante Oka Range &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.7GB - 2.3GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175886-krishna-gadu-ante-oka-range-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-37gb-23gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=354957)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
