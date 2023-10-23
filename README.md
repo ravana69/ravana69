@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Paramaraja | Mithila Michael #shorts  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=aVcUXODvqwg)
 - [Kukku Kukku Kuruvali Video Song | Kalabhavan Mani | Geethu Mohandas | Chinmayi | M Jayachandran](https://www.youtube.com/watch?v=8su7yJ-1KSk)
 - [കാണാതെ പോകുന്ന ഇടങ്ങളിൽ തേടിയെത്തുന്ന നാഥൻ | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=7VMmFTAhXyU)
 - [Chandanathin Gandhamarinju Video Song | Chakkikkotha Chankaran | KS Chithra | Krishnachandran](https://www.youtube.com/watch?v=HGZM3ED_8vA)
 - [Christian Superhit Songs | Midhila Michael | | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=K1sJypS4abM)
 - [Paikurumbiye Meykkum Full Video Song | HD | - Gramaphone Movie  Song | HD |](https://www.youtube.com/watch?v=CVZkNYckIGk)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 23rd of October 2023](https://www.youtube.com/watch?v=av4kcZEXf98)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
