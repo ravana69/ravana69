@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #Ooctober 23rd mother Mary songs malayalam](https://www.youtube.com/watch?v=o2Gate_uBRw)
+- [Prabhatha Geethangal | Wilson Piravom | Christian Morning Prayer Songs | Christian SongsJoji Johns](https://www.youtube.com/watch?v=2rOcdR1arMY)
+- [Japamala 23rd of October 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 23rd of October 23](https://www.youtube.com/watch?v=A7V9mWFBcJg)
 - [ഏറ്റവും പുതിയ സംഗീത ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം # 2023 ലെ ഏറ്റവും പുതിയ ജപമാല](https://www.youtube.com/watch?v=o6NuREBxqgc)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=Dxhrn0pTZMU)
 - [പ്രഭാത പ്രാര്‍ത്ഥന  October 23 # Athiravile Prarthana 23rd of October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=Krph6uhI9SI)
-- [ജപമാല ഗീതങ്ങള്‍ # Holy Rosary Special Songs Malayalam |  Month of Holy Rosary October 2023 Songs](https://www.youtube.com/watch?v=kBsLjcWu6fY)
-- [Oru Penkidavu Song | Prajapathi #shorts](https://www.youtube.com/watch?v=ITSnusKlBeY)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 23rd October 23](https://www.youtube.com/watch?v=Qsqt6m94LgI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
