@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thaazhvaaram manpoove Remastered Audio Song Jackpot Movie KJ Yesudas Ilayaraja Bichu Thirumala](https://www.youtube.com/watch?v=zze6POqEj-o)
+- [Varmazhaville | Mizhi Randilum | Indrajith | Kavya Madhavan | Chithra | Raveendran](https://www.youtube.com/watch?v=zIsjHTOuejY)
 - [Onnum Onnum Randu | Adukkan Entheluppam 1986 | Jerry Amaldev | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=9LCM6YC-aOw)
 - [Kunjikkiliyude Tharattu Pattu | Shorts](https://www.youtube.com/watch?v=JH-SBWLqIck)
 - [Maalayil Yaro | Chatriyan | Ilaiyaraaja | Swarnalatha | Hi-Res Audio](https://www.youtube.com/watch?v=bXh-ehFeCOU)
 - [October 23](https://www.youtube.com/watch?v=1re8-B-gObs)
-- [പരുമലയിൽ വാഴും നാൾ തിരുമേനി സന്ധ്യക്ക്‌ | PARUMALA THIRUMENI SONG | #royputhur #rayanmedia](https://www.youtube.com/watch?v=nkIQ1d7iHA4)
-- [Daivam Tharunnathenthum | K.S. Chithra #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=-ZAmhpPB0RU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
