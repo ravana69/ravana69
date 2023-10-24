@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Japamala Masam Short October  | Holy Rosary Special Short](https://www.youtube.com/watch?v=TzzJTyjG2Ms)
 - [Dayana Dayana | Shorts](https://www.youtube.com/watch?v=ugzg_9CERr4)
 - [Karunanidhiye Kalvari Anpe | കരുണാനിധിയെ #shrots #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=-YxxRLPybbk)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mariyan songs and pray non stop for oct  24th 2023](https://www.youtube.com/watch?v=VuX8nkOh5P4)
 - [Ente Ddaivathal | Christian Melody Song | Praise and Worship Songs | Kester | Christian Song](https://www.youtube.com/watch?v=TJaAkn-e8OE)
 - [കെസ്റ്റർ ചേട്ടന്റെ  പുതിയ ഗാനം # അമ്മയെൻ പുണ്യം എന്ന ആൽബത്തിൽ നിന്നും#ഈ വർഷത്തെ ഏറ്റവും ഹിറ്റ് ഗാനം](https://www.youtube.com/watch?v=_W6-THGWwdM)
-- [Japamala 24th of October 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 24th of October 23](https://www.youtube.com/watch?v=B-dfjq6EoBM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
