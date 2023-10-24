@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Maadham Pularumbol Video Song | Sundarakilladi | KS Chithra | Ouseppachan | Bichu Thirumala](https://www.youtube.com/watch?v=ph9437IhwE0)
-- [Makkasai Makkasai | Vettam | Dileep | Kalabhavan Mani | #shorts](https://www.youtube.com/watch?v=gWXH47_H7Bg)
-- [Vayya Veli | Santhosham | Arvind Mahadevan | Titto P Thankachan | Akhil Anil Kumar](https://www.youtube.com/watch?v=qJbt-UXRfWo)
-- [പാവന പരിശുദ്ധൻ |പരിശുദ്ധനായ പരുമല തിരുമേനിയോടുള്ള  മാദ്ധ്യസ്ഥാ ഗീതം | ROY PUTHUR & SHIBU PUTHURAN](https://www.youtube.com/watch?v=t7fpEwOxh8Q)
-- [Ente Veena Kambiyellam Shorts | Malayalam Shorts | Mooladhanam | Yesudas # Short Videos](https://www.youtube.com/watch?v=G1wfBKo2QSc)
-- [നിരവധി സൂപ്പർഹിറ്റ് ചിത്രങ്ങളിലെ അനവധി നിത്യഹരിത ഗാനങ്ങൾ ആലപിച്ച എം ജി ശ്രീകുമാറിന്റെ ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=wMkV-G4l4Hg)
+- [Karukarekaruthoru | കറുകറെ കറുത്തൊരു പെണ്ണാണ് | Sharan Appus | Harmonium Instrumental Cover Song](https://www.youtube.com/watch?v=0JQjF-Ccf-M)
+- [ഒരോ വിത്തിനുള്ളിലും അവനൊരു പൂക്കാലം ഒളിപ്പിച്ച് വെച്ചിട്ടുണ്ട് |Rev. Aneesh P Joseph #shorts](https://www.youtube.com/watch?v=CcRd0DcUDNs)
+- [Elanthoor Bhagavathi | Pachathappu | Anu Purushoth | Dr Vazhamuttam B Chandrababu |Sivas Vazhamuttam](https://www.youtube.com/watch?v=SpnE46KkILc)
+- [Kannil Meenaadum Periyaar | Neelaponman | S Janaki | Vayalar Ramavarma | Salil Chaudhari](https://www.youtube.com/watch?v=9voYI3jXhgA)
+- [Poo Parikkan Porumo | Super Hit Malayalam Movie Song | Kannaki | Siddique | Lal - Yesudas Hit](https://www.youtube.com/watch?v=xKXYexfAOB4)
+- [Kothi Kothi Murathil Keri | Vellathooval | Jyotsna | Johnson | Gireesh Puthenchery](https://www.youtube.com/watch?v=P4VNM3DnUjw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
