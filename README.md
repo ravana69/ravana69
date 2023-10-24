@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Sharee Mary Rajeshwari|Video Song|Ganamela|Mukesh|](https://www.youtube.com/watch?v=LXNsWifSbwY)
+- [മനസിന് എന്തെന്നില്ലാത്ത എനർജി നൽകും സൂപ്പർഹിറ്റ്  ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=n_K6fcgj-d0)
+- [ഏതൊരാളുടെ മനസിലും എപ്പൊഴും കേൾക്കാൻ കൊതിക്കുന്ന ഗാനങ്ങൾMalayalam Christian Devotional Songs](https://www.youtube.com/watch?v=2YxSJ2egB88)
 - [Eeran Nilave | Dr. Patient | Shwetha Mohan | Bennet Veetraag | Rafeeq Ahammed](https://www.youtube.com/watch?v=TubuMq0N23o)
 - [Karukarekaruthoru | കറുകറെ കറുത്തൊരു പെണ്ണാണ് | Sharan Appus | Harmonium Instrumental Cover Song](https://www.youtube.com/watch?v=0JQjF-Ccf-M)
 - [ഒരോ വിത്തിനുള്ളിലും അവനൊരു പൂക്കാലം ഒളിപ്പിച്ച് വെച്ചിട്ടുണ്ട് |Rev. Aneesh P Joseph #shorts](https://www.youtube.com/watch?v=CcRd0DcUDNs)
-- [Elanthoor Bhagavathi | Pachathappu | Anu Purushoth | Dr Vazhamuttam B Chandrababu |Sivas Vazhamuttam](https://www.youtube.com/watch?v=SpnE46KkILc)
-- [Kannil Meenaadum Periyaar | Neelaponman | S Janaki | Vayalar Ramavarma | Salil Chaudhari](https://www.youtube.com/watch?v=9voYI3jXhgA)
-- [Poo Parikkan Porumo | Super Hit Malayalam Movie Song | Kannaki | Siddique | Lal - Yesudas Hit](https://www.youtube.com/watch?v=xKXYexfAOB4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
