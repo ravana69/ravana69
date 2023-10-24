@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Maadham Pularumbol Video Song | Sundarakilladi | KS Chithra | Ouseppachan | Bichu Thirumala](https://www.youtube.com/watch?v=ph9437IhwE0)
+- [Makkasai Makkasai | Vettam | Dileep | Kalabhavan Mani | #shorts](https://www.youtube.com/watch?v=gWXH47_H7Bg)
+- [Vayya Veli | Santhosham | Arvind Mahadevan | Titto P Thankachan | Akhil Anil Kumar](https://www.youtube.com/watch?v=qJbt-UXRfWo)
 - [പാവന പരിശുദ്ധൻ |പരിശുദ്ധനായ പരുമല തിരുമേനിയോടുള്ള  മാദ്ധ്യസ്ഥാ ഗീതം | ROY PUTHUR & SHIBU PUTHURAN](https://www.youtube.com/watch?v=t7fpEwOxh8Q)
 - [Ente Veena Kambiyellam Shorts | Malayalam Shorts | Mooladhanam | Yesudas # Short Videos](https://www.youtube.com/watch?v=G1wfBKo2QSc)
 - [നിരവധി സൂപ്പർഹിറ്റ് ചിത്രങ്ങളിലെ അനവധി നിത്യഹരിത ഗാനങ്ങൾ ആലപിച്ച എം ജി ശ്രീകുമാറിന്റെ ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=wMkV-G4l4Hg)
-- [വിണ്ണിൽ നിന്നും വന്നിറങ്ങും | Enthino Pookkunna Pookkal Malayalam Movie Songs|Vani Jayaram |Mohanlal](https://www.youtube.com/watch?v=kZlOuIYFGAw)
-- [Kanneer Puzhayude |  Bhaarya 1994 | S. P. Venkitesh |  K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=s-Dd3zivvj4)
-- [THALARUNNU NJAN NADHA | NEW CHRISTIAN SONG | DHANYA | PAVITHRAN AMACHAL | JINO KUNNUMPURATH | REEL 3](https://www.youtube.com/watch?v=PYi0S7j0VJ0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
