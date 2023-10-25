@@ -35,9 +35,9 @@
 - [Kannaadippuzhayude | Bhaarya 1994 | S.P. Venkitesh | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=6gjNJFXyPLs)
 - [Hey Kulambadi Thaalam Remastered Audio Song Jackpot Movie KS Chithra   Ilayaraja Bichu Thirumala](https://www.youtube.com/watch?v=ZtL6qsK-3V8)
 - [Thoomanji Thulli | Appunni | Mohanlal | Menaka | Yesudas | Sathyan Anthikkad | Kannur Rajan](https://www.youtube.com/watch?v=CVQJn9llp4Q)
+- [Daivapithave | Christian Animation Video | Kester | R S Vijayaraj | Joy M Thomas | Worship Songs](https://www.youtube.com/watch?v=9SU8GHAnycs)
 - [Hits Of Johnson Master | Malayalam Film Songs | Yesudas | Kaithapram | Sound of Arts](https://www.youtube.com/watch?v=WTi8bayC7fg)
 - [സർവ്വപാപക്കറകൾ | Sarvapaapakkarakal | K S Chithra #shrots #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=E0_FcPUh1AA)
-- [Japamala 25th of October 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 25th of October 23](https://www.youtube.com/watch?v=BBDsPf_8kc0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
