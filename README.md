@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [സംഗീത ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ഉണരാം #സംഗീത ജപമാല #sangeetha japamala songs and prayers](https://www.youtube.com/watch?v=b7tkdStikDw)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=u-L0s5U6Okw)
 - [പ്രഭാത പ്രാര്‍ത്ഥന  October 25 # Athiravile Prarthana 25th of October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=Dda1rL_cbjk)
 - [October 25](https://www.youtube.com/watch?v=M9UeQPzT6ms)
 - [ജപമാല ഗീതങ്ങള്‍ # Holy Rosary Special Songs Malayalam |  Month of Holy Rosary October 2023 Songs](https://www.youtube.com/watch?v=X7GjYTLgLYY)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 25th October 23](https://www.youtube.com/watch?v=EJVaCuPW1Lw)
-- [ജപമാല ചൊല്ലി ഞാൻ ഏറെ കരഞ്ഞൂ ...](https://www.youtube.com/watch?v=qtR0ptRLBkc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
