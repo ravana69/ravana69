@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Chandramukhi 2 &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175917-chandramukhi-2-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=355064)
+- [Iraivan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175914-iraivan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-53gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355061)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP53 DAY 52 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 486MB &amp; 210MB | 25-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175913-bigg-boss-telugu-s07-ep53-day-52-true-web-dl-1080p-720p-480p-avc-untouched-1gb-486mb-210mb-25-10-2023/&do=findComment&comment=355060)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP53 DAY 52 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 486MB &amp; 210MB | 25-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175913-bigg-boss-telugu-s07-ep53-day-52-true-web-dl-1080p-720p-480p-avc-untouched-1gb-486mb-210mb-25-10-2023/&do=findComment&comment=355059)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP25 DAY 24 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 955MB - 502MB &amp; 205MB | 25-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175912-bigg-boss-tamil-s07-ep25-day-24-true-web-dl-1080p-720p-480p-avc-untouched-955mb-502mb-205mb-25-10-2023/&do=findComment&comment=355058)
-- [Jigarthanda DoubleX - Teaser | Raghava Lawrence, SJ Suryah | Karthik Subbaraj | Santhosh Narayanan](https://www.1tamilmv.phd/index.php?/forums/topic/175911-jigarthanda-doublex-teaser-raghava-lawrence-sj-suryah-karthik-subbaraj-santhosh-narayanan/&do=findComment&comment=355057)
-- [Aspirants &lpar;2021&rpar; Complete S01 EP &lpar;01-05&rpar; Merged - TRUE WEB-DL - [1080p - 720p - HEVC - [Tamil + Telugu + Hindi] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.2GB - 1.9GB &amp; 800MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/175910-aspirants-2021-complete-s01-ep-01-05-merged-true-web-dl-1080p-720p-hevc-tamil-telugu-hindi-dd51-192kbps-22gb-19gb-800mb-esub-google-drive/&do=findComment&comment=355056)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
