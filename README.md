@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Anuragini Ithaayen | Oru Kudakeezhil | KJ Yesudas | Johnson | Venu Nagavalli | Madhavi](https://www.youtube.com/watch?v=LR46Ewa8Ots)
+- [25 October 2023](https://www.youtube.com/watch?v=j1zRSFdGdwQ)
 - [Tharattu - Rainy Lofi | Kumari | Manikandan Ayyappa | AJX](https://www.youtube.com/watch?v=moAzXN9xn9c)
 - [Aradhya - Rendition | Kushi (Malayalam) | Hesham Abdul Wahab | Yukta, Suneesh, Reshma Suneesh](https://www.youtube.com/watch?v=E0FEnVm0oz4)
 - [Karuthunnavan Njanallayo | Shorts](https://www.youtube.com/watch?v=XGxW4fBXX-4)
 - [Mayika Song Reprised Version | Aparna Balamurali | Imbam | Sreejith Chandran | PS Jayhari](https://www.youtube.com/watch?v=0tXrR2EHBFg)
-- [Karukarekarothoru | Harmonium Cover by Sharan Appus #shortsfeed #shorts #instrumental #harmonium](https://www.youtube.com/watch?v=LdBj6Ldj69g)
-- [അവൻ ഒരിക്കലും നമ്മളെ അവഗണിക്കുകയില്ല  |Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=81EhVrgLq4k)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
