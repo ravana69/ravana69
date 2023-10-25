@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aradhya - Rendition | Kushi (Malayalam) | Hesham Abdul Wahab | Yukta, Suneesh, Reshma Suneesh](https://www.youtube.com/watch?v=E0FEnVm0oz4)
+- [Karuthunnavan Njanallayo | Shorts](https://www.youtube.com/watch?v=XGxW4fBXX-4)
 - [Mayika Song Reprised Version | Aparna Balamurali | Imbam | Sreejith Chandran | PS Jayhari](https://www.youtube.com/watch?v=0tXrR2EHBFg)
 - [Karukarekarothoru | Harmonium Cover by Sharan Appus #shortsfeed #shorts #instrumental #harmonium](https://www.youtube.com/watch?v=LdBj6Ldj69g)
 - [അവൻ ഒരിക്കലും നമ്മളെ അവഗണിക്കുകയില്ല  |Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=81EhVrgLq4k)
 - [Old Malayalam Songs❤️👌 | Neelaponman | S Janaki](https://www.youtube.com/watch?v=Ky0VGWIjb9o)
-- [Mounangal Poulm Video Song | Aardram | Urvashi | Murali | KJ Yesudas | Lathika | R Somasekharan](https://www.youtube.com/watch?v=W_r6JBzwqw8)
-- [Christian Superhit Songs | Kester |Joji Johns |Christian Devotional Songs Malayalam | Wilson Piravom](https://www.youtube.com/watch?v=1dyET0T-FWI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
