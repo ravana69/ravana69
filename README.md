@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aaradhyanam Daivame | Kristheeya Bhakthigaanangal | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=gIBCLIJQDHI)
+- [Ennu Meghe Vannidum | എന്നുമേഘേ വന്നിടും | Susan Rajukutty #shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=MHE4a-V9e1Q)
+- [എല്ലാ ജനവിഭാഗങ്ങളും ഒരുപോലെ ആസ്വദിക്കുന്ന മലയാളസിനിമയിലെ ഏറെ ജനപ്രീതിയുള്ള ഗാനങ്ങൾ ! EVERGREEN SONGS](https://www.youtube.com/watch?v=quIQw3wm1ew)
+- [ആയിരം തവണ കേട്ടാലും വീണ്ടും ഒന്നുകൂടി കേൾക്കാൻ മനസ്സ് വെമ്പുന്ന മലയാളചലച്ചിത്രഗാനങ്ങൾ !  SUPERHITS](https://www.youtube.com/watch?v=h3X9KL1P6wA)
+- [മലയാളസിനിമ സംഗീതത്തിന്റെ അഭിമാനങ്ങളായിരുന്ന രവീന്ദ്രനും ജോൺസണും ഈണമിട്ട ഇന്നും മറക്കാത്ത ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=A4niBjF_hDE)
 - [Kannaadippuzhayude | Bhaarya 1994 | S.P. Venkitesh | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=6gjNJFXyPLs)
-- [Hey Kulambadi Thaalam Remastered Audio Song Jackpot Movie KS Chithra   Ilayaraja Bichu Thirumala](https://www.youtube.com/watch?v=ZtL6qsK-3V8)
-- [Thoomanji Thulli | Appunni | Mohanlal | Menaka | Yesudas | Sathyan Anthikkad | Kannur Rajan](https://www.youtube.com/watch?v=CVQJn9llp4Q)
-- [Daivapithave | Christian Animation Video | Kester | R S Vijayaraj | Joy M Thomas | Worship Songs](https://www.youtube.com/watch?v=9SU8GHAnycs)
-- [Hits Of Johnson Master | Malayalam Film Songs | Yesudas | Kaithapram | Sound of Arts](https://www.youtube.com/watch?v=WTi8bayC7fg)
-- [സർവ്വപാപക്കറകൾ | Sarvapaapakkarakal | K S Chithra #shrots #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=E0_FcPUh1AA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
