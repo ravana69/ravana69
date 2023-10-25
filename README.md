@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Prathyasayoditha | Shorts | Diya Mary Alex  #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=muyJ18WZses)
 - [Garudan Malayalam Movie Promotion #garudanteams #sureshgopi #siddique #inshadnazim #garudanmovie](https://www.youtube.com/watch?v=hgFN4W35prc)
 - [Aaradhyanam Daivame | Kristheeya Bhakthigaanangal | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=gIBCLIJQDHI)
 - [Ennu Meghe Vannidum | എന്നുമേഘേ വന്നിടും | Susan Rajukutty #shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=MHE4a-V9e1Q)
 - [എല്ലാ ജനവിഭാഗങ്ങളും ഒരുപോലെ ആസ്വദിക്കുന്ന മലയാളസിനിമയിലെ ഏറെ ജനപ്രീതിയുള്ള ഗാനങ്ങൾ ! EVERGREEN SONGS](https://www.youtube.com/watch?v=quIQw3wm1ew)
 - [ആയിരം തവണ കേട്ടാലും വീണ്ടും ഒന്നുകൂടി കേൾക്കാൻ മനസ്സ് വെമ്പുന്ന മലയാളചലച്ചിത്രഗാനങ്ങൾ !  SUPERHITS](https://www.youtube.com/watch?v=h3X9KL1P6wA)
-- [മലയാളസിനിമ സംഗീതത്തിന്റെ അഭിമാനങ്ങളായിരുന്ന രവീന്ദ്രനും ജോൺസണും ഈണമിട്ട ഇന്നും മറക്കാത്ത ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=A4niBjF_hDE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
