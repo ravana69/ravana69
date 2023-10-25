@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kannaadippuzhayude | Bhaarya 1994 | S.P. Venkitesh | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=6gjNJFXyPLs)
+- [Hey Kulambadi Thaalam Remastered Audio Song Jackpot Movie KS Chithra   Ilayaraja Bichu Thirumala](https://www.youtube.com/watch?v=ZtL6qsK-3V8)
+- [Thoomanji Thulli | Appunni | Mohanlal | Menaka | Yesudas | Sathyan Anthikkad | Kannur Rajan](https://www.youtube.com/watch?v=CVQJn9llp4Q)
 - [Hits Of Johnson Master | Malayalam Film Songs | Yesudas | Kaithapram | Sound of Arts](https://www.youtube.com/watch?v=WTi8bayC7fg)
 - [സർവ്വപാപക്കറകൾ | Sarvapaapakkarakal | K S Chithra #shrots #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=E0_FcPUh1AA)
 - [Japamala 25th of October 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 25th of October 23](https://www.youtube.com/watch?v=BBDsPf_8kc0)
-- [സംഗീത ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ഉണരാം #സംഗീത ജപമാല #sangeetha japamala songs and prayers](https://www.youtube.com/watch?v=b7tkdStikDw)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=u-L0s5U6Okw)
-- [പ്രഭാത പ്രാര്‍ത്ഥന  October 25 # Athiravile Prarthana 25th of October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=Dda1rL_cbjk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
