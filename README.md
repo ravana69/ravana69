@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Anuraga Neela |  Paviyettante Madhura Chooral | Beautiful Song by K S Chithra #shorts](https://www.youtube.com/watch?v=hj11D8ySo44)
+- [Navarathna Vilpanakkaari | Ariyappedatha Rahasyam 1981 | M.K.Arjunan | Yesudas |Malayalam Movie Song](https://www.youtube.com/watch?v=bgr6bXh7Y00)
+- [Pattum Padi Oru Video Song | Speed Track | K J Yesudas | Deepak Dev | Dileep](https://www.youtube.com/watch?v=pVEL05sAtDw)
 - [Po Po Kaalamone | പോ പോ കാളമോനെ  | Enthono Pookkuna Pookkal  Movie Songs | K J Yesudas | Mammootty](https://www.youtube.com/watch?v=M9DwL5FC04g)
 - [Karukare Karuthoru | Harmonium  Cover by Sharan Appus #shortsfeed #shorts #harmonium #instrumental](https://www.youtube.com/watch?v=lkU2yueqxrk)
 - [Devagaayakane| Vilakku Vaangiya Veena | Prem Nazeer | Yesudas | Dakshinamoorthy](https://www.youtube.com/watch?v=1DCRFrRZr-8)
-- [വിണ്ണേകിയ മന്നാ | PARUMALA THIRUMENI SONG | ROY PUTHUR | SREYA JOSEPH #royputhur #rayanmedia](https://www.youtube.com/watch?v=7wprWegCe1s)
-- [October 26](https://www.youtube.com/watch?v=Z3kAEgS7-2U)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #christian devotional songs malayalam of mother](https://www.youtube.com/watch?v=Vckfbo8oHvA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
