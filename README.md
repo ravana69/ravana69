@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [October 26](https://www.youtube.com/watch?v=Z3kAEgS7-2U)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #christian devotional songs malayalam of mother](https://www.youtube.com/watch?v=Vckfbo8oHvA)
 - [കെസ്റ്റർ അതിമനോഹരമാക്കിയ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ| Christian Devotional Songs Malayalam | Kester](https://www.youtube.com/watch?v=RjlRgHpFH2Q)
 - [Japamala 26th of October 23 # Mathavinte Japamala Prakashathinte Rahasyangal 26th of October 23](https://www.youtube.com/watch?v=uXV99gCNTVo)
 - [അമ്മയെൻ  പുണ്യം #പ്രകാശത്തിൻറെ രഹസ്യങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala songs malayalam](https://www.youtube.com/watch?v=XlAsxNrwRLA)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=ZYtw1yg3-tM)
-- [പ്രഭാത പ്രാര്‍ത്ഥന  October 26 # Athiravile Prarthana 26th of October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=AC9Qasr9JwY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
