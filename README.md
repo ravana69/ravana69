@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പണ്ട്നിന്നെ കണ്ടനാളില്‍ പീലിനീര്‍ത്തി മാനസം #chithra #evergeeenmalayalamhits #malayalamsongs](https://www.youtube.com/watch?v=co76ki8LSgY)
+- [Swarggam Sundaraswapnam | Manassinu Shanthiyekunna Kristheeya Bhakthigaanangal | Audio jukebox](https://www.youtube.com/watch?v=jZtRVn_yevg)
+- [Aradhya - Rendition | Kushi (Malayalam) | Hesham Abdul Wahab | Yukta, Suneesh, Reshma Suneesh](https://www.youtube.com/watch?v=8OJYUYdNZ0I)
 - [Oru Ponkinaavinte | ഒരു പൊന്‍കിനാവിന്റെ. | Sipayi lahala Malayalam Super Hit Movie Song | Mukesh](https://www.youtube.com/watch?v=aNEfZWqedfU)
 - [കുട്ടികാലം മുതൽ കേട്ട് കേട്ട് സുപരിചിതമായ മറക്കാനാവാത്ത സിനിമാഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=DjEkxUk7n4s)
 - [Kunnikuruvinte | Acharam Ammini Osharam Omana | P Bhaskaran | G Devarajan | P Susheela | Sheela](https://www.youtube.com/watch?v=Okvl_6nLwQs)
-- [Bedurulanka 2012 - Chithadi Chithadi Video | Kartikeya, Neha Sshetty | Mani Sharma](https://www.youtube.com/watch?v=ZbnIYtYyiHY)
-- [Karukare Karuthoru | Harmonium  Cover by Sharan Appus #shortsfeed #shorts #harmonium #instrumental](https://www.youtube.com/watch?v=vPzmK5nOGf0)
-- [Bedurulanka 2012 - Kotraa Dappu Video | Kartikeya, Neha Sshetty | Mani Sharma](https://www.youtube.com/watch?v=WjQSY7Io4rw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
