@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഇന്നെന്റെ വനിയില്‍  കൊഴിഞ്ഞുപുഷ്പങ്ങള്‍ ജീവന്റെ താളങ്ങൾ  #chithra  #malayalamsongs #moviemusic](https://www.youtube.com/watch?v=5jxCwwp5Diw)
+- [കർമ്മല സുമമേ , നറുതേൻ കുടമേ . . .](https://www.youtube.com/watch?v=OLOnfeYzO5E)
+- [Thanka Kolussil  | Puthukkottayile Puthumanavalan | Jayaram | Annie - SP Venkitesh Hits](https://www.youtube.com/watch?v=YEtxpgaqzr4)
+- [യാഹേ നീയെൻ ദൈവം | P. D. John | Elizabeth Raju #shrots #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=1IVcQBQbKAg)
+- [Ponveene Remastered Audio Song Thalavattam KS Chithra MG Sreekumar Poovachal Khader Raghu Kumar](https://www.youtube.com/watch?v=8f8MvBRJgtk)
 - [Aanandam Paramanandam | Pulliman | Sharreth | Vijesh](https://www.youtube.com/watch?v=5h9WvtChMS4)
-- [ഞാൻ തന്നെ വഴിയും സത്യവും ജീവനുമാകുന്നു |Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=RPgvX_9VNc8)
-- [കരിമുകില്‍ക്കാടിളക്കി | Karimugilkkaadilakki | Padanayakan Movie Song | M G Sreekumar | Dileep](https://www.youtube.com/watch?v=xwrNa25EzKQ)
-- [Karukare Karuthoru | Harmonium  Cover by Sharan Appus #shortsfeed #shorts #harmonium #instrumental](https://www.youtube.com/watch?v=qEwpN7BnomQ)
-- [Sweety Pie Darling | Puthiya Mukham | Suvi | Prithviraj | Deepak Dev | Kaithapram](https://www.youtube.com/watch?v=9SBRNzRVN9s)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 26thof October 2023](https://www.youtube.com/watch?v=KHmOTu5pTyU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
