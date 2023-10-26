@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Pooja Ceremony | East Coast Vijayan | Amith Chakalakkal, Mokksha, Anusree | East Coast Movie](https://www.youtube.com/watch?v=W25sLtg4Zl0)
-- [Kannikkaavadi Poonirangal Video Song | Jayaram | Urvashi | Johnson | KS Chithra | G Venugopal](https://www.youtube.com/watch?v=0gRlhkH76Ks)
-- [Nee Padumpole | Mothira Kadakam | Milan John | Amalnath V S | Mariya Johny | Suhail M Koya](https://www.youtube.com/watch?v=1GWrHibk2xo)
-- [പണ്ട്നിന്നെ കണ്ടനാളില്‍ പീലിനീര്‍ത്തി മാനസം #chithra #evergeeenmalayalamhits #malayalamsongs](https://www.youtube.com/watch?v=co76ki8LSgY)
-- [Swarggam Sundaraswapnam | Manassinu Shanthiyekunna Kristheeya Bhakthigaanangal | Audio jukebox](https://www.youtube.com/watch?v=jZtRVn_yevg)
-- [Aradhya - Rendition | Kushi (Malayalam) | Hesham Abdul Wahab | Yukta, Suneesh, Reshma Suneesh](https://www.youtube.com/watch?v=8OJYUYdNZ0I)
+- [ഞാൻ തന്നെ വഴിയും സത്യവും ജീവനുമാകുന്നു |Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=RPgvX_9VNc8)
+- [കരിമുകില്‍ക്കാടിളക്കി | Karimugilkkaadilakki | Padanayakan Movie Song | M G Sreekumar | Dileep](https://www.youtube.com/watch?v=xwrNa25EzKQ)
+- [Karukare Karuthoru | Harmonium  Cover by Sharan Appus #shortsfeed #shorts #harmonium #instrumental](https://www.youtube.com/watch?v=qEwpN7BnomQ)
+- [Sweety Pie Darling | Puthiya Mukham | Suvi | Prithviraj | Deepak Dev | Kaithapram](https://www.youtube.com/watch?v=9SBRNzRVN9s)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 26thof October 2023](https://www.youtube.com/watch?v=KHmOTu5pTyU)
+- [Mangalam Padunna | K J Yesudas | KS Chithra | Mohanlal |  Urvashi | #shorts](https://www.youtube.com/watch?v=OCFPgo0YMLA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
