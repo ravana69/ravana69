@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന October 27 # Athiravile Prarthana 27th October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=v-4DGyrCB80)
+- [Neethanna Pulari | Sukruthamee Japamala | Latest Marian Holy Rosary Special Song Malayalam](https://www.youtube.com/watch?v=BV1ar-oMnTA)
+- [ജപമാല ഗീതങ്ങള്‍ # Holy Rosary Special Songs Malayalam |  Month of Holy Rosary October 2023 Songs](https://www.youtube.com/watch?v=skc65gXfZtA)
 - [#Pakaliravukal | #Kurup | #DulquerSalmaan | #SobhitaDhulipala | #SushinShyam | #AnwarAli](https://www.youtube.com/watch?v=VnMfF_shP08)
 - [#Pakaliravukal | #Kurup | #DulquerSalmaan | #SobhitaDhulipala | #SushinShyam | #AnwarAli](https://www.youtube.com/watch?v=KEsLaHJk_W4)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 27th October 23](https://www.youtube.com/watch?v=1TKVj9gdAIY)
-- [മഞ്ഞള്‍ പ്രസാദവും Manjal Prasaadavum Remastered Audio Song Nakhakshathangal ONV Kurup KS Chithra](https://www.youtube.com/watch?v=XoPLG8jNRXQ)
-- [Anuje Ninakkay | Onningu Vannengil | Nadiya Moidu | Shankar | Mammootty | Shyam | Yesudas](https://www.youtube.com/watch?v=XBLjfleD6IM)
-- [ഇന്നെന്റെ വനിയില്‍  കൊഴിഞ്ഞുപുഷ്പങ്ങള്‍ ജീവന്റെ താളങ്ങൾ  #chithra  #malayalamsongs #moviemusic](https://www.youtube.com/watch?v=5jxCwwp5Diw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
