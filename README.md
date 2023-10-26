@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [#Pakaliravukal | #Kurup | #DulquerSalmaan | #SobhitaDhulipala | #SushinShyam | #AnwarAli](https://www.youtube.com/watch?v=VnMfF_shP08)
+- [#Pakaliravukal | #Kurup | #DulquerSalmaan | #SobhitaDhulipala | #SushinShyam | #AnwarAli](https://www.youtube.com/watch?v=KEsLaHJk_W4)
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 27th October 23](https://www.youtube.com/watch?v=1TKVj9gdAIY)
 - [മഞ്ഞള്‍ പ്രസാദവും Manjal Prasaadavum Remastered Audio Song Nakhakshathangal ONV Kurup KS Chithra](https://www.youtube.com/watch?v=XoPLG8jNRXQ)
 - [Anuje Ninakkay | Onningu Vannengil | Nadiya Moidu | Shankar | Mammootty | Shyam | Yesudas](https://www.youtube.com/watch?v=XBLjfleD6IM)
 - [ഇന്നെന്റെ വനിയില്‍  കൊഴിഞ്ഞുപുഷ്പങ്ങള്‍ ജീവന്റെ താളങ്ങൾ  #chithra  #malayalamsongs #moviemusic](https://www.youtube.com/watch?v=5jxCwwp5Diw)
-- [കർമ്മല സുമമേ , നറുതേൻ കുടമേ . . .](https://www.youtube.com/watch?v=OLOnfeYzO5E)
-- [Thanka Kolussil  | Puthukkottayile Puthumanavalan | Jayaram | Annie - SP Venkitesh Hits](https://www.youtube.com/watch?v=YEtxpgaqzr4)
-- [യാഹേ നീയെൻ ദൈവം | P. D. John | Elizabeth Raju #shrots #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=1IVcQBQbKAg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
