@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Peddakapu 1 &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 17GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175934-peddakapu-1-2023-telugu-true-web-dl-4k-1080p-720p-avc-dd51-640kbps-17gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355124)
 - [Yaaro &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.3GB - 1.6GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175933-yaaro-2023-tamil-true-web-dl-4k-1080p-720p-avc-dd51-384kbps-23gb-16gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355123)
 - [Angaaragan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175931-angaaragan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355121)
 - [Rangoli &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175920-rangoli-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355120)
 - [Cobweb &lpar;2023&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175925-cobweb-2023-bluray-original-audios-1080p-720p-x264-aac-20-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=355119)
-- [Raatri &lpar;1992&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6GB - ESub - KAD DVD](https://www.1tamilmv.phd/index.php?/forums/topic/175930-raatri-1992-telugu-dvd9-untouched-480p-dd51-448kbps-6gb-esub-kad-dvd/&do=findComment&comment=355118)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
