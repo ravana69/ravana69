@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Raatri &lpar;1992&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6GB - ESub - KAD DVD](https://www.1tamilmv.phd/index.php?/forums/topic/175930-raatri-1992-telugu-dvd9-untouched-480p-dd51-448kbps-6gb-esub-kad-dvd/&do=findComment&comment=355113)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP54 DAY 53 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 561MB &amp; 229MB | 26-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175929-bigg-boss-telugu-s07-ep54-day-53-true-web-dl-1080p-720p-480p-avc-untouched-11gb-561mb-229mb-26-10-2023/&do=findComment&comment=355112)
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP26 DAY 25 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 970MB - 511MB &amp; 214MB | 26-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175928-bigg-boss-tamil-s07-ep26-day-25-true-web-dl-1080p-720p-480p-avc-untouched-970mb-511mb-214mb-26-10-2023/&do=findComment&comment=355111)
 - [Cobweb &lpar;2023&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175925-cobweb-2023-bluray-original-audios-1080p-720p-x264-aac-20-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=355110)
 - [Suriya43 - Suriya | Dulquer Salmaan | Nazriya | GV Prakash | Sudha Kongara | 2DEntertainment](https://www.1tamilmv.phd/index.php?/forums/topic/175927-suriya43-suriya-dulquer-salmaan-nazriya-gv-prakash-sudha-kongara-2dentertainment/&do=findComment&comment=355109)
-- [Cobweb &lpar;2023&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175925-cobweb-2023-bluray-original-audios-1080p-720p-x264-aac-20-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=355108)
-- [Malli Malli Idi Rani Roju &lpar;2015&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 4.2GB](https://www.1tamilmv.phd/index.php?/forums/topic/175926-malli-malli-idi-rani-roju-2015-telugu-dvd5-untouched-480p-dd51-448kbps-42gb/&do=findComment&comment=355106)
-- [Cobweb &lpar;2023&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175925-cobweb-2023-bluray-original-audios-1080p-720p-x264-aac-20-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=355104)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
