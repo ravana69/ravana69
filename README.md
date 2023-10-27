@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thozhukai Koopi | Boeing Boeing | Mohanlal | Lissy | Ashwini | Madhuri - Yesudas Hit Song](https://www.youtube.com/watch?v=AhaR5gN27Fk)
+- [ചുരുങ്ങിയ കാലം കൊണ്ട് നമ്മെ വിസ്മയിപ്പിച്ചു കടന്നുപോയ ഗിരീഷ് പുത്തഞ്ചേരിയുടെ നിത്യഹരിതഗാനങ്ങൾ !](https://www.youtube.com/watch?v=45jRHvtfUNk)
 - [Oh Vaname Pranavamuruvidaam | Pulliman | KK Nishad | Sharreth | Kaithapram](https://www.youtube.com/watch?v=JpohkpC8sw0)
 - [Parisudha Sneham | Karmasagaram Vishudha Chavarayachan | Film Video | Aji K. Jose | Anil Cherthala](https://www.youtube.com/watch?v=FruuRaglxQc)
 - [സഹനപാതയിൽ പൊലിഞ്ഞ് പോകാത്ത വിശ്വാസം. |Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=6OJXO8WoR0Y)
 - [Kalyana Kachery | Maayaajaalam | KJ Yesudas #shorts](https://www.youtube.com/watch?v=kkrtAAQ00ZU)
-- [വെള്ളിച്ചില്ലും വിതറി | Vellichillam Vithari | Ina Malayalam Movie Song |  Krishnachandran](https://www.youtube.com/watch?v=CQzkkU3JO5E)
-- [Songs Of The Week | Sreya Jayadeep | Mariyan Songs Malayalam | Christian Songs Malayalam | JojiJohns](https://www.youtube.com/watch?v=nWBqMrDVLlM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
