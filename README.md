@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP55 DAY 54 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 518MB &amp; 226MB | 27-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175959-bigg-boss-telugu-s07-ep55-day-54-true-web-dl-1080p-720p-480p-avc-untouched-1gb-518mb-226mb-27-10-2023/&do=findComment&comment=355178)
+- [Pain Hustlers &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.4GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175940-pain-hustlers-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-34gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=355177)
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP27 DAY 26 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 605MB &amp; 230MB | 27-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175958-bigg-boss-tamil-s07-ep27-day-26-true-web-dl-1080p-720p-480p-avc-untouched-11gb-605mb-230mb-27-10-2023/&do=findComment&comment=355176)
+- [Koozhangal &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.6GB &amp; 900MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175953-koozhangal-2023-tamil-true-web-dl-1080p-720p-avc-16gb-900mb-x264-700mb-400mb-esub/&do=findComment&comment=355175)
 - [I&#39;m Scared &lpar;From &quot;Leo&quot;&rpar; Master Quality 24bit 96kHz - FLAC - Anirudh Ravichander - 42 MB](https://www.1tamilmv.phd/index.php?/forums/topic/175957-im-scared-from-leo-master-quality-24bit-96khz-flac-anirudh-ravichander-42-mb/&do=findComment&comment=355174)
-- [Koozhangal &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.6GB &amp; 900MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175953-koozhangal-2023-tamil-true-web-dl-1080p-720p-avc-16gb-900mb-x264-700mb-400mb-esub/&do=findComment&comment=355173)
-- [Don Vasco &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 850MB &amp; 400MB &amp; 300MB]](https://www.1tamilmv.phd/index.php?/forums/topic/175956-don-vasco-2023-malayalam-true-web-dl-1080p-720p-avc-850mb-400mb-300mb/&do=findComment&comment=355172)
-- [Dark.Harvest.2023.1080p.10bit.WEBRip.6CH.x265.HEVC-PSA - 1.6GB](https://www.1tamilmv.phd/index.php?/forums/topic/175955-darkharvest20231080p10bitwebrip6chx265hevc-psa-16gb/&do=findComment&comment=355171)
-- [Five.Nights.at.Freddy&#39;s.2023.1080p.10bit.WEBRip.6CH.x265.HEVC-PSA - 1.7GB](https://www.1tamilmv.phd/index.php?/forums/topic/175954-fivenightsatfreddys20231080p10bitwebrip6chx265hevc-psa-17gb/&do=findComment&comment=355170)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
