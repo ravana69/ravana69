@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [അമ്മേ   എൻ്റെ അമ്മേ എൻ്റെ ഈശോയുടെ അമ്മേ # ജനലക്ഷങ്ങൾ നെഞ്ഞോട് ചേർത്ത ഗാനം](https://www.youtube.com/watch?v=adFeYQMITCw)
+- [ജാതിമത ഭേദമില്ലാതെ എല്ലാ മലയാളികളും ഒരുപോലെ ആസ്വദിക്കുന്ന മലയാളസിനിമയിലെ പ്രശസ്തഗാനങ്ങൾ !](https://www.youtube.com/watch?v=S5MGVfHlAM8)
 - [James Bondin | C.I.D.Moosa | Bhavana | Karthik | Vidyasagar | Dileep Birthday Special](https://www.youtube.com/watch?v=G0vTt_Gd3mE)
 - [Selected Malayalam Film Songs | Yesudas | Kaithapram | Raveendran | Sound of Arts](https://www.youtube.com/watch?v=kE7Ydc-pUDc)
 - [Prathyasayoditha | Shorts | Diya Mary Alex  #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=Gl_UJbQwSQE)
 - [Kushi (Malayalam) - Video Jukebox | Vijay Devarakonda | Samantha | Hesham Abdul Wahab](https://www.youtube.com/watch?v=yltVjf6u6I0)
-- [Kaanana Poykayil | Ariyappedatha Rahasyam 1981 | K. J. Yesudas, Vani Jairam |  Malayalam Movie Song](https://www.youtube.com/watch?v=7KGb-GZg-sA)
-- [Peru Chollam Kathil | Agninakshathram | Biju Menon | Indraja | Chithra | Raveendran](https://www.youtube.com/watch?v=R2YNWovALpg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
