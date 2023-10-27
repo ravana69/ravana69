@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ullasamga Utsahamga &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.5GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175941-ullasamga-utsahamga-2008-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-75gb-esub/&do=findComment&comment=355140)
+- [Pain Hustlers &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.4GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175940-pain-hustlers-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-34gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=355139)
 - [Yaaro &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.3GB - 1.6GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175933-yaaro-2023-tamil-true-web-dl-4k-1080p-720p-avc-dd51-384kbps-23gb-16gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355138)
 - [Operation Alamelamma &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.6GB - 1.3GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175936-operation-alamelamma-2023-telugu-true-web-dl-1080p-720p-avc-dd51-384kbps-26gb-13gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355137)
 - [LEO - Lokiverse 2.0 Theme Video - 1080P &amp; 4K - DD5.1 + DTSHD5.1 &lpar;Lossless 24Bit FLAC Upmix&rpar; + 24Bit FLAC](https://www.1tamilmv.phd/index.php?/forums/topic/175939-leo-lokiverse-20-theme-video-1080p-4k-dd51-dtshd51-lossless-24bit-flac-upmix-24bit-flac/&do=findComment&comment=355136)
-- [Bang Bang 2014 Tamil + Telugu + Hindi + German UHD2160p.SDR.HEVC.DTS-HDMA.5.1](https://www.1tamilmv.phd/index.php?/forums/topic/155781-bang-bang-2014-tamil-telugu-hindi-german-uhd2160psdrhevcdts-hdma51/&do=findComment&comment=355134)
-- [Idhu Namma Aalu &lpar;2016&rpar; Tamil HYBRID HD - 1080p - AVC - UNTOUCHED - &lpar;MP3.2.0&rpar; - 3.6GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/175938-idhu-namma-aalu-2016-tamil-hybrid-hd-1080p-avc-untouched-mp320-36gb-gdflix/&do=findComment&comment=355133)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
