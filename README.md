@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kushi (Malayalam) - Video Jukebox | Vijay Devarakonda | Samantha | Hesham Abdul Wahab](https://www.youtube.com/watch?v=yltVjf6u6I0)
+- [Kaanana Poykayil | Ariyappedatha Rahasyam 1981 | K. J. Yesudas, Vani Jairam |  Malayalam Movie Song](https://www.youtube.com/watch?v=7KGb-GZg-sA)
 - [Peru Chollam Kathil | Agninakshathram | Biju Menon | Indraja | Chithra | Raveendran](https://www.youtube.com/watch?v=R2YNWovALpg)
 - [Hits of Dileep | Audio Jukebox | Super Hit Malayalam Film Songs | K.J.Yesudas | M G Sreekumar](https://www.youtube.com/watch?v=tx5zvSkC38U)
 - [Neerajanathin | Lyrical Video | Pullu | Riyaz Raz | Praveen Kelikkoden | Shabitha | Aji Vavachan](https://www.youtube.com/watch?v=NM6NnvqO-FQ)
 - [Yeshuve Neynikkay | Shorts  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=FKyXmFl3Ar4)
-- [കന്യക മേരി അമ്മെ കാവൽ മാലാഖമാരേ നിത്യവും കാത്തിടണേ #kanyaka meri amme  #sreya  #fr.binoj m](https://www.youtube.com/watch?v=eJGm8y5wJtg)
-- [സംഗീത ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം # ദുഃഖത്തിൻറെ രഹസ്യങ്ങൾ #അമ്മയെൻ പുണ്യം](https://www.youtube.com/watch?v=Zow7OGKR3eY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
