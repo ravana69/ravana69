@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #christian devotional songs malayalam mothermary 27](https://www.youtube.com/watch?v=9-JHQzlD3f8)
+- [Japamala 27th of October 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 27th of October 23](https://www.youtube.com/watch?v=fXqGoMt36ZQ)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=2buCi5qQKgs)
 - [Japamala Masam Short October  | Holy Rosary Special Short](https://www.youtube.com/watch?v=smtPGNGsdyU)
 - [രാവിലെ പ്രാര്‍ത്ഥന October 27 # Athiravile Prarthana 27th October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=v-4DGyrCB80)
 - [Neethanna Pulari | Sukruthamee Japamala | Latest Marian Holy Rosary Special Song Malayalam](https://www.youtube.com/watch?v=BV1ar-oMnTA)
-- [ജപമാല ഗീതങ്ങള്‍ # Holy Rosary Special Songs Malayalam |  Month of Holy Rosary October 2023 Songs](https://www.youtube.com/watch?v=skc65gXfZtA)
-- [#Pakaliravukal | #Kurup | #DulquerSalmaan | #SobhitaDhulipala | #SushinShyam | #AnwarAli](https://www.youtube.com/watch?v=VnMfF_shP08)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
