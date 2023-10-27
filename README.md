@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [I&#39;m Scared &lpar;From &quot;Leo&quot;&rpar; Master Quality 24bit 96kHz - FLAC - Anirudh Ravichander - 42 MB](https://www.1tamilmv.phd/index.php?/forums/topic/175957-im-scared-from-leo-master-quality-24bit-96khz-flac-anirudh-ravichander-42-mb/&do=findComment&comment=355174)
+- [Koozhangal &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.6GB &amp; 900MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175953-koozhangal-2023-tamil-true-web-dl-1080p-720p-avc-16gb-900mb-x264-700mb-400mb-esub/&do=findComment&comment=355173)
+- [Don Vasco &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 850MB &amp; 400MB &amp; 300MB]](https://www.1tamilmv.phd/index.php?/forums/topic/175956-don-vasco-2023-malayalam-true-web-dl-1080p-720p-avc-850mb-400mb-300mb/&do=findComment&comment=355172)
 - [Dark.Harvest.2023.1080p.10bit.WEBRip.6CH.x265.HEVC-PSA - 1.6GB](https://www.1tamilmv.phd/index.php?/forums/topic/175955-darkharvest20231080p10bitwebrip6chx265hevc-psa-16gb/&do=findComment&comment=355171)
 - [Five.Nights.at.Freddy&#39;s.2023.1080p.10bit.WEBRip.6CH.x265.HEVC-PSA - 1.7GB](https://www.1tamilmv.phd/index.php?/forums/topic/175954-fivenightsatfreddys20231080p10bitwebrip6chx265hevc-psa-17gb/&do=findComment&comment=355170)
-- [Loki S02E04 DSNP WEB-DL Multi DDP5.1 Esubs - 2160p [HDR10] | 1080p | 720p - 5.5 GB | 2.3 GB | 0.8 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175937-loki-s02e04-dsnp-web-dl-multi-ddp51-esubs-2160p-hdr10-1080p-720p-55-gb-23-gb-08-gb/&do=findComment&comment=355169)
-- [Gen V &lpar;2023&rpar; S01 EP&lpar;01-07&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada + Eng] - 3GB - 1.2GB &amp; 600MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175537-gen-v-2023-s01-ep01-07-true-web-dl-1080p-720p-avc-dd51-192kbps-tamil-telugu-hindi-malayalam-kannada-eng-3gb-12gb-600mb-esub/&do=findComment&comment=355168)
-- [Koozhangal &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.6GB &amp; 900MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175953-koozhangal-2023-tamil-true-web-dl-1080p-720p-avc-16gb-900mb-x264-700mb-400mb-esub/&do=findComment&comment=355167)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
