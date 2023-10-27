@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Yaaro &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.3GB - 1.6GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175933-yaaro-2023-tamil-true-web-dl-4k-1080p-720p-avc-dd51-384kbps-23gb-16gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355138)
+- [Operation Alamelamma &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.6GB - 1.3GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175936-operation-alamelamma-2023-telugu-true-web-dl-1080p-720p-avc-dd51-384kbps-26gb-13gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355137)
+- [LEO - Lokiverse 2.0 Theme Video - 1080P &amp; 4K - DD5.1 + DTSHD5.1 &lpar;Lossless 24Bit FLAC Upmix&rpar; + 24Bit FLAC](https://www.1tamilmv.phd/index.php?/forums/topic/175939-leo-lokiverse-20-theme-video-1080p-4k-dd51-dtshd51-lossless-24bit-flac-upmix-24bit-flac/&do=findComment&comment=355136)
 - [Bang Bang 2014 Tamil + Telugu + Hindi + German UHD2160p.SDR.HEVC.DTS-HDMA.5.1](https://www.1tamilmv.phd/index.php?/forums/topic/155781-bang-bang-2014-tamil-telugu-hindi-german-uhd2160psdrhevcdts-hdma51/&do=findComment&comment=355134)
 - [Idhu Namma Aalu &lpar;2016&rpar; Tamil HYBRID HD - 1080p - AVC - UNTOUCHED - &lpar;MP3.2.0&rpar; - 3.6GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/175938-idhu-namma-aalu-2016-tamil-hybrid-hd-1080p-avc-untouched-mp320-36gb-gdflix/&do=findComment&comment=355133)
-- [Loki S02E04 DSNP WEB-DL Multi DDP5.1 Esubs - 2160p [HDR10] | 1080p | 720p - 5.5 GB | 2.3 GB | 0.8 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175937-loki-s02e04-dsnp-web-dl-multi-ddp51-esubs-2160p-hdr10-1080p-720p-55-gb-23-gb-08-gb/&do=findComment&comment=355132)
-- [Yaaro &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.3GB - 1.6GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175933-yaaro-2023-tamil-true-web-dl-4k-1080p-720p-avc-dd51-384kbps-23gb-16gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355131)
-- [Angaaragan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175931-angaaragan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355130)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
