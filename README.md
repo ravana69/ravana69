@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 28th October 23](https://www.youtube.com/watch?v=RFD-6_mJWTs)
+- [#Pakaliravukal | #Kurup | #DulquerSalmaan | #SobhitaDhulipala | #SushinShyam | #AnwarAli](https://www.youtube.com/watch?v=8P9qjVhA0Fk)
+- [#Pakaliravukal | #Kurup | #DulquerSalmaan | #SobhitaDhulipala | #SushinShyam | #AnwarAli](https://www.youtube.com/watch?v=4F1BWgEpdlI)
 - [ഈശോയെ പോലമ്മേ ഇന്നെന്നെ വളർത്താമോ . . .](https://www.youtube.com/watch?v=2EWNbAwSkEU)
 - [Kalipattamayi   Kalippattam   Raveendran   Hi Res Audio](https://www.youtube.com/watch?v=PmhU3WAbFhg)
 - [Thozhukai Koopi | Boeing Boeing | Mohanlal | Lissy | Ashwini | Madhuri - Yesudas Hit Song](https://www.youtube.com/watch?v=AhaR5gN27Fk)
-- [ചുരുങ്ങിയ കാലം കൊണ്ട് നമ്മെ വിസ്മയിപ്പിച്ചു കടന്നുപോയ ഗിരീഷ് പുത്തഞ്ചേരിയുടെ നിത്യഹരിതഗാനങ്ങൾ !](https://www.youtube.com/watch?v=45jRHvtfUNk)
-- [Oh Vaname Pranavamuruvidaam | Pulliman | KK Nishad | Sharreth | Kaithapram](https://www.youtube.com/watch?v=JpohkpC8sw0)
-- [Parisudha Sneham | Karmasagaram Vishudha Chavarayachan | Film Video | Aji K. Jose | Anil Cherthala](https://www.youtube.com/watch?v=FruuRaglxQc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
