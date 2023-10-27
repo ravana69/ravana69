@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kaadirangi Odivarum Video Song | CID Moosa | Dileep | Vidyasagar | Gireesh Puthenchery | V Devanand](https://www.youtube.com/watch?v=pWB4spr9ly8)
 - [സ്വർ‌ണ്ണമുകിലേ. | Swarna Mukile Swarna Mukile | Ithu Njangalude Katha Movie Song| S Janaki | Johnson](https://www.youtube.com/watch?v=_jRL1PfzlSg)
 - [Sundari Song | Santhosham| Mohammed Habeeb| Arvind Mahadevan| Akhil Anil Kumar | Titto P Thankachen](https://www.youtube.com/watch?v=jUNuW-mP1io)
 - [അന്ന് നീയെന്‍ മുന്നില്‍വന്നു  പൂവണിഞ്ഞു  ജീവിതം #malayalamsongs #chithra #mazha](https://www.youtube.com/watch?v=ODgIgGbLOg8)
 - [അമ്മേ   എൻ്റെ അമ്മേ എൻ്റെ ഈശോയുടെ അമ്മേ # ജനലക്ഷങ്ങൾ നെഞ്ഞോട് ചേർത്ത ഗാനം](https://www.youtube.com/watch?v=adFeYQMITCw)
 - [ജാതിമത ഭേദമില്ലാതെ എല്ലാ മലയാളികളും ഒരുപോലെ ആസ്വദിക്കുന്ന മലയാളസിനിമയിലെ പ്രശസ്തഗാനങ്ങൾ !](https://www.youtube.com/watch?v=S5MGVfHlAM8)
-- [James Bondin | C.I.D.Moosa | Bhavana | Karthik | Vidyasagar | Dileep Birthday Special](https://www.youtube.com/watch?v=G0vTt_Gd3mE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
