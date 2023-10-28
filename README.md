@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഒരിക്കലും മടുക്കാത്ത നാദമധുരം..| വാനമ്പാടിയുടെ പാട്ടുകൾ | കെ എസ് ചിത്ര | K  S Chitra Hits](https://www.youtube.com/watch?v=VvCkNzV4Dxk)
+- [കാനായിലെന്നപോൽ കാണണം കൂടെ നീ . . .](https://www.youtube.com/watch?v=8d4oss-EIkQ)
 - [Mayamayooram | Vadakkunokkiyantram | Sreenivasan | Parvathy | Johnson | Kaithpram | MG Sreekumar](https://www.youtube.com/watch?v=4ur9p0FLsbc)
 - [Areyum Bhaavagaayakanaakkum Remastered Audio Song Nakhakshathangal KJ Yesudas ONV Kurup Bombay Ravi](https://www.youtube.com/watch?v=riyvmLYIleI)
 - [Thumbi Kalyanathinu Video Song | Kalyanaraman | Dileep | Navya Nair | MG Sreekumar | Sujatha Mohan](https://www.youtube.com/watch?v=Sq9xHA89k6s)
 - [Kaliyarangiloru Thiri | Pulliman | Sannidhanandan | Sharreth | Kaithapram](https://www.youtube.com/watch?v=tQQU-coAj6s)
-- [ദൈവം സ്നേഹമാണ്. | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=GR1leLAQMj8)
-- [Karukarekarothoru | Harmonium Cover by Sharan Appus #shortsfeed #shorts #instrumental #harmonium](https://www.youtube.com/watch?v=x_cixXVncl4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
