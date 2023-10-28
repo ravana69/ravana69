@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ma Ma Ma Mayavi - Lyrical Video | Krishnanum Radhayum | Santhosh Pandit, Nimmi | Blockbuster Song](https://www.youtube.com/watch?v=u3xPIwzLo5E)
+- [Vanil Padarum Song | Zha Movie | Rajesh Babu K Sooranad | P K Sunil Kumar | K Jayakumar](https://www.youtube.com/watch?v=g9HHcYVRc4o)
 - [October 28](https://www.youtube.com/watch?v=kJAggm7DhOk)
 - [മലയാളികളുടെ മാനസപുത്രൻ ഭരത് മോഹൻലാൽ അഭിനയിച്ച ചിത്രങ്ങളിലെ തട്ടുപൊളിപ്പൻ ഗാനങ്ങൾ ! HITS OF MOHANLAL](https://www.youtube.com/watch?v=pSXTsqro2o4)
 - [മനസിനുള്ളിലെവിടെയോ നൊമ്പരപ്പാടുണർത്തിയ മലയാളസിനിമയിലെ ശോകമൂക ഗാനങ്ങൾ ! SAD SONGS MALAYALAM](https://www.youtube.com/watch?v=ieNJVOxUEn4)
 - [Nakshathrangale l | Nakshathrangale Kaval | ONV Kurupp | G Devarajan | KJ Yesudas | Jayabharathi](https://www.youtube.com/watch?v=H-TyGA34F7s)
-- [Ella Naavum Paadivazhthum | K S Chithra | Shorts #shorts  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=6n7dmJzSkao)
-- [Thamarappoomkavanathil | Lyrical Video | Balyakala Sakhi | K J Yesudas | K T Muhammed | K Raghavan](https://www.youtube.com/watch?v=K74Oamwg_GA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
