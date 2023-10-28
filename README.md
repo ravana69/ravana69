@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Galatta Kalyaanam [Atrangi Re] &lpar;2021&rpar; TRUE WEB-DL - [4K HDR10 DOLBY VISION &amp; SDR, 1080p &amp; 720p - HEVC / AVC - &lpar;Tamil + Hindi&rpar; - 21.7GB - 6.1GB - 3.5GB - 2.5GB - 1.1GB &amp; -700MB] [x264 / XviD - 450MB] - ESub 🔰GDRIVE🔰](https://www.1tamilmv.phd/index.php?/forums/topic/152931-galatta-kalyaanam-atrangi-re-2021-true-web-dl-4k-hdr10-dolby-vision-sdr-1080p-720p-hevc-avc-tamil-hindi-217gb-61gb-35gb-25gb-11gb-700mb-x264-xvid-450mb-esub-%F0%9F%94%B0gdrive%F0%9F%94%B0/&do=findComment&comment=355220)
+- [The Last Of Us &lpar;2023&rpar; S01 EP &lpar;01 - 09&rpar; 720p &amp; 1080p JC WEB-DL ×264 [&lpar;Tamil + Telugu + Hindi + Kannada &lpar;AAC 2.0 - 125kbps&rpar;] - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/168859-the-last-of-us-2023-s01-ep-01-09-720p-1080p-jc-web-dl-%C3%97264-tamil-telugu-hindi-kannada-aac-20-125kbps-leyon/&do=findComment&comment=355219)
+- [Aandavan Kattalai &lpar;2016&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 5GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/175961-aandavan-kattalai-2016-tamil-true-web-dl-1080p-avc-untouched-ddp51-5gb-esub-gdflix/&do=findComment&comment=355218)
+- [#Chiyaan62 - Announcement Video | Chiyaan Vikram | S.U. Arun Kumar | GV Prakash Kumar | Riya Shibu](https://www.1tamilmv.phd/index.php?/forums/topic/175976-chiyaan62-announcement-video-chiyaan-vikram-su-arun-kumar-gv-prakash-kumar-riya-shibu/&do=findComment&comment=355217)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Teja, Prashanth at Loggerheads - 480p - AVC - UNTOUCHED - AAC - 84MB](https://www.1tamilmv.phd/index.php?/forums/topic/175975-bigg-boss-telugu-s07-unseen-teja-prashanth-at-loggerheads-480p-avc-untouched-aac-84mb/&do=findComment&comment=355216)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - A Discussion on Captaincy - 480p - AVC - UNTOUCHED - AAC - 82MB](https://www.1tamilmv.phd/index.php?/forums/topic/175974-bigg-boss-telugu-s07-unseen-a-discussion-on-captaincy-480p-avc-untouched-aac-82mb/&do=findComment&comment=355215)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Shobha on Duty - 480p - AVC - UNTOUCHED - AAC - 87MB](https://www.1tamilmv.phd/index.php?/forums/topic/175973-bigg-boss-telugu-s07-unseen-shobha-on-duty-480p-avc-untouched-aac-87mb/&do=findComment&comment=355214)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Shivaji&#39;s Stance - 480p - AVC - UNTOUCHED - AAC - 75MB](https://www.1tamilmv.phd/index.php?/forums/topic/175972-bigg-boss-telugu-s07-unseen-shivajis-stance-480p-avc-untouched-aac-75mb/&do=findComment&comment=355213)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Let&#39;s Join Teja&#39;s Yoga Class - 480p - AVC - UNTOUCHED - AAC - 75MB](https://www.1tamilmv.phd/index.php?/forums/topic/175971-bigg-boss-telugu-s07-unseen-lets-join-tejas-yoga-class-480p-avc-untouched-aac-75mb/&do=findComment&comment=355212)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
