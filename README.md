@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Teja, Prashanth at Loggerheads - 480p - AVC - UNTOUCHED - AAC - 84MB](https://www.1tamilmv.phd/index.php?/forums/topic/175975-bigg-boss-telugu-s07-unseen-teja-prashanth-at-loggerheads-480p-avc-untouched-aac-84mb/&do=findComment&comment=355216)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - A Discussion on Captaincy - 480p - AVC - UNTOUCHED - AAC - 82MB](https://www.1tamilmv.phd/index.php?/forums/topic/175974-bigg-boss-telugu-s07-unseen-a-discussion-on-captaincy-480p-avc-untouched-aac-82mb/&do=findComment&comment=355215)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Shobha on Duty - 480p - AVC - UNTOUCHED - AAC - 87MB](https://www.1tamilmv.phd/index.php?/forums/topic/175973-bigg-boss-telugu-s07-unseen-shobha-on-duty-480p-avc-untouched-aac-87mb/&do=findComment&comment=355214)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Shivaji&#39;s Stance - 480p - AVC - UNTOUCHED - AAC - 75MB](https://www.1tamilmv.phd/index.php?/forums/topic/175972-bigg-boss-telugu-s07-unseen-shivajis-stance-480p-avc-untouched-aac-75mb/&do=findComment&comment=355213)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Let&#39;s Join Teja&#39;s Yoga Class - 480p - AVC - UNTOUCHED - AAC - 75MB](https://www.1tamilmv.phd/index.php?/forums/topic/175971-bigg-boss-telugu-s07-unseen-lets-join-tejas-yoga-class-480p-avc-untouched-aac-75mb/&do=findComment&comment=355212)
-- [Aadhitya Arunachalam &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.phd/index.php?/forums/topic/175963-aadhitya-arunachalam-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-26gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=355211)
-- [The Last Of Us &lpar;2023&rpar; S01 EP&lpar;01-09&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu + Hindi+ Kannada + Eng] - 6GB - 3GB &amp; 1.3GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175968-the-last-of-us-2023-s01-ep01-09-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-6gb-3gb-13gb-esub/&do=findComment&comment=355210)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
