@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP28 DAY 27 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.5GB - 728MB &amp; 316MB | 28-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175981-bigg-boss-tamil-s07-ep28-day-27-true-web-dl-1080p-720p-480p-avc-untouched-15gb-728mb-316mb-28-10-2023/&do=findComment&comment=355228)
+- [The Last Of Us &lpar;2023&rpar; S01 EP&lpar;01-09&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu + Hindi+ Kannada + Eng] - 6GB - 3GB &amp; 1.3GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175968-the-last-of-us-2023-s01-ep01-09-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-6gb-3gb-13gb-esub/&do=findComment&comment=355226)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP56 DAY 55 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.5GB - 768MB &amp; 336MB | 28-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175979-bigg-boss-telugu-s07-ep56-day-55-true-web-dl-1080p-720p-480p-avc-untouched-15gb-768mb-336mb-28-10-2023/&do=findComment&comment=355225)
 - [Gulabi &lpar;1995&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 4GB](https://www.1tamilmv.phd/index.php?/forums/topic/175978-gulabi-1995-telugu-dvd5-untouched-480p-dd51-448kbps-4gb/&do=findComment&comment=355224)
 - [Gulabi &lpar;1995&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 4GB](https://www.1tamilmv.phd/index.php?/forums/topic/175978-gulabi-1995-telugu-dvd5-untouched-480p-dd51-448kbps-4gb/&do=findComment&comment=355223)
-- [Japan &lpar;2023&rpar; [Tamil &amp; Telugu Trailer] [16Bit FLAC] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - G V Prakash Musical](https://www.1tamilmv.phd/index.php?/forums/topic/175977-japan-2023-tamil-telugu-trailer-16bit-flac-itunes-hq-mp3-320kbps-128kbps-g-v-prakash-musical/&do=findComment&comment=355222)
-- [I&#39;m Scared &lpar;From &quot;Leo&quot;&rpar; Master Quality 24bit 96kHz - FLAC - Anirudh Ravichander - 42 MB](https://www.1tamilmv.phd/index.php?/forums/topic/175957-im-scared-from-leo-master-quality-24bit-96khz-flac-anirudh-ravichander-42-mb/&do=findComment&comment=355221)
-- [Galatta Kalyaanam [Atrangi Re] &lpar;2021&rpar; TRUE WEB-DL - [4K HDR10 DOLBY VISION &amp; SDR, 1080p &amp; 720p - HEVC / AVC - &lpar;Tamil + Hindi&rpar; - 21.7GB - 6.1GB - 3.5GB - 2.5GB - 1.1GB &amp; -700MB] [x264 / XviD - 450MB] - ESub 🔰GDRIVE🔰](https://www.1tamilmv.phd/index.php?/forums/topic/152931-galatta-kalyaanam-atrangi-re-2021-true-web-dl-4k-hdr10-dolby-vision-sdr-1080p-720p-hevc-avc-tamil-hindi-217gb-61gb-35gb-25gb-11gb-700mb-x264-xvid-450mb-esub-%F0%9F%94%B0gdrive%F0%9F%94%B0/&do=findComment&comment=355220)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
