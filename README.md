@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [35 Tamil Movies - TK / JC / AMZN WEB DL H264 - DDP5.1/DD2.0 - [1080p &amp; 720p - 250GB] [Gdrive]](https://www.1tamilmv.phd/index.php?/forums/topic/169108-35-tamil-movies-tk-jc-amzn-web-dl-h264-ddp51dd20-1080p-720p-250gb-gdrive/&do=findComment&comment=355193)
-- [Leo - I&#39;m Scared - DD5.1 + DTSHDMA5.1 &lpar;Lossless 24Bit FLAC Upmixed&rpar; + Untouched 24Bit FLAC &lpar;MKV Audio&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/175962-leo-im-scared-dd51-dtshdma51-lossless-24bit-flac-upmixed-untouched-24bit-flac-mkv-audio/&do=findComment&comment=355192)
-- [Leo - I&#39;m Scared - DD5.1 + DTSHDMA5.1 &lpar;Lossless 24Bit FLAC Upmixed&rpar; + Untouched 24Bit FLAC &lpar;MKV Audio&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/175962-leo-im-scared-dd51-dtshdma51-lossless-24bit-flac-upmixed-untouched-24bit-flac-mkv-audio/&do=findComment&comment=355191)
-- [Aandavan Kattalai &lpar;2016&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 5GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/175961-aandavan-kattalai-2016-tamil-true-web-dl-1080p-avc-untouched-ddp51-5gb-esub-gdflix/&do=findComment&comment=355190)
-- [[4K60FPS] Mission Impossible: Dead Reckoning Part One &lpar;2023&rpar; WEBRip Multi DDP5.1 Atmos MSubs H.265 - 2160p [HDR10 4K60FPS] | 1080p [60FPS] - 38.3 GB | 14.7 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175960-4k60fps-mission-impossible-dead-reckoning-part-one-2023-webrip-multi-ddp51-atmos-msubs-h265-2160p-hdr10-4k60fps-1080p-60fps-383-gb-147-gb/&do=findComment&comment=355189)
+- [Loki.S02E04.Heart.of.the.TVA.2160p.WEB-DL.DDP5.1.Atmos.HDR.HEVC &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/175969-lokis02e04heartofthetva2160pweb-dlddp51atmoshdrhevc-direct-download/&do=findComment&comment=355201)
+- [The Last Of Us &lpar;2023&rpar; S01 EP&lpar;01-09&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC [Tamil + Telugu + Hindi+ Kannada + Eng] - 6GB - 3GB &amp; 1.3GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175968-the-last-of-us-2023-s01-ep01-09-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-6gb-3gb-13gb-esub/&do=findComment&comment=355200)
+- [Cobweb.2023.1080p.AMZN.WEB-DL.MULTI.DDP2.0.H.264 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/175967-cobweb20231080pamznweb-dlmultiddp20h264-direct-download/&do=findComment&comment=355199)
+- [Sebastian.Fitzeks.Therapy.S01.1080p.AMZN.WEB-DL.MULTI.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/175966-sebastianfitzekstherapys011080pamznweb-dlmultiddp51-direct-download/&do=findComment&comment=355198)
+- [Pain.Hustlers.2023.1080p.NF.WEB-DL.DUAL.DDP5.1.Atmos. &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/175965-painhustlers20231080pnfweb-dldualddp51atmos-direct-download/&do=findComment&comment=355197)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
