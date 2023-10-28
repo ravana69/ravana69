@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന  October 29 # Athiravile Prarthana 29th of October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=UGb1Ama5w_U)
+- [ജപമാല ഗീതങ്ങള്‍ # Holy Rosary Special Songs Malayalam |  Month of Holy Rosary October 2023 Songs](https://www.youtube.com/watch?v=xzNAlA4eJNg)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=Ob7qanss_R4)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 29th October 23](https://www.youtube.com/watch?v=yUeyMGBhsg4)
 - [Usha Khanna, Vijay Yesudas, Dinanath Jayachandran - Paadaam Paadaam (Lyric Video)](https://www.youtube.com/watch?v=yJF0860e7xo)
 - [Johnson, K.J. Yesudas - Manjum Nilaavum (Lyric Video)](https://www.youtube.com/watch?v=tRlYfifPKJo)
-- [Johnson, S. Janaki - Vaazhthidunnitha (Version, 1) (Lyric Video)](https://www.youtube.com/watch?v=s2kic62OPYA)
-- [Usha Khanna, K.J. Yesudas - Penthari Verumoru (Lyric Video)](https://www.youtube.com/watch?v=WIYMMuQVcgs)
-- [Usha Khanna, Sujatha - Thenulla Poovinte (Version, 1) (Lyric Video)](https://www.youtube.com/watch?v=yDj-DjKtknE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
