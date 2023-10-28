@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [ഒരിക്കലും മടുക്കാത്ത നാദമധുരം..| വാനമ്പാടിയുടെ പാട്ടുകൾ | കെ എസ് ചിത്ര | K  S Chitra Hits](https://www.youtube.com/watch?v=VvCkNzV4Dxk)
-- [കാനായിലെന്നപോൽ കാണണം കൂടെ നീ . . .](https://www.youtube.com/watch?v=8d4oss-EIkQ)
-- [Mayamayooram | Vadakkunokkiyantram | Sreenivasan | Parvathy | Johnson | Kaithpram | MG Sreekumar](https://www.youtube.com/watch?v=4ur9p0FLsbc)
-- [Areyum Bhaavagaayakanaakkum Remastered Audio Song Nakhakshathangal KJ Yesudas ONV Kurup Bombay Ravi](https://www.youtube.com/watch?v=riyvmLYIleI)
-- [Thumbi Kalyanathinu Video Song | Kalyanaraman | Dileep | Navya Nair | MG Sreekumar | Sujatha Mohan](https://www.youtube.com/watch?v=Sq9xHA89k6s)
-- [Kaliyarangiloru Thiri | Pulliman | Sannidhanandan | Sharreth | Kaithapram](https://www.youtube.com/watch?v=tQQU-coAj6s)
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 29th October 23](https://www.youtube.com/watch?v=yUeyMGBhsg4)
+- [Usha Khanna, Vijay Yesudas, Dinanath Jayachandran - Paadaam Paadaam (Lyric Video)](https://www.youtube.com/watch?v=yJF0860e7xo)
+- [Johnson, K.J. Yesudas - Manjum Nilaavum (Lyric Video)](https://www.youtube.com/watch?v=tRlYfifPKJo)
+- [Johnson, S. Janaki - Vaazhthidunnitha (Version, 1) (Lyric Video)](https://www.youtube.com/watch?v=s2kic62OPYA)
+- [Usha Khanna, K.J. Yesudas - Penthari Verumoru (Lyric Video)](https://www.youtube.com/watch?v=WIYMMuQVcgs)
+- [Usha Khanna, Sujatha - Thenulla Poovinte (Version, 1) (Lyric Video)](https://www.youtube.com/watch?v=yDj-DjKtknE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
