@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mukilthudi Kotti | Kireedamillatha Rajakkanmar 1996 | K. S. Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=uWncOEYGOBA)
+- [Kaliyoonjalaadi Ethum | Sooryputhran | Jayaram | Divya Unni | Ouseppachan | Thulasidas](https://www.youtube.com/watch?v=rm1N1BQR4U4)
 - [PARUMALA THIRUMENI SONGS | HIT COLLECTIONS OF ROY PUTHUR 2023 | #parumalathirumenisongs #royputhur](https://www.youtube.com/watch?v=NA7jkIMEM-0)
 - [Athiravile | Anna Baby | Shorts  #manoramachristiandevotionalsongs #shorts](https://www.youtube.com/watch?v=73Rd64r0P58)
 - [Christian Video Songs Malayalam | Babu Chalakkudey | Rithuraj |  Christian Melody Songs | Alenia](https://www.youtube.com/watch?v=6_VWjx70e-g)
 - [സന്തോഷത്തിൻറെ  രഹസ്യങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #അമ്മയെൻ പുണ്യം #vachanam audios official](https://www.youtube.com/watch?v=Sr3rPcZ0uO8)
-- [Japamala 28th of October 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 28th of October 23](https://www.youtube.com/watch?v=TJaCJYlKhqk)
-- [Kazhchayegam dhivame jeetham baliyai #fr.binoj #best songs of fr.binoj mulaVARICKAL](https://www.youtube.com/watch?v=RZXrWtU-N_k)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
