@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Athiravile | Anna Baby | Shorts  #manoramachristiandevotionalsongs #shorts](https://www.youtube.com/watch?v=73Rd64r0P58)
+- [Christian Video Songs Malayalam | Babu Chalakkudey | Rithuraj |  Christian Melody Songs | Alenia](https://www.youtube.com/watch?v=6_VWjx70e-g)
+- [സന്തോഷത്തിൻറെ  രഹസ്യങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #അമ്മയെൻ പുണ്യം #vachanam audios official](https://www.youtube.com/watch?v=Sr3rPcZ0uO8)
+- [Japamala 28th of October 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 28th of October 23](https://www.youtube.com/watch?v=TJaCJYlKhqk)
 - [Kazhchayegam dhivame jeetham baliyai #fr.binoj #best songs of fr.binoj mulaVARICKAL](https://www.youtube.com/watch?v=RZXrWtU-N_k)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=JI76IN0OTfE)
-- [പ്രഭാത പ്രാര്‍ത്ഥന  October 28 # Athiravile Prarthana 28th of October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=sBdYcEwFZN4)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 28th October 23](https://www.youtube.com/watch?v=RFD-6_mJWTs)
-- [#Pakaliravukal | #Kurup | #DulquerSalmaan | #SobhitaDhulipala | #SushinShyam | #AnwarAli](https://www.youtube.com/watch?v=8P9qjVhA0Fk)
-- [#Pakaliravukal | #Kurup | #DulquerSalmaan | #SobhitaDhulipala | #SushinShyam | #AnwarAli](https://www.youtube.com/watch?v=4F1BWgEpdlI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
