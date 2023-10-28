@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മനസിനുള്ളിലെവിടെയോ നൊമ്പരപ്പാടുണർത്തിയ മലയാളസിനിമയിലെ ശോകമൂക ഗാനങ്ങൾ ! SAD SONGS MALAYALAM](https://www.youtube.com/watch?v=ieNJVOxUEn4)
+- [Nakshathrangale l | Nakshathrangale Kaval | ONV Kurupp | G Devarajan | KJ Yesudas | Jayabharathi](https://www.youtube.com/watch?v=H-TyGA34F7s)
 - [Ella Naavum Paadivazhthum | K S Chithra | Shorts #shorts  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=6n7dmJzSkao)
 - [Thamarappoomkavanathil | Lyrical Video | Balyakala Sakhi | K J Yesudas | K T Muhammed | K Raghavan](https://www.youtube.com/watch?v=K74Oamwg_GA)
 - [Mukilthudi Kotti | Kireedamillatha Rajakkanmar 1996 | K. S. Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=uWncOEYGOBA)
 - [Kaliyoonjalaadi Ethum | Sooryputhran | Jayaram | Divya Unni | Ouseppachan | Thulasidas](https://www.youtube.com/watch?v=rm1N1BQR4U4)
-- [PARUMALA THIRUMENI SONGS | HIT COLLECTIONS OF ROY PUTHUR 2023 | #parumalathirumenisongs #royputhur](https://www.youtube.com/watch?v=NA7jkIMEM-0)
-- [Athiravile | Anna Baby | Shorts  #manoramachristiandevotionalsongs #shorts](https://www.youtube.com/watch?v=73Rd64r0P58)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
