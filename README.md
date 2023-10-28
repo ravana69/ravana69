@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Oru Thulli Thaappa &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0 - 192Kbps&rpar; - 1.1GB &amp; 600MB] - [x264 - 300MB]](https://www.1tamilmv.phd/index.php?/forums/topic/175970-oru-thulli-thaappa-2023-malayalam-true-web-dl-1080p-720p-avc-aac-20-192kbps-11gb-600mb-x264-300mb/&do=findComment&comment=355202)
-- [Loki.S02E04.Heart.of.the.TVA.2160p.WEB-DL.DDP5.1.Atmos.HDR.HEVC &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/175969-lokis02e04heartofthetva2160pweb-dlddp51atmoshdrhevc-direct-download/&do=findComment&comment=355201)
-- [The Last Of Us &lpar;2023&rpar; S01 EP&lpar;01-09&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu + Hindi+ Kannada + Eng] - 6GB - 3GB &amp; 1.3GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175968-the-last-of-us-2023-s01-ep01-09-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-6gb-3gb-13gb-esub/&do=findComment&comment=355200)
-- [Cobweb.2023.1080p.AMZN.WEB-DL.MULTI.DDP2.0.H.264 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/175967-cobweb20231080pamznweb-dlmultiddp20h264-direct-download/&do=findComment&comment=355199)
-- [Sebastian.Fitzeks.Therapy.S01.1080p.AMZN.WEB-DL.MULTI.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/175966-sebastianfitzekstherapys011080pamznweb-dlmultiddp51-direct-download/&do=findComment&comment=355198)
+- [Oru Thulli Thaappa &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0 - 192Kbps&rpar; - 1.1GB &amp; 600MB] - [x264 - 300MB]](https://www.1tamilmv.phd/index.php?/forums/topic/175970-oru-thulli-thaappa-2023-malayalam-true-web-dl-1080p-720p-avc-aac-20-192kbps-11gb-600mb-x264-300mb/&do=findComment&comment=355208)
+- [Aadhitya Arunachalam &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.phd/index.php?/forums/topic/175963-aadhitya-arunachalam-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-26gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=355207)
+- [The Last Of Us &lpar;2023&rpar; S01 EP&lpar;01-09&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu + Hindi+ Kannada + Eng] - 6GB - 3GB &amp; 1.3GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175968-the-last-of-us-2023-s01-ep01-09-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-6gb-3gb-13gb-esub/&do=findComment&comment=355206)
+- [Koozhangal &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.6GB &amp; 900MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175953-koozhangal-2023-tamil-true-web-dl-1080p-720p-avc-16gb-900mb-x264-700mb-400mb-esub/&do=findComment&comment=355205)
+- [Don Vasco &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 850MB &amp; 400MB &amp; 300MB]](https://www.1tamilmv.phd/index.php?/forums/topic/175956-don-vasco-2023-malayalam-true-web-dl-1080p-720p-avc-850mb-400mb-300mb/&do=findComment&comment=355204)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
