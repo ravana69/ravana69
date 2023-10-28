@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ella Naavum Paadivazhthum | K S Chithra | Shorts #shorts  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=6n7dmJzSkao)
 - [Thamarappoomkavanathil | Lyrical Video | Balyakala Sakhi | K J Yesudas | K T Muhammed | K Raghavan](https://www.youtube.com/watch?v=K74Oamwg_GA)
 - [Mukilthudi Kotti | Kireedamillatha Rajakkanmar 1996 | K. S. Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=uWncOEYGOBA)
 - [Kaliyoonjalaadi Ethum | Sooryputhran | Jayaram | Divya Unni | Ouseppachan | Thulasidas](https://www.youtube.com/watch?v=rm1N1BQR4U4)
 - [PARUMALA THIRUMENI SONGS | HIT COLLECTIONS OF ROY PUTHUR 2023 | #parumalathirumenisongs #royputhur](https://www.youtube.com/watch?v=NA7jkIMEM-0)
 - [Athiravile | Anna Baby | Shorts  #manoramachristiandevotionalsongs #shorts](https://www.youtube.com/watch?v=73Rd64r0P58)
-- [Christian Video Songs Malayalam | Babu Chalakkudey | Rithuraj |  Christian Melody Songs | Alenia](https://www.youtube.com/watch?v=6_VWjx70e-g)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
