@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Margazhi Thingal &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175945-margazhi-thingal-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355184)
+- [Pulimada &lpar;2023&rpar; Malayalam Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175944-pulimada-2023-malayalam-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355183)
 - [I&#39;m Scared &lpar;From &quot;Leo&quot;&rpar; Master Quality 24bit 96kHz - FLAC - Anirudh Ravichander - 42 MB](https://www.1tamilmv.phd/index.php?/forums/topic/175957-im-scared-from-leo-master-quality-24bit-96khz-flac-anirudh-ravichander-42-mb/&do=findComment&comment=355182)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP55 DAY 54 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 518MB &amp; 226MB | 27-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175959-bigg-boss-telugu-s07-ep55-day-54-true-web-dl-1080p-720p-480p-avc-untouched-1gb-518mb-226mb-27-10-2023/&do=findComment&comment=355181)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP54 DAY 53 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 561MB &amp; 229MB | 26-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175929-bigg-boss-telugu-s07-ep54-day-53-true-web-dl-1080p-720p-480p-avc-untouched-11gb-561mb-229mb-26-10-2023/&do=findComment&comment=355180)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 EP53 DAY 52 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 486MB &amp; 210MB | 25-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175913-bigg-boss-telugu-s07-ep53-day-52-true-web-dl-1080p-720p-480p-avc-untouched-1gb-486mb-210mb-25-10-2023/&do=findComment&comment=355179)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 EP55 DAY 54 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 518MB &amp; 226MB | 27-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175959-bigg-boss-telugu-s07-ep55-day-54-true-web-dl-1080p-720p-480p-avc-untouched-1gb-518mb-226mb-27-10-2023/&do=findComment&comment=355178)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
