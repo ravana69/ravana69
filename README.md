@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Areyum Bhaavagaayakanaakkum Remastered Audio Song Nakhakshathangal KJ Yesudas ONV Kurup Bombay Ravi](https://www.youtube.com/watch?v=riyvmLYIleI)
 - [Thumbi Kalyanathinu Video Song | Kalyanaraman | Dileep | Navya Nair | MG Sreekumar | Sujatha Mohan](https://www.youtube.com/watch?v=Sq9xHA89k6s)
 - [Kaliyarangiloru Thiri | Pulliman | Sannidhanandan | Sharreth | Kaithapram](https://www.youtube.com/watch?v=tQQU-coAj6s)
 - [ദൈവം സ്നേഹമാണ്. | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=GR1leLAQMj8)
 - [Karukarekarothoru | Harmonium Cover by Sharan Appus #shortsfeed #shorts #instrumental #harmonium](https://www.youtube.com/watch?v=x_cixXVncl4)
 - [Vadaka Veedanu Lokam | New Christian Video Song | Chithra Arun | Fr.John Pichapilly | Joji Johns](https://www.youtube.com/watch?v=bmgby3vmXG8)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 28thof October 2023](https://www.youtube.com/watch?v=cpxJ4KAiOyY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
