@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Ma Ma Ma Mayavi - Lyrical Video | Krishnanum Radhayum | Santhosh Pandit, Nimmi | Blockbuster Song](https://www.youtube.com/watch?v=u3xPIwzLo5E)
-- [Vanil Padarum Song | Zha Movie | Rajesh Babu K Sooranad | P K Sunil Kumar | K Jayakumar](https://www.youtube.com/watch?v=g9HHcYVRc4o)
-- [October 28](https://www.youtube.com/watch?v=kJAggm7DhOk)
-- [മലയാളികളുടെ മാനസപുത്രൻ ഭരത് മോഹൻലാൽ അഭിനയിച്ച ചിത്രങ്ങളിലെ തട്ടുപൊളിപ്പൻ ഗാനങ്ങൾ ! HITS OF MOHANLAL](https://www.youtube.com/watch?v=pSXTsqro2o4)
-- [മനസിനുള്ളിലെവിടെയോ നൊമ്പരപ്പാടുണർത്തിയ മലയാളസിനിമയിലെ ശോകമൂക ഗാനങ്ങൾ ! SAD SONGS MALAYALAM](https://www.youtube.com/watch?v=ieNJVOxUEn4)
-- [Nakshathrangale l | Nakshathrangale Kaval | ONV Kurupp | G Devarajan | KJ Yesudas | Jayabharathi](https://www.youtube.com/watch?v=H-TyGA34F7s)
+- [ദൈവം സ്നേഹമാണ്. | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=GR1leLAQMj8)
+- [Karukarekarothoru | Harmonium Cover by Sharan Appus #shortsfeed #shorts #instrumental #harmonium](https://www.youtube.com/watch?v=x_cixXVncl4)
+- [Vadaka Veedanu Lokam | New Christian Video Song | Chithra Arun | Fr.John Pichapilly | Joji Johns](https://www.youtube.com/watch?v=bmgby3vmXG8)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 28thof October 2023](https://www.youtube.com/watch?v=cpxJ4KAiOyY)
+- [Kadhayoravarthana | Daddy Cool |  Bijibal | Anil Panachooran](https://www.youtube.com/watch?v=mgAOMqdNYYI)
+- [സ്വരരാഗഗംഗാപ്രവാഹമേ |  Sargam | Vineeth | Rambha](https://www.youtube.com/watch?v=Jcwb0Iuqjmk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
