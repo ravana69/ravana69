@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Oru Thulli Thaappa &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0 - 192Kbps&rpar; - 1.1GB &amp; 600MB] - [x264 - 300MB]](https://www.1tamilmv.phd/index.php?/forums/topic/175970-oru-thulli-thaappa-2023-malayalam-true-web-dl-1080p-720p-avc-aac-20-192kbps-11gb-600mb-x264-300mb/&do=findComment&comment=355202)
 - [Loki.S02E04.Heart.of.the.TVA.2160p.WEB-DL.DDP5.1.Atmos.HDR.HEVC &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/175969-lokis02e04heartofthetva2160pweb-dlddp51atmoshdrhevc-direct-download/&do=findComment&comment=355201)
-- [The Last Of Us &lpar;2023&rpar; S01 EP&lpar;01-09&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC [Tamil + Telugu + Hindi+ Kannada + Eng] - 6GB - 3GB &amp; 1.3GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175968-the-last-of-us-2023-s01-ep01-09-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-6gb-3gb-13gb-esub/&do=findComment&comment=355200)
+- [The Last Of Us &lpar;2023&rpar; S01 EP&lpar;01-09&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu + Hindi+ Kannada + Eng] - 6GB - 3GB &amp; 1.3GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175968-the-last-of-us-2023-s01-ep01-09-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-6gb-3gb-13gb-esub/&do=findComment&comment=355200)
 - [Cobweb.2023.1080p.AMZN.WEB-DL.MULTI.DDP2.0.H.264 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/175967-cobweb20231080pamznweb-dlmultiddp20h264-direct-download/&do=findComment&comment=355199)
 - [Sebastian.Fitzeks.Therapy.S01.1080p.AMZN.WEB-DL.MULTI.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/175966-sebastianfitzekstherapys011080pamznweb-dlmultiddp51-direct-download/&do=findComment&comment=355198)
-- [Pain.Hustlers.2023.1080p.NF.WEB-DL.DUAL.DDP5.1.Atmos. &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/175965-painhustlers20231080pnfweb-dldualddp51atmos-direct-download/&do=findComment&comment=355197)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
