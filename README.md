@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Loki &lpar;2021&rpar; Complete S01 Merged DSNP WEB-DL - [1080p - 720p - AVC - [Tam + Tel + Hin + Mal + Kan + Eng] - &lpar;DD+5.1 - 640Kbps&rpar; - 7.8GB - 2.3GB &amp; 1GB] - MSub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/174281-loki-2021-complete-s01-merged-dsnp-web-dl-1080p-720p-avc-tam-tel-hin-mal-kan-eng-dd51-640kbps-78gb-23gb-1gb-msub-google-drive/&do=findComment&comment=355238)
+- [LEO - Badass Lyric - 1080P &amp; 4K - DD5.1 + DTSHDMA5.1 &lpar;Lossless 24Bit FLAC Upmixed&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/175540-leo-badass-lyric-1080p-4k-dd51-dtshdma51-lossless-24bit-flac-upmixed/&do=findComment&comment=355237)
 - [The Last Of Us S01 COMPLETE 1080p JC WEB-DL Multi DD5.1 Esubs x264 - Single Episodes - 26.71 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175985-the-last-of-us-s01-complete-1080p-jc-web-dl-multi-dd51-esubs-x264-single-episodes-2671-gb/&do=findComment&comment=355236)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP28 DAY 27 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.5GB - 728MB &amp; 316MB | 28-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175981-bigg-boss-tamil-s07-ep28-day-27-true-web-dl-1080p-720p-480p-avc-untouched-15gb-728mb-316mb-28-10-2023/&do=findComment&comment=355235)
 - [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;34-36&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175986-vera-maari-office-2023-s01-ep-34-36-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=355234)
-- [The Last Of Us S01 COMPLETE 1080p JC WEB-DL Multi DD5.1 Esubs x264 - Single Episodes - 26.71 GB](https://www.1tamilmv.phd/index.php?/forums/topic/175985-the-last-of-us-s01-complete-1080p-jc-web-dl-multi-dd51-esubs-x264-single-episodes-2671-gb/&do=findComment&comment=355233)
-- [Kaithi &lpar;2019&rpar; Original Background Score Hi-Fi Quality 16bit - FLAC - Sam C.S. Musical - 161 MB](https://www.1tamilmv.phd/index.php?/forums/topic/175984-kaithi-2019-original-background-score-hi-fi-quality-16bit-flac-sam-cs-musical-161-mb/&do=findComment&comment=355232)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
