@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [12th Fail &lpar;2023&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175949-12th-fail-2023-kannada-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355252)
+- [Kathanayakudu &lpar;2008&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 4GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175988-kathanayakudu-2008-telugu-dvd5-untouched-480p-dd51-448kbps-4gb-esub/&do=findComment&comment=355251)
+- [Kathanayakudu &lpar;2008&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 4GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175988-kathanayakudu-2008-telugu-dvd5-untouched-480p-dd51-448kbps-4gb-esub/&do=findComment&comment=355250)
 - [Martin Luther King &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175948-martin-luther-king-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355249)
 - [Waltair Veerayya &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175987-waltair-veerayya-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355248)
-- [The Last Of Us &lpar;2023&rpar; S01 EP&lpar;01-09&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu + Hindi+ Kannada + Eng] - 6GB - 3GB &amp; 1.3GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175968-the-last-of-us-2023-s01-ep01-09-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-6gb-3gb-13gb-esub/&do=findComment&comment=355247)
-- [Waltair Veerayya &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175987-waltair-veerayya-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355246)
-- [Kaithi &lpar;2019&rpar; Original Background Score Hi-Fi Quality 16bit - FLAC - Sam C.S. Musical - 161 MB](https://www.1tamilmv.phd/index.php?/forums/topic/175984-kaithi-2019-original-background-score-hi-fi-quality-16bit-flac-sam-cs-musical-161-mb/&do=findComment&comment=355245)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
