@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈ ഗാനങ്ങളൊക്കെ കേൾക്കാതെ പോയാൽ വലിയ നഷ്ടം ആകും | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=jM8AzlAJJo8)
+- [2023ലെ  ഏറ്റവും പുതിയ ലുത്തിനിയ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japmala prayer 2023 october month](https://www.youtube.com/watch?v=o0cRWSFEukY)
+- [Japamala 29th of October 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 29th of October 23](https://www.youtube.com/watch?v=uOlVkI3lLOg)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=UqL2G-LI2Vo)
 - [പ്രഭാത പ്രാര്‍ത്ഥന  October 29 # Athiravile Prarthana 29th of October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=UGb1Ama5w_U)
 - [ജപമാല ഗീതങ്ങള്‍ # Holy Rosary Special Songs Malayalam |  Month of Holy Rosary October 2023 Songs](https://www.youtube.com/watch?v=xzNAlA4eJNg)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=Ob7qanss_R4)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 29th October 23](https://www.youtube.com/watch?v=yUeyMGBhsg4)
-- [Usha Khanna, Vijay Yesudas, Dinanath Jayachandran - Paadaam Paadaam (Lyric Video)](https://www.youtube.com/watch?v=yJF0860e7xo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
