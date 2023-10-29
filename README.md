@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ennile Punchiri Song | Phoenix | Sam C.S | K.S. Chithra | Kapil Kapilan #shorts](https://www.youtube.com/watch?v=nswNeVp14f0)
+- [Thenmazha Tharaattum - Song | Vineeth Sreenivasan | Prasanth Mohan M P | Vipin Puthoor](https://www.youtube.com/watch?v=M8yabp15TBM)
 - [Veli Penninu Thalikku Video Song | Dileep | Navya Nair | Sujatha Mohan | Sreenivas | Suresh Peters](https://www.youtube.com/watch?v=BLWc8MhNAIQ)
 - [Ilakozhinja | Nakshathrangale Kaval | ONV Kurupp | G Devarajan | P Jayachandran | P Madhuri | Soman](https://www.youtube.com/watch?v=yY2JUcXCqkA)
 - [പാട്ടുപെട്ടി - Paattupetti Vol 31 | Malayalam Film Songs](https://www.youtube.com/watch?v=jXQIBMwB--s)
 - [Kilum Kilu Kilum | Neelaponman | S Janaki | Salil Chowdury #shorts](https://www.youtube.com/watch?v=SRNJ0nwY8SU)
-- [Theeppori Pambarangal | Kireedamillatha Rajakkanmar 1996 |  M. G. Sreekumar | Malayalam Movie Song](https://www.youtube.com/watch?v=mV1qKhwk7xA)
-- [Ponnodakuzhalil | Hailesa | Sureshgopi | Muktha | Ouseppachan | Shwetha Mohan](https://www.youtube.com/watch?v=4FX9ldXiECo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
