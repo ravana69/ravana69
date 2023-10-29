@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [അമ്മേ .. അമലേ... അനുഗ്രഹീതേ...](https://www.youtube.com/watch?v=ZBETnX5ZCI8)
 - [Oru Naal Annorunaal | 4 Friends | Jayaram | Kunchakko Boban | Jayasurya | Meera Jasmine](https://www.youtube.com/watch?v=RlzGzaTK0zY)
 - [സർവ്വപാപക്കറകൾ | Sarvapaapakkarakal | K S Chithra #shrots #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=0xZst0JLM5Q)
 - [എന്തിനാണ് നമ്മുടെ കണ്ണുകൾ നനയുന്നത് ? |Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=sbp9HkdWdQ8)
 - [Odaathe Maane  Video Song | Chakkikkotha Chankaran | Krishnachandran](https://www.youtube.com/watch?v=AziuKN4tTYI)
 - [Christian Melody Songs | Kester | Christian Devotional Songs Malayalam | Joji Johns | Gagul Joseph](https://www.youtube.com/watch?v=nSaWyyGgS9k)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 29thof October 2023](https://www.youtube.com/watch?v=NpgXDSNwjKs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
