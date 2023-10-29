@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [എന്തിനാണ് നമ്മുടെ കണ്ണുകൾ നനയുന്നത് ? |Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=sbp9HkdWdQ8)
+- [Odaathe Maane  Video Song | Chakkikkotha Chankaran | Krishnachandran](https://www.youtube.com/watch?v=AziuKN4tTYI)
+- [Christian Melody Songs | Kester | Christian Devotional Songs Malayalam | Joji Johns | Gagul Joseph](https://www.youtube.com/watch?v=nSaWyyGgS9k)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 29thof October 2023](https://www.youtube.com/watch?v=NpgXDSNwjKs)
 - [Ennile Punchiri Song | Phoenix | Sam C.S | K.S. Chithra | Kapil Kapilan #shorts](https://www.youtube.com/watch?v=nswNeVp14f0)
 - [Thenmazha Tharaattum - Song | Vineeth Sreenivasan | Prasanth Mohan M P | Vipin Puthoor](https://www.youtube.com/watch?v=M8yabp15TBM)
-- [Veli Penninu Thalikku Video Song | Dileep | Navya Nair | Sujatha Mohan | Sreenivas | Suresh Peters](https://www.youtube.com/watch?v=BLWc8MhNAIQ)
-- [Ilakozhinja | Nakshathrangale Kaval | ONV Kurupp | G Devarajan | P Jayachandran | P Madhuri | Soman](https://www.youtube.com/watch?v=yY2JUcXCqkA)
-- [പാട്ടുപെട്ടി - Paattupetti Vol 31 | Malayalam Film Songs](https://www.youtube.com/watch?v=jXQIBMwB--s)
-- [Kilum Kilu Kilum | Neelaponman | S Janaki | Salil Chowdury #shorts](https://www.youtube.com/watch?v=SRNJ0nwY8SU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
