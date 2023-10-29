@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Immanuel Henry at D Media Kottayam](https://www.youtube.com/watch?v=oX3xnMAmZs0)
 - [October 29](https://www.youtube.com/watch?v=-S8JoZSv5CA)
 - [യാഹേ നീയെൻ ദൈവം | P. D. John | Elizabeth Raju #shrots #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=uBJ1EbI7LCo)
 - [ഈ ഗാനങ്ങളൊക്കെ കേൾക്കാതെ പോയാൽ വലിയ നഷ്ടം ആകും | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=jM8AzlAJJo8)
 - [2023ലെ  ഏറ്റവും പുതിയ ലുത്തിനിയ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japmala prayer 2023 october month](https://www.youtube.com/watch?v=o0cRWSFEukY)
 - [Japamala 29th of October 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 29th of October 23](https://www.youtube.com/watch?v=uOlVkI3lLOg)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=UqL2G-LI2Vo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
