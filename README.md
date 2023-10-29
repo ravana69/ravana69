@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [100 Telugu Movies - BluRay/AMZN/SUN NXT/ZEE5/HS WEB DL - H264 - DD5.1/AAC2.0 - ESub [GDRIVE]](https://www.1tamilmv.phd/index.php?/forums/topic/166971-100-telugu-movies-blurayamznsun-nxtzee5hs-web-dl-h264-dd51aac20-esub-gdrive/&do=findComment&comment=355267)
+- [Khaidi &lpar;2019&rpar; Telugu TRUE WEB-DL - [4K - 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 3GB - 2.2GB &amp; 1.1GB] - [x264 - 700MB &amp; 500MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/175835-khaidi-2019-telugu-true-web-dl-4k-1080p-720p-avc-dd51-192kbps-3gb-22gb-11gb-x264-700mb-500mb-esub-google-drive/&do=findComment&comment=355266)
 - [Waltair Veerayya &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175987-waltair-veerayya-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355265)
 - [Kaithi &lpar;2019&rpar; &lpar;Original Background Score&rpar; FLAC 16Bit-44.1 kHz [ 272MB ]](https://www.1tamilmv.phd/index.php?/forums/topic/175991-kaithi-2019-original-background-score-flac-16bit-441-khz-272mb/&do=findComment&comment=355264)
 - [Waltair Veerayya &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175987-waltair-veerayya-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355263)
-- [12th Fail &lpar;2023&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175949-12th-fail-2023-kannada-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355262)
-- [Waltair Veerayya &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175987-waltair-veerayya-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355261)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
