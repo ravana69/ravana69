@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Waltair Veerayya &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175987-waltair-veerayya-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355265)
 - [Kaithi &lpar;2019&rpar; &lpar;Original Background Score&rpar; FLAC 16Bit-44.1 kHz [ 272MB ]](https://www.1tamilmv.phd/index.php?/forums/topic/175991-kaithi-2019-original-background-score-flac-16bit-441-khz-272mb/&do=findComment&comment=355264)
 - [Waltair Veerayya &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175987-waltair-veerayya-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355263)
 - [12th Fail &lpar;2023&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175949-12th-fail-2023-kannada-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355262)
 - [Waltair Veerayya &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175987-waltair-veerayya-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355261)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP29 DAY 28 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 3GB - 1.5GB &amp; 620MB | 29-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175990-bigg-boss-tamil-s07-ep29-day-28-true-web-dl-1080p-720p-480p-avc-untouched-3gb-15gb-620mb-29-10-2023/&do=findComment&comment=355260)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
