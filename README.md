@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന October 31 # Athiravile Prarthana 31st October 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=HGBBTCGZsZE)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=rYOKXtfFW8Y)
+- [ജപമാല ഗീതങ്ങള്‍ # Holy Rosary Special Songs Malayalam |  Month of Holy Rosary October 2023 Songs](https://www.youtube.com/watch?v=1MJSWqjtlJs)
 - [#PuzhayarikathuDumm | #Jo&Jo | #NikhilaVimal, #Mathew, #Neslen | #GovindVasantha | #Arun](https://www.youtube.com/watch?v=RIgzKkLk_bs)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 31st October 23](https://www.youtube.com/watch?v=DkMwPzvTLzA)
 - [Orikkal Niranjum | Mrugaya | KJ Yesudas | Shankar Ganesh | Sreekumaran Thampi](https://www.youtube.com/watch?v=olDKv4acXyM)
-- [ജപമാല നെഞ്ചോടു ചേർത്തു മെല്ലെ . . .](https://www.youtube.com/watch?v=kRHrSzPqbjQ)
-- [Avani Ponnunjal Aadikam|Kottaram Veetile Apputtan|Jayaram|Sruthi|](https://www.youtube.com/watch?v=gDGj3qWGDAk)
-- [Swantham Swantham | Madhya Venal | Gayathri | Kaithapram Vishwanath | Kaithapram](https://www.youtube.com/watch?v=fpGjhUfx3G0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
