@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [100 Telugu Movies - BluRay/AMZN/SUN NXT/ZEE5/HS WEB DL - H264 - DD5.1/AAC2.0 - ESub [GDRIVE]](https://www.1tamilmv.phd/index.php?/forums/topic/166971-100-telugu-movies-blurayamznsun-nxtzee5hs-web-dl-h264-dd51aac20-esub-gdrive/&do=findComment&comment=355267)
-- [Khaidi &lpar;2019&rpar; Telugu TRUE WEB-DL - [4K - 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 3GB - 2.2GB &amp; 1.1GB] - [x264 - 700MB &amp; 500MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/175835-khaidi-2019-telugu-true-web-dl-4k-1080p-720p-avc-dd51-192kbps-3gb-22gb-11gb-x264-700mb-500mb-esub-google-drive/&do=findComment&comment=355266)
-- [Waltair Veerayya &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175987-waltair-veerayya-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355265)
-- [Kaithi &lpar;2019&rpar; &lpar;Original Background Score&rpar; FLAC 16Bit-44.1 kHz [ 272MB ]](https://www.1tamilmv.phd/index.php?/forums/topic/175991-kaithi-2019-original-background-score-flac-16bit-441-khz-272mb/&do=findComment&comment=355264)
-- [Waltair Veerayya &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175987-waltair-veerayya-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355263)
+- [Vivaha Bhojanambu &lpar;1988&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD5.0 - 448Kbps&rpar; - 3.7GB](https://www.1tamilmv.phd/index.php?/forums/topic/175993-vivaha-bhojanambu-1988-telugu-dvd5-untouched-480p-dd50-448kbps-37gb/&do=findComment&comment=355275)
+- [Abhilasha &lpar;1983&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD5.0 - 448Kbps&rpar; - 3.7GB](https://www.1tamilmv.phd/index.php?/forums/topic/175992-abhilasha-1983-telugu-dvd5-untouched-480p-dd50-448kbps-37gb/&do=findComment&comment=355274)
+- [SIVAJI The boss &lpar;2007&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 4.3GB - Exclusively On TMV](https://www.1tamilmv.phd/index.php?/forums/topic/174926-sivaji-the-boss-2007-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-43gb-exclusively-on-tmv/&do=findComment&comment=355273)
+- [NARASIMHA &lpar;1999&rpar; Telugu - DVD5 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 4GB](https://www.1tamilmv.phd/index.php?/forums/topic/175363-narasimha-1999-telugu-dvd5-untouched-480p-448kbps-dolby-digital%C2%AE-51-4gb/&do=findComment&comment=355272)
+- [Chandramukhi &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175489-chandramukhi-2005-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=355271)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
