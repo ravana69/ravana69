@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Dark Knight Triology &lpar;2005-2012&rpar; Original Motion Picture Soundtrack - FLAC [24bit|16bit] - 714 MB | 694 MB | 346 MB | 278 MB](https://www.1tamilmv.phd/index.php?/forums/topic/165929-the-dark-knight-triology-2005-2012-original-motion-picture-soundtrack-flac-24bit16bit-714-mb-694-mb-346-mb-278-mb/&do=findComment&comment=355301)
+- [Allari Pidugu &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.9GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175999-allari-pidugu-2005-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-69gb-esub/&do=findComment&comment=355300)
 - [Conan the Barbarian &lpar;2011&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3GB &amp; 1.1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175994-conan-the-barbarian-2011-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-3gb-11gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=355299)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP58 DAY 57 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 494MB &amp; 220MB | 30-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175998-bigg-boss-telugu-s07-ep58-day-57-true-web-dl-1080p-720p-480p-avc-untouched-1gb-494mb-220mb-30-10-2023/&do=findComment&comment=355298)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP30 DAY 29 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 607MB &amp; 236MB | 30-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175997-bigg-boss-tamil-s07-ep30-day-29-true-web-dl-1080p-720p-480p-avc-untouched-11gb-607mb-236mb-30-10-2023/&do=findComment&comment=355297)
-- [Dalapathi &lpar;1991&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 5GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175996-dalapathi-1991-telugu-dvd5-untouched-480p-dd51-448kbps-5gb-esub/&do=findComment&comment=355296)
-- [Jailer &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 10GB - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175193-jailer-2023-tamil-true-web-dl-4k1080p-720p-avc-hevc-dd51-640kbps-10gb-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355295)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
