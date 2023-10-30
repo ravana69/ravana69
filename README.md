@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Orikkal Niranjum | Mrugaya | KJ Yesudas | Shankar Ganesh | Sreekumaran Thampi](https://www.youtube.com/watch?v=olDKv4acXyM)
 - [ജപമാല നെഞ്ചോടു ചേർത്തു മെല്ലെ . . .](https://www.youtube.com/watch?v=kRHrSzPqbjQ)
 - [Avani Ponnunjal Aadikam|Kottaram Veetile Apputtan|Jayaram|Sruthi|](https://www.youtube.com/watch?v=gDGj3qWGDAk)
 - [Swantham Swantham | Madhya Venal | Gayathri | Kaithapram Vishwanath | Kaithapram](https://www.youtube.com/watch?v=fpGjhUfx3G0)
 - [തകർക്കപ്പെടുമ്പോൾ മാറോടണയ്ക്കുന്ന ഒരു ദൈവമുണ്ട് നിനക്ക് | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=fQsvHHHa5Cc)
 - [Thozhukai Kooppi | Video Song | Pachathappu  |Anu Purushoth | Dr.Vazhamuttam B Chandrababu](https://www.youtube.com/watch?v=fqQ7MO0dsyo)
-- [Kavalalay | Pullu | Riyaz Raz | Praveen Kelikkoden | Shabitha | Suma Stalin | Film Video Songs](https://www.youtube.com/watch?v=65MOG5R3Da0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
