@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Abhilasha &lpar;1983&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD5.0 - 448Kbps&rpar; - 3.7GB](https://www.1tamilmv.phd/index.php?/forums/topic/175992-abhilasha-1983-telugu-dvd5-untouched-480p-dd50-448kbps-37gb/&do=findComment&comment=355279)
-- [Vivaha Bhojanambu &lpar;1988&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD5.0 - 448Kbps&rpar; - 3.7GB](https://www.1tamilmv.phd/index.php?/forums/topic/175993-vivaha-bhojanambu-1988-telugu-dvd5-untouched-480p-dd50-448kbps-37gb/&do=findComment&comment=355278)
-- [Kaithi &lpar;2019&rpar; &lpar;Original Background Score&rpar; FLAC 16Bit-44.1 kHz [ 272MB ]](https://www.1tamilmv.phd/index.php?/forums/topic/175991-kaithi-2019-original-background-score-flac-16bit-441-khz-272mb/&do=findComment&comment=355277)
-- [Waltair Veerayya &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175987-waltair-veerayya-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355276)
-- [Vivaha Bhojanambu &lpar;1988&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD5.0 - 448Kbps&rpar; - 3.7GB](https://www.1tamilmv.phd/index.php?/forums/topic/175993-vivaha-bhojanambu-1988-telugu-dvd5-untouched-480p-dd50-448kbps-37gb/&do=findComment&comment=355275)
+- [Waltair Veerayya &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175987-waltair-veerayya-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355286)
+- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;34-36&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175986-vera-maari-office-2023-s01-ep-34-36-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=355285)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP57 DAY 56 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.5GB - 770MB &amp; 330MB | 29-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175989-bigg-boss-telugu-s07-ep57-day-56-true-web-dl-1080p-720p-480p-avc-untouched-15gb-770mb-330mb-29-10-2023/&do=findComment&comment=355284)
+- [12th Fail &lpar;2023&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175949-12th-fail-2023-kannada-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355283)
+- [Martin Luther King &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/175948-martin-luther-king-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355282)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
