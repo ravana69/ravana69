@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [The enchanting melody of “Ennile Punchiri” from the movie “Phoenix” is out now! | KS Chithra](https://www.youtube.com/watch?v=SbcH5u-imVA)
+- [ഒരു കാതിലോല ഞാൻ കണ്ടീലാ .... Vettam | Dileep | Bhavna Pani #shorts](https://www.youtube.com/watch?v=JSeTemxfGw4)
 - [Kannaanthaliyum   Anubandham   Shyam   Hi Res Audio](https://www.youtube.com/watch?v=IRYMyc0m--U)
 - [Enganu Nee | Divyasanthwanamekunna Kristheeya Bhakthigaanangal | AudioJukebox](https://www.youtube.com/watch?v=bPDiR7hUqsg)
 - [ഓരോ ദിനങ്ങളും ഉത്സവഭരിതമാക്കുന്ന മലയാളസിനിമയിലെ ആനന്ദഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=tpDKbUhjf3Y)
 - [Malayalam Film Compilation Hit Songs | Yesudas | Chithra | O.N.V | Sound of Arts](https://www.youtube.com/watch?v=6X9VVoxHFoY)
-- [Melle Kaathil | Maahi | Shorts #malayalamfilmsongs #shortsvideo](https://www.youtube.com/watch?v=jm-3KlPE1rA)
-- [Adhyam Kaanum | Aviyal | Shorts | Harishankar KS  #malayalamfilmsongs #shortsvideo](https://www.youtube.com/watch?v=LYiz9ZjFR5c)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
