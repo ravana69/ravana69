@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Enthinee Jeevithavesham | Kazhukan 1979 | M. K. Arjunan | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=rLsnBUOuBMA)
+- [KANUMBOL KANUMBOL | #shortvideo  | Fr SHAJI THUMPECHIRAYIL | BIJU KANJIRAPPALLY](https://www.youtube.com/watch?v=qfOy0TkltZo)
+- [Innale Ente Nenjile | Balettan | Sad song by K J Yesudas #shorts](https://www.youtube.com/watch?v=fXng_QgMWPI)
 - [The enchanting melody of “Ennile Punchiri” from the movie “Phoenix” is out now!](https://www.youtube.com/watch?v=w0hfbZyWUjg)
 - [Aandholanam Remastering Sargam Movie Song  K  J  Yesudas  K  S Chithra Yusufali Kecheri Bombay Ravi](https://www.youtube.com/watch?v=LF5cOfES5Ug)
 - [Pathira Thanuppu Veenu | Bhoomidevi Pushpiniyaayi | Madhu | Devarajan | Susheela](https://www.youtube.com/watch?v=vnlQvp_UvE4)
-- [Japamala Masam Short October  | Holy Rosary Special Short](https://www.youtube.com/watch?v=cng3ndioIoA)
-- [Ennu Meghe | എന്നു മേഘേ വന്നിടും | Susan Rajukutty #shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=6o5zPLIEv-s)
-- [ഇത് ഒരു വളരെ ശക്തിയായ പ്രാർത്ഥന #അമ്മയെൻ  പുണ്യം #santhoshathinte rahasyangal #സന്തോഷത്തിൻറെ രഹസ്യങ്](https://www.youtube.com/watch?v=XkH6u_TK_Z0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
