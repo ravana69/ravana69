@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [TULASI &lpar;2007&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;Dolby Digital® 5.1&rpar; - 448Kbps - 7GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176012-tulasi-2007-telugu-dvd9-untouched-480p-dolby-digital%C2%AE-51-448kbps-7gb-esub/&do=findComment&comment=355342)
 - [Are You OK Baby? &lpar;2023&rpar; Tamil HQ HDRip - 720p - HEVC - x265 - AAC - 700MB - ESUB](https://www.1tamilmv.phd/index.php?/forums/topic/176011-are-you-ok-baby-2023-tamil-hq-hdrip-720p-hevc-x265-aac-700mb-esub/&do=findComment&comment=355341)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP59 DAY 58 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 968MB - 464MB &amp; 205MB | 31-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176010-bigg-boss-telugu-s07-ep59-day-58-true-web-dl-1080p-720p-480p-avc-untouched-968mb-464mb-205mb-31-10-2023/&do=findComment&comment=355340)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP31 DAY 30 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 576MB &amp; 222MB | 31-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176009-bigg-boss-tamil-s07-ep31-day-30-true-web-dl-1080p-720p-480p-avc-untouched-11gb-576mb-222mb-31-10-2023/&do=findComment&comment=355339)
 - [Are You Ok Baby? &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.8GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176000-are-you-ok-baby-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-58gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355338)
-- [Lingoccha &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176008-lingoccha-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355337)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
