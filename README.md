@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Are You OK Baby? &lpar;2023&rpar; Tamil HQ HDRip - 720p - HEVC - x265 - AAC - 700MB - ESUB](https://www.1tamilmv.phd/index.php?/forums/topic/176011-are-you-ok-baby-2023-tamil-hq-hdrip-720p-hevc-x265-aac-700mb-esub/&do=findComment&comment=355341)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP59 DAY 58 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 968MB - 464MB &amp; 205MB | 31-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176010-bigg-boss-telugu-s07-ep59-day-58-true-web-dl-1080p-720p-480p-avc-untouched-968mb-464mb-205mb-31-10-2023/&do=findComment&comment=355340)
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP31 DAY 30 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 576MB &amp; 222MB | 31-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176009-bigg-boss-tamil-s07-ep31-day-30-true-web-dl-1080p-720p-480p-avc-untouched-11gb-576mb-222mb-31-10-2023/&do=findComment&comment=355339)
+- [Are You Ok Baby? &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.8GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176000-are-you-ok-baby-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-58gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355338)
 - [Lingoccha &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176008-lingoccha-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355337)
-- [Mankatha &lpar;2011&rpar; Tamil 1080p SS H.264 DD5.1&lpar;320Kbps&rpar; ESub - 4.7GB](https://www.1tamilmv.phd/index.php?/forums/topic/176007-mankatha-2011-tamil-1080p-ss-h264-dd51320kbps-esub-47gb/&do=findComment&comment=355336)
-- [Leo - I&#39;m Scared - Lyric Video - 1080P &amp; 4K - DD5.1 + DTSHDMA5.1 &lpar;Lossless 24Bit FLAC Upmixed&rpar; + Untouched 24Bit FLAC](https://www.1tamilmv.phd/index.php?/forums/topic/176006-leo-im-scared-lyric-video-1080p-4k-dd51-dtshdma51-lossless-24bit-flac-upmixed-untouched-24bit-flac/&do=findComment&comment=355335)
-- [Leo - I&#39;m Scared - Lyric Video - 1080P &amp; 4K - DD5.1 + DTSHDMA5.1 &lpar;Lossless 24Bit FLAC Upmixed&rpar; + Untouched 24Bit FLAC](https://www.1tamilmv.phd/index.php?/forums/topic/176006-leo-im-scared-lyric-video-1080p-4k-dd51-dtshdma51-lossless-24bit-flac-upmixed-untouched-24bit-flac/&do=findComment&comment=355334)
-- [Jeans &lpar;1998&rpar; 1080p AMZN WEB-DL DDP5.1 Esubs x264 - 12.1 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176004-jeans-1998-1080p-amzn-web-dl-ddp51-esubs-x264-121-gb/&do=findComment&comment=355333)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
