@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [തനിച്ചിരുന്ന് പാട്ടാസ്വദിക്കുമ്പോൾ മനസിലേക്ക് ആദ്യം ഓടിയെത്തുന്ന എത്രകേട്ടാലും മതിവരാത്ത ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=JQk5Sqzq55o)
+- [ജനഹൃദയങ്ങൾ ഇരുകയ്യും നീട്ടി സ്വീകരിച്ച ചിത്രങ്ങളിലെ മലയാളികളെന്നും ഓർത്തിരിക്കുന്ന ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=S2w5vD5x1mg)
+- [Kashi Thumbe | Nakshathrangale Kaval | ONV Kuruppu | G Devarajan | Vani Jairam | Evergreen Hits](https://www.youtube.com/watch?v=At5mto421mc)
+- [Kadu Karutha Kadu | Neelaponman | K. J Yesudas | Salil Chowdhary](https://www.youtube.com/watch?v=daCmlmI-Zfg)
 - [കിനാവിന്റെ വരമ്പത്ത് | Kinavinte Varambathu | Ina Super Hit Malayalam Song | K.J Yesudas](https://www.youtube.com/watch?v=_fOCCFl6ZvQ)
 - [Aalum Kombathadum | Iniyum Kaanam | Jayachandran | Jolly Abraham | M S Viswanathan](https://www.youtube.com/watch?v=1rrRP3B6HEE)
-- [Senguruvi   Thirumoorthy   Deva   Hi Res Audio](https://www.youtube.com/watch?v=mXc6TocebCc)
-- [Nonstop Aradhanaganangal | Malayalam Christian Songs | Worship Songs | Christian Songs Jukebox](https://www.youtube.com/watch?v=RQs_LRRItiw)
-- [Kaathil Aro Mozhinju | Aviyal | Shorts | Harishankar KS  #malayalamfilmsongs #shortsvideo](https://www.youtube.com/watch?v=E9Fp-5FX1pE)
-- [Japamala Masam Short October  | Holy Rosary Special Short](https://www.youtube.com/watch?v=xMjN-yjXj5w)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
