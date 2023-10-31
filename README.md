@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Pon Kamalangalum | Agni Kshethram 1980 | K. J. Joy | S. Janaki | Malyalam Movie Song](https://www.youtube.com/watch?v=LY96Zi16G1E)
+- [Headmaster Movie Songs | Babu Antony, Thampy Antony | Kavalam Sreekumar | Malayalam New Songs](https://www.youtube.com/watch?v=yeNfiLPG2n8)
 - [കുമ്മിയടിക്കുവിൻ കൂട്ടുകാരേ | Kummiyadikkuvin | Ithu Njangalude Katha Movie Song | Johnson](https://www.youtube.com/watch?v=MICGgSMXBos)
 - [തനിച്ചിരുന്ന് പാട്ടാസ്വദിക്കുമ്പോൾ മനസിലേക്ക് ആദ്യം ഓടിയെത്തുന്ന എത്രകേട്ടാലും മതിവരാത്ത ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=JQk5Sqzq55o)
 - [ജനഹൃദയങ്ങൾ ഇരുകയ്യും നീട്ടി സ്വീകരിച്ച ചിത്രങ്ങളിലെ മലയാളികളെന്നും ഓർത്തിരിക്കുന്ന ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=S2w5vD5x1mg)
 - [Kashi Thumbe | Nakshathrangale Kaval | ONV Kuruppu | G Devarajan | Vani Jairam | Evergreen Hits](https://www.youtube.com/watch?v=At5mto421mc)
-- [Rakka Rakka - Video Song | Bandra | Dileep, Tamannaah | Shankar Mahadevan, Nakshatra | Sam C.S](https://www.youtube.com/watch?v=MMO5Askw3Ak)
-- [Kadu Karutha Kadu | Neelaponman | K. J Yesudas | Salil Chowdhary](https://www.youtube.com/watch?v=daCmlmI-Zfg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
