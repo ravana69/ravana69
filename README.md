@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [31 October 2023](https://www.youtube.com/watch?v=9yNtmGGtYio)
+- [Ilam Manjin Kulirumayoru | Ninnishtam Ennishtam | Mohanlal | Kannur Rajan | KJ Yesudas | S Janaki](https://www.youtube.com/watch?v=hmdAFp22RR4)
 - [Kunu Kune Cheru Kurunirakal Rematered Audio Yodha Movie KJ Yesudas Sujatha Mohan AR Rahman](https://www.youtube.com/watch?v=A937CrSoaIE)
 - [Pathiravayi Neram|Vietnam Colony|Kanaka|Mohanlal|](https://www.youtube.com/watch?v=Bu5TZSeeDew)
 - [സർവ്വപാപക്കറകൾ | Sarvapaapakkarakal | K S Chithra #shrots #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=QNgNE4De8Ok)
 - [Salambakkam | Pulliman | Sharreth | Aju | Vijesh](https://www.youtube.com/watch?v=PDV8HOe03Ek)
-- [മഞ്ജരികൾ മഞ്ജുഷകൾ |  Manjarikal Manjushakal | Enthino Pookkunna Pookkal | K. J. Yesudas | Shyam](https://www.youtube.com/watch?v=gtJe_LVpsMU)
-- [അകന്ന് പോകുന്നു എന്നുള്ളത് ഏതൊരാൾക്കും വേഗം പിടുത്തം കിട്ടുന്ന അനുഭവമാണ് | Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=3Sr159Xn8CM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
