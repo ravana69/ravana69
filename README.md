@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന November 1 # Athiravile Prarthana 1st November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=FUnZidRVJLc)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=jCg1LBimgig)
 - [#PuzhayarikathuDumm | #Jo&Jo | #NikhilaVimal, #Mathew, #Neslen | #GovindVasantha | #Arun](https://www.youtube.com/watch?v=eux9mYhr1Og)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 1st November 23](https://www.youtube.com/watch?v=n3RgBO4ta5I)
 - [പരിശുദ്ധ കന്യാമറിയത്തോടും എല്ലാ മലാഖമാരോടും എൻ പ്രിയ വിശുദ്ധരേ നിങ്ങളോടും](https://www.youtube.com/watch?v=SQ5py3-63XY)
 - [വാനമ്പാടീ ഏതോ തീരങ്ങൾ...| കെ ജെ യേശുദാസ് | K S Chitra | Original Audio Remastered movie songs](https://www.youtube.com/watch?v=eAwQq23JDqQ)
-- [31 October 2023](https://www.youtube.com/watch?v=9yNtmGGtYio)
-- [Ilam Manjin Kulirumayoru | Ninnishtam Ennishtam | Mohanlal | Kannur Rajan | KJ Yesudas | S Janaki](https://www.youtube.com/watch?v=hmdAFp22RR4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
