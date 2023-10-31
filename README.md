@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [#PuzhayarikathuDumm | #Jo&Jo | #NikhilaVimal, #Mathew, #Neslen | #GovindVasantha | #Arun](https://www.youtube.com/watch?v=eux9mYhr1Og)
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 1st November 23](https://www.youtube.com/watch?v=n3RgBO4ta5I)
+- [പരിശുദ്ധ കന്യാമറിയത്തോടും എല്ലാ മലാഖമാരോടും എൻ പ്രിയ വിശുദ്ധരേ നിങ്ങളോടും](https://www.youtube.com/watch?v=SQ5py3-63XY)
+- [വാനമ്പാടീ ഏതോ തീരങ്ങൾ...| കെ ജെ യേശുദാസ് | K S Chitra | Original Audio Remastered movie songs](https://www.youtube.com/watch?v=eAwQq23JDqQ)
 - [31 October 2023](https://www.youtube.com/watch?v=9yNtmGGtYio)
 - [Ilam Manjin Kulirumayoru | Ninnishtam Ennishtam | Mohanlal | Kannur Rajan | KJ Yesudas | S Janaki](https://www.youtube.com/watch?v=hmdAFp22RR4)
-- [Kunu Kune Cheru Kurunirakal Rematered Audio Yodha Movie KJ Yesudas Sujatha Mohan AR Rahman](https://www.youtube.com/watch?v=A937CrSoaIE)
-- [Pathiravayi Neram|Vietnam Colony|Kanaka|Mohanlal|](https://www.youtube.com/watch?v=Bu5TZSeeDew)
-- [സർവ്വപാപക്കറകൾ | Sarvapaapakkarakal | K S Chithra #shrots #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=QNgNE4De8Ok)
-- [Salambakkam | Pulliman | Sharreth | Aju | Vijesh](https://www.youtube.com/watch?v=PDV8HOe03Ek)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
