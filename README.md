@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Shankar Dada MBBS &lpar;2004&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0 - 192Kbps&rpar; - 4.9GB - 3.6GB &amp; 1.1GB] - [x264 - 2.6GB - 1.5GB &amp; 950MB] [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176013-shankar-dada-mbbs-2004-telugu-true-web-dl-1080p-720p-avc-aac-20-192kbps-49gb-36gb-11gb-x264-26gb-15gb-950mb-google-drive/&do=findComment&comment=355350)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP59 DAY 58 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 968MB - 464MB &amp; 205MB | 31-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176010-bigg-boss-telugu-s07-ep59-day-58-true-web-dl-1080p-720p-480p-avc-untouched-968mb-464mb-205mb-31-10-2023/&do=findComment&comment=355348)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP58 DAY 57 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 494MB &amp; 220MB | 30-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/175998-bigg-boss-telugu-s07-ep58-day-57-true-web-dl-1080p-720p-480p-avc-untouched-1gb-494mb-220mb-30-10-2023/&do=findComment&comment=355347)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP31 DAY 30 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 576MB &amp; 222MB | 31-10-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176009-bigg-boss-tamil-s07-ep31-day-30-true-web-dl-1080p-720p-480p-avc-untouched-11gb-576mb-222mb-31-10-2023/&do=findComment&comment=355346)
 - [Lingoccha &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176008-lingoccha-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355345)
-- [A Haunting in Venice &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; &lpar;English + Hindi&rpar; - 2.4GB &amp; 1.1GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176005-a-haunting-in-venice-2023-true-web-dl-1080p-720p-avc-dd51-atmos-768kbps-english-hindi-24gb-11gb-esub/&do=findComment&comment=355344)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
