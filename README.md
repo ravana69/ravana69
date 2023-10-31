@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Lingoccha &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176008-lingoccha-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355337)
 - [Mankatha &lpar;2011&rpar; Tamil 1080p SS H.264 DD5.1&lpar;320Kbps&rpar; ESub - 4.7GB](https://www.1tamilmv.phd/index.php?/forums/topic/176007-mankatha-2011-tamil-1080p-ss-h264-dd51320kbps-esub-47gb/&do=findComment&comment=355336)
 - [Leo - I&#39;m Scared - Lyric Video - 1080P &amp; 4K - DD5.1 + DTSHDMA5.1 &lpar;Lossless 24Bit FLAC Upmixed&rpar; + Untouched 24Bit FLAC](https://www.1tamilmv.phd/index.php?/forums/topic/176006-leo-im-scared-lyric-video-1080p-4k-dd51-dtshdma51-lossless-24bit-flac-upmixed-untouched-24bit-flac/&do=findComment&comment=355335)
 - [Leo - I&#39;m Scared - Lyric Video - 1080P &amp; 4K - DD5.1 + DTSHDMA5.1 &lpar;Lossless 24Bit FLAC Upmixed&rpar; + Untouched 24Bit FLAC](https://www.1tamilmv.phd/index.php?/forums/topic/176006-leo-im-scared-lyric-video-1080p-4k-dd51-dtshdma51-lossless-24bit-flac-upmixed-untouched-24bit-flac/&do=findComment&comment=355334)
 - [Jeans &lpar;1998&rpar; 1080p AMZN WEB-DL DDP5.1 Esubs x264 - 12.1 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176004-jeans-1998-1080p-amzn-web-dl-ddp51-esubs-x264-121-gb/&do=findComment&comment=355333)
-- [A Haunting in Venice &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; &lpar;English + Hindi&rpar; - 2.4GB &amp; 1.1GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176005-a-haunting-in-venice-2023-true-web-dl-1080p-720p-avc-dd51-atmos-768kbps-english-hindi-24gb-11gb-esub/&do=findComment&comment=355332)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
