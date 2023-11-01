@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ringa Ringa | Aarya 2 | Shubha |  Devi Sri Prasad | Siju Thuravur](https://www.youtube.com/watch?v=5MBUcaSVNX0)
+- [Guruvaayurappa Nin - Lyrical Video | Krishnanum Radhayum | Santhosh Pandit | KS Chithra](https://www.youtube.com/watch?v=CP8QTAVG72s)
+- [Ee Lokam - Video Song | Philip's | Hesham Abdul Wahab | Job Kurian | Mukesh | Alfred Kurian](https://www.youtube.com/watch?v=5_MbaaCA7h4)
 - [പൂവിരിഞ്ഞില്ല | Poovirinjilla | Ina Super Hit Malayalam Movie Song | Janaki, P Jayachandran](https://www.youtube.com/watch?v=p2PH2dUTQY8)
 - [Mungi Mungi Muthu Pongi Remastered Audio Song Jackpot Movie KS Chithra  Krishnachandran Ilayaraja](https://www.youtube.com/watch?v=8jDnxDAaUus)
 - [Pookalam Music Video | Jithu George | Raji L Rajan | Prasanth Maliackal](https://www.youtube.com/watch?v=XUiN6E8-jfg)
-- [Naadunaratte | Making Video  | Rajesh D | Anto Joseph | Anoop M C | New Year Special](https://www.youtube.com/watch?v=DGcIIhDFSzs)
-- [കേരള പിറവി ആശംസകള്‍ #shorts #shortsfeed #folksong  #folksongs](https://www.youtube.com/watch?v=0jXmRkTJS-0)
-- [Prathyasayoditha | Shorts | Diya Mary Alex  #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=RZoSEqMjpSY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
