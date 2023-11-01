@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കേരള പിറവി ആശംസകള്‍ #shorts #shortsfeed #folksong  #folksongs](https://www.youtube.com/watch?v=0jXmRkTJS-0)
+- [Prathyasayoditha | Shorts | Diya Mary Alex  #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=RZoSEqMjpSY)
 - [Keranirakaladum Oru Harithacharutheeram | HD | Jalolsavam | P Jayachandran | Alphonse Joseph](https://www.youtube.com/watch?v=Kcb5qz4tOB4)
 - [മലയാളികളേറെ ഇഷ്ടപെടും മലയാളത്തനിമയോലും ഉന്നതനിലവാരമുള്ള മലയാളസിനിമാഗാനങ്ങൾ !](https://www.youtube.com/watch?v=WzEI3pVT1Ew)
 - [Sundarakeralam | സുന്ദരകേരളം | Sneha Nair | Anto Mathew | Siji Sanal | Kerala Piravi | #Shorts](https://www.youtube.com/watch?v=xKVV2jUdE10)
 - [കേരളം @ 67 | Keranirakaladum Video Song | Jalolsavam |  P Jayachandran](https://www.youtube.com/watch?v=Fv3XnOYY674)
-- [Madhu Nirayunna |Lyrical Video| Pathimoonnam Rathri |Zia Ul Haq | Anooj Babu|K Santhosh|Maneesh Babu](https://www.youtube.com/watch?v=DCQtLeHnpC8)
-- [Chandanakkulir choodi varum | Kazhukan 1979 | M. K. Arjunan | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=hpJLOAzKzAM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
