@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കേരളം @ 67 | Keranirakaladum Video Song | Jalolsavam |  P Jayachandran](https://www.youtube.com/watch?v=Fv3XnOYY674)
+- [Madhu Nirayunna |Lyrical Video| Pathimoonnam Rathri |Zia Ul Haq | Anooj Babu|K Santhosh|Maneesh Babu](https://www.youtube.com/watch?v=DCQtLeHnpC8)
+- [Chandanakkulir choodi varum | Kazhukan 1979 | M. K. Arjunan | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=hpJLOAzKzAM)
+- [MIX COLLECTION OF PARUMALA PADHAYAATHRA SONGS | ROY PUTHUR |  #parumalathirumenisongs #royputhur](https://www.youtube.com/watch?v=vfuLRUAE6Rk)
 - [Kakkathudalikal | Beena | Bichu Thirumala | Kannur Rajan | P.Susheela](https://www.youtube.com/watch?v=aeRegWdEB10)
-- [Yeshuve Neeynikkay | Shorts  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=Iy4CryBIU4s)
-- [ക്രൈസ്തവർക്ക് പ്രത്യാശയും ഉണർവും ഏകിയ ദൈവീക ഗാനങ്ങൾ Kester powerful praise & worship songs malayalam](https://www.youtube.com/watch?v=HBPD8R8WBuI)
-- [Aliyunnorappamay| Christian Video Song | Shibu Antony | Br.Anil Malappuram | Divyakarunya Geetham](https://www.youtube.com/watch?v=AiO_QYod8fM)
-- [Japamala 1st of November 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 1st of November 23](https://www.youtube.com/watch?v=cRF_JMGvYo8)
-- [സമ്പൂർണ്ണ ജപമാല # എല്ലാ രഹസ്യങ്ങളും ഈ വീഡിയോയിൽ ഉൾപെടുത്തിയിരിക്കുന്നു # ഇടയ്ക്കു പരസ്യങ്ങൾ ഇല്ലാതെ](https://www.youtube.com/watch?v=N2_Jd4AEhfo)
+- [Aa Kanum Pongiyirikkana | Mukalpparappu | Video Song | JP Thavarool | Siby Padiyara | Geogy Thomas](https://www.youtube.com/watch?v=FTMmic2sNtY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
