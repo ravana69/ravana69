@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Jawan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176024-jawan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-68gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355395)
+- [Skanda &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 10GB - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176022-skanda-2023-tamil-true-web-dl-4k1080p-720p-avc-hevc-dd51-192kbps-10gb-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355394)
 - [Raatri &lpar;1992&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6GB - ESub - KAD DVD](https://www.1tamilmv.phd/index.php?/forums/topic/175930-raatri-1992-telugu-dvd9-untouched-480p-dd51-448kbps-6gb-esub-kad-dvd/&do=findComment&comment=355393)
 - [Vivaha Bhojanambu &lpar;1988&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD5.0 - 448Kbps&rpar; - 3.7GB](https://www.1tamilmv.phd/index.php?/forums/topic/175993-vivaha-bhojanambu-1988-telugu-dvd5-untouched-480p-dd50-448kbps-37gb/&do=findComment&comment=355392)
 - [Ullasamga Utsahamga &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.5GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175941-ullasamga-utsahamga-2008-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-75gb-esub/&do=findComment&comment=355391)
-- [Allari Pidugu &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.9GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175999-allari-pidugu-2005-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-69gb-esub/&do=findComment&comment=355389)
-- [Jawan &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.8GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176026-jawan-2023-hindi-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-68gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355388)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
