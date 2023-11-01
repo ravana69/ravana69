@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [A Haunting in Venice &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; &lpar;English + Hindi&rpar; - 2.4GB &amp; 1.1GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176005-a-haunting-in-venice-2023-true-web-dl-1080p-720p-avc-dd51-atmos-768kbps-english-hindi-24gb-11gb-esub/&do=findComment&comment=355359)
-- [Leo Reference Songs &lpar;2023&rpar; Hi-Fi Quality 16bit - FLAC - Various Artists - 95 MB](https://www.1tamilmv.phd/index.php?/forums/topic/176014-leo-reference-songs-2023-hi-fi-quality-16bit-flac-various-artists-95-mb/&do=findComment&comment=355358)
-- [Muthukku Muthaga &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 5.3GB - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176017-muthukku-muthaga-2023-tamil-true-web-dl-1080p-720p-avc-53gb-26gb-14gb-x264-700mb-400mb/&do=findComment&comment=355357)
-- [Irudhi Suttru &lpar;2016&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 3.8GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176016-irudhi-suttru-2016-tamil-true-web-dl-1080p-hq-avc-untouched-dd51-38gb-esub-gdflix/&do=findComment&comment=355356)
-- [Her: Chapter 1 &lpar;2023&rpar; AMZN WEB-DL Multi DDP5.1 Esubs x264 - 1080p | 720p - 7.3 GB | 4.4 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176015-her-chapter-1-2023-amzn-web-dl-multi-ddp51-esubs-x264-1080p-720p-73-gb-44-gb/&do=findComment&comment=355355)
+- [The Chapter&#39;s &lpar;2023&rpar; S01 EP &lpar;01-05&rpar; Tamil TRUE WEB-DL - [1080p - 720p - AVC - 800MB &amp; 350MB]](https://www.1tamilmv.phd/index.php?/forums/topic/175952-the-chapters-2023-s01-ep-01-05-tamil-true-web-dl-1080p-720p-avc-800mb-350mb/&do=findComment&comment=355364)
+- [Muthukku Muthaga &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 5.3GB - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176017-muthukku-muthaga-2023-tamil-true-web-dl-1080p-720p-avc-53gb-26gb-14gb-x264-700mb-400mb/&do=findComment&comment=355363)
+- [Thangalaan - Teaser| Chiyaan Vikram | K E Gnanavelraja | Pa Ranjith | G V Prakash Kumar](https://www.1tamilmv.phd/index.php?/forums/topic/176018-thangalaan-teaser-chiyaan-vikram-k-e-gnanavelraja-pa-ranjith-g-v-prakash-kumar/&do=findComment&comment=355362)
+- [Deadpool &lpar;2016&rpar; 720p BluRay - HEVC - x265 - 12BIT - [Tamil + English] - AAC - 700MB - ESUB](https://www.1tamilmv.phd/index.php?/forums/topic/176019-deadpool-2016-720p-bluray-hevc-x265-12bit-tamil-english-aac-700mb-esub/&do=findComment&comment=355361)
+- [Thangalaan - Teaser| Chiyaan Vikram | K E Gnanavelraja | Pa Ranjith | G V Prakash Kumar](https://www.1tamilmv.phd/index.php?/forums/topic/176018-thangalaan-teaser-chiyaan-vikram-k-e-gnanavelraja-pa-ranjith-g-v-prakash-kumar/&do=findComment&comment=355360)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
