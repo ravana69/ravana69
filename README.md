@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളസിനിമയിൽ തരംഗമായി മാറിയ അത്രമേൽ സൂപ്പർഹിറ്റായ മലയാളചലച്ചിത്ര ഗാനങ്ങൾ ! EVERGREEN HITS MALAYALAM](https://www.youtube.com/watch?v=jYVfesqG95U)
+- [Kakkakarumban Kandaal Kurumban | Ee Puzhayum Kadannu | Sujatha Mohan | Johnson | Gireesh Puthanchery](https://www.youtube.com/watch?v=MGtHHjQrTFM)
 - [എന്നു മേഘേ വന്നിടും | Susan Rajukutty #shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=ytyLM_aX7ho)
 - [PULMEDU THEDININNA | Fr. Shaji Thumpechirayil | #shortvideo #shorts](https://www.youtube.com/watch?v=gZnK4hgZxm4)
 - [Aarum Ninakkatha Nimishangalil | Kristheeya Bhakth8igaanangal | Christian Devotional Songs|](https://www.youtube.com/watch?v=zLZb1flF580)
 - [Arikathoru | Nakshathrangal Parayathirunnathu 2001 |Mohan Sithara |M.G.Sreekumar |MalayalamMovieSong](https://www.youtube.com/watch?v=a3dVWFfYiq0)
-- [Manathe Kayalil| Kallichellamma | Prem Nazeer | Sheela | P.Bhaskaran | Brahmanandhan](https://www.youtube.com/watch?v=65YKMB3PCBQ)
-- [Chandhana Charchitha Shorts | Mayilpeeli | Yesudas | Jayan | Shorts Video](https://www.youtube.com/watch?v=wv3OvZwS3b4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
