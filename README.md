@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manathe Kayalil| Kallichellamma | Prem Nazeer | Sheela | P.Bhaskaran | Brahmanandhan](https://www.youtube.com/watch?v=65YKMB3PCBQ)
 - [Chandhana Charchitha Shorts | Mayilpeeli | Yesudas | Jayan | Shorts Video](https://www.youtube.com/watch?v=wv3OvZwS3b4)
 - [Poovendru | Dhuruva Natchathiram | Ilaiyaraaja | S.P.B & K.S.Chithra | Hi-Res Audio](https://www.youtube.com/watch?v=_MttotA40q0)
 - [യാഹേ നീയെൻ ദൈവം | P. D. John | Elizabeth Raju #shrots #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=607pguT8tJs)
 - [ആകാശത്തിൻ കീഴെ മഹതരമായൊരു  നാമം # ദേവ് #ബിനോയ്‌ # ഡെൽഫീന  ജെയ്സൺ](https://www.youtube.com/watch?v=E8tDyWBqLWU)
 - [''അമ്മമാരേ'' ഈ ഗാനങ്ങൾ കേട്ട് പ്രാർത്ഥിക്കു | Christian Devotional Songs Malayalam | Christian Song](https://www.youtube.com/watch?v=4aLF3cAiblw)
-- [Japamala 2nd of November 23 # Mathavinte Japamala Prakashathinte Rahasyangal 2nd of November 23](https://www.youtube.com/watch?v=WOGiUizsVAw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
