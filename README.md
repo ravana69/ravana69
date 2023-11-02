@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Jawan: Extended Cut &lpar;2023&rpar; 1080p NF WEB-DL Multi DDP5.1 Esubs x264 - 6.7 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176031-jawan-extended-cut-2023-1080p-nf-web-dl-multi-ddp51-esubs-x264-67-gb/&do=findComment&comment=355404)
+- [Leo Success Meet &lpar;2023&rpar; Thalapathy Vijay Speech - [1080p &amp; 720p - CAM - x264 - 500MB &amp; 250MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176029-leo-success-meet-2023-thalapathy-vijay-speech-1080p-720p-cam-x264-500mb-250mb/&do=findComment&comment=355403)
+- [Jawan &lpar;2023&rpar; Tamil &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176024-jawan-2023-tamil-original-version-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-68gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355402)
 - [Jawan &lpar;2023&rpar; Tamil &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176024-jawan-2023-tamil-original-version-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-68gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355401)
 - [Jawan &lpar;2023&rpar; Tamil + Telugu TRUE WEB-DL - 1080p HQ - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.7GB - ESub - GDRIVE](https://www.1tamilmv.phd/index.php?/forums/topic/176030-jawan-2023-tamil-telugu-true-web-dl-1080p-hq-avc-dd51-640kbps-67gb-esub-gdrive/&do=findComment&comment=355400)
-- [Leo Success Meet &lpar;2023&rpar; Thalapathy Vijay Speech - [1080p &amp; 720p - CAM - x264 - 500MB &amp; 250MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176029-leo-success-meet-2023-thalapathy-vijay-speech-1080p-720p-cam-x264-500mb-250mb/&do=findComment&comment=355399)
-- [Jawan &lpar;2023&rpar; Tamil &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176024-jawan-2023-tamil-original-version-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-68gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355398)
-- [Consecration &lpar;2023&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0&rpar; &lpar;Tamil + Telugu + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel&rpar; - 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176028-consecration-2023-bluray-original-audios-1080p-720p-x264-aac-20-tamil-telugu-eng-2gb-1gb-x264-tam-tel-400mb-esub/&do=findComment&comment=355397)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
