@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Mannine Vinnuthotta Shantharathriyil | Fr. Shaji thumpechirayil | #shortsvideo #shorts](https://www.youtube.com/watch?v=7iYhzR_IF3E)
-- [പ്രയാണം | NEW CHRISTIAN SONG | JOSE SAGAR |PAVITHRAN AMACHAL |JINO KUNNUMPURATH | REEL 1](https://www.youtube.com/watch?v=gSbH8JBhjSY)
-- [പ്രമദവനം വീണ്ടും Pramadavanam Remastered Audio Song His Highness Abdulla Movie KJ Yesudas Kaithapram](https://www.youtube.com/watch?v=of0dAlxD-tg)
-- [മുറിവേറ്റ കരങ്ങൾ | CHRISTIAN DEVOTIONAL|ROY PUTHUR|#royputhur #rayanmedia #christiandevotionalsongs](https://www.youtube.com/watch?v=Q1Uxwzqjnlg)
-- [VAIKOL PAATT VAIKOL PAATT | Fr. SHAJI THUMPECHIRAYIL | #shortvideo #short #shorts](https://www.youtube.com/watch?v=aMppGZKHOQY)
-- [മലയാളസിനിമയിൽ തരംഗമായി മാറിയ അത്രമേൽ സൂപ്പർഹിറ്റായ മലയാളചലച്ചിത്ര ഗാനങ്ങൾ ! EVERGREEN HITS MALAYALAM](https://www.youtube.com/watch?v=jYVfesqG95U)
+- [കഷ്ടത കാണുന്ന നിലവിളി കേൾക്കുന്ന സങ്കടമറിയുന്ന ഒരു ദൈവം നിനക്കുണ്ട്. | Rev. Aneesh P Joseph #shorts](https://www.youtube.com/watch?v=9-36m68L45A)
+- [Engane Nee Marakkum Song Shorts | Neelakuyil | K Raghavan #shorts](https://www.youtube.com/watch?v=2JrpL5LAbsI)
+- [#PuzhayarikathuDumm | #Jo&Jo | #NikhilaVimal, #Mathew, #Neslen | #GovindVasantha | #Arun](https://www.youtube.com/watch?v=t5Y5Ie9esgg)
+- [#PuzhayarikathuDumm | #Jo&Jo | #NikhilaVimal, #Mathew, #Neslen | #GovindVasantha | #Arun](https://www.youtube.com/watch?v=Q68WFQlbO1w)
+- [Chanchalam Thennipoi Nee | Ritu |  Neha S Nair | Job Kurian | Rahul Raj | Rafeeq Ahammed](https://www.youtube.com/watch?v=rpvELcghlrQ)
+- [മരിച്ചവരുടെ ഓർമ്മദിനത്തിൽ കേൾക്കാൻ ഉത്തമമായ ഗാനങ്ങൾ | Kester | Christian Melody Songs | Joji Johns](https://www.youtube.com/watch?v=3WIwrOSLfq0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
