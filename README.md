@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Scam 2003: The Telgi Story &lpar;2023&rpar; S01 EP &lpar;06-10&rpar; TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 4.2GB - 1.9GB &amp; 700MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176037-scam-2003-the-telgi-story-2023-s01-ep-06-10-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-42gb-19gb-700mb-esub/&do=findComment&comment=355441)
 - [Consecration &lpar;2023&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0&rpar; &lpar;Tamil + Telugu + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel&rpar; - 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176028-consecration-2023-bluray-original-audios-1080p-720p-x264-aac-20-tamil-telugu-eng-2gb-1gb-x264-tam-tel-400mb-esub/&do=findComment&comment=355440)
 - [The Exorcist: Believer &lpar;2023&rpar; &lpar;UHD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 6.7GB - 2.8GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176036-the-exorcist-believer-2023-uhd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-hindi-eng-67gb-28gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=355439)
 - [Skanda &lpar;2023&rpar; DSNP WEB DL - H264/H265 - [Telugu + Tamil + Malayalam + Kannada] - DD5.1 ESub - [4K, 1080p &amp; 720p - 15.8GB - 4.7GB - 1.4GB] [GDrive]](https://www.1tamilmv.phd/index.php?/forums/topic/165001-skanda-2023-dsnp-web-dl-h264h265-telugu-tamil-malayalam-kannada-dd51-esub-4k-1080p-720p-158gb-47gb-14gb-gdrive/&do=findComment&comment=355438)
 - [The Exorcist: Believer &lpar;2023&rpar; &lpar;UHD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 6.7GB - 2.8GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176036-the-exorcist-believer-2023-uhd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-hindi-eng-67gb-28gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=355437)
-- [Jeans &lpar;1998&rpar; 1080p AMZN WEB-DL DDP5.1 Esubs x264 - 12.1 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176004-jeans-1998-1080p-amzn-web-dl-ddp51-esubs-x264-121-gb/&do=findComment&comment=355434)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
