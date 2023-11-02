@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Exorcist: Believer &lpar;2023&rpar; &lpar;UHD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 6.7GB - 2.8GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176036-the-exorcist-believer-2023-uhd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-hindi-eng-67gb-28gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=355437)
+- [Jeans &lpar;1998&rpar; 1080p AMZN WEB-DL DDP5.1 Esubs x264 - 12.1 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176004-jeans-1998-1080p-amzn-web-dl-ddp51-esubs-x264-121-gb/&do=findComment&comment=355434)
 - [Jawan &lpar;2023&rpar; Tamil &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176024-jawan-2023-tamil-original-version-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-68gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355433)
 - [Jawan: Extended Cut &lpar;2023&rpar; 1080p NF WEB-DL Multi DDP5.1 Esubs x264 - 6.7 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176031-jawan-extended-cut-2023-1080p-nf-web-dl-multi-ddp51-esubs-x264-67-gb/&do=findComment&comment=355432)
 - [Jawan.Extended.Cut.2023.2160p., 1080p,720p NF.WEB-DL.DDP5.1.HEVC &lpar;Direct Downlaod&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176033-jawanextendedcut20232160p-1080p720p-nfweb-dlddp51hevc-direct-downlaod/&do=findComment&comment=355431)
-- [Leo Success Meet &lpar;2023&rpar; Thalapathy Vijay Speech - [1080p &amp; 720p - CAM - x264 - 500MB &amp; 250MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176029-leo-success-meet-2023-thalapathy-vijay-speech-1080p-720p-cam-x264-500mb-250mb/&do=findComment&comment=355430)
-- [Consecration &lpar;2023&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0&rpar; &lpar;Tamil + Telugu + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel&rpar; - 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176028-consecration-2023-bluray-original-audios-1080p-720p-x264-aac-20-tamil-telugu-eng-2gb-1gb-x264-tam-tel-400mb-esub/&do=findComment&comment=355429)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
