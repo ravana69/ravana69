@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [യാഹേ നീയെൻ ദൈവം | P. D. John | Elizabeth Raju #shrots #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=607pguT8tJs)
 - [ആകാശത്തിൻ കീഴെ മഹതരമായൊരു  നാമം # ദേവ് #ബിനോയ്‌ # ഡെൽഫീന  ജെയ്സൺ](https://www.youtube.com/watch?v=E8tDyWBqLWU)
 - [''അമ്മമാരേ'' ഈ ഗാനങ്ങൾ കേട്ട് പ്രാർത്ഥിക്കു | Christian Devotional Songs Malayalam | Christian Song](https://www.youtube.com/watch?v=4aLF3cAiblw)
 - [Japamala 2nd of November 23 # Mathavinte Japamala Prakashathinte Rahasyangal 2nd of November 23](https://www.youtube.com/watch?v=WOGiUizsVAw)
 - [japamala 2023 #prakashathinte rahasyanmgal #japamala prayer non stop evergreen hits #2023 new japama](https://www.youtube.com/watch?v=XmX9SRiTMWE)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=9QLN9pzIEmo)
-- [രാവിലെ പ്രാര്‍ത്ഥന  November 2 # Athiravile Prarthana 2nd of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=XHp-kPz35c4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
