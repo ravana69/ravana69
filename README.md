@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mannine Vinnuthotta Shantharathriyil | Fr. Shaji thumpechirayil | #shortsvideo #shorts](https://www.youtube.com/watch?v=7iYhzR_IF3E)
+- [പ്രയാണം | NEW CHRISTIAN SONG | JOSE SAGAR |PAVITHRAN AMACHAL |JINO KUNNUMPURATH | REEL 1](https://www.youtube.com/watch?v=gSbH8JBhjSY)
+- [പ്രമദവനം വീണ്ടും Pramadavanam Remastered Audio Song His Highness Abdulla Movie KJ Yesudas Kaithapram](https://www.youtube.com/watch?v=of0dAlxD-tg)
+- [മുറിവേറ്റ കരങ്ങൾ | CHRISTIAN DEVOTIONAL|ROY PUTHUR|#royputhur #rayanmedia #christiandevotionalsongs](https://www.youtube.com/watch?v=Q1Uxwzqjnlg)
 - [VAIKOL PAATT VAIKOL PAATT | Fr. SHAJI THUMPECHIRAYIL | #shortvideo #short #shorts](https://www.youtube.com/watch?v=aMppGZKHOQY)
 - [മലയാളസിനിമയിൽ തരംഗമായി മാറിയ അത്രമേൽ സൂപ്പർഹിറ്റായ മലയാളചലച്ചിത്ര ഗാനങ്ങൾ ! EVERGREEN HITS MALAYALAM](https://www.youtube.com/watch?v=jYVfesqG95U)
-- [Kakkakarumban Kandaal Kurumban | Ee Puzhayum Kadannu | Sujatha Mohan | Johnson | Gireesh Puthanchery](https://www.youtube.com/watch?v=MGtHHjQrTFM)
-- [എന്നു മേഘേ വന്നിടും | Susan Rajukutty #shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=ytyLM_aX7ho)
-- [PULMEDU THEDININNA | Fr. Shaji Thumpechirayil | #shortvideo #shorts](https://www.youtube.com/watch?v=gZnK4hgZxm4)
-- [Aarum Ninakkatha Nimishangalil | Kristheeya Bhakth8igaanangal | Christian Devotional Songs|](https://www.youtube.com/watch?v=zLZb1flF580)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
