@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Jeans &lpar;1998&rpar; 1080p AMZN WEB-DL DDP5.1 Esubs x264 - 12.1 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176004-jeans-1998-1080p-amzn-web-dl-ddp51-esubs-x264-121-gb/&do=findComment&comment=355451)
-- [The Exorcist: Believer &lpar;2023&rpar; &lpar;UHD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 6.7GB - 2.8GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176036-the-exorcist-believer-2023-uhd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-hindi-eng-67gb-28gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=355449)
-- [Mr. Pregnant &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Hindi + Malayalam + Kannada] - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176035-mr-pregnant-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-hindi-malayalam-kannada-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355448)
-- [Scam 2003: The Telgi Story &lpar;2023&rpar; S01 EP &lpar;06-10&rpar; TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 4.2GB - 1.9GB &amp; 700MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176037-scam-2003-the-telgi-story-2023-s01-ep-06-10-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-42gb-19gb-700mb-esub/&do=findComment&comment=355447)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP33 DAY 32 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 720MB - 330B &amp; 140MB | 02-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176040-bigg-boss-tamil-s07-ep33-day-32-true-web-dl-1080p-720p-480p-avc-untouched-720mb-330b-140mb-02-11-2023/&do=findComment&comment=355446)
+- [Jeans &lpar;1998&rpar; 1080p AMZN WEB-DL DDP5.1 Esubs x264 - 12.1 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176004-jeans-1998-1080p-amzn-web-dl-ddp51-esubs-x264-121-gb/&do=findComment&comment=355456)
+- [Painter.2023.2160p, 1080p,720p.AMZN.WEB-DL.DDP5.1.H.265&lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176043-painter20232160p-1080p720pamznweb-dlddp51h265direct-download/&do=findComment&comment=355455)
+- [Scam.2003.The.Telgi.Story.S01.Vol.II.1080p.SONY.WEB-DL.Multi.DD+5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176042-scam2003thetelgistorys01volii1080psonyweb-dlmultidd51-direct-download/&do=findComment&comment=355454)
+- [Hulk.2003 DDP 2.0 Tamil-Telugu-DD5.1 Hindi-English UHD.BluRay 1080p Msub 5GB [G-Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/171348-hulk2003-ddp-20-tamil-telugu-dd51-hindi-english-uhdbluray-1080p-msub-5gb-g-drive/&do=findComment&comment=355453)
+- [Jeans &lpar;1998&rpar; 1080p AMZN WEB-DL DDP5.1 Esubs x264 - 12.1 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176004-jeans-1998-1080p-amzn-web-dl-ddp51-esubs-x264-121-gb/&do=findComment&comment=355452)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
