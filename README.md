@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [ഹൃദയത്തിലെവിടെയോ ഒരു നനുത്ത വിങ്ങലേകും മലയാളസിനിമയിലെ വിഷാദാർദ്ര ഗാനങ്ങൾ ! NISARI MUSIC](https://www.youtube.com/watch?v=Hrf3s784EwI)
-- [Chellam Chellam Paadidam | Kanathaya Penkutty | Sebastian Paul | Jerry Amaldev | Malayalam Songs](https://www.youtube.com/watch?v=Um6kxBRntlo)
-- [Merry Christmas - Teaser | Dyanna Hameed, Karthik Ramakrishnan | Hari Charan | Sanjay Prasannan](https://www.youtube.com/watch?v=m3yZFq3Y5Hg)
-- [Vazhthuka Maname | Shreya Jayadeep  #shrots #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=ymgfIQiZUPM)
-- [Ente Katha Ninte Katha | എന്റെ കഥ നിന്റെ കഥ  |  Ithu Njangalude Katha  Movie Song |  Johnson](https://www.youtube.com/watch?v=AWGqCJeRLy4)
-- [Onnam Maanathe | Beautiful Romantic Duet by K J Yesudas & K S Chithra #shorts](https://www.youtube.com/watch?v=gDNPr89S1pw)
+- [Saj Paul, M.G. Sreekumar - Kaathirunna Kaamuki (Version, 2) (Lyric Video)](https://www.youtube.com/watch?v=dv00nFWNN00)
+- [M.G. Radhakrishnan, M.G. Sreekumar - Mutholachillaattam (Lyric Video)](https://www.youtube.com/watch?v=VOMmGvdyUgc)
+- [M.G. Radhakrishnan, M.G. Sreekumar - Nizhalkkootile (Lyric Video)](https://www.youtube.com/watch?v=dvFlroXoVE0)
+- [M.G. Radhakrishnan, M.G. Sreekumar - Ormakalil (Lyric Video)](https://www.youtube.com/watch?v=2DzvisLiKSI)
+- [M.G. Radhakrishnan, M.G. Sreekumar - Raagahemantha (Lyric Video)](https://www.youtube.com/watch?v=qWqx9iMeKc0)
+- [Saj Paul, M.G. Sreekumar - Pulariyude Pallakku (Lyric Video)](https://www.youtube.com/watch?v=WQ0VxJjSyUw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
