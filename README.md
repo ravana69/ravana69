@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vazhthuka Maname | Shreya Jayadeep  #shrots #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=ymgfIQiZUPM)
 - [Ente Katha Ninte Katha | എന്റെ കഥ നിന്റെ കഥ  |  Ithu Njangalude Katha  Movie Song |  Johnson](https://www.youtube.com/watch?v=AWGqCJeRLy4)
 - [Onnam Maanathe | Beautiful Romantic Duet by K J Yesudas & K S Chithra #shorts](https://www.youtube.com/watch?v=gDNPr89S1pw)
 - [Thannannam Thaanannam | Yathra 1985 | Ilaiyaraaja | K. J. Yesudas, Ambili | Malayalam Movie Song](https://www.youtube.com/watch?v=X5_omi1Ghc0)
 - [Swapna oru Chakku | Best Actor | Mammootty | Vineeth Sreenivasan | Arun Alat | Bijipal](https://www.youtube.com/watch?v=3r_MXqP-pOE)
 - [വൈക്കോലിൻ ശയ്യ ശീലിച്ചവനാണേ | Fr. Shaji thumpechirayil | #shortvideo #shorts](https://www.youtube.com/watch?v=j_3jqiWNJAc)
-- [Ae Zindagi Gale | Sadma | Ilaiyaraaja | Suresh Wadkar | Hi-Res Audio](https://www.youtube.com/watch?v=5BF7JEGrHq8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
