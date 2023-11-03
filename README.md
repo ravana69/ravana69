@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Invincible &lpar;2023&rpar; S02 EP01 TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada + Eng] - &lpar;DD5.1 - 192Kbps&rpar; - 850MB - 350MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176052-invincible-2023-s02-ep01-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-eng-dd51-192kbps-850mb-350mb-200mb-esub/&do=findComment&comment=355530)
+- [Jawan &lpar;2023&rpar; Tamil &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176024-jawan-2023-tamil-original-version-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-68gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355529)
+- [Raththam &lpar;2023&rpar; Tamil HQ DVDrip - 1080p - AVC - UNTOUCHED - &lpar;DD+5.1 - 640Kbps &amp; AAC 2.0&rpar; - 3GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176069-raththam-2023-tamil-hq-dvdrip-1080p-avc-untouched-dd51-640kbps-aac-20-3gb-esub/&do=findComment&comment=355528)
 - [Raththam &lpar;2023&rpar; SS WEB-DL DDP5.1 Esubs - 2160p | 1080p | 720p -15.5 GB |  6.2 GB | 3.1 GB | 1.7 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176053-raththam-2023-ss-web-dl-ddp51-esubs-2160p-1080p-720p-155-gb-62-gb-31-gb-17-gb/&do=findComment&comment=355516)
 - [Deadpool &lpar;2016&rpar; 720p BluRay - HEVC - x265 - 12BIT - [Tamil + English] - AAC - 700MB - ESUB](https://www.1tamilmv.phd/index.php?/forums/topic/176019-deadpool-2016-720p-bluray-hevc-x265-12bit-tamil-english-aac-700mb-esub/&do=findComment&comment=355515)
-- [Skanda: The Attacker &lpar;2023&rpar; DSNP WEB-DL MULTi DDP5.1 Esubs - 2160p | 1080p - 15.8 GB | 4.7 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176034-skanda-the-attacker-2023-dsnp-web-dl-multi-ddp51-esubs-2160p-1080p-158-gb-47-gb/&do=findComment&comment=355514)
-- [Painter.2023.2160p, 1080p,720p.AMZN.WEB-DL.DDP5.1.H.265&lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176043-painter20232160p-1080p720pamznweb-dlddp51h265direct-download/&do=findComment&comment=355513)
-- [Raththam &lpar;2023&rpar; SS WEB-DL DDP5.1 Esubs - 2160p | 1080p | 720p -15.5 GB |  6.2 GB | 3.1 GB | 1.7 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176053-raththam-2023-ss-web-dl-ddp51-esubs-2160p-1080p-720p-155-gb-62-gb-31-gb-17-gb/&do=findComment&comment=355512)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
