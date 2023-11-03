@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Khadhikan - Official Teaser | Unni Mukundan, Mukesh, Ketaki Narayan |  Jayaraj | Sanjoy Chowdhury](https://www.youtube.com/watch?v=4v-0-yJmjyw)
 - [Aralippo kaadukal | അരളിപ്പൂങ്കാടുകൾ | Ina Super Hit Malayalam Movie Song | Krishnachandran](https://www.youtube.com/watch?v=OLei6gJ4-HY)
 - [Saj Paul, M.G. Sreekumar - Kaathirunna Kaamuki (Version, 2) (Lyric Video)](https://www.youtube.com/watch?v=dv00nFWNN00)
 - [M.G. Radhakrishnan, M.G. Sreekumar - Mutholachillaattam (Lyric Video)](https://www.youtube.com/watch?v=VOMmGvdyUgc)
 - [O Kathale Music Video | Jimin Joseph | Sreya Jayadeep | Anas Haneef | Abhimanyu V Baiju](https://www.youtube.com/watch?v=sawrySJewag)
 - [M.G. Radhakrishnan, M.G. Sreekumar - Nizhalkkootile (Lyric Video)](https://www.youtube.com/watch?v=dvFlroXoVE0)
-- [M.G. Radhakrishnan, M.G. Sreekumar - Ormakalil (Lyric Video)](https://www.youtube.com/watch?v=2DzvisLiKSI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
