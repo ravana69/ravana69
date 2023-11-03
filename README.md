@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Khadhikan - Official Teaser | Unni Mukundan, Mukesh, Ketaki Narayan |  Jayaraj | Sanjoy Chowdhury](https://www.youtube.com/watch?v=4v-0-yJmjyw)
-- [Aralippo kaadukal | അരളിപ്പൂങ്കാടുകൾ | Ina Super Hit Malayalam Movie Song | Krishnachandran](https://www.youtube.com/watch?v=OLei6gJ4-HY)
-- [Saj Paul, M.G. Sreekumar - Kaathirunna Kaamuki (Version, 2) (Lyric Video)](https://www.youtube.com/watch?v=dv00nFWNN00)
-- [M.G. Radhakrishnan, M.G. Sreekumar - Mutholachillaattam (Lyric Video)](https://www.youtube.com/watch?v=VOMmGvdyUgc)
-- [O Kathale Music Video | Jimin Joseph | Sreya Jayadeep | Anas Haneef | Abhimanyu V Baiju](https://www.youtube.com/watch?v=sawrySJewag)
-- [M.G. Radhakrishnan, M.G. Sreekumar - Nizhalkkootile (Lyric Video)](https://www.youtube.com/watch?v=dvFlroXoVE0)
+- [കാഴ്ചയാൽ ഉള്ളതല്ല വിശ്വാസം. | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=UIxxDQ0UcjA)
+- [BEST QUALITY SONGS FOR EVER | SUPER HIT CHRISTIAN DEVOTIONAL SONGS | NONSTOP](https://www.youtube.com/watch?v=SwvHUmSjuCc)
+- [Sundaran Annan | Animation Song Video | Chilu Chilum | മനോഹരമായ അനിമേഷൻ സോങ്ങ് വീഡിയോ](https://www.youtube.com/watch?v=ipCkdQfIt4Q)
+- [Munthirikkurunnu Kondu | Vairam | Vijay Yesudas | M Jayachandran | Gireesh Puthenchery](https://www.youtube.com/watch?v=GwlrwDKMLaQ)
+- [Arabikadaloru Manavalan Song I Bhargavi Nilayam I K.J Yesudas I P. Susheela I M.S Baburaj](https://www.youtube.com/watch?v=uaIb-lfz4N8)
+- [Ponveene Ennullil Remastered Audio Song Thalavattam Movie KS Chithra  Poovachal Khader Raghu Kumar](https://www.youtube.com/watch?v=5ojbRh4947g)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
