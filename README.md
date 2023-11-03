@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [50 Tamil Movies - SS / AMZN / TK / JC WEB DL - H264/H265 - [DDP5.1 / DD5.1 / AAC] - ESub - [2160p, 1080p &amp; 720p - 350GB] [GDRIVE]](https://www.1tamilmv.phd/index.php?/forums/topic/141593-50-tamil-movies-ss-amzn-tk-jc-web-dl-h264h265-ddp51-dd51-aac-esub-2160p-1080p-720p-350gb-gdrive/&do=findComment&comment=355552)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP62 DAY 61 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 577MB &amp; 236MB | 03-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176075-bigg-boss-telugu-s07-ep62-day-61-true-web-dl-1080p-720p-480p-avc-untouched-11gb-577mb-236mb-03-11-2023/&do=findComment&comment=355550)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP34 DAY 33 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 568MB &amp; 225MB | 03-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176074-bigg-boss-tamil-s07-ep34-day-33-true-web-dl-1080p-720p-480p-avc-untouched-1gb-568mb-225mb-03-11-2023/&do=findComment&comment=355549)
 - [Loki S02E05 DSNP WEB-DL Multi DDP5.1 Esubs - 2160p [HDR10] | 1080p | 720p - 4.8 GB | 2.1 GB | 0.7 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176054-loki-s02e05-dsnp-web-dl-multi-ddp51-esubs-2160p-hdr10-1080p-720p-48-gb-21-gb-07-gb/&do=findComment&comment=355548)
 - [Month Of Madhu &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 5.2GB - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176049-month-of-madhu-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-52gb-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=355547)
-- [Parundhaagudhu Oor Kuruvi &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176046-parundhaagudhu-oor-kuruvi-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355546)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
