@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Jawan &lpar;2023&rpar; Tamil HQ HDRip - 720p - HEVC - AAC - 800MB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176084-jawan-2023-tamil-hq-hdrip-720p-hevc-aac-800mb-esub/&do=findComment&comment=355579)
-- [Mr. Pregnant &lpar;2023&rpar; HQ HDRip - 720p - HEVC - Tamil - AAC - 750MB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176083-mr-pregnant-2023-hq-hdrip-720p-hevc-tamil-aac-750mb-esub/&do=findComment&comment=355578)
-- [Skanda &lpar;2023&rpar; Tamil HQ HDRip - 720p - HEVC - x265 - AAC - 800MB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176082-skanda-2023-tamil-hq-hdrip-720p-hevc-x265-aac-800mb-esub/&do=findComment&comment=355577)
-- [12th Fail &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176060-12th-fail-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355576)
-- [12th Fail &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176059-12th-fail-2023-tamil-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355575)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Rathika, Bhole&#39;s Performance - 480p - AVC - UNTOUCHED - AAC - 85MB](https://www.1tamilmv.phd/index.php?/forums/topic/176089-bigg-boss-telugu-s07-unseen-rathika-bholes-performance-480p-avc-untouched-aac-85mb/&do=findComment&comment=355584)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Why Did Shivaji Nominate Teja - 480p - AVC - UNTOUCHED - AAC - 80MB](https://www.1tamilmv.phd/index.php?/forums/topic/176088-bigg-boss-telugu-s07-unseen-why-did-shivaji-nominate-teja-480p-avc-untouched-aac-80mb/&do=findComment&comment=355583)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Captain Goutham&#39;s Mission - 480p - AVC - UNTOUCHED - AAC - 84MB](https://www.1tamilmv.phd/index.php?/forums/topic/176087-bigg-boss-telugu-s07-unseen-captain-gouthams-mission-480p-avc-untouched-aac-84mb/&do=findComment&comment=355582)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 Exit Pooja&#39;s Interview - 480p - AVC - UNTOUCHED - AAC - 118MB](https://www.1tamilmv.phd/index.php?/forums/topic/176086-bigg-boss-telugu-s07-exit-poojas-interview-480p-avc-untouched-aac-118mb/&do=findComment&comment=355581)
+- [Raththam &lpar;2023&rpar; Tamil HQ HDRip - 720p - HEVC - AAC - 650MB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176085-raththam-2023-tamil-hq-hdrip-720p-hevc-aac-650mb-esub/&do=findComment&comment=355580)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
