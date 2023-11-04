@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Half.Way.Home.2022.1080p, 720p .AMZN.WEB-DL.DDP5.1.H.264.&lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176078-halfwayhome20221080p-720p-amznweb-dlddp51h264direct-download/&do=findComment&comment=355567)
+- [Raththam.2023.2160p, 1080p, 720p .AMZN.WEB-DL.DDP5.1.H.265 &lpar;Direct download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176077-raththam20232160p-1080p-720p-amznweb-dlddp51h265-direct-download/&do=findComment&comment=355566)
+- [[4K60FPS] Jawan: Extended Cut &lpar;2023&rpar; NF WEBRip Multi DDP5.1 ESub H.265 - 2160p [4K60FPS] | 1080p [60FPS] - 31.4 GB | 12.5 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176076-4k60fps-jawan-extended-cut-2023-nf-webrip-multi-ddp51-esub-h265-2160p-4k60fps-1080p-60fps-314-gb-125-gb/&do=findComment&comment=355565)
 - [Month Of Madhu &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 5.2GB - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176049-month-of-madhu-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-52gb-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=355564)
 - [Tamil Kudimagan &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.3GB - 1.6GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176044-tamil-kudimagan-2023-tamil-true-web-dl-4k-1080p-720p-avc-dd51-384kbps-23gb-16gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355563)
-- [Invincible &lpar;2023&rpar; S02 EP01 TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada + Eng] - &lpar;DD5.1 - 192Kbps&rpar; - 850MB - 350MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176052-invincible-2023-s02-ep01-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-eng-dd51-192kbps-850mb-350mb-200mb-esub/&do=findComment&comment=355562)
-- [Skanda &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 10GB - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176022-skanda-2023-tamil-true-web-dl-4k1080p-720p-avc-hevc-dd51-192kbps-10gb-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355561)
-- [Jawan &lpar;2023&rpar; Tamil &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176024-jawan-2023-tamil-original-version-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-68gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355560)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
