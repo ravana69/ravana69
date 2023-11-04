@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പാദ പൂജ  | Paadhapooja | Mayooranirtham Malayalam Movie Song | K J Yesudas | K S Chithra](https://www.youtube.com/watch?v=oJbMLJ-zzb8)
 - [ഈശോയെ എന്നാളും ആശ്വാസം നൽകാനായ് ....](https://www.youtube.com/watch?v=M7SELvC46Kg)
 - [ദൈവത്തിന്റെ സ്നേഹമാണ് പരീക്ഷണങ്ങൾ | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=vxA7j1UlSpA)
 - [Soubhagyam Video Song | Imbam | Sreejith Chandran | Sithara Krishnakumar | PS Jayhari |](https://www.youtube.com/watch?v=Gl7yL4u46w8)
 - [Aadamalle | Kana Kanmani | Biju Narayanan | Maneesha KS | Shyam Dharman |Vayalar Sarathchandra Varma](https://www.youtube.com/watch?v=AB9AVtIsIds)
 - [O January Video Song Shorts | Big B | Sayanora | Alphons | Jophi Tharakan #shorts](https://www.youtube.com/watch?v=ZopIkERxPog)
-- [Ambaadippayyukal | Chandranudikkunna Dikkil (1999) | Vidyasagar #SongOfTheDay](https://www.youtube.com/watch?v=kH3rWgP9UJQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
