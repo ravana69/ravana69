@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Yeshuve Neeyenikkay | Shorts  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=vYB0JVkvAlE)
 - [Christian Video Songs Malayalam | Kester | Shymol | Joji Johns |  Christian Melody Songs | Rithuraj](https://www.youtube.com/watch?v=JK2PtpsTTiE)
 - [അതിമനോഹരമായ പഴയകാല ഗാനങ്ങൾ old christian songs malayalam with lyrics ! daily worship songs malayalam](https://www.youtube.com/watch?v=9uXMySw-09o)
 - [അമ്മയെൻ പുണ്യം ആൽബത്തിലെ എല്ലാ രഹസ്യങ്ങളും ഒന്നിച്ചു ഒരു വീഡിയോ യിൽ കേൾക്കാം # ഈ വർഷത്തെ മെഗാ ഹിറ്റ്](https://www.youtube.com/watch?v=WwU52ebzj-0)
 - [Japamala 4th of November 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 4th of November 23](https://www.youtube.com/watch?v=jxl-cfTN5To)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=FAZH--RZ5w0)
-- [രാവിലെ പ്രാര്‍ത്ഥന  November 4 # Athiravile Prarthana 4th of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=1_YTZgGEJDA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
