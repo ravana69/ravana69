@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Aarya &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176095-aarya-2004-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-7gb-esub/&do=findComment&comment=355601)
 - [Arrambam &lpar;2013&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 7.8GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176003-arrambam-2013-tamil-true-web-dl-1080p-hq-avc-untouched-dd51-78gb-esub-gdflix/&do=findComment&comment=355600)
 - [Halfway Home &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Hun&rpar; - 3GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176050-halfway-home-2022-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-hun-3gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=355599)
 - [Jigarthanda DoubleX  - &lpar;Tamil + Telugu + Kannada&rpar; - Trailer | Raghava Lawrence | SJ Suryah | Karthik Subbaraj | Santhosh Narayanan](https://www.1tamilmv.phd/index.php?/forums/topic/176094-jigarthanda-doublex-tamil-telugu-kannada-trailer-raghava-lawrence-sj-suryah-karthik-subbaraj-santhosh-narayanan/&do=findComment&comment=355598)
 - [Jigarthanda DoubleX  - &lpar;Tamil + Telugu + Kannada&rpar; - Trailer | Raghava Lawrence | SJ Suryah | Karthik Subbaraj | Santhosh Narayanan](https://www.1tamilmv.phd/index.php?/forums/topic/176094-jigarthanda-doublex-tamil-telugu-kannada-trailer-raghava-lawrence-sj-suryah-karthik-subbaraj-santhosh-narayanan/&do=findComment&comment=355597)
-- [Oru Sadhachara Premakadha &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.5GB &amp; 900MB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176092-oru-sadhachara-premakadha-2023-malayalam-true-web-dl-1080p-720p-avc-aac-20-15gb-900mb-x264-700mb-400mb/&do=findComment&comment=355596)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
