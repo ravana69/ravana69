@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [എല്ലാ സംഗീതാസ്വാദകരും നെഞ്ചോട് ചേർത്തുവെച്ച  ഹൃദയത്തുടിപ്പാകുന്ന ഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=e9U6rB-K6CM)
+- [ഹൃദയത്തിൽ ആനന്ദവും ഉന്മേഷവുമേകും സുരഭില സുന്ദര സിനിമാഗാനങ്ങൾ | MALAYALAM HIT SONGS](https://www.youtube.com/watch?v=YEyMNBUEplE)
+- [Dhalavatheruvile Machane | Rasikan | Sankar Mahadevan | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=veu8Fw0z5Qw)
 - [Christmas Carol Song | manju Peyum Pathiravil | Kings & Queens band | Fr. Justin kaliayaniyil CMI](https://www.youtube.com/watch?v=oh7vXm3OngU)
 - [പ്രയാണം | NEW CHRISTIAN SONG | JOSE SAGAR |PAVITHRAN AMACHAL |JINO KUNNUMPURATH | REEL 2](https://www.youtube.com/watch?v=z6ORMOf9_vk)
 - [Kunnathoru Kaavundu | Yathra 1985 | Ilaiyaraaja | Cochin Alex | Malayalam Movie Song](https://www.youtube.com/watch?v=jh-AhhsxFzw)
-- [Kannilu Kannilu - Audio Song | Ayisha | Manju Warrier | Prabhudeva | M Jayachandran | Aamir](https://www.youtube.com/watch?v=b7s5LWLgU9w)
-- [Udukku Kotti Paadum | Kandavarundo | S.Janaki | R K Sekhar | Sreekumaran Thampi](https://www.youtube.com/watch?v=6Qz0QLDOBdw)
-- [Sthuthi Sthuthi En Maname | Madhu Balakrishnan #shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=YWpHX0ZnGDQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
