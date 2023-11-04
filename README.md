@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [70 Tamil Movies - 1080p - SS / TK / SUN NXT WEB DL - H264 - DDP5.1/DD2.0/AAC2.0 - 300GB [Gdrive]](https://www.1tamilmv.phd/index.php?/forums/topic/132909-70-tamil-movies-1080p-ss-tk-sun-nxt-web-dl-h264-ddp51dd20aac20-300gb-gdrive/&do=findComment&comment=355591)
 - [Raththam.2023.2160p, 1080p, 720p .AMZN.WEB-DL.DDP5.1.H.265 &lpar;Direct download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176077-raththam20232160p-1080p-720p-amznweb-dlddp51h265-direct-download/&do=findComment&comment=355590)
 - [Oru Sadhachara Premakadha &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.5GB &amp; 900MB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176092-oru-sadhachara-premakadha-2023-malayalam-true-web-dl-1080p-720p-avc-aac-20-15gb-900mb-x264-700mb-400mb/&do=findComment&comment=355589)
 - [Oru Sadhachara Premakadha &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.5GB &amp; 900MB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176092-oru-sadhachara-premakadha-2023-malayalam-true-web-dl-1080p-720p-avc-aac-20-15gb-900mb-x264-700mb-400mb/&do=findComment&comment=355588)
 - [Oru Sadhachara Premakadha &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.5GB &amp; 900MB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176092-oru-sadhachara-premakadha-2023-malayalam-true-web-dl-1080p-720p-avc-aac-20-15gb-900mb-x264-700mb-400mb/&do=findComment&comment=355587)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Did Yawar Make a Good First Impression - 480p - AVC - UNTOUCHED - AAC - 77MB](https://www.1tamilmv.phd/index.php?/forums/topic/176091-bigg-boss-telugu-s07-unseen-did-yawar-make-a-good-first-impression-480p-avc-untouched-aac-77mb/&do=findComment&comment=355586)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
