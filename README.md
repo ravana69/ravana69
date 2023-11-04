@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Kiliye Kalamozhi Kiliye Video Song | Jwalanam | PK Gopi | Premkumar Vadakara](https://www.youtube.com/watch?v=mhUHhXFAO7Y)
-- [ആറ്റുവഞ്ചിക്കടവില്‍ | Aattuvanchi Kadavilvachu | Kayamkulam Kochunni SuperHit Movie Song |KJ Yesudas](https://www.youtube.com/watch?v=KJdWA8_d66U)
-- [YATHRAYAY BETHLAHEM  VAZHIYIL | #shorts | Fr Shaji Thumpechirayil | Feby Francis](https://www.youtube.com/watch?v=1pSjPHKuy6g)
-- [എല്ലാ സംഗീതാസ്വാദകരും നെഞ്ചോട് ചേർത്തുവെച്ച  ഹൃദയത്തുടിപ്പാകുന്ന ഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=e9U6rB-K6CM)
-- [ഹൃദയത്തിൽ ആനന്ദവും ഉന്മേഷവുമേകും സുരഭില സുന്ദര സിനിമാഗാനങ്ങൾ | MALAYALAM HIT SONGS](https://www.youtube.com/watch?v=YEyMNBUEplE)
-- [Dhalavatheruvile Machane | Rasikan | Sankar Mahadevan | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=veu8Fw0z5Qw)
+- [ദൈവത്തിന്റെ സ്നേഹമാണ് പരീക്ഷണങ്ങൾ | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=vxA7j1UlSpA)
+- [Soubhagyam Video Song | Imbam | Sreejith Chandran | Sithara Krishnakumar | PS Jayhari |](https://www.youtube.com/watch?v=Gl7yL4u46w8)
+- [O January Video Song Shorts | Big B | Sayanora | Alphons | Jophi Tharakan #shorts](https://www.youtube.com/watch?v=ZopIkERxPog)
+- [Ambaadippayyukal | Chandranudikkunna Dikkil (1999) | Vidyasagar #SongOfTheDay](https://www.youtube.com/watch?v=kH3rWgP9UJQ)
+- [Mr Perfect | Aarya 2 | Anwar Sadath | Devi Sri Prasad | Siju Thuravur](https://www.youtube.com/watch?v=ZMgoWDbB0a4)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 4th of November 2023](https://www.youtube.com/watch?v=pHIMg2R8lIM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
