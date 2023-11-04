@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Christmas Carol Song | manju Peyum Pathiravil | Kings & Queens band | Fr. Justin kaliayaniyil CMI](https://www.youtube.com/watch?v=oh7vXm3OngU)
+- [പ്രയാണം | NEW CHRISTIAN SONG | JOSE SAGAR |PAVITHRAN AMACHAL |JINO KUNNUMPURATH | REEL 2](https://www.youtube.com/watch?v=z6ORMOf9_vk)
+- [Kunnathoru Kaavundu | Yathra 1985 | Ilaiyaraaja | Cochin Alex | Malayalam Movie Song](https://www.youtube.com/watch?v=jh-AhhsxFzw)
+- [Kannilu Kannilu - Audio Song | Ayisha | Manju Warrier | Prabhudeva | M Jayachandran | Aamir](https://www.youtube.com/watch?v=b7s5LWLgU9w)
+- [Udukku Kotti Paadum | Kandavarundo | S.Janaki | R K Sekhar | Sreekumaran Thampi](https://www.youtube.com/watch?v=6Qz0QLDOBdw)
 - [Sthuthi Sthuthi En Maname | Madhu Balakrishnan #shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=YWpHX0ZnGDQ)
-- [Yeshuve Neeyenikkay | Shorts  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=vYB0JVkvAlE)
-- [Christian Video Songs Malayalam | Kester | Shymol | Joji Johns |  Christian Melody Songs | Rithuraj](https://www.youtube.com/watch?v=JK2PtpsTTiE)
-- [അതിമനോഹരമായ പഴയകാല ഗാനങ്ങൾ old christian songs malayalam with lyrics ! daily worship songs malayalam](https://www.youtube.com/watch?v=9uXMySw-09o)
-- [അമ്മയെൻ പുണ്യം ആൽബത്തിലെ എല്ലാ രഹസ്യങ്ങളും ഒന്നിച്ചു ഒരു വീഡിയോ യിൽ കേൾക്കാം # ഈ വർഷത്തെ മെഗാ ഹിറ്റ്](https://www.youtube.com/watch?v=WwU52ebzj-0)
-- [Japamala 4th of November 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 4th of November 23](https://www.youtube.com/watch?v=jxl-cfTN5To)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
