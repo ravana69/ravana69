@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Rathika, Bhole&#39;s Performance - 480p - AVC - UNTOUCHED - AAC - 85MB](https://www.1tamilmv.phd/index.php?/forums/topic/176089-bigg-boss-telugu-s07-unseen-rathika-bholes-performance-480p-avc-untouched-aac-85mb/&do=findComment&comment=355584)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Why Did Shivaji Nominate Teja - 480p - AVC - UNTOUCHED - AAC - 80MB](https://www.1tamilmv.phd/index.php?/forums/topic/176088-bigg-boss-telugu-s07-unseen-why-did-shivaji-nominate-teja-480p-avc-untouched-aac-80mb/&do=findComment&comment=355583)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Captain Goutham&#39;s Mission - 480p - AVC - UNTOUCHED - AAC - 84MB](https://www.1tamilmv.phd/index.php?/forums/topic/176087-bigg-boss-telugu-s07-unseen-captain-gouthams-mission-480p-avc-untouched-aac-84mb/&do=findComment&comment=355582)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 Exit Pooja&#39;s Interview - 480p - AVC - UNTOUCHED - AAC - 118MB](https://www.1tamilmv.phd/index.php?/forums/topic/176086-bigg-boss-telugu-s07-exit-poojas-interview-480p-avc-untouched-aac-118mb/&do=findComment&comment=355581)
-- [Raththam &lpar;2023&rpar; Tamil HQ HDRip - 720p - HEVC - AAC - 650MB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176085-raththam-2023-tamil-hq-hdrip-720p-hevc-aac-650mb-esub/&do=findComment&comment=355580)
+- [Raththam.2023.2160p, 1080p, 720p .AMZN.WEB-DL.DDP5.1.H.265 &lpar;Direct download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176077-raththam20232160p-1080p-720p-amznweb-dlddp51h265-direct-download/&do=findComment&comment=355590)
+- [Oru Sadhachara Premakadha &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.5GB &amp; 900MB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176092-oru-sadhachara-premakadha-2023-malayalam-true-web-dl-1080p-720p-avc-aac-20-15gb-900mb-x264-700mb-400mb/&do=findComment&comment=355589)
+- [Oru Sadhachara Premakadha &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.5GB &amp; 900MB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176092-oru-sadhachara-premakadha-2023-malayalam-true-web-dl-1080p-720p-avc-aac-20-15gb-900mb-x264-700mb-400mb/&do=findComment&comment=355588)
+- [Oru Sadhachara Premakadha &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.5GB &amp; 900MB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176092-oru-sadhachara-premakadha-2023-malayalam-true-web-dl-1080p-720p-avc-aac-20-15gb-900mb-x264-700mb-400mb/&do=findComment&comment=355587)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Did Yawar Make a Good First Impression - 480p - AVC - UNTOUCHED - AAC - 77MB](https://www.1tamilmv.phd/index.php?/forums/topic/176091-bigg-boss-telugu-s07-unseen-did-yawar-make-a-good-first-impression-480p-avc-untouched-aac-77mb/&do=findComment&comment=355586)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
