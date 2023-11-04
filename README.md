@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന  November 5 # Athiravile Prarthana 5th of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=sapNioaK0EA)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=uaciYcfETu4)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 5th November 23](https://www.youtube.com/watch?v=HB4EhBmFvGw)
 - [വൈശാഖ സന്ധ്യേ Vaishaakhasandhye Remastered Audio Song Nadodikkattu KS Chithra Shyam Yusufali Kecheri](https://www.youtube.com/watch?v=P7YGvgop3hQ)
 - [Swayam Marannuvo | Welcome To Kodaikkanal | Jgadeesh | MG Sreekumar | Rajamani | R Usha](https://www.youtube.com/watch?v=UdcImhNNFqM)
 - [പാദ പൂജ  | Paadhapooja | Mayooranirtham Malayalam Movie Song | K J Yesudas | K S Chithra](https://www.youtube.com/watch?v=oJbMLJ-zzb8)
-- [ഈശോയെ എന്നാളും ആശ്വാസം നൽകാനായ് ....](https://www.youtube.com/watch?v=M7SELvC46Kg)
-- [ദൈവത്തിന്റെ സ്നേഹമാണ് പരീക്ഷണങ്ങൾ | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=vxA7j1UlSpA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
