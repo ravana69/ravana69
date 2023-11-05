@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Japan &lpar;2023&rpar; Tamil Audio Launch - [1080p &amp; 720p - HDTV - 4.5GB - 2.5GB - 1.3GB &amp; 500MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176107-japan-2023-tamil-audio-launch-1080p-720p-hdtv-45gb-25gb-13gb-500mb/&do=findComment&comment=355649)
+- [Leo Success Meet &lpar;2023&rpar; Tamil Full Show - [1080p &amp; 720p - AVC - 4GB - 2.5GB - 1.2GB &amp; 450MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176106-leo-success-meet-2023-tamil-full-show-1080p-720p-avc-4gb-25gb-12gb-450mb/&do=findComment&comment=355648)
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP36 DAY 35 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.5GB - 795MB &amp; 324MB | 05-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176109-bigg-boss-tamil-s07-ep36-day-35-true-web-dl-1080p-720p-480p-avc-untouched-15gb-795mb-324mb-05-11-2023/&do=findComment&comment=355647)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP64 DAY 63 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.4GB - 695MB &amp; 306MB | 05-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176108-bigg-boss-telugu-s07-ep64-day-63-true-web-dl-1080p-720p-480p-avc-untouched-14gb-695mb-306mb-05-11-2023/&do=findComment&comment=355646)
 - [Leo Success Meet &lpar;2023&rpar; Tamil Full Show - [1080p &amp; 720p - AVC - 4GB - 2.5GB - 1.2GB &amp; 450MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176106-leo-success-meet-2023-tamil-full-show-1080p-720p-avc-4gb-25gb-12gb-450mb/&do=findComment&comment=355645)
-- [Game Of Thrones &lpar;2011&rpar; S01 EP &lpar;01 - 10&rpar; 720p &amp; 1080p JC WEB-DL ×264.[&lpar;Tamil &lpar;AAC 2.0 - 125kbps&rpar;] - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/168402-game-of-thrones-2011-s01-ep-01-10-720p-1080p-jc-web-dl-%C3%97264tamil-aac-20-125kbps-leyon/&do=findComment&comment=355644)
-- [Ponmana Selvan &lpar;1989&rpar;.Tamil.480p.HDTV.x264.AAC2.0 - 1.8GB](https://www.1tamilmv.phd/index.php?/forums/topic/170199-ponmana-selvan-1989tamil480phdtvx264aac20-18gb/&do=findComment&comment=355643)
-- [70 Tamil Movies - 1080p - SS / TK / SUN NXT WEB DL - H264 - DDP5.1/DD2.0/AAC2.0 - 300GB [Gdrive]](https://www.1tamilmv.phd/index.php?/forums/topic/132909-70-tamil-movies-1080p-ss-tk-sun-nxt-web-dl-h264-ddp51dd20aac20-300gb-gdrive/&do=findComment&comment=355642)
-- [Aarya &lpar;2020&rpar; Complete S01 Merged HQ HDRip - [1080p x265 - 720p - AVC - [Tel + Tam + Hin + Mal + Kan + Mar + Ben] - &lpar;DD+5.1 - 192Kbps&rpar; - 13GB - 1.5GB][ 480p - &lpar;Tel + Tam&rpar; - 1GBMB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/174654-aarya-2020-complete-s01-merged-hq-hdrip-1080p-x265-720p-avc-tel-tam-hin-mal-kan-mar-ben-dd51-192kbps-13gb-15gb-480p-tel-tam-1gbmb-esub-google-drive/&do=findComment&comment=355641)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
