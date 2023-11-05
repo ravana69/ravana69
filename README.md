@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Prathyasayoditha | Shorts | Diya Mary Alex  #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=tSy0sPCtUzY)
 - [Deva Kanyaka  | Ee Puzhayum Kadannu | Gireesh Puthenchery | Johnson | K.J.Yesudas](https://www.youtube.com/watch?v=d6yEx4ITrSI)
 - [ചുണ്ടോട് ചുണ്ടിൽ തേനുണ്ട് പാടാൻ | #shorts #phantommovie #viralthottal #evergreenhits](https://www.youtube.com/watch?v=0jO9EJPKffE)
 - [Vadakku Dhikkile - Audio Song | Ayisha | Manju Warrier | M Jayachandran | Aamir Pallikkal](https://www.youtube.com/watch?v=YhNImTO7-PY)
 - [പാട്ടുപെട്ടി | Paattupetti Vol 32 | Malayalam Film Songs](https://www.youtube.com/watch?v=vKgtEcFpkFI)
 - [Paattinte Palkadavil | Karaoke Video | Living Together | Shreya Ghoshal | Kaithapram| M Jayachandran](https://www.youtube.com/watch?v=wfTtaRI4qIs)
-- [Ponnona Tharangini Vol.1 | Malayalam Festival Songs | Yesudas | Raveendran | Sound of Arts](https://www.youtube.com/watch?v=F02tzMcpTtI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
