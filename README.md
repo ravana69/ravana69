@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [70 Tamil Movies - 1080p - SS / TK / SUN NXT WEB DL - H264 - DDP5.1/DD2.0/AAC2.0 - 300GB [Gdrive]](https://www.1tamilmv.phd/index.php?/forums/topic/132909-70-tamil-movies-1080p-ss-tk-sun-nxt-web-dl-h264-ddp51dd20aac20-300gb-gdrive/&do=findComment&comment=355642)
 - [Aarya &lpar;2020&rpar; Complete S01 Merged HQ HDRip - [1080p x265 - 720p - AVC - [Tel + Tam + Hin + Mal + Kan + Mar + Ben] - &lpar;DD+5.1 - 192Kbps&rpar; - 13GB - 1.5GB][ 480p - &lpar;Tel + Tam&rpar; - 1GBMB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/174654-aarya-2020-complete-s01-merged-hq-hdrip-1080p-x265-720p-avc-tel-tam-hin-mal-kan-mar-ben-dd51-192kbps-13gb-15gb-480p-tel-tam-1gbmb-esub-google-drive/&do=findComment&comment=355641)
 - [Aarya &lpar;2021&rpar; Complete S02 Merged HQ HDRip - [1080p - 720p - AVC - [Tel + Tam + Hin + Mal + Kan + Mar + Ben] - &lpar;DD+5.1 - 192Kbps&rpar; - 10.8GB - 3.4GB - 1.3GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/174655-aarya-2021-complete-s02-merged-hq-hdrip-1080p-720p-avc-tel-tam-hin-mal-kan-mar-ben-dd51-192kbps-108gb-34gb-13gb-esub-google-drive/&do=findComment&comment=355640)
 - [Aarya &lpar;2020&rpar; Complete S01 Merged HQ HDRip - [1080p x265 - 720p - AVC - [Tel + Tam + Hin + Mal + Kan + Mar + Ben] - &lpar;DD+5.1 - 192Kbps&rpar; - 13GB - 1.5GB][ 480p - &lpar;Tel + Tam&rpar; - 1GBMB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/174654-aarya-2020-complete-s01-merged-hq-hdrip-1080p-x265-720p-avc-tel-tam-hin-mal-kan-mar-ben-dd51-192kbps-13gb-15gb-480p-tel-tam-1gbmb-esub-google-drive/&do=findComment&comment=355639)
 - [Dhoom 2 &lpar;2006&rpar; 1080p &amp; 720p AMZN WEB-DL ×264/265 [&lpar;Tamil + Telugu + Hindi&rpar; DD+ 5.1 - 192/640kbps] &lpar;13GB, 9GB, 6GB, 4GB, 3GB, 1GB&rpar; - ESub - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/168599-dhoom-2-2006-1080p-720p-amzn-web-dl-%C3%97264265-tamil-telugu-hindi-dd-51-192640kbps-13gb-9gb-6gb-4gb-3gb-1gb-esub-leyon/&do=findComment&comment=355637)
-- [Japan &lpar;2023&rpar; Tamil Audio Launch - [1080p &amp; 720p - HDTV - 4.5GB - 2.5GB - 1.3GB &amp; 500MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176107-japan-2023-tamil-audio-launch-1080p-720p-hdtv-45gb-25gb-13gb-500mb/&do=findComment&comment=355636)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
