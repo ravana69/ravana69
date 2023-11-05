@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;37-39&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176098-vera-maari-office-2023-s01-ep-37-39-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=355622)
+- [Aarya &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176095-aarya-2004-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-7gb-esub/&do=findComment&comment=355621)
 - [Dhoom &lpar;2004&rpar; 1080p &amp; 720p AMZN WEB-DL ×264/265 [&lpar;Hindi&rpar; DD+ 5.1 - 192/640kbps] &lpar;12GB, 9GB, 6GB, 4GB, 3GB, 1GB&rpar; - ESub - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/168702-dhoom-2004-1080p-720p-amzn-web-dl-%C3%97264265-hindi-dd-51-192640kbps-12gb-9gb-6gb-4gb-3gb-1gb-esub-leyon/&do=findComment&comment=355620)
 - [Aarya &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176095-aarya-2004-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-7gb-esub/&do=findComment&comment=355619)
 - [Oru Sadhachara Premakadha &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.5GB &amp; 900MB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176092-oru-sadhachara-premakadha-2023-malayalam-true-web-dl-1080p-720p-avc-aac-20-15gb-900mb-x264-700mb-400mb/&do=findComment&comment=355618)
-- [Indian 2 - An Intro | Kamal Haasan | Shankar | Anirudh](https://www.1tamilmv.phd/index.php?/forums/topic/176073-indian-2-an-intro-kamal-haasan-shankar-anirudh/&do=findComment&comment=355617)
-- [Ghost &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176063-ghost-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355616)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
