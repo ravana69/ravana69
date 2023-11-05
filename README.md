@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Yamune Ninnude | Yathra 1985 | Ilaiyaraaja | S. Janaki, Chorus | Malayalam Movie Song](https://www.youtube.com/watch?v=P_-InFEWIs4)
+- [Sindhoora Vaanil | Bhoomiyile Rajakkanmar | Mohanlal | Unni Menon | Shibu Chakravarthy](https://www.youtube.com/watch?v=E7NL_IU9Jy4)
+- [വത്സലരെ ദൂരത്തെന്തിന് | ROY PUTHUR | #christiandevotionalsongs  #royputhurprayer #royputhur](https://www.youtube.com/watch?v=Ozjcph4X01I)
 - [Vazhthuka Maname | Shreya Jayadeep  #shrots #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=Cjp6zkOV9RE)
 - [സൂപ്പർഹിറ്റ് കരോൾ ഗാനങ്ങൾ 2023 |Christian Devotional Songs Malayalam | Ketser |Christian Melody Song](https://www.youtube.com/watch?v=jEbAb-yHxts)
 - [മഹിമയുടെ രഹസ്യങ്ങൾ കേട്ട് ഇന്ന് ഉണരാം # ഇത്ര  ശക്തമായ പ്രാർത്ഥന ഇല്ല # എത്ര കേട്ടാലും മതി വരില്ല](https://www.youtube.com/watch?v=hhy4Gi6OnHg)
-- [Japamala 5th of November 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 5th of November 23](https://www.youtube.com/watch?v=fe4qBr_TuWo)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=dytEn9EWFF4)
-- [പ്രഭാത പ്രാര്‍ത്ഥന  November 5 # Athiravile Prarthana 5th of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=sapNioaK0EA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
