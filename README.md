@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Dhoom 2 &lpar;2006&rpar; 1080p &amp; 720p AMZN WEB-DL ×264/265 [&lpar;Tamil + Telugu + Hindi&rpar; DD+ 5.1 - 192/640kbps] &lpar;13GB, 9GB, 6GB, 4GB, 3GB, 1GB&rpar; - ESub - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/168599-dhoom-2-2006-1080p-720p-amzn-web-dl-%C3%97264265-tamil-telugu-hindi-dd-51-192640kbps-13gb-9gb-6gb-4gb-3gb-1gb-esub-leyon/&do=findComment&comment=355628)
+- [Scam 2003: The Telgi Story &lpar;2023&rpar; Complete S01 EP &lpar;06-10&rpar; Merged TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 4.2GB - 1.9GB &amp; 700MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176103-scam-2003-the-telgi-story-2023-complete-s01-ep-06-10-merged-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-42gb-19gb-700mb-esub-google-drive/&do=findComment&comment=355627)
 - [Chokka Thangam &lpar;2003&rpar;.Tamil.480p.DVD9Rip.x264.DD5.1 - 2.8GB](https://www.1tamilmv.phd/index.php?/forums/topic/176101-chokka-thangam-2003tamil480pdvd9ripx264dd51-28gb/&do=findComment&comment=355626)
+- [Jigarthanda Double X &lpar;2023&rpar; Tamil Audio launch TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.9GB - 1.2GB &amp; 450MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176102-jigarthanda-double-x-2023-tamil-audio-launch-true-web-dl-1080p-720p-avc-19gb-12gb-450mb/&do=findComment&comment=355625)
 - [MARVEL CINEMATIC UNIVERSE MOVIES COLLECTION  [2160P &amp; 1080p &amp; 720p ] HDRip IMAX x264 Multi Audio DD5.1 Dloby Atmos ESubs[GDrive &amp; Telegram]](https://www.1tamilmv.phd/index.php?/forums/topic/160376-marvel-cinematic-universe-movies-collection-2160p-1080p-720p-hdrip-imax-x264-multi-audio-dd51-dloby-atmos-esubsgdrive-telegram/&do=findComment&comment=355624)
-- [70 Tamil Movies - 1080p - SS / TK / SUN NXT WEB DL - H264 - DDP5.1/DD2.0/AAC2.0 - 300GB [Gdrive]](https://www.1tamilmv.phd/index.php?/forums/topic/132909-70-tamil-movies-1080p-ss-tk-sun-nxt-web-dl-h264-ddp51dd20aac20-300gb-gdrive/&do=findComment&comment=355623)
-- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;37-39&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176098-vera-maari-office-2023-s01-ep-37-39-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=355622)
-- [Aarya &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176095-aarya-2004-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-7gb-esub/&do=findComment&comment=355621)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
