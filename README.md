@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന  November 6 # Athiravile Prarthana 6th of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=Zu-81ZQtPrQ)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=9G5RYHv-lHM)
+- [Uyyandappa | My Name Is Azhagan | BC Naufal | Deepak Dev | #ytshorts #shorts](https://www.youtube.com/watch?v=cUF3heHHVQo)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 6th November 23](https://www.youtube.com/watch?v=H7Lk2LWj92I)
 - [നിൻ പാത വിട്ടകന്നീടുമ്പോൾ . . . .](https://www.youtube.com/watch?v=x2k1tK00D7s)
 - [Chocolate Poleyulloree | Chocolate | Prithviraj | Roma Asrani | Shafi | Alex Paul | Jayasurya](https://www.youtube.com/watch?v=2ukqTCs2eSg)
-- [Neeyen Kinaavo|Hello My Dear Wrong Number|Lizy Priyadarshan|Mohanlal|](https://www.youtube.com/watch?v=6zvhuA7VZl0)
-- [മനുഷ്യന്റെ വഴികൾ അല്ല ദൈവത്തിന്റെ വഴികൾ | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=5HiaKAHlMlU)
-- [Kaana Theerathe - Video Song | Janvi Movie | Ram Surendar, Vaishnav Girish | Movie Song](https://www.youtube.com/watch?v=8Rvwf5hlw8E)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
