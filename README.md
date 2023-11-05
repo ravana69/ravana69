@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [DEVI &lpar;1999&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.2GB - ESub - Supreme DVD](https://www.1tamilmv.phd/index.php?/forums/topic/176105-devi-1999-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-62gb-esub-supreme-dvd/&do=findComment&comment=355633)
+- [DEVI &lpar;1999&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.2GB - ESub - Supreme DVD](https://www.1tamilmv.phd/index.php?/forums/topic/176105-devi-1999-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-62gb-esub-supreme-dvd/&do=findComment&comment=355632)
 - [Endukante... Premanta! &lpar;2012&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.8GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176104-endukante-premanta-2012-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-68gb-esub/&do=findComment&comment=355631)
 - [Indian 2 - An Intro | Kamal Haasan | Shankar | Anirudh](https://www.1tamilmv.phd/index.php?/forums/topic/176073-indian-2-an-intro-kamal-haasan-shankar-anirudh/&do=findComment&comment=355630)
 - [Endukante... Premanta! &lpar;2012&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.8GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176104-endukante-premanta-2012-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-68gb-esub/&do=findComment&comment=355629)
-- [Dhoom 2 &lpar;2006&rpar; 1080p &amp; 720p AMZN WEB-DL ×264/265 [&lpar;Tamil + Telugu + Hindi&rpar; DD+ 5.1 - 192/640kbps] &lpar;13GB, 9GB, 6GB, 4GB, 3GB, 1GB&rpar; - ESub - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/168599-dhoom-2-2006-1080p-720p-amzn-web-dl-%C3%97264265-tamil-telugu-hindi-dd-51-192640kbps-13gb-9gb-6gb-4gb-3gb-1gb-esub-leyon/&do=findComment&comment=355628)
-- [Scam 2003: The Telgi Story &lpar;2023&rpar; Complete S01 EP &lpar;06-10&rpar; Merged TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 4.2GB - 1.9GB &amp; 700MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176103-scam-2003-the-telgi-story-2023-complete-s01-ep-06-10-merged-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-42gb-19gb-700mb-esub-google-drive/&do=findComment&comment=355627)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
