@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [[FINAL EPISODE] Attack on Titan S04E30 1080p CR WEB-DL JAPANESE AAC2.0 Esubs x264 - 4.8 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176099-final-episode-attack-on-titan-s04e30-1080p-cr-web-dl-japanese-aac20-esubs-x264-48-gb/&do=findComment&comment=355610)
 - [Raatri &lpar;1992&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6GB - ESub - KAD DVD](https://www.1tamilmv.phd/index.php?/forums/topic/175930-raatri-1992-telugu-dvd9-untouched-480p-dd51-448kbps-6gb-esub-kad-dvd/&do=findComment&comment=355609)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP35 DAY 34 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.5GB - 765MB &amp; 322MB | 04-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176097-bigg-boss-tamil-s07-ep35-day-34-true-web-dl-1080p-720p-480p-avc-untouched-15gb-765mb-322mb-04-11-2023/&do=findComment&comment=355607)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP63 DAY 62 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.6GB - 789MB &amp; 342MB | 04-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176096-bigg-boss-telugu-s07-ep63-day-62-true-web-dl-1080p-720p-480p-avc-untouched-16gb-789mb-342mb-04-11-2023/&do=findComment&comment=355606)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP62 DAY 61 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 577MB &amp; 236MB | 03-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176075-bigg-boss-telugu-s07-ep62-day-61-true-web-dl-1080p-720p-480p-avc-untouched-11gb-577mb-236mb-03-11-2023/&do=findComment&comment=355605)
-- [Mad &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176047-mad-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355604)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
