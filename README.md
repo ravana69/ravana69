@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chocolate Poleyulloree | Chocolate | Prithviraj | Roma Asrani | Shafi | Alex Paul | Jayasurya](https://www.youtube.com/watch?v=2ukqTCs2eSg)
 - [Neeyen Kinaavo|Hello My Dear Wrong Number|Lizy Priyadarshan|Mohanlal|](https://www.youtube.com/watch?v=6zvhuA7VZl0)
 - [മനുഷ്യന്റെ വഴികൾ അല്ല ദൈവത്തിന്റെ വഴികൾ | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=5HiaKAHlMlU)
 - [Kaana Theerathe - Video Song | Janvi Movie | Ram Surendar, Vaishnav Girish | Movie Song](https://www.youtube.com/watch?v=8Rvwf5hlw8E)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 5th of November 2023](https://www.youtube.com/watch?v=yXlk86uUOHs)
 - [May Masam Junodu Video Song | Jayaram | Laya | Vidyasagar | Gireesh Puthenchery | Cicily | Karthik](https://www.youtube.com/watch?v=RNgyAx1BB2o)
-- [Christian Melody Songs | Biju Narayanan | Christian Songs Malayalam |  Joseph Mathew Padinjerthara](https://www.youtube.com/watch?v=9j8aQib0yug)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
