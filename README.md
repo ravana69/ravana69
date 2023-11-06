@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ragasudharasa Video song | Sargam | Vineeth | Rambha](https://www.youtube.com/watch?v=C6CKeOhIGg4)
 - [മനസിന്റെ ഒരു കോണിൽ കാത്തുസൂക്ഷിക്കുന്ന അത്രമേൽ മനോഹരമാം സിനിമാഗാനങ്ങൾ | EVERGREEN HITS](https://www.youtube.com/watch?v=tVgTPulbU6c)
 - [കേൾക്കുന്ന മാത്രയിൽ എന്തെന്നില്ലാത്ത ആവേശവും ആനന്ദവുമേകുന്ന മലയാളസിനിമയിലെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=-Y9JRGH2GII)
+- [Dhama Dhama | Dance Party |Video Song| Shine Tom Chacko | Rahul Raj | Prayaga Martin |Sohan Seenulal](https://www.youtube.com/watch?v=mph8WCLo-hY)
 - [Thillai Thillai | Nakshathrangal Parayathirunnathu 2001 | M.G.Sreekumar | Malayalam Movie Song](https://www.youtube.com/watch?v=eiLE2OSb0p0)
 - [Monchathipenne Ninchundil | Maram | Ummar | Jayabharathi | Yousafali Kecheri | Devarajan](https://www.youtube.com/watch?v=kAHiGUM1gIo)
-- [Thaalam Thettiya Raagam | Kazhukan 1979 | M. K. Arjunan | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=wSGggh1XrDw)
-- [Singara Maane | Thai Mozhi | Ilaiyaraaja | Mano & Swarnalatha | Hi-Res Audio](https://www.youtube.com/watch?v=kU-6SYFFT7I)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
