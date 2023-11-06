@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Game of Thrones [S01 to S08] &lpar;2011 - 2019&rpar; WEB-DL - [1080p &amp; 720p - x264 - &lpar;Tam + Hin + Kan + Eng&rpar; - 30GB &amp; 20GB] - [x264 - &lpar;Tamil&rpar; - 11GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176120-game-of-thrones-s01-to-s08-2011-2019-web-dl-1080p-720p-x264-tam-hin-kan-eng-30gb-20gb-x264-tamil-11gb-esub/&do=findComment&comment=355731)
 - [Valatty &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Malayalam + Hindi + Kannada] - 3.2GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176127-valatty-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-telugu-malayalam-hindi-kannada-32gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355730)
 - [Irugapatru &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC- [Telugu + Malayalam + Kannada] - 2.5GB - 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176111-irugapatru-2023-true-web-dl-1080p-720p-avc-telugu-malayalam-kannada-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=355729)
 - [Jawan &lpar;2023&rpar; Tamil &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176024-jawan-2023-tamil-original-version-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-68gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355728)
 - [Raththam &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 12GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176045-raththam-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-12gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355727)
-- [Irugapatru &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176110-irugapatru-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355726)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
