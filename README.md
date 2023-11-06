@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=Vz6tThnw5R4)
 - [പ്രഭാത പ്രാര്‍ത്ഥന  November 7 # Athiravile Prarthana 7th of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=gVcdmw3fax0)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=9bU-QMFXPak)
 - [Beats of #Uyyandappa | #MyNameIsAzhagan | #BCNaufal | #DeepakDev | #ytshorts #shorts](https://www.youtube.com/watch?v=-13HJz84Uaw)
 - [Vibe to #Uyyandappa | #MyNameIsAzhagan | #BCNaufal | #DeepakDev | #ytshorts #shorts](https://www.youtube.com/watch?v=jJdOsuu7Sqg)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 7th November 23](https://www.youtube.com/watch?v=XkEUu_TzqA8)
-- [കാലങ്ങൾ കടന്നു ഇന്നും മരിയ്ക്കാത്ത നിത്യസംഗീതം | രവീന്ദ്രൻ മാസ്റ്റർ | Raveendran Master Hits](https://www.youtube.com/watch?v=Em31RYOmw_Y)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
