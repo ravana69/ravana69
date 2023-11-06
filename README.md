@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Ragasudharasa Video song | Sargam | Vineeth | Rambha](https://www.youtube.com/watch?v=C6CKeOhIGg4)
-- [മനസിന്റെ ഒരു കോണിൽ കാത്തുസൂക്ഷിക്കുന്ന അത്രമേൽ മനോഹരമാം സിനിമാഗാനങ്ങൾ | EVERGREEN HITS](https://www.youtube.com/watch?v=tVgTPulbU6c)
-- [കേൾക്കുന്ന മാത്രയിൽ എന്തെന്നില്ലാത്ത ആവേശവും ആനന്ദവുമേകുന്ന മലയാളസിനിമയിലെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=-Y9JRGH2GII)
-- [Dhama Dhama | Dance Party |Video Song| Shine Tom Chacko | Rahul Raj | Prayaga Martin |Sohan Seenulal](https://www.youtube.com/watch?v=mph8WCLo-hY)
-- [Thillai Thillai | Nakshathrangal Parayathirunnathu 2001 | M.G.Sreekumar | Malayalam Movie Song](https://www.youtube.com/watch?v=eiLE2OSb0p0)
-- [Monchathipenne Ninchundil | Maram | Ummar | Jayabharathi | Yousafali Kecheri | Devarajan](https://www.youtube.com/watch?v=kAHiGUM1gIo)
+- [ഞാൻ തന്നെ വഴിയും സത്യവും ജീവനുമാകുന്നു | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=iktAGuADJC8)
+- [Swarggeeya Varadaanam Amma | Parishudha Mathavinte Kripa Choriyunna Kristheeya Bhakthigaanangal |](https://www.youtube.com/watch?v=__Vtlg1BShw)
+- [Kuzhi Madiya Kulamadiya Song Shorts | Oridathoru Postman #shorts](https://www.youtube.com/watch?v=vBcQXHhocpc)
+- [Alasa Kolasa Pennu | Sahayathrikakku Snehapoorvam | KJ Yesudas | Mohan Sithara | S Ramesan Nair](https://www.youtube.com/watch?v=vOiUoPfPph8)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 6th of November 2023](https://www.youtube.com/watch?v=YQhOaqeaBLA)
+- [Paikkurumbiye Meykkum Video Song | Gramaphone | Dileep | Navya Nair | Vidyasagar | Sujatha Mohan](https://www.youtube.com/watch?v=wGOwlU2lTQI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
