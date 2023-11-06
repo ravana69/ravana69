@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kannukond Kessezhuthum | NH 47 | Sukumaran | Jalaja | KJ Yesudas | Poovachal Khadar | Shyam](https://www.youtube.com/watch?v=0qtfJ69Zbro)
+- [മരണം വന്നു വിളിക്കുമ്പോൾ പോകാതിരിക്കാൻ ആകുകില്ല](https://www.youtube.com/watch?v=9b_LEBK5Rq0)
+- [Christmas Carol Song | manju Peyum Pathiravil | Kings & Queens band |  Karaoke](https://www.youtube.com/watch?v=Xk4kIrtcwu8)
 - [Eshoyku Enthoru Sneham | Njan Marana Sneham | Anupa Ann Sam | Teenu Treasa | Christian Song Karaoke](https://www.youtube.com/watch?v=_ThKBjq4FP8)
 - [Paalappoove Nin | Remastered Audio Song | Njaan Gandharvan Movie | KS Chithra | Kaithapram | Johnson](https://www.youtube.com/watch?v=KzAXN7VpKpo)
 - [Thanthaanelelo Paattu | Pulliman | Maneesha KS | Sharreth | Vayalar Sarath Chandra Varma](https://www.youtube.com/watch?v=_JAE0MyjhP8)
-- [Vaidooryakkammal | Ee Puzhayum Kadannu | Johnson #SongOfTheDay](https://www.youtube.com/watch?v=nSYupk-eUJI)
-- [ഞാൻ തന്നെ വഴിയും സത്യവും ജീവനുമാകുന്നു | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=iktAGuADJC8)
-- [Swarggeeya Varadaanam Amma | Parishudha Mathavinte Kripa Choriyunna Kristheeya Bhakthigaanangal |](https://www.youtube.com/watch?v=__Vtlg1BShw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
