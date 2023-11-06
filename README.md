@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thanthaanelelo Paattu | Pulliman | Maneesha KS | Sharreth | Vayalar Sarath Chandra Varma](https://www.youtube.com/watch?v=_JAE0MyjhP8)
+- [Vaidooryakkammal | Ee Puzhayum Kadannu | Johnson #SongOfTheDay](https://www.youtube.com/watch?v=nSYupk-eUJI)
 - [ഞാൻ തന്നെ വഴിയും സത്യവും ജീവനുമാകുന്നു | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=iktAGuADJC8)
 - [Swarggeeya Varadaanam Amma | Parishudha Mathavinte Kripa Choriyunna Kristheeya Bhakthigaanangal |](https://www.youtube.com/watch?v=__Vtlg1BShw)
 - [Kuzhi Madiya Kulamadiya Song Shorts | Oridathoru Postman #shorts](https://www.youtube.com/watch?v=vBcQXHhocpc)
 - [Alasa Kolasa Pennu | Sahayathrikakku Snehapoorvam | KJ Yesudas | Mohan Sithara | S Ramesan Nair](https://www.youtube.com/watch?v=vOiUoPfPph8)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 6th of November 2023](https://www.youtube.com/watch?v=YQhOaqeaBLA)
-- [Paikkurumbiye Meykkum Video Song | Gramaphone | Dileep | Navya Nair | Vidyasagar | Sujatha Mohan](https://www.youtube.com/watch?v=wGOwlU2lTQI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
