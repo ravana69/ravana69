@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Irugapatru &lpar;2023&rpar; 1080p NF WEB-DL DDP5.1 Esubs x264 - 6 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176115-irugapatru-2023-1080p-nf-web-dl-ddp51-esubs-x264-6-gb/&do=findComment&comment=355703)
 - [Irugapatru &lpar;2023&rpar; 1080p NF WEB-DL DDP5.1 Esubs x264 - 6 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176115-irugapatru-2023-1080p-nf-web-dl-ddp51-esubs-x264-6-gb/&do=findComment&comment=355702)
 - [Game Of Thrones &lpar;2015&rpar; S05 EP &lpar;01 - 10&rpar; 720p &amp; 1080p JC WEB-DL ×264.[&lpar;Tamil &lpar;AAC 2.0 - 125kbps&rpar;] - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/168277-game-of-thrones-2015-s05-ep-01-10-720p-1080p-jc-web-dl-%C3%97264tamil-aac-20-125kbps-leyon/&do=findComment&comment=355701)
 - [Game Of Thrones &lpar;2014&rpar; S04 EP &lpar;01 - 10&rpar; 720p &amp; 1080p JC WEB-DL ×264.[&lpar;Tamil &lpar;AAC 2.0 - 125kbps&rpar;] - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/168289-game-of-thrones-2014-s04-ep-01-10-720p-1080p-jc-web-dl-%C3%97264tamil-aac-20-125kbps-leyon/&do=findComment&comment=355700)
 - [Game Of Thrones &lpar;2013&rpar; S03 EP &lpar;01 - 10&rpar; 720p &amp; 1080p JC WEB-DL ×264.[&lpar;Tamil &lpar;AAC 2.0 - 125kbps&rpar;] - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/168301-game-of-thrones-2013-s03-ep-01-10-720p-1080p-jc-web-dl-%C3%97264tamil-aac-20-125kbps-leyon/&do=findComment&comment=355699)
-- [Game Of Thrones &lpar;2012&rpar; S02 EP &lpar;01 - 10&rpar; 720p &amp; 1080p JC WEB-DL ×264.[&lpar;Tamil &lpar;AAC 2.0 - 125kbps&rpar;] - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/168334-game-of-thrones-2012-s02-ep-01-10-720p-1080p-jc-web-dl-%C3%97264tamil-aac-20-125kbps-leyon/&do=findComment&comment=355698)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
