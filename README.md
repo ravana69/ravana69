@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thillai Thillai | Nakshathrangal Parayathirunnathu 2001 | M.G.Sreekumar | Malayalam Movie Song](https://www.youtube.com/watch?v=eiLE2OSb0p0)
+- [Monchathipenne Ninchundil | Maram | Ummar | Jayabharathi | Yousafali Kecheri | Devarajan](https://www.youtube.com/watch?v=kAHiGUM1gIo)
+- [Thaalam Thettiya Raagam | Kazhukan 1979 | M. K. Arjunan | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=wSGggh1XrDw)
+- [Singara Maane | Thai Mozhi | Ilaiyaraaja | Mano & Swarnalatha | Hi-Res Audio](https://www.youtube.com/watch?v=kU-6SYFFT7I)
 - [Sthuthi Sthuthi En Maname | Madhu Balakrishnan #ytshorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=GqTQKRiewRM)
 - [സമ്പൂർണ്ണ ജപമാല കേട്ടു ഇന്നത്തെ ദിവസം ആരംഭിക്കാം # ഇത്ര ശക്തിയായ ജപമാല ഇല്ല #November 6th 2023](https://www.youtube.com/watch?v=EI_5IJv0RhQ)
-- [Japamala 6th of November 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 6th of November 23](https://www.youtube.com/watch?v=AzymI0rN9fw)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=ivKY97fFUBI)
-- [രാവിലെ പ്രാര്‍ത്ഥന  November 6 # Athiravile Prarthana 6th of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=Zu-81ZQtPrQ)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=9G5RYHv-lHM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
