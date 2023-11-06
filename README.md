@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Beats of #Uyyandappa | #MyNameIsAzhagan | #BCNaufal | #DeepakDev | #ytshorts #shorts](https://www.youtube.com/watch?v=-13HJz84Uaw)
+- [Vibe to #Uyyandappa | #MyNameIsAzhagan | #BCNaufal | #DeepakDev | #ytshorts #shorts](https://www.youtube.com/watch?v=jJdOsuu7Sqg)
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 7th November 23](https://www.youtube.com/watch?v=XkEUu_TzqA8)
+- [കാലങ്ങൾ കടന്നു ഇന്നും മരിയ്ക്കാത്ത നിത്യസംഗീതം | രവീന്ദ്രൻ മാസ്റ്റർ | Raveendran Master Hits](https://www.youtube.com/watch?v=Em31RYOmw_Y)
 - [Kannukond Kessezhuthum | NH 47 | Sukumaran | Jalaja | KJ Yesudas | Poovachal Khadar | Shyam](https://www.youtube.com/watch?v=0qtfJ69Zbro)
 - [മരണം വന്നു വിളിക്കുമ്പോൾ പോകാതിരിക്കാൻ ആകുകില്ല](https://www.youtube.com/watch?v=9b_LEBK5Rq0)
-- [Christmas Carol Song | manju Peyum Pathiravil | Kings & Queens band |  Karaoke](https://www.youtube.com/watch?v=Xk4kIrtcwu8)
-- [Eshoyku Enthoru Sneham | Njan Marana Sneham | Anupa Ann Sam | Teenu Treasa | Christian Song Karaoke](https://www.youtube.com/watch?v=_ThKBjq4FP8)
-- [Paalappoove Nin | Remastered Audio Song | Njaan Gandharvan Movie | KS Chithra | Kaithapram | Johnson](https://www.youtube.com/watch?v=KzAXN7VpKpo)
-- [Thanthaanelelo Paattu | Pulliman | Maneesha KS | Sharreth | Vayalar Sarath Chandra Varma](https://www.youtube.com/watch?v=_JAE0MyjhP8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
