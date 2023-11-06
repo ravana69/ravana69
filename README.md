@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Irugapatru &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176110-irugapatru-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355690)
-- [Irugapatru &lpar;2023&rpar; 1080p NF WEB-DL DDP5.1 Esubs x264 - 6 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176115-irugapatru-2023-1080p-nf-web-dl-ddp51-esubs-x264-6-gb/&do=findComment&comment=355689)
-- [Scam 2003: The Telgi Story &lpar;2023&rpar; S01 EP &lpar;06-10&rpar; TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 4.2GB - 1.9GB &amp; 700MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176037-scam-2003-the-telgi-story-2023-s01-ep-06-10-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-42gb-19gb-700mb-esub/&do=findComment&comment=355688)
-- [Leo Success Meet &lpar;2023&rpar; Tamil Full Show - [1080p &amp; 720p - AVC - 4GB - 2.5GB - 1.2GB &amp; 450MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176106-leo-success-meet-2023-tamil-full-show-1080p-720p-avc-4gb-25gb-12gb-450mb/&do=findComment&comment=355687)
-- [Chettu Kinda Pleader &lpar;1989&rpar; Telugu - DVD5 - UNTOUCHED - 576p - &lpar;DD5.0 - 384Kbps&rpar; - 3GB](https://www.1tamilmv.phd/index.php?/forums/topic/176117-chettu-kinda-pleader-1989-telugu-dvd5-untouched-576p-dd50-384kbps-3gb/&do=findComment&comment=355686)
+- [Japan &lpar;2023&rpar; Tamil Audio Launch - [1080p &amp; 720p - HDTV - 4.5GB - 2.5GB - 1.3GB &amp; 500MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176107-japan-2023-tamil-audio-launch-1080p-720p-hdtv-45gb-25gb-13gb-500mb/&do=findComment&comment=355695)
+- [Irugapatru &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC- [Telugu + Malayalam + Kannada] - 2.5GB - 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176111-irugapatru-2023-true-web-dl-1080p-720p-avc-telugu-malayalam-kannada-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=355694)
+- [Leo Success Meet &lpar;2023&rpar; Tamil Full Show - [1080p &amp; 720p - AVC - 4GB - 2.5GB - 1.2GB &amp; 450MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176106-leo-success-meet-2023-tamil-full-show-1080p-720p-avc-4gb-25gb-12gb-450mb/&do=findComment&comment=355693)
+- [Irugapatru &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176110-irugapatru-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355692)
+- [Irugapatru &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176110-irugapatru-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355691)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
