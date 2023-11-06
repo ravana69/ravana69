@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Eshoyku Enthoru Sneham | Njan Marana Sneham | Anupa Ann Sam | Teenu Treasa | Christian Song Karaoke](https://www.youtube.com/watch?v=_ThKBjq4FP8)
+- [Paalappoove Nin | Remastered Audio Song | Njaan Gandharvan Movie | KS Chithra | Kaithapram | Johnson](https://www.youtube.com/watch?v=KzAXN7VpKpo)
 - [Thanthaanelelo Paattu | Pulliman | Maneesha KS | Sharreth | Vayalar Sarath Chandra Varma](https://www.youtube.com/watch?v=_JAE0MyjhP8)
 - [Vaidooryakkammal | Ee Puzhayum Kadannu | Johnson #SongOfTheDay](https://www.youtube.com/watch?v=nSYupk-eUJI)
 - [ഞാൻ തന്നെ വഴിയും സത്യവും ജീവനുമാകുന്നു | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=iktAGuADJC8)
 - [Swarggeeya Varadaanam Amma | Parishudha Mathavinte Kripa Choriyunna Kristheeya Bhakthigaanangal |](https://www.youtube.com/watch?v=__Vtlg1BShw)
-- [Kuzhi Madiya Kulamadiya Song Shorts | Oridathoru Postman #shorts](https://www.youtube.com/watch?v=vBcQXHhocpc)
-- [Alasa Kolasa Pennu | Sahayathrikakku Snehapoorvam | KJ Yesudas | Mohan Sithara | S Ramesan Nair](https://www.youtube.com/watch?v=vOiUoPfPph8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
