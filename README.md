@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Thug Life _ KH234 _ Title Announcement Video_1080P &amp; 4K_DD5.1 Upmixed](https://www.1tamilmv.phd/index.php?/forums/topic/176119-thug-life-_-kh234-_-title-announcement-video_1080p-4k_dd51-upmixed/&do=findComment&comment=355706)
 - [Thug Life | KH234 | Title Announcement Video | Kamal Haasan | Mani Ratnam | AR Rahman | RKFI |MT |RG](https://www.1tamilmv.phd/index.php?/forums/topic/176118-thug-life-kh234-title-announcement-video-kamal-haasan-mani-ratnam-ar-rahman-rkfi-mt-rg/&do=findComment&comment=355705)
 - [Irugapatru &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176110-irugapatru-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355704)
 - [Irugapatru &lpar;2023&rpar; 1080p NF WEB-DL DDP5.1 Esubs x264 - 6 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176115-irugapatru-2023-1080p-nf-web-dl-ddp51-esubs-x264-6-gb/&do=findComment&comment=355703)
 - [Irugapatru &lpar;2023&rpar; 1080p NF WEB-DL DDP5.1 Esubs x264 - 6 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176115-irugapatru-2023-1080p-nf-web-dl-ddp51-esubs-x264-6-gb/&do=findComment&comment=355702)
-- [Game Of Thrones &lpar;2015&rpar; S05 EP &lpar;01 - 10&rpar; 720p &amp; 1080p JC WEB-DL ×264.[&lpar;Tamil &lpar;AAC 2.0 - 125kbps&rpar;] - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/168277-game-of-thrones-2015-s05-ep-01-10-720p-1080p-jc-web-dl-%C3%97264tamil-aac-20-125kbps-leyon/&do=findComment&comment=355701)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
