@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Irugapatru &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC- [Telugu + Malayalam + Kannada] - 2.5GB - 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176111-irugapatru-2023-true-web-dl-1080p-720p-avc-telugu-malayalam-kannada-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=355663)
-- [Irugapatru &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176110-irugapatru-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355662)
-- [Irugapatru &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176110-irugapatru-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355661)
-- [Irugapatru &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC- [Telugu + Malayalam + Kannada] - 2.5GB - 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176111-irugapatru-2023-true-web-dl-1080p-720p-avc-telugu-malayalam-kannada-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=355660)
-- [Gen V &lpar;2023&rpar; Complete S01 EP&lpar;01-08&rpar; Merged TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada + Eng] - 7.9GB - 3GB &amp; 1.7GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176113-gen-v-2023-complete-s01-ep01-08-merged-true-web-dl-1080p-720p-avc-dd51-192kbps-tamil-telugu-hindi-malayalam-kannada-eng-79gb-3gb-17gb-esub-google-drive/&do=findComment&comment=355659)
+- [Irugapatru &lpar;2023&rpar; 1080p NF WEB-DL DDP5.1 Esubs x264 - 6 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176115-irugapatru-2023-1080p-nf-web-dl-ddp51-esubs-x264-6-gb/&do=findComment&comment=355668)
+- [70 Tamil Movies - 1080p - SS / TK / SUN NXT WEB DL - H264 - DDP5.1/DD2.0/AAC2.0 - 300GB [Gdrive]](https://www.1tamilmv.phd/index.php?/forums/topic/132909-70-tamil-movies-1080p-ss-tk-sun-nxt-web-dl-h264-ddp51dd20aac20-300gb-gdrive/&do=findComment&comment=355667)
+- [Leo: Vetri Vizha Full Show SNXT WEB-DL AAC2.0 x264 - 1080p | 720p - 4.7 GB  | 2.1 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176114-leo-vetri-vizha-full-show-snxt-web-dl-aac20-x264-1080p-720p-47-gb-21-gb/&do=findComment&comment=355666)
+- [Leo Success Meet &lpar;2023&rpar; Tamil Full Show - [1080p &amp; 720p - AVC - 4GB - 2.5GB - 1.2GB &amp; 450MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176106-leo-success-meet-2023-tamil-full-show-1080p-720p-avc-4gb-25gb-12gb-450mb/&do=findComment&comment=355665)
+- [30 Tamil Movies - TK / JC / AMZN WEB DL H264 - DDP5.1/DD2.0 - [1080p &amp; 720p - 200GB] [Gdrive]](https://www.1tamilmv.phd/index.php?/forums/topic/169108-30-tamil-movies-tk-jc-amzn-web-dl-h264-ddp51dd20-1080p-720p-200gb-gdrive/&do=findComment&comment=355664)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
