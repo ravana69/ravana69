@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Unstoppable &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176128-unstoppable-2023-tamil-true-web-dl-1080p-720p-avc-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355758)
+- [Game of Thrones [S01 to S08] &lpar;2011 - 2019&rpar; WEB-DL - [1080p &amp; 720p - x264 - &lpar;Tam + Hin + Kan + Eng&rpar; - 30GB &amp; 20GB] - [x264 - &lpar;Tamil&rpar; - 11GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176120-game-of-thrones-s01-to-s08-2011-2019-web-dl-1080p-720p-x264-tam-hin-kan-eng-30gb-20gb-x264-tamil-11gb-esub/&do=findComment&comment=355757)
+- [Shot Boot Three &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Telugu + Hindi + Kannada] - 2.6GB &amp; 1.3GB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176126-shot-boot-three-2023-true-web-dl-1080p-720p-avc-dd51-192kbps-telugu-hindi-kannada-26gb-13gb-x264-750mb-450mb-esub/&do=findComment&comment=355756)
 - [Shot Boot Three &lpar;2023&rpar; Tamil HQ HDRip - 720p - HEVC - AAC - 600MB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176132-shot-boot-three-2023-tamil-hq-hdrip-720p-hevc-aac-600mb-esub/&do=findComment&comment=355755)
 - [Valatty &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Malayalam + Hindi + Kannada] - 3.2GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176127-valatty-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-telugu-malayalam-hindi-kannada-32gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355754)
-- [Brahmachari &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.3GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176130-brahmachari-2002-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-63gb-esub/&do=findComment&comment=355753)
-- [Irugapatru &lpar;2023&rpar; Tamil HQ HDRip - 720p - HEVC - AAC - 700MB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176131-irugapatru-2023-tamil-hq-hdrip-720p-hevc-aac-700mb-esub/&do=findComment&comment=355752)
-- [Brahmachari &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.3GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176130-brahmachari-2002-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-63gb-esub/&do=findComment&comment=355751)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
