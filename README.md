@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vellamadichavare | Maahi | Shorts #malayalamfilmsongs #shortsvideo](https://www.youtube.com/watch?v=RGLDXUu8btY)
 - [Vazhthuka Maname | Shreya Jayadeep  #shrots #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=MA1ovIdNonE)
 - [Athyunnathante | Kester | Christian Devotional Songs Malayalam | Prayer & Worship Songs](https://www.youtube.com/watch?v=riLrMBp7Lvc)
 - [Japamala 7th of November 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 7th of November 23](https://www.youtube.com/watch?v=TI4_HMN92JE)
 - [ഇത്ര നല്ല ലുത്തിനിയ ഞാൻ അടുത്തൊന്നും കേട്ടട്ടില്ല # അതിമനോഹരം ഈ ലുത്തിനിയ # വീണ്ടും വീണ്ടും കൊതിക്കു](https://www.youtube.com/watch?v=NPNL1oaJk3w)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=Vz6tThnw5R4)
-- [പ്രഭാത പ്രാര്‍ത്ഥന  November 7 # Athiravile Prarthana 7th of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=gVcdmw3fax0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
