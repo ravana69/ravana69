@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Unnathan Nee | Sujatha | Sam T Mukhathala #shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=rjt03rp7fG0)
-- [Vaarmeghame - Video Song | Bandra | Dileep, Tamannaah | Sam C.S | Shweta Mohan, Kapil Kapilan](https://www.youtube.com/watch?v=2SLqAf1WEfA)
-- [Kunjilam Umma Tharan Nadhan Koode Vannoo | Yeshunadhante Sneham Niranja Kristheeya Bhakthigaanangal](https://www.youtube.com/watch?v=0--q5YtYosE)
-- [മലയാളികൾ കേൾക്കാൻ കാതോർത്ത് ഇരിക്കുന്ന മലയാളസിനിമയിലെ അസുലഭ ഗാനങ്ങൾ ! EVERGREEN HIT SONGS](https://www.youtube.com/watch?v=DVB6zMe4nDs)
-- [Sreeramanamam | Narayam | Johnson | PK Gopi | KS Chithra | Urvashi | Murali | Evergreen Songs](https://www.youtube.com/watch?v=TUlpY5iSla0)
-- [ഇതുവരെ ഇതുവരെ | Ithuvare Ithuvare | Mylaanchi Super Hit Movie Song | K J Yesudas](https://www.youtube.com/watch?v=rcWU4_idSZ4)
+- [അകന്നു പോകുന്നു എന്നുള്ളത് ഏതൊരാൾക്കും വേഗം പിടുത്തം കിട്ടുന്ന അനുഭവമാണ് | Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=Gl_TCl_qFI4)
+- [When I am with U | In Ghost House Inn | Biju Peter | Anitha | Alex Paul | Aswathy Alex](https://www.youtube.com/watch?v=4PTD5QdC8Y4)
+- [Kaikkudanna Niraye | Maayamayooram |  K J Yesudas | Janaki #SongOfTheDay](https://www.youtube.com/watch?v=iWsjAdjvrAU)
+- [Kudamulla Poovinum Malayali penninum | Jwala | K. J Yesudas | Vayalar Ramavarma | B. Vasantha](https://www.youtube.com/watch?v=VI9wv05Gvd0)
+- [Yuvakkale Video Song | Chattakkari | P Madhuri #shorts](https://www.youtube.com/watch?v=syzEPyEPebs)
+- [Chithra Chechikkoppam | Paadiyum Paranjum | Malayala Manorama](https://www.youtube.com/watch?v=CU4oz46hPSU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
