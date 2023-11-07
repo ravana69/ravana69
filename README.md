@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Neelambari | Innaleyude Baakki 1988 | G. Devarajan | P. Madhuri | Malayalam Movie Song](https://www.youtube.com/watch?v=iBz7MGcjuMw)
+- [Anubhoothi Pookkum | Uthram Nakshathram | Beautiful Song by K S Chithra #shorts](https://www.youtube.com/watch?v=1Fju_JXqo9s)
 - [Kuyile Nin Kurumkuzhalil | MDMS | Prithviraj | Ambili Devi | Yesudas | Mohan Sithara | Vinayan](https://www.youtube.com/watch?v=xCE7qoOsvck)
 - [Evergreen Hero Kamal Hassan Malayalam Hits | Neelavana Cholayil | Maada Praave Vaa | Mele Poomala](https://www.youtube.com/watch?v=lJILctmlCKw)
 - [സ്വർഗ്ഗാധിപതേ ദേവാ |ROY PUTHUR | LIJO THOMAS| #christiandevotionalsongs  #royputhurprayer #royputhur](https://www.youtube.com/watch?v=TfzcaIbFJec)
 - [Vellamadichavare | Maahi | Shorts #malayalamfilmsongs #shortsvideo](https://www.youtube.com/watch?v=RGLDXUu8btY)
-- [Vazhthuka Maname | Shreya Jayadeep  #shrots #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=MA1ovIdNonE)
-- [Athyunnathante | Kester | Christian Devotional Songs Malayalam | Prayer & Worship Songs](https://www.youtube.com/watch?v=riLrMBp7Lvc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
