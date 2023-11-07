@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന  November 8 # Athiravile Prarthana 8th of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=BIoQueScrp0)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=1L8uCT6WO6E)
+- [Vibe for #Uyyandappa | #MyNameIsAzhagan | #BCNaufal | #DeepakDev | #ytshorts #shorts](https://www.youtube.com/watch?v=18sECVFZw1U)
+- [Lines of #Uyyandappa | #MyNameIsAzhagan | #BCNaufal | #DeepakDev | #ytshorts #shorts](https://www.youtube.com/watch?v=DiY8FojCXYM)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 8th November 23](https://www.youtube.com/watch?v=2MVMP3lC9a0)
 - [Puliyanka Kolam Ketti | Nirnayam | Mohanlal | Anand | MG Sreekumar | Baby Shyamili](https://www.youtube.com/watch?v=hXa_jBaOnOE)
-- [Aankuyile Thenkuyile Remastered Audio Song Dhwani Movie KJ Yesudas Yusufali Kecheri Naushad](https://www.youtube.com/watch?v=fv4QAWQaWpQ)
-- [Nishagandhi Poothu Chirichu | Nanni Veendum Varika | Shyam | KS Chithra | Mammootty | Urvashi](https://www.youtube.com/watch?v=zfnT7aZpEnw)
-- [ആരും കാണാതെ ഞാൻ കരയുമ്പോൾ ആരോടും പറയാതെ ഞാൻ ഉരുകുമ്പോൾ . . .](https://www.youtube.com/watch?v=MdZiMsYMPxs)
-- [അകന്നു പോകുന്നു എന്നുള്ളത് ഏതൊരാൾക്കും വേഗം പിടുത്തം കിട്ടുന്ന അനുഭവമാണ് | Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=Gl_TCl_qFI4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
