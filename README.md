@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kaathil Aro Mozhinju | Aviyal | Shorts | Harishankar KS  #malayalamfilmsongs #shortsvideo](https://www.youtube.com/watch?v=QUEekAuR9b0)
 - [Annante Hridayamallo 1981 | V. Dakshinamoorthy | Vani Jairam | Malayalam Movie Song](https://www.youtube.com/watch?v=6Hbtirl0Jg0)
 - [Oh Alagu Nilavu | My Dear Marthandan | Ilaiyaraaja | Mano | Hi-Res Audio](https://www.youtube.com/watch?v=DIWUoX0RyyY)
 - [Ennamilla Nanmakalennil | K S Chithra #shorts  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=LqrUSfNrRqc)
 - [Kanmaniye Karayathurangu | Kaarthika | S Janaki | M S Baburaj | Malayalam Classic Song](https://www.youtube.com/watch?v=-4IjmwhTGv0)
 - [Japamala 8th of November 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 8th of November 23](https://www.youtube.com/watch?v=BbwIBlsRMyw)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #November 8th mother mary prayer and songs non stop](https://www.youtube.com/watch?v=F8mAS94m0cc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
