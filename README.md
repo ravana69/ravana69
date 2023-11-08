@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP67 DAY 66 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 591MB &amp; 238MB | 08-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176153-bigg-boss-telugu-s07-ep67-day-66-true-web-dl-1080p-720p-480p-avc-untouched-11gb-591mb-238mb-08-11-2023/&do=findComment&comment=355827)
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP39 DAY 38 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 554MB &amp; 226MB | 08-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176152-bigg-boss-tamil-s07-ep39-day-38-true-web-dl-1080p-720p-480p-avc-untouched-1gb-554mb-226mb-08-11-2023/&do=findComment&comment=355826)
 - [House of the Dragon &lpar;2022&rpar; S01 EP &lpar;01-10&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada + Eng] - 7GB - 4GB &amp; 1.4GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176144-house-of-the-dragon-2022-s01-ep-01-10-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-7gb-4gb-14gb-esub/&do=findComment&comment=355824)
 - [Chernobyl &lpar;2019&rpar; Complete S01 EP &lpar;01-05&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada + Eng] - 4GB - 2GB &amp; 1GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176151-chernobyl-2019-complete-s01-ep-01-05-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-4gb-2gb-1gb-esub-google-drive/&do=findComment&comment=355823)
 - [Chernobyl &lpar;2019&rpar; Complete S01 EP &lpar;01-05&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada + Eng] - 4GB - 2GB &amp; 1GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176151-chernobyl-2019-complete-s01-ep-01-05-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-4gb-2gb-1gb-esub-google-drive/&do=findComment&comment=355822)
-- [Maya &lpar;2015&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 4.3GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176129-maya-2015-tamil-true-web-dl-1080p-avc-untouched-aac20-43gb-esub-gdflix/&do=findComment&comment=355821)
-- [House of the Dragon &lpar;2022&rpar; S01 EP &lpar;01-10&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada + Eng] - 7GB - 4GB &amp; 1.4GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176144-house-of-the-dragon-2022-s01-ep-01-10-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-7gb-4gb-14gb-esub/&do=findComment&comment=355820)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
