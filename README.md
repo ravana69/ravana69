@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Happy Diwali 2023 | Shop Local | Tips Malayalam](https://www.youtube.com/watch?v=6TGsyrEv0ZQ)
+- [മഹേശ്വരാ നിൻ സുദിനം കാണാൻ കഴിഞ്ഞ കണ്ണിനും സൗഭാഗ്യം](https://www.youtube.com/watch?v=LgRcaCOCuMw)
+- [മലരിടും ദേഹം | Malaridum Dheham | Raid Super Hit Malayalam Movie Song | Poovachal Khader](https://www.youtube.com/watch?v=MqqVsUeuQNg)
 - [Snehathin Poonchola | Pappayude Swandam Appus | K J Yesudas | Ilayaraja | Mammootty | #SongofTheDay](https://www.youtube.com/watch?v=BlKQ_bWtBcg)
 - [തക്ക സമയത്ത് നിനക്കായി അവൻ അത്ഭുതങ്ങൾ സൃഷ്ടിക്കും | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=XAqDEv2NOgk)
 - [Oru Ponkinaviletho | Georgootty C/O Georgootty | Video Song #shorts](https://www.youtube.com/watch?v=lRwSmiFOtjM)
-- [Thirunelli Kadu Poothu | Dinarathrangal | Super Hit Malayalam Movie Song | Mukesh | Parvathi](https://www.youtube.com/watch?v=mIZdxDg5V8E)
-- [Yuvakkale Yuvathikale Video Song | Chattakkari | P Madhuri](https://www.youtube.com/watch?v=ackVSp3nCZE)
-- [Kalyanapallakkil Veli Payyan Video Song | Kaliyoonjal | Dileep | Shalini | Ilayaraja | Bhavatharani](https://www.youtube.com/watch?v=r7BenMNRpmY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
