@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Game Of Thrones &lpar;2011&rpar; SeaSon 1 Ep &lpar;01-10&rpar; 2160p 4K UHD SDR BluRay HEVC 10bit Multi Audios [Org &lpar;Telugu+ Tamil+ Hindi&rpar; &lpar;DD2.0 ~ 192Kbps&rpar; + English AAC 7.1] - 20GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176149-game-of-thrones-2011-season-1-ep-01-10-2160p-4k-uhd-sdr-bluray-hevc-10bit-multi-audios-org-telugu-tamil-hindi-dd20-~-192kbps-english-aac-71-20gb-esub/&do=findComment&comment=355816)
 - [Game Of Thrones &lpar;2011&rpar; SeaSon 1 Ep &lpar;01-10&rpar; 2160p 4K UHD SDR BluRay HEVC 10bit Multi Audios [Org &lpar;Telugu+ Tamil+ Hindi&rpar; &lpar;DD2.0 ~ 192Kbps&rpar; + English AAC 7.1] - 20GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176149-game-of-thrones-2011-season-1-ep-01-10-2160p-4k-uhd-sdr-bluray-hevc-10bit-multi-audios-org-telugu-tamil-hindi-dd20-~-192kbps-english-aac-71-20gb-esub/&do=findComment&comment=355814)
 - [Game of Thrones &lpar;2011 - 2019&rpar; Complete [S01 - S08] Merged HQ HDRip - 720p - &lpar;AAC 2.0&rpar; &lpar;Tamil + Hindi + Kannada&rpar; - x264 ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176134-game-of-thrones-2011-2019-complete-s01-s08-merged-hq-hdrip-720p-aac-20-tamil-hindi-kannada-x264-esub-google-drive/&do=findComment&comment=355813)
 - [Geethanjali &lpar;2014&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 4GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176150-geethanjali-2014-telugu-dvd5-untouched-480p-dd51-448kbps-4gb-esub/&do=findComment&comment=355812)
 - [Game of Thrones &lpar;2011 - 2019&rpar; Complete [S01 - S08] Merged HQ HDRip - 720p - &lpar;AAC 2.0&rpar; &lpar;Tamil + Hindi + Kannada&rpar; - x264 ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176134-game-of-thrones-2011-2019-complete-s01-s08-merged-hq-hdrip-720p-aac-20-tamil-hindi-kannada-x264-esub-google-drive/&do=findComment&comment=355811)
-- [Chernobyl &lpar;2019&rpar; S01 EP &lpar;01-05&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada + Eng] - 4GB - 2GB &amp; 1GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176148-chernobyl-2019-s01-ep-01-05-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-4gb-2gb-1gb-esub/&do=findComment&comment=355810)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
