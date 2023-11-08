@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Kanninima Neele Unplugged |  Anwar | Suchithra Karthik | Gopi Sundar | Rafeeq Ahamad](https://www.youtube.com/watch?v=srQeWrH0YLg)
-- [Mangala Deepam | മംഗളദീപം | Sipayi Lahala Superhit Movie Song | Mukesh | Vani Viswanath | Yesudas](https://www.youtube.com/watch?v=UN7ewpf6p4Q)
-- [എന്നു മേഘേ വന്നിടും | Susan Rajukutty #shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=EMAhxIhqnWk)
-- [Vinnilum Mannilum | വിണ്ണിലും മണ്ണിലും |  Manithali Super Hit  Movie Song | Mammootty | Seema](https://www.youtube.com/watch?v=5brYktJceXE)
-- [ഒരു കാലത്ത് മലയാളികൾ സദാ മൂളി നടന്നിരുന്ന മറക്കാനാവാത്ത  സൂപ്പർഹിറ്റ് മെലഡി ഗാനങ്ങൾ | EVERGREEN HITS](https://www.youtube.com/watch?v=K_3M-4sNnps)
-- [മനസിനുള്ളിൽ വർണമഴ തീർത്ത ഒരുപിടി നല്ല ഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=rMYMJWDQ0O8)
+- [തക്ക സമയത്ത് നിനക്കായി അവൻ അത്ഭുതങ്ങൾ സൃഷ്ടിക്കും | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=XAqDEv2NOgk)
+- [Oru Ponkinaviletho | Georgootty C/O Georgootty | Video Song #shorts](https://www.youtube.com/watch?v=lRwSmiFOtjM)
+- [Thirunelli Kadu Poothu | Dinarathrangal | Super Hit Malayalam Movie Song | Mukesh | Parvathi](https://www.youtube.com/watch?v=mIZdxDg5V8E)
+- [Yuvakkale Yuvathikale Video Song | Chattakkari | P Madhuri](https://www.youtube.com/watch?v=ackVSp3nCZE)
+- [Kalyanapallakkil Veli Payyan Video Song | Kaliyoonjal | Dileep | Shalini | Ilayaraja | Bhavatharani](https://www.youtube.com/watch?v=r7BenMNRpmY)
+- [Devaankanangal kaiyyozhinja | Remastered Audio Song | Njaan Gandharvan Movie KS Chithra Kaithapram](https://www.youtube.com/watch?v=Wd71Jp3FzZ8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
