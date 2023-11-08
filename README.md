@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Japamala 8th of November 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 8th of November 23](https://www.youtube.com/watch?v=BbwIBlsRMyw)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #November 8th mother mary prayer and songs non stop](https://www.youtube.com/watch?v=F8mAS94m0cc)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=j67yfiCUEf4)
 - [രാവിലെ പ്രാര്‍ത്ഥന  November 8 # Athiravile Prarthana 8th of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=BIoQueScrp0)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=1L8uCT6WO6E)
 - [Vibe for #Uyyandappa | #MyNameIsAzhagan | #BCNaufal | #DeepakDev | #ytshorts #shorts](https://www.youtube.com/watch?v=18sECVFZw1U)
-- [Lines of #Uyyandappa | #MyNameIsAzhagan | #BCNaufal | #DeepakDev | #ytshorts #shorts](https://www.youtube.com/watch?v=DiY8FojCXYM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
