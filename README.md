@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 9th November 23](https://www.youtube.com/watch?v=aaWWis5qCyc)
 - [Dance along with #Uyyandappa | #MyNameIsAzhagan | #BCNaufal | #DeepakDev | #ytshorts #shorts](https://www.youtube.com/watch?v=ljyOOgGePsc)
 - [Velippenninu Thalikku | Mazhathullikilukkam | Dileep | Navya Nair | Suresh Peters | Sreenivas](https://www.youtube.com/watch?v=DoWPtnSI9lA)
 - [Happy Diwali 2023 | Shop Local | Tips Malayalam](https://www.youtube.com/watch?v=6TGsyrEv0ZQ)
 - [മഹേശ്വരാ നിൻ സുദിനം കാണാൻ കഴിഞ്ഞ കണ്ണിനും സൗഭാഗ്യം](https://www.youtube.com/watch?v=LgRcaCOCuMw)
 - [മലരിടും ദേഹം | Malaridum Dheham | Raid Super Hit Malayalam Movie Song | Poovachal Khader](https://www.youtube.com/watch?v=MqqVsUeuQNg)
-- [Snehathin Poonchola | Pappayude Swandam Appus | K J Yesudas | Ilayaraja | Mammootty | #SongofTheDay](https://www.youtube.com/watch?v=BlKQ_bWtBcg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
