@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Jagadam &lpar;2007&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 5.8GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176147-jagadam-2007-telugu-dvd9-untouched-480p-dd51-448kbps-58gb-esub/&do=findComment&comment=355796)
 - [Manmadhan &lpar;2004&rpar; 480p SNXT WEB-DL AAC.2.0 x264 - 1.8 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176145-manmadhan-2004-480p-snxt-web-dl-aac20-x264-18-gb/&do=findComment&comment=355794)
 - [Dum Masala &lpar;From &#39;&#39;Guntur Kaaram&#39;&#39;&rpar; Telugu First Single Track - [24Bit-96kHz &amp; 16Bit &amp; iTunes] - Thaman S Musical](https://www.1tamilmv.phd/index.php?/forums/topic/176146-dum-masala-from-guntur-kaaram-telugu-first-single-track-24bit-96khz-16bit-itunes-thaman-s-musical/&do=findComment&comment=355793)
 - [Manmadhan &lpar;2004&rpar; 480p SNXT WEB-DL AAC.2.0 x264 - 1.8 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176145-manmadhan-2004-480p-snxt-web-dl-aac20-x264-18-gb/&do=findComment&comment=355792)
 - [100 Hollywood Movies - BluRay - H264/H265 - [Tamil + Telugu + Hindi + Eng] - ESub - [4K, 1080p &amp; 720p - 700GB] [GDRIVE]](https://www.1tamilmv.phd/index.php?/forums/topic/168182-100-hollywood-movies-bluray-h264h265-tamil-telugu-hindi-eng-esub-4k-1080p-720p-700gb-gdrive/&do=findComment&comment=355791)
-- [Aakali Rajyam &lpar;1980&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 4.7GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176141-aakali-rajyam-1980-telugu-dvd9-untouched-480p-dd51-448kbps-47gb-esub/&do=findComment&comment=355789)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
