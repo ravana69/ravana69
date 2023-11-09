@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Chennai Express &lpar;2013&rpar; Telugu - DVDRip - UNTOUCHED - 576p - &lpar;DD+5.1 - 448Kbps&rpar; - 4GB](https://www.1tamilmv.phd/index.php?/forums/topic/176156-chennai-express-2013-telugu-dvdrip-untouched-576p-dd51-448kbps-4gb/&do=findComment&comment=355886)
 - [Narakasura &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176066-narakasura-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355885)
 - [Vidhi &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176065-vidhi-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355884)
 - [BadBoy &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176164-badboy-2023-hindi-true-web-dl-1080p-720p-avc-dd51-384kbps-2gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=355883)
 - [Oppenheimer &lpar;2023&rpar; BluRay REMUX 1080p DTS-HDMA.5.1 Esubs x264 - 39.7 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176160-oppenheimer-2023-bluray-remux-1080p-dts-hdma51-esubs-x264-397-gb/&do=findComment&comment=355882)
-- [Game Of Thrones &lpar;2012&rpar; SeaSon 2 Ep &lpar;01-10&rpar; 2160p 4K UHD SDR BluRay HEVC 10bit Multi Audios [Org &lpar;Telugu+ Tamil+ Hindi&rpar; &lpar;DD2.0 ~ 192Kbps&rpar; + English AAC 7.1] - 20GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176168-game-of-thrones-2012-season-2-ep-01-10-2160p-4k-uhd-sdr-bluray-hevc-10bit-multi-audios-org-telugu-tamil-hindi-dd20-~-192kbps-english-aac-71-20gb-esub/&do=findComment&comment=355881)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
