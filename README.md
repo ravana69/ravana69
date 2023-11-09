@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Game Of Thrones &lpar;2012&rpar; SeaSon 2 Ep &lpar;01-10&rpar; 2160p 4K UHD SDR BluRay HEVC 10bit Multi Audios [Org &lpar;Telugu+ Tamil+ Hindi&rpar; &lpar;DD2.0 ~ 192Kbps&rpar; + English AAC 7.1] - 20GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176168-game-of-thrones-2012-season-2-ep-01-10-2160p-4k-uhd-sdr-bluray-hevc-10bit-multi-audios-org-telugu-tamil-hindi-dd20-~-192kbps-english-aac-71-20gb-esub/&do=findComment&comment=355881)
 - [Game Of Thrones &lpar;2013&rpar; Complete S03 EP&lpar;01-10&rpar; Merged Bluray - [1080p - 720p - HEVC - [Telugu &lpar;Org JIO AAC 2.0 - 192Kbps&rpar;] - 8.5GB &amp; 4.2GB - 1.4GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176167-game-of-thrones-2013-complete-s03-ep01-10-merged-bluray-1080p-720p-hevc-telugu-org-jio-aac-20-192kbps-85gb-42gb-14gb-esub-google-drive/&do=findComment&comment=355880)
 - [Game Of Thrones &lpar;2013&rpar; Complete S03 EP&lpar;01-10&rpar; Merged Bluray - [1080p - 720p - HEVC - [Telugu &lpar;Org JIO AAC 2.0 - 192Kbps&rpar;] - 8.5GB &amp; 4.2GB - 1.4GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176167-game-of-thrones-2013-complete-s03-ep01-10-merged-bluray-1080p-720p-hevc-telugu-org-jio-aac-20-192kbps-85gb-42gb-14gb-esub-google-drive/&do=findComment&comment=355879)
 - [Amma Nanna O Tamila Ammayi &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176166-amma-nanna-o-tamila-ammayi-2003-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-7gb-esub/&do=findComment&comment=355878)
 - [Amma Nanna O Tamila Ammayi &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176166-amma-nanna-o-tamila-ammayi-2003-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-7gb-esub/&do=findComment&comment=355876)
-- [BadBoy &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176164-badboy-2023-hindi-true-web-dl-1080p-720p-avc-dd51-384kbps-2gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=355875)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
