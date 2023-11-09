@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Aranmanai &lpar;2014&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD.5.1 &amp; AAC.2.0&rpar; - 5.5GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176163-aranmanai-2014-tamil-true-web-dl-1080p-hq-avc-untouched-dd51-aac20-55gb-esub-gdflix/&do=findComment&comment=355854)
-- [Aakali Rajyam &lpar;1980&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 4.7GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176141-aakali-rajyam-1980-telugu-dvd9-untouched-480p-dd51-448kbps-47gb-esub/&do=findComment&comment=355853)
-- [Maya &lpar;2015&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 4.3GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176129-maya-2015-tamil-true-web-dl-1080p-avc-untouched-aac20-43gb-esub-gdflix/&do=findComment&comment=355852)
-- [Oppenheimer &lpar;2023&rpar; English BluRay - [1080p &amp; 720p - x264 - &lpar;DTS 5.1 - 3500Kbps&rpar; - 8GB - 2.8GB - 1.1GB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176161-oppenheimer-2023-english-bluray-1080p-720p-x264-dts-51-3500kbps-8gb-28gb-11gb-400mb-esub/&do=findComment&comment=355851)
-- [Chennai Express &lpar;2013&rpar; Telugu - DVDRip - UNTOUCHED - 576p - &lpar;DD+5.1 - 448Kbps&rpar; - 4GB](https://www.1tamilmv.phd/index.php?/forums/topic/176156-chennai-express-2013-telugu-dvdrip-untouched-576p-dd51-448kbps-4gb/&do=findComment&comment=355850)
+- [Game Of Thrones &lpar;2012&rpar; Complete S02 EP&lpar;01-10&rpar; Merged Bluray - [1080p - 720p - HEVC - [Telugu &lpar;Org JIO AAC 2.0 - 192Kbps&rpar;] - 6.9GB &amp; 3.9GB - 1.4GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176159-game-of-thrones-2012-complete-s02-ep01-10-merged-bluray-1080p-720p-hevc-telugu-org-jio-aac-20-192kbps-69gb-39gb-14gb-esub-google-drive/&do=findComment&comment=355861)
+- [Fukrey 3 &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176165-fukrey-3-2023-hindi-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=355860)
+- [The Marvels &lpar;2023&rpar; English HDCAM - [1080p &amp; 720p - x264 - 1.8GB &amp; 900MB | x264 - 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176064-the-marvels-2023-english-hdcam-1080p-720p-x264-18gb-900mb-x264-400mb/&do=findComment&comment=355859)
+- [Oppenheimer &lpar;2023&rpar; English BluRay - [1080p &amp; 720p - x264 - &lpar;DTS 5.1 - 3500Kbps&rpar; - 8GB - 2.8GB - 1.1GB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176161-oppenheimer-2023-english-bluray-1080p-720p-x264-dts-51-3500kbps-8gb-28gb-11gb-400mb-esub/&do=findComment&comment=355858)
+- [Fukrey 3 &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176165-fukrey-3-2023-hindi-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=355857)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
