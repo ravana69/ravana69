@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Tea Time Tunes Jukebox | Best Malayalam Melody Collection | Mollywood Love hits](https://www.youtube.com/watch?v=fnTuc3jEiVs)
+- [Enne Chavittunna Paadangalinimel| Manassaliyippikkunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=NSfOLcaQQYM)
 - [Konchi Karayalle Remastered Audio Song Poomukhappadiyil Ninneyum Kaathu KJ Yesudas S Janaki](https://www.youtube.com/watch?v=V9qXaXW3sbM)
 - [Dhama Dhama | Dance Party | Shorts](https://www.youtube.com/watch?v=snBD7IxH0p8)
 - [Dhama Dhama | Dance Party | Shorts](https://www.youtube.com/watch?v=U3y7P2QHwtA)
 - [Dhama Dhama | Dance Party | Shorts](https://www.youtube.com/watch?v=qODMn5JAYNo)
-- [Dhama Dhama | Dance Party | Shorts](https://www.youtube.com/watch?v=7prJtpBc_-0)
-- [മലയാളസിനിമയിലെ സൂപ്പർഹിറ്റ് കോമഡി ചിത്രങ്ങളിൽ നിന്നും തെരഞ്ഞെടുത്ത നിത്യഹരിതഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=GFOSYJYKNkI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
