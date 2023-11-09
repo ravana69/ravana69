@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Boys Hostel &lpar;2023&rpar; Telugu &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176183-boys-hostel-2023-telugu-original-version-true-web-dl-1080p-720p-avc-aac-28gb-14gb-x264-700mb-400mb/&do=findComment&comment=355915)
 - [Label &lpar;2023&rpar; S01 EP &lpar;01-03&rpar; TRUE WEB-DL - [4K ,1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.7GB - 1.4GB &amp; 500MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176182-label-2023-s01-ep-01-03-true-web-dl-4k-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-27gb-14gb-500mb-esub/&do=findComment&comment=355914)
 - [📌 KAAPPAAN &lpar;2019&rpar; [Bandobast] &lpar;Tam + Tel &rpar;  &lpar;Music Video Album&rpar; - HQ 1080P - AMZN - WEBDL - H264 - DDP 5.1 @ 640 Kb/s - ESubs - 1.6GB](https://www.1tamilmv.phd/index.php?/forums/topic/176181-%F0%9F%93%8C-kaappaan-2019-bandobast-tam-tel-music-video-album-hq-1080p-amzn-webdl-h264-ddp-51-640-kbs-esubs-16gb/&do=findComment&comment=355913)
-- [Baanadariyalli &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176180-baanadariyalli-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=355912)
+- [Baanadariyalli &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176180-baanadariyalli-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=355912)
 - [Pippa &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.7GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176179-pippa-2023-hindi-true-web-dl-1080p-720p-avc-dd51-640kbps-27gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=355911)
-- [Game of Thrones &lpar;2019&rpar; S08 Complete Bluray - 2160p [HDR] | 1080p [10bit] - 190 GB | 83 GB | 18 GB](https://www.1tamilmv.phd/index.php?/forums/topic/168508-game-of-thrones-2019-s08-complete-bluray-2160p-hdr-1080p-10bit-190-gb-83-gb-18-gb/&do=findComment&comment=355908)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
