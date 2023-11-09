@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Tea Time Tunes Jukebox | Best Malayalam Melody Collection | Mollywood Love hits](https://www.youtube.com/watch?v=fnTuc3jEiVs)
-- [Enne Chavittunna Paadangalinimel| Manassaliyippikkunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=NSfOLcaQQYM)
-- [Konchi Karayalle Remastered Audio Song Poomukhappadiyil Ninneyum Kaathu KJ Yesudas S Janaki](https://www.youtube.com/watch?v=V9qXaXW3sbM)
-- [Dhama Dhama | Dance Party | Shorts](https://www.youtube.com/watch?v=snBD7IxH0p8)
-- [Dhama Dhama | Dance Party | Shorts](https://www.youtube.com/watch?v=U3y7P2QHwtA)
-- [Dhama Dhama | Dance Party | Shorts](https://www.youtube.com/watch?v=qODMn5JAYNo)
+- [എന്റെ അവകാശത്തിന്റെയും പാനപാത്രത്തിന്റെയും പങ്ക് യഹോവയാണ് | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=_-7hSoPO5Cc)
+- [RDX - Full Album | Shane Nigam, Antony Varghese, Neeraj Madhav | Nahas Hidhayath | Sam C S](https://www.youtube.com/watch?v=C4noJkuUQIw)
+- [Mizhiyariyaathe | Niram| Vidyasagar | K J YUesudas #SongOfTheDay](https://www.youtube.com/watch?v=na8mbvlov8A)
+- [നിലാവേ മായുമോ | Evergreen Super Hit Song | Minnaram #shorts](https://www.youtube.com/watch?v=k1aE8qTFj8U)
+- [Venmukilin Kambili Maarum | Mummy & Me | KS Chithra | Sejo John | Vayalar Sarathchandra Varma](https://www.youtube.com/watch?v=3rz58CkIN-c)
+- [ക്രിസ്മസ് കാലമായാൽ മനസിന് ആനന്ദവും ഉന്മേഷവും നല്കുന്ന സൂപ്പർഹിറ്റ്  ഗാനങ്ങൾ |Christmas Songs 2023](https://www.youtube.com/watch?v=JJ18_hWMNB4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
