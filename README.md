@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Dhama Dhama | Dance Party | Shorts](https://www.youtube.com/watch?v=qODMn5JAYNo)
+- [Dhama Dhama | Dance Party | Shorts](https://www.youtube.com/watch?v=7prJtpBc_-0)
 - [മലയാളസിനിമയിലെ സൂപ്പർഹിറ്റ് കോമഡി ചിത്രങ്ങളിൽ നിന്നും തെരഞ്ഞെടുത്ത നിത്യഹരിതഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=GFOSYJYKNkI)
 - [Thalatherichavar - HipHop Mix | Romancham | Sushin Shyam | Zia Ul Haq, MC Couper | Alvin Bruno](https://www.youtube.com/watch?v=84z7ULq_cJA)
 - [കാതിന് കുളിരേകും സുന്ദരമെലഡി ഗാനങ്ങൾ ചേർത്ത സൂപ്പർഹിറ്റ് ചലച്ചിത്രഗാനങ്ങൾ  | NISARI MUSIC](https://www.youtube.com/watch?v=mrPnMWffiQE)
 - [Malayalam Romantic Hits Video Jukebox | Most Viwed Malayalam Melody Collection | Malayalam Hits](https://www.youtube.com/watch?v=ZcTzsArBrLw)
-- [Paranjilla Njan | Lyrical Video | Mambazhakalam | K J Yesudas |Gireesh Puthencherry | M Jayachandran](https://www.youtube.com/watch?v=oj8XfVXcp6s)
-- [Annante Hridayamallo 1981 | V. Dakshinamoorthy | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=n5ypGpAitdI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
