@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP68 DAY 67 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 512MB &amp; 214MB | 09-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176171-bigg-boss-telugu-s07-ep68-day-67-true-web-dl-1080p-720p-480p-avc-untouched-1gb-512mb-214mb-09-11-2023/&do=findComment&comment=355892)
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP40 DAY 39 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 547MB &amp; 219MB | 09-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176170-bigg-boss-tamil-s07-ep40-day-39-true-web-dl-1080p-720p-480p-avc-untouched-1gb-547mb-219mb-09-11-2023/&do=findComment&comment=355891)
+- [40 Hollywood Movies - BluRay - H264/H265 - ESub - [1080p &amp; 720p - 300GB] [GDrive]](https://www.1tamilmv.phd/index.php?/forums/topic/139530-40-hollywood-movies-bluray-h264h265-esub-1080p-720p-300gb-gdrive/&do=findComment&comment=355890)
 - [Raja Magal &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176169-raja-magal-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355889)
 - [House of the Dragon &lpar;2022&rpar; S01 EP &lpar;01-10&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada + Eng] - 7GB - 4GB &amp; 1.4GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176144-house-of-the-dragon-2022-s01-ep-01-10-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-7gb-4gb-14gb-esub/&do=findComment&comment=355888)
-- [Amma Nanna O Tamila Ammayi &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176166-amma-nanna-o-tamila-ammayi-2003-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-7gb-esub/&do=findComment&comment=355887)
-- [Chennai Express &lpar;2013&rpar; Telugu - DVDRip - UNTOUCHED - 576p - &lpar;DD+5.1 - 448Kbps&rpar; - 4GB](https://www.1tamilmv.phd/index.php?/forums/topic/176156-chennai-express-2013-telugu-dvdrip-untouched-576p-dd51-448kbps-4gb/&do=findComment&comment=355886)
-- [Narakasura &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176066-narakasura-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355885)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
