@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [BIGG BOSS &lpar;Telugu&rpar; S07 EP68 DAY 67 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 512MB &amp; 214MB | 09-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176171-bigg-boss-telugu-s07-ep68-day-67-true-web-dl-1080p-720p-480p-avc-untouched-1gb-512mb-214mb-09-11-2023/&do=findComment&comment=355892)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP40 DAY 39 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 547MB &amp; 219MB | 09-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176170-bigg-boss-tamil-s07-ep40-day-39-true-web-dl-1080p-720p-480p-avc-untouched-1gb-547mb-219mb-09-11-2023/&do=findComment&comment=355891)
-- [40 Hollywood Movies - BluRay - H264/H265 - ESub - [1080p &amp; 720p - 300GB] [GDrive]](https://www.1tamilmv.phd/index.php?/forums/topic/139530-40-hollywood-movies-bluray-h264h265-esub-1080p-720p-300gb-gdrive/&do=findComment&comment=355890)
-- [Raja Magal &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176169-raja-magal-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355889)
-- [House of the Dragon &lpar;2022&rpar; S01 EP &lpar;01-10&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada + Eng] - 7GB - 4GB &amp; 1.4GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176144-house-of-the-dragon-2022-s01-ep-01-10-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-7gb-4gb-14gb-esub/&do=findComment&comment=355888)
+- [Aranmanai &lpar;2014&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD.5.1 &amp; AAC.2.0&rpar; - 5.5GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176163-aranmanai-2014-tamil-true-web-dl-1080p-hq-avc-untouched-dd51-aac20-55gb-esub-gdflix/&do=findComment&comment=355907)
+- [Succession &lpar;2018&rpar; S01 EP &lpar;01-10&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - 5.5GB - 3.5GB &amp; 1.4GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176173-succession-2018-s01-ep-01-10-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-55gb-35gb-14gb-esub/&do=findComment&comment=355905)
+- [Oppenheimer &lpar;2023&rpar; English BluRay - [1080p &amp; 720p - x264 - &lpar;DTS 5.1 - 3500Kbps&rpar; - 8GB - 2.8GB - 1.1GB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176161-oppenheimer-2023-english-bluray-1080p-720p-x264-dts-51-3500kbps-8gb-28gb-11gb-400mb-esub/&do=findComment&comment=355904)
+- [Game of Thrones S01 COMPLETE JC WEB-DL TAM-ENG AAC2.0 Esubs x264 - Single Episodes - 38 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176162-game-of-thrones-s01-complete-jc-web-dl-tam-eng-aac20-esubs-x264-single-episodes-%C2%A038-gb/&do=findComment&comment=355903)
+- [Aranmanai &lpar;2014&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD.5.1 &amp; AAC.2.0&rpar; - 5.5GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176163-aranmanai-2014-tamil-true-web-dl-1080p-hq-avc-untouched-dd51-aac20-55gb-esub-gdflix/&do=findComment&comment=355902)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
