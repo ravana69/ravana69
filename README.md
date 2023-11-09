@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Game of Thrones S01 COMPLETE JC WEB-DL TAM-ENG AAC2.0 Esubs x264 - Single Episodes - 38 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176162-game-of-thrones-s01-complete-jc-web-dl-tam-eng-aac20-esubs-x264-single-episodes-%C2%A038-gb/&do=findComment&comment=355848)
-- [Oppenheimer &lpar;2023&rpar; English BluRay - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 320Kbps&rpar; - 8GB - 2.8GB - 1.1GB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176161-oppenheimer-2023-english-bluray-1080p-720p-x264-dd51-320kbps-8gb-28gb-11gb-400mb-esub/&do=findComment&comment=355847)
-- [Oppenheimer &lpar;2023&rpar; BluRay REMUX 1080p DTS-HDMA.5.1 Esubs x264 - 39.7 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176160-oppenheimer-2023-bluray-remux-1080p-dts-hdma51-esubs-x264-397-gb/&do=findComment&comment=355846)
-- [Oppenheimer &lpar;2023&rpar; BluRay REMUX 1080p DTS-HDMA.5.1 Esubs x264 - 39.7 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176160-oppenheimer-2023-bluray-remux-1080p-dts-hdma51-esubs-x264-397-gb/&do=findComment&comment=355845)
-- [Game Of Thrones &lpar;2012&rpar; Complete S02 EP&lpar;01-10&rpar; Merged Bluray - [1080p - 720p - HEVC - [Telugu &lpar;Org JIO AAC 2.0 - 192Kbps&rpar;] - 6.9GB &amp; 3.9GB - 1.4GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176159-game-of-thrones-2012-complete-s02-ep01-10-merged-bluray-1080p-720p-hevc-telugu-org-jio-aac-20-192kbps-69gb-39gb-14gb-esub-google-drive/&do=findComment&comment=355844)
+- [Aranmanai &lpar;2014&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD.5.1 &amp; AAC.2.0&rpar; - 5.5GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176163-aranmanai-2014-tamil-true-web-dl-1080p-hq-avc-untouched-dd51-aac20-55gb-esub-gdflix/&do=findComment&comment=355854)
+- [Aakali Rajyam &lpar;1980&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 4.7GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176141-aakali-rajyam-1980-telugu-dvd9-untouched-480p-dd51-448kbps-47gb-esub/&do=findComment&comment=355853)
+- [Maya &lpar;2015&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 4.3GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176129-maya-2015-tamil-true-web-dl-1080p-avc-untouched-aac20-43gb-esub-gdflix/&do=findComment&comment=355852)
+- [Oppenheimer &lpar;2023&rpar; English BluRay - [1080p &amp; 720p - x264 - &lpar;DTS 5.1 - 3500Kbps&rpar; - 8GB - 2.8GB - 1.1GB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176161-oppenheimer-2023-english-bluray-1080p-720p-x264-dts-51-3500kbps-8gb-28gb-11gb-400mb-esub/&do=findComment&comment=355851)
+- [Chennai Express &lpar;2013&rpar; Telugu - DVDRip - UNTOUCHED - 576p - &lpar;DD+5.1 - 448Kbps&rpar; - 4GB](https://www.1tamilmv.phd/index.php?/forums/topic/176156-chennai-express-2013-telugu-dvdrip-untouched-576p-dd51-448kbps-4gb/&do=findComment&comment=355850)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
