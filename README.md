@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 10th November 23](https://www.youtube.com/watch?v=FUz31x59YkI)
+- [ഒരിക്കലും മറക്കാനാവാത്ത രവീന്ദ്രൻമാഷിൻറെ മനോഹരഗാനങ്ങൾ | Raveendran Master Hits | K J Yesudas](https://www.youtube.com/watch?v=mxVNtIC2OK4)
 - [Karunaamayane | Oru Maravathoor Kanavu | Mammootty | Vidyasagar | Biju Menon | Mohini](https://www.youtube.com/watch?v=e0HlX_jk9DM)
 - [Ilam Manjin Kulirumayoru Video Song | Ninnishtam Ennishtam | Mohanlal | Priya | KJ Yesudas| S Janaki](https://www.youtube.com/watch?v=dEFM_C-D_bA)
 - [ആർദ്ര സ്നേഹത്തിൻ പൊൻതൂവലാൽ എന്റെ ആത്മാവിനെ നീ തലോടി.](https://www.youtube.com/watch?v=BiqDXfYKHJQ)
 - [Aaranu Koottu | China Town | Kavalam Sreekumar | Jassie Gift | Anil Panachooran](https://www.youtube.com/watch?v=XFoRX1cgYB4)
-- [എന്റെ അവകാശത്തിന്റെയും പാനപാത്രത്തിന്റെയും പങ്ക് യഹോവയാണ് | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=_-7hSoPO5Cc)
-- [RDX - Full Album | Shane Nigam, Antony Varghese, Neeraj Madhav | Nahas Hidhayath | Sam C S](https://www.youtube.com/watch?v=C4noJkuUQIw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
