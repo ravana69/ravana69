@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mother mary daily  songs malayalam Nov 10th 2023](https://www.youtube.com/watch?v=jbju6eANgrQ)
+- [Japamala 10th of November 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 10th of November 23](https://www.youtube.com/watch?v=D5I0fgWwo1U)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=zTg9GizBYfU)
 - [രാവിലെ പ്രാര്‍ത്ഥന  November 10 # Athiravile Prarthana 10th of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=Gu0E8fjuQGk)
 - [Antha Utchi Malai | Enga Thambi | Ilaiyaraaja | Mano | Hi-Res Audio](https://www.youtube.com/watch?v=p9U2I8b5rx4)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=3XoQQxD5LkE)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 10th November 23](https://www.youtube.com/watch?v=FUz31x59YkI)
-- [ഒരിക്കലും മറക്കാനാവാത്ത രവീന്ദ്രൻമാഷിൻറെ മനോഹരഗാനങ്ങൾ | Raveendran Master Hits | K J Yesudas](https://www.youtube.com/watch?v=mxVNtIC2OK4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
