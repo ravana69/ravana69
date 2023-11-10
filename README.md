@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [വെള്ളിച്ചില്ലും വിതറി തുള്ളി തുള്ളി ഒഴുകുംപൊരിനുര ചിതറും കാട്ടരുവീ പറയാമോ നീ  #malayalamsongs](https://www.youtube.com/watch?v=4yS2q_UXxlU)
+- [Poonkattinodum Remastered Audio Song Poomukhappadiyil Ninneyum Kaathu KJ Yesudas S Janaki](https://www.youtube.com/watch?v=6nVONRNqwGU)
+- [പൊതുജനങ്ങളുടെ ഇടയിൽ അത്രമേൽ ജനപ്രീതി നേടിയ മലയാളത്തിലെ മികച്ച സിനിമാഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=nH2Xn7FvQw4)
+- [മാരാ നിൻ പുഞ്ചിരിനൽകിയ രോമാഞ്ചം....#shortsyoutube #chippyrenjith #evergreenhits #movieworldmusic](https://www.youtube.com/watch?v=EhAsYSbxXo0)
 - [EE PATHIRAVIL ORU PULARI | Santhosh K Mathew #shorts #shortvideo](https://www.youtube.com/watch?v=w98FJ47dFwc)
 - [Thannannam Thaanannam | Yathra | Mammootty | Sobhaba | Ilayaraja | Yesudas](https://www.youtube.com/watch?v=AJreVJ4Wglw)
-- [Punnaram thudi | Newspaper Boy 1997 | Nissar | K. J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=3Yi0GIITZx4)
-- [Ultimate Retro Vibes Jukebox | Malayalam Evergreen Songs Collection | Malayalam All Time Hits](https://www.youtube.com/watch?v=s2trUEnFDw4)
-- [Athmavilaake | Nithya Mammen | Dr. Antony Kalliath | Sreejith Unnikrishnan | Sijo Mathew Jacob](https://www.youtube.com/watch?v=FI030gytLrU)
-- [Vazhthuka Maname | Shreya Jayadeep  #shrots #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=WvqMIveCQM0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
