@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Japan &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176189-japan-2023-tamil-proper-hq-predvd-1080p-720p-x264-28gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355966)
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP41 DAY 40 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 544MB &amp; 218MB | 10-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176201-bigg-boss-tamil-s07-ep41-day-40-true-web-dl-1080p-720p-480p-avc-untouched-1gb-544mb-218mb-10-11-2023/&do=findComment&comment=355965)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP69 DAY 68 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.2GB - 580MB &amp; 241MB | 10-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176200-bigg-boss-telugu-s07-ep69-day-68-true-web-dl-1080p-720p-480p-avc-untouched-12gb-580mb-241mb-10-11-2023/&do=findComment&comment=355964)
 - [Japan &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176189-japan-2023-tamil-proper-hq-predvd-1080p-720p-x264-28gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355963)
 - [House of the Dragon &lpar;2022&rpar; S01 EP &lpar;01-10&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada + Eng] - 7GB - 4GB &amp; 1.4GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176144-house-of-the-dragon-2022-s01-ep-01-10-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-7gb-4gb-14gb-esub/&do=findComment&comment=355962)
-- [Game Of Thrones &lpar;2013&rpar; SeaSon 3 Ep &lpar;01-10&rpar; 2160p 4K UHD SDR BluRay HEVC 10bit Multi Audios [Org &lpar;Telugu+ Tamil+ Hindi&rpar; &lpar;DD2.0 ~ 192Kbps&rpar; + English AAC 7.1] - 20GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176199-game-of-thrones-2013-season-3-ep-01-10-2160p-4k-uhd-sdr-bluray-hevc-10bit-multi-audios-org-telugu-tamil-hindi-dd20-~-192kbps-english-aac-71-20gb-esub/&do=findComment&comment=355961)
-- [Loki S02E06 DSNP WEB-DL MULTI DDP5.1 Esubs - 2160p [HDR10] | 1080p | 720p - 6.5 GB | 2.6 GB | 0.9 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176184-loki-s02e06-dsnp-web-dl-multi-ddp51-esubs-2160p-hdr10-1080p-720p-65-gb-26-gb-09-gb/&do=findComment&comment=355960)
-- [Rudri &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.9GB - 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176186-rudri-2023-kannada-true-web-dl-1080p-720p-avc-29gb-14gb-x264-700mb-400mb/&do=findComment&comment=355959)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
