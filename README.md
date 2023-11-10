@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [കോളേജ്‌ ലൈല കോളടിച്ചു | College Laila Kolaadichu | MYLAANCHI Super Hit Movie Song |  K J Yesudas](https://www.youtube.com/watch?v=-P-eE8-epio)
-- [വിറവാലന്‍ കുരുവി  | Viravaalan kuruvi | Kayamkulam Kochunni Super Hit Movie Song | S Janaki](https://www.youtube.com/watch?v=KYIWu1kuaDo)
-- [വെള്ളിച്ചില്ലും വിതറി തുള്ളി തുള്ളി ഒഴുകുംപൊരിനുര ചിതറും കാട്ടരുവീ പറയാമോ നീ  #malayalamsongs](https://www.youtube.com/watch?v=4yS2q_UXxlU)
-- [Poonkattinodum Remastered Audio Song Poomukhappadiyil Ninneyum Kaathu KJ Yesudas S Janaki](https://www.youtube.com/watch?v=6nVONRNqwGU)
-- [പൊതുജനങ്ങളുടെ ഇടയിൽ അത്രമേൽ ജനപ്രീതി നേടിയ മലയാളത്തിലെ മികച്ച സിനിമാഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=nH2Xn7FvQw4)
-- [മാരാ നിൻ പുഞ്ചിരിനൽകിയ രോമാഞ്ചം....#shortsyoutube #chippyrenjith #evergreenhits #movieworldmusic](https://www.youtube.com/watch?v=EhAsYSbxXo0)
+- [കിലുങ്ങുന്ന ചിരിയിൽ മുഴുവർണ്ണ പീലികൾ...  #malayalamsongs #evergeeenmalayalamhits](https://www.youtube.com/watch?v=idh3WsECzss)
+- [Katte Katte Nee | Film song on Gayathri Veena | Vaikom Vijayalakshmi | M Jayachandran | Instrumental](https://www.youtube.com/watch?v=xdr_rN6H07k)
+- [ആട്ടിടയനെ രാജാവാക്കുന്ന കാരാഗൃഹവാസിയെ മന്ത്രിയാക്കുന്ന ദൈവം | Rev. Aneesh P Joseph #shorts](https://www.youtube.com/watch?v=I3X0O5u9ups)
+- [Anthiveyil Ponnuthirum | Ulladakkam | K J Yesudas | Sujatha Mohan #SongOfTheDay](https://www.youtube.com/watch?v=HtqKnxI-8iM)
+- [Chillalamaalakal Video Song Short | Aayiram Meni | K S Chithra #shorts](https://www.youtube.com/watch?v=dSBcNydTEc8)
+- [Thaliraninjoru | Evergreen Super Hit Song | Minnaram | M G Sreekumar](https://www.youtube.com/watch?v=dDpiF-gsqSE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
