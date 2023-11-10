@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nadangalaay Nee Varoo | Ninnishtam Ennishtam | Mohanlal | Kannur Rajan | KS Chithra](https://www.youtube.com/watch?v=TNpyu1zvXo4)
 - [Aala Asatthum | Kanni Rasi | Ilaiyaraaja | S.P.B & Vani Jayaram | Hi-Res Audio](https://www.youtube.com/watch?v=e9F7UG8oN34)
 - [Mangala Deepavumaay Video Song | Kaikudanna Nilavu | KS Chithra | Gireesh Puthenchery](https://www.youtube.com/watch?v=6YjFA3uoMRQ)
 - [കനിവുള്ള കൈകൾ നീട്ടും ...](https://www.youtube.com/watch?v=qfLm6QXhf3E)
 - [തെന്നിന്ത്യൻ സൂപ്പർ സ്റ്റാറുകളുടെയെല്ലാം നായികയായി തിളങ്ങിയ മീനയുടെ മലയാളത്തിലെ സൂപ്പർഹിറ്റ്ഗാനങ്ങൾ](https://www.youtube.com/watch?v=DE8c4zHWenQ)
 - [Viyya Miyya | In Ghost House Inn | Anitha | Alex Paul](https://www.youtube.com/watch?v=q9grzxcMRkw)
-- [കിലുങ്ങുന്ന ചിരിയിൽ മുഴുവർണ്ണ പീലികൾ...  #malayalamsongs #evergeeenmalayalamhits](https://www.youtube.com/watch?v=idh3WsECzss)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
