@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Japan &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176189-japan-2023-tamil-proper-hq-predvd-1080p-720p-x264-28gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355966)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP41 DAY 40 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 544MB &amp; 218MB | 10-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176201-bigg-boss-tamil-s07-ep41-day-40-true-web-dl-1080p-720p-480p-avc-untouched-1gb-544mb-218mb-10-11-2023/&do=findComment&comment=355965)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 EP69 DAY 68 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.2GB - 580MB &amp; 241MB | 10-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176200-bigg-boss-telugu-s07-ep69-day-68-true-web-dl-1080p-720p-480p-avc-untouched-12gb-580mb-241mb-10-11-2023/&do=findComment&comment=355964)
-- [Japan &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176189-japan-2023-tamil-proper-hq-predvd-1080p-720p-x264-28gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355963)
-- [House of the Dragon &lpar;2022&rpar; S01 EP &lpar;01-10&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada + Eng] - 7GB - 4GB &amp; 1.4GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176144-house-of-the-dragon-2022-s01-ep-01-10-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-7gb-4gb-14gb-esub/&do=findComment&comment=355962)
+- [Succession.S01.1080p,720p .JIO.WEB-DL.DUAL.AAC2.0.x264 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176206-successions011080p720p-jioweb-dldualaac20x264-direct-download/&do=findComment&comment=355971)
+- [Escaping.Twin.Flames.S01.2160p,1080p,720p.NF.WEB-DL.DUAL.DDP5.1.DV.H.265 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176205-escapingtwinflamess012160p1080p720pnfweb-dldualddp51dvh265-direct-download/&do=findComment&comment=355970)
+- [Mastaney.2023.2160p,1080p,720p.AMZN.WEB-DL.DDP5.1.H.265 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176204-mastaney20232160p1080p720pamznweb-dlddp51h265-direct-download/&do=findComment&comment=355969)
+- [The.Wandering.Earth.II.2023.1080p,720p .AMZN.WEB-DL.Multi.DDP5.1.H.264 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176203-thewanderingearthii20231080p720p-amznweb-dlmultiddp51h264-direct-download/&do=findComment&comment=355968)
+- [Loki.S02E06.Glorious.Purpose 2160p,1080p,720p &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176202-lokis02e06gloriouspurpose-2160p1080p720p-direct-download/&do=findComment&comment=355967)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
