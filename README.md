@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [INVINCIBLE S02E02 AMZN WEB-DL Multi DDP5.1 Esubs x264 -  1080p | 720p - 2.1 GB | 0.6 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176185-invincible-s02e02-amzn-web-dl-multi-ddp51-esubs-x264-1080p-720p-21-gb-06-gb/&do=findComment&comment=355922)
+- [Loki S02E06 DSNP WEB-DL MULTI DDP5.1 Esubs - 2160p [HDR10] | 1080p | 720p - 6.5 GB | 2.6 GB | 0.9 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176184-loki-s02e06-dsnp-web-dl-multi-ddp51-esubs-2160p-hdr10-1080p-720p-65-gb-26-gb-09-gb/&do=findComment&comment=355921)
 - [The Wandering Earth II &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176175-the-wandering-earth-ii-2023-hd-original-audios-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-eng-3gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=355920)
 - [Label &lpar;2023&rpar; S01 EP &lpar;01-03&rpar; TRUE WEB-DL - [4K ,1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.7GB - 1.4GB &amp; 500MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176182-label-2023-s01-ep-01-03-true-web-dl-4k-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-27gb-14gb-500mb-esub/&do=findComment&comment=355919)
 - [The Road &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.3GB - 1.6GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176176-the-road-2023-tamil-true-web-dl-4k-1080p-720p-avc-dd51-384kbps-23gb-16gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355918)
-- [The Road &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.3GB - 1.6GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176176-the-road-2023-tamil-true-web-dl-4k-1080p-720p-avc-dd51-384kbps-23gb-16gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355917)
-- [The Road &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.3GB - 1.6GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176176-the-road-2023-tamil-true-web-dl-4k-1080p-720p-avc-dd51-384kbps-23gb-16gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=355916)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
