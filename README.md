@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [50 Tamil Movies - TK / JC / SS / SUN NXT WEB DL H264 - DDP5.1/AAC2.0 - [1080p &amp; 720p - 500GB] [Gdrive]](https://www.1tamilmv.phd/index.php?/forums/topic/142918-50-tamil-movies-tk-jc-ss-sun-nxt-web-dl-h264-ddp51aac20-1080p-720p-500gb-gdrive/&do=findComment&comment=355972)
 - [Succession.S01.1080p,720p .JIO.WEB-DL.DUAL.AAC2.0.x264 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176206-successions011080p720p-jioweb-dldualaac20x264-direct-download/&do=findComment&comment=355971)
 - [Escaping.Twin.Flames.S01.2160p,1080p,720p.NF.WEB-DL.DUAL.DDP5.1.DV.H.265 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176205-escapingtwinflamess012160p1080p720pnfweb-dldualddp51dvh265-direct-download/&do=findComment&comment=355970)
 - [Mastaney.2023.2160p,1080p,720p.AMZN.WEB-DL.DDP5.1.H.265 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176204-mastaney20232160p1080p720pamznweb-dlddp51h265-direct-download/&do=findComment&comment=355969)
 - [The.Wandering.Earth.II.2023.1080p,720p .AMZN.WEB-DL.Multi.DDP5.1.H.264 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176203-thewanderingearthii20231080p720p-amznweb-dlmultiddp51h264-direct-download/&do=findComment&comment=355968)
-- [Loki.S02E06.Glorious.Purpose 2160p,1080p,720p &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176202-lokis02e06gloriouspurpose-2160p1080p720p-direct-download/&do=findComment&comment=355967)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
