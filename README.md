@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന  November 11 # Athiravile Prarthana 11th of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=JdI5TQR8ohQ)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=yGpV8rFo8O0)
+- [Malarkodipole |Vishukkani |Sreekumaran Thampi | S. Janaki #shorts](https://www.youtube.com/watch?v=94j0LHFqqVg)
 - [Lines of #RakkaRakka | #Bandra | #Dileep, #Tamannaah | #SamCS | #ytshorts #shorts](https://www.youtube.com/watch?v=iuStfzYKsjc)
 - [Tunes of #RakkaRakka | #Bandra | #Dileep, #Tamannaah | #SamCS | #ytshorts #shorts](https://www.youtube.com/watch?v=30HRug6_jAA)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 11th November 23](https://www.youtube.com/watch?v=bRI2QrqNBVs)
-- [Nadangalaay Nee Varoo | Ninnishtam Ennishtam | Mohanlal | Kannur Rajan | KS Chithra](https://www.youtube.com/watch?v=TNpyu1zvXo4)
-- [Aala Asatthum | Kanni Rasi | Ilaiyaraaja | S.P.B & Vani Jayaram | Hi-Res Audio](https://www.youtube.com/watch?v=e9F7UG8oN34)
-- [Mangala Deepavumaay Video Song | Kaikudanna Nilavu | KS Chithra | Gireesh Puthenchery](https://www.youtube.com/watch?v=6YjFA3uoMRQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
