@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Tantiram &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.3GB &amp; 1.6GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176212-tantiram-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-23gb-16gb-x264-700mb-400mb-esub/&do=findComment&comment=355999)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP41 DAY 40 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 544MB &amp; 218MB | 10-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176201-bigg-boss-tamil-s07-ep41-day-40-true-web-dl-1080p-720p-480p-avc-untouched-1gb-544mb-218mb-10-11-2023/&do=findComment&comment=355998)
 - [Jigarthanda Double X &lpar;2023&rpar; Hindi HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176192-jigarthanda-double-x-2023-hindi-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355997)
 - [Jigarthanda Double X &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176191-jigarthanda-double-x-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355996)
 - [Japan &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176189-japan-2023-tamil-proper-hq-predvd-1080p-720p-x264-28gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355995)
-- [To Catch a Killer &lpar;2023&rpar;  &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+2.0 - 224Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.7GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176208-to-catch-a-killer-2023-bluray-original-audios-1080p-720p-x264-dd20-224kbps-tamil-telugu-hindi-eng-27gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=355994)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
