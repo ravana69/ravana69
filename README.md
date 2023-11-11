@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aalaapanam | Ambadi Thannilorunni 1986 |  K. S. Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=nhYKbWPmptE)
+- [Yadhukula Gopike | Vazhiyorakkazhchakal | Mohanlal | Unni Menon | S P Venkitesh](https://www.youtube.com/watch?v=P5cJv74SC5U)
+- [Manjin Thooval | Aviyal | Shorts | Harishankar KS  #malayalamfilmsongs #shortsvideo](https://www.youtube.com/watch?v=6Al0Nfq8KmI)
 - [Unnathan Nee | Sujatha | Sam T Mukhathala #shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=aO_zmSemBGQ)
 - [Christian Video Songs Malayalam | Madhu Balakrishnan | Kester |KG Markose | Christian Melody Songs](https://www.youtube.com/watch?v=NrcA1Eyaz-4)
 - [Japamala 11th of November 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 11th of November 23](https://www.youtube.com/watch?v=h8QWKtA-JYE)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mother mary daily prayer and songs malayalam Nov](https://www.youtube.com/watch?v=s21MlHp1CuE)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=i4zxRxaxR1s)
-- [പ്രഭാത പ്രാര്‍ത്ഥന  November 11 # Athiravile Prarthana 11th of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=JdI5TQR8ohQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
