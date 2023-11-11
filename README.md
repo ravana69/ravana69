@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Boys Hostel &lpar;2023&rpar; Telugu &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176183-boys-hostel-2023-telugu-original-version-true-web-dl-1080p-720p-avc-aac-28gb-14gb-x264-700mb-400mb/&do=findComment&comment=356026)
+- [Game Of Thrones &lpar;2014&rpar; Complete S04 EP&lpar;01-10&rpar; Merged Bluray - [1080p - 720p - HEVC - [Telugu &lpar;Org JIO AAC 2.0 - 192Kbps&rpar;] - 7.5GB &amp; 3.9GB - 1.8GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176221-game-of-thrones-2014-complete-s04-ep01-10-merged-bluray-1080p-720p-hevc-telugu-org-jio-aac-20-192kbps-75gb-39gb-18gb-esub-google-drive/&do=findComment&comment=356025)
 - [Echo &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176215-echo-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356024)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Shivaji&#39;s Comedy Class - 480p - AVC - UNTOUCHED - AAC - 83MB](https://www.1tamilmv.phd/index.php?/forums/topic/176220-bigg-boss-telugu-s07-unseen-shivajis-comedy-class-480p-avc-untouched-aac-83mb/&do=findComment&comment=356023)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Birthday Celebrations in BB House - 480p - AVC - UNTOUCHED - AAC - 72MB](https://www.1tamilmv.phd/index.php?/forums/topic/176219-bigg-boss-telugu-s07-unseen-birthday-celebrations-in-bb-house-480p-avc-untouched-aac-72mb/&do=findComment&comment=356022)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Prince Yawar Thanks BB - 480p - AVC - UNTOUCHED - AAC - 66MB](https://www.1tamilmv.phd/index.php?/forums/topic/176218-bigg-boss-telugu-s07-unseen-prince-yawar-thanks-bb-480p-avc-untouched-aac-66mb/&do=findComment&comment=356021)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 UNSEEN - Shivaji, Prince Yawar&#39;s Talk - 480p - AVC - UNTOUCHED - AAC - 81MB](https://www.1tamilmv.phd/index.php?/forums/topic/176217-bigg-boss-telugu-s07-unseen-shivaji-prince-yawars-talk-480p-avc-untouched-aac-81mb/&do=findComment&comment=356020)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
