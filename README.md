@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [താരസിംഹാസനത്തിലെ ചക്രവർത്തി നമ്മുടെ സ്വന്തം ലാലേട്ടന്റെ മനസോട് ചേർത്തുവെച്ച ഗാനങ്ങൾ | MOHANLAL HITS](https://www.youtube.com/watch?v=8Yz_K4_edOQ)
+- [മലയാളസിനിമയിലെ ചരിത്രം സൃഷ്‌ടിച്ച ജനപ്രിയ ഗാനങ്ങൾ  | EVERGREEN MALAYALAM FILM SONGS | NISARI MUSIC](https://www.youtube.com/watch?v=_0YCkoHSCZk)
 - [മൊഞ്ചേറും പൂവണി | Moncherum Poovani  | Manithalli Romantic Movie Song | Seema | Mammootty](https://www.youtube.com/watch?v=0e7f38EKENo)
 - [Enthishtamaanenikkenno | Kottappurathe Koottukudumbam | Yesudas | Kaithapram | Sound of Arts](https://www.youtube.com/watch?v=olaRpxux1Qk)
 - [Vel Muruga Haro Hara | Mohanlal | Naran #shortsfeed #shorts #mohanlal #deepakdev #lyricalvideo](https://www.youtube.com/watch?v=nBHU0-2oTsQ)
 - [Devasabhaathalam Remastered Audio His Highness Abdulla Movie KJ Yesudas MG Sreekumar, Sharreth](https://www.youtube.com/watch?v=HkuI0bqu9os)
-- [Aalaapanam | Ambadi Thannilorunni 1986 |  K. S. Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=nhYKbWPmptE)
-- [Yadhukula Gopike | Vazhiyorakkazhchakal | Mohanlal | Unni Menon | S P Venkitesh](https://www.youtube.com/watch?v=P5cJv74SC5U)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
