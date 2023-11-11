@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Dhwadasiyil | Madhuranombarakattu | Vidyasagar | K. J. Yesudas | Sujatha #songoftheday](https://www.youtube.com/watch?v=b91DTL3IuYA)
-- [താരസിംഹാസനത്തിലെ ചക്രവർത്തി നമ്മുടെ സ്വന്തം ലാലേട്ടന്റെ മനസോട് ചേർത്തുവെച്ച ഗാനങ്ങൾ | MOHANLAL HITS](https://www.youtube.com/watch?v=8Yz_K4_edOQ)
-- [മലയാളസിനിമയിലെ ചരിത്രം സൃഷ്‌ടിച്ച ജനപ്രിയ ഗാനങ്ങൾ  | EVERGREEN MALAYALAM FILM SONGS | NISARI MUSIC](https://www.youtube.com/watch?v=_0YCkoHSCZk)
-- [മൊഞ്ചേറും പൂവണി | Moncherum Poovani  | Manithalli Romantic Movie Song | Seema | Mammootty](https://www.youtube.com/watch?v=0e7f38EKENo)
-- [Enthishtamaanenikkenno | Kottappurathe Koottukudumbam | Yesudas | Kaithapram | Sound of Arts](https://www.youtube.com/watch?v=olaRpxux1Qk)
-- [Vel Muruga Haro Hara | Mohanlal | Naran #shortsfeed #shorts #mohanlal #deepakdev #lyricalvideo](https://www.youtube.com/watch?v=nBHU0-2oTsQ)
+- [ഒഴുകുന്ന പുഴപോലെയാണ് ജീവിതം.| Rev. Aneesh P Joseph #shorts #motivation #motivation](https://www.youtube.com/watch?v=KXjATluWy_M)
+- [Shilayazhaku Shilayazhaku | Sinkari Bolona | Exclusive!!! | Nishant Sagar | Manya - Unnikrishan Hits](https://www.youtube.com/watch?v=RLoeqt-L2v0)
+- [Kiliye Kiliye - Lyrical Video | Puthumukhangal | Biju Narayanan | Shyam Dharman](https://www.youtube.com/watch?v=n_84tiEyxQg)
+- [Christian Melody Songs | Minmini | Joji Johns | Kester | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=_cGq8jqQaEE)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 11th of November 2023](https://www.youtube.com/watch?v=hisueMiDV9A)
+- [Chandana Thennalai Video Song | Sharjah to Sharjah | Jayaram | KJ Yesudas | Gireesh Puthenchery](https://www.youtube.com/watch?v=nqdnOXJDrYg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
