@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Tantiram &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.3GB &amp; 1.6GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176212-tantiram-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-23gb-16gb-x264-700mb-400mb-esub/&do=findComment&comment=355999)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP41 DAY 40 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 544MB &amp; 218MB | 10-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176201-bigg-boss-tamil-s07-ep41-day-40-true-web-dl-1080p-720p-480p-avc-untouched-1gb-544mb-218mb-10-11-2023/&do=findComment&comment=355998)
-- [Jigarthanda Double X &lpar;2023&rpar; Hindi HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176192-jigarthanda-double-x-2023-hindi-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355997)
-- [Jigarthanda Double X &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176191-jigarthanda-double-x-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355996)
-- [Japan &lpar;2023&rpar; Tamil Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.8GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176189-japan-2023-tamil-proper-hq-predvd-1080p-720p-x264-28gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=355995)
+- [Game of Thrones &lpar;2011&rpar; S01 Complete Bluray - 2160p [HDR] | 1080p [144FPS|60FPS] - 243 GB | 106 GB | 53.4 GB | 35.8 GB](https://www.1tamilmv.phd/index.php?/forums/topic/168027-game-of-thrones-2011-s01-complete-bluray-2160p-hdr-1080p-144fps60fps-243-gb-106-gb-534-gb-358-gb/&do=findComment&comment=356004)
+- [Game of Thrones &lpar;2011&rpar; S01 Complete Bluray - 2160p [HDR] | 1080p [144FPS|60FPS] - 243 GB | 106 GB | 53.4 GB | 35.8 GB](https://www.1tamilmv.phd/index.php?/forums/topic/168027-game-of-thrones-2011-s01-complete-bluray-2160p-hdr-1080p-144fps60fps-243-gb-106-gb-534-gb-358-gb/&do=findComment&comment=356003)
+- [Game of Thrones &lpar;2019&rpar; S08 Complete Bluray - 2160p [HDR] | 1080p [10bit] - 190 GB | 83 GB | 18 GB](https://www.1tamilmv.phd/index.php?/forums/topic/168508-game-of-thrones-2019-s08-complete-bluray-2160p-hdr-1080p-10bit-190-gb-83-gb-18-gb/&do=findComment&comment=356002)
+- [Game of Thrones S01 COMPLETE JC WEB-DL TAM-ENG AAC2.0 Esubs x264 - Single Episodes - 38 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176162-game-of-thrones-s01-complete-jc-web-dl-tam-eng-aac20-esubs-x264-single-episodes-%C2%A038-gb/&do=findComment&comment=356001)
+- [Game of Thrones S01 COMPLETE JC WEB-DL TAM-ENG AAC2.0 Esubs x264 - Single Episodes - 38 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176162-game-of-thrones-s01-complete-jc-web-dl-tam-eng-aac20-esubs-x264-single-episodes-%C2%A038-gb/&do=findComment&comment=356000)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
