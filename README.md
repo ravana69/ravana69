@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Game Of Thrones &lpar;2013&rpar; SeaSon 3 Ep &lpar;01-10&rpar; 2160p 4K UHD SDR BluRay HEVC 10bit Multi Audios [Org &lpar;Telugu+ Tamil+ Hindi&rpar; &lpar;DD2.0 ~ 192Kbps&rpar; + English AAC 7.1] - 20GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176199-game-of-thrones-2013-season-3-ep-01-10-2160p-4k-uhd-sdr-bluray-hevc-10bit-multi-audios-org-telugu-tamil-hindi-dd20-~-192kbps-english-aac-71-20gb-esub/&do=findComment&comment=356032)
 - [Pulikkuthi Pandi &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC- [Telugu + Malayalam + Kannada] - 2.5GB - 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176224-pulikkuthi-pandi-2023-true-web-dl-1080p-720p-avc-telugu-malayalam-kannada-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356030)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP42 DAY 41 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.7GB - 870MB &amp; 368MB | 11-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176223-bigg-boss-tamil-s07-ep42-day-41-true-web-dl-1080p-720p-480p-avc-untouched-17gb-870mb-368mb-11-11-2023/&do=findComment&comment=356029)
 - [Game Of Thrones &lpar;2012&rpar; S02 EP &lpar;01 - 10&rpar; 720p &amp; 1080p JC WEB-DL ×264.[&lpar;Tamil &lpar;AAC 2.0 - 125kbps&rpar;] - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/168334-game-of-thrones-2012-s02-ep-01-10-720p-1080p-jc-web-dl-%C3%97264tamil-aac-20-125kbps-leyon/&do=findComment&comment=356028)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP70 DAY 69 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.5GB - 722MB &amp; 312MB | 11-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176222-bigg-boss-telugu-s07-ep70-day-69-true-web-dl-1080p-720p-480p-avc-untouched-15gb-722mb-312mb-11-11-2023/&do=findComment&comment=356027)
-- [Boys Hostel &lpar;2023&rpar; Telugu &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176183-boys-hostel-2023-telugu-original-version-true-web-dl-1080p-720p-avc-aac-28gb-14gb-x264-700mb-400mb/&do=findComment&comment=356026)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
