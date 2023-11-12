@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=oib1jqkPVzc)
 - [പ്രഭാത പ്രാര്‍ത്ഥന  November 13 # Athiravile Prarthana 13th of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=Xtxdji-2gs0)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=rEMGtz_XKEM)
 - [Pattil Ee Paattil | Gayathri Veena by Vaikom Vijayalakshmi | Instrumental](https://www.youtube.com/watch?v=Br1RC1nuC74)
 - [Vibes of #RakkaRakka | #Bandra | #Dileep, #Tamannaah | #SamCS | #ytshorts #shorts](https://www.youtube.com/watch?v=qmtjc1HHjiA)
 - [Lines of #RakkaRakka | #Bandra | #Dileep, #Tamannaah | #SamCS | #ytshorts #shorts](https://www.youtube.com/watch?v=NQZxAPboToU)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 13th November 23](https://www.youtube.com/watch?v=wMW7v3x5ELU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
