@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ജോജി ജോൺസിന്റെ എക്കാലത്തെയും മികച്ച ഹിറ്റ് ഗാനങ്ങൾ  | Christian Melody Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=9mlk5v3NE5U)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #daily pray mother mary for Nov 12th 2023](https://www.youtube.com/watch?v=bZTbJP2--lE)
+- [Japamala 12th of November 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 12th of November 23](https://www.youtube.com/watch?v=l_7QwJaxOG4)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=rvsdfCMHJlY)
 - [രാവിലെ പ്രാര്‍ത്ഥന  November 12 # Athiravile Prarthana 12th of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=wI5C8faKKz0)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=Y24awnBBfsk)
-- [Beats of #RakkaRakka | #Bandra | #Dileep, #Tamannaah | #SamCS | #ytshorts #shorts](https://www.youtube.com/watch?v=8l1V_ENWoiM)
-- [Dance to #RakkaRakka | #Bandra | #Dileep, #Tamannaah | #SamCS | #ytshorts #shorts](https://www.youtube.com/watch?v=82P4nw5TAIM)
-- [കദനം ഒരു സാഗരം.. | കെ ജെ യേശുദാസ് | K S Chitra | Original Audio Remastered movie songs](https://www.youtube.com/watch?v=Dp9POKEzKk8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
