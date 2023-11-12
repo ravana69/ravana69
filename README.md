@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Watch Bigg Boss Tamil S7 Episode 43 on Disney+ Hotstar &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176238-watch-bigg-boss-tamil-s7-episode-43-on-disney-hotstar-direct-download/&do=findComment&comment=356087)
+- [Nyad.2023.1080p,720p .NF.WEB-DL.DUAL.DDP5.1.Atmos.x264  &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176237-nyad20231080p720p-nfweb-dldualddp51atmosx264-direct-download/&do=findComment&comment=356086)
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP43 DAY 42 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.5GB - 791MB &amp; 327MB | 12-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176236-bigg-boss-tamil-s07-ep43-day-42-true-web-dl-1080p-720p-480p-avc-untouched-15gb-791mb-327mb-12-11-2023/&do=findComment&comment=356085)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 Diwali Celebrations EP71 DAY 70 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 4GB - 2GB &amp; 790MB | 12-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176235-bigg-boss-telugu-s07-diwali-celebrations-ep71-day-70-true-web-dl-1080p-720p-480p-avc-untouched-4gb-2gb-790mb-12-11-2023/&do=findComment&comment=356084)
 - [The Witch: Part 2 - The Other One &lpar;2022&rpar; [1080p, 720p AMZN WEB-DL ×264 [&lpar;Tamil + Hindi + Telugu&rpar; DD+ 2.0 - 224kbps] 8.5GB - 5.5 - 3GB - 1.5GB 1GB - ESub - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/167980-the-witch-part-2-the-other-one-2022-1080p-720p-amzn-web-dl-%C3%97264-tamil-hindi-telugu-dd-20-224kbps-85gb-55-3gb-15gb-1gb-esub-leyon/&do=findComment&comment=356083)
-- [House Of The Dragon &lpar;2022&rpar; S01 EP &lpar;01 - 10&rpar; 720p &amp; 1080p JC WEB-DL ×264.[&lpar;Tamil + Telugu + Hindi &lpar;AAC 2.0 - 125kbps&rpar;] - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/168053-house-of-the-dragon-2022-s01-ep-01-10-720p-1080p-jc-web-dl-%C3%97264tamil-telugu-hindi-aac-20-125kbps-leyon/&do=findComment&comment=356082)
-- [Game Of Thrones &lpar;2019&rpar; S08 EP &lpar;01 - 06&rpar; 720p &amp; 1080p JC WEB-DL ×264.[&lpar;Tamil &lpar;AAC 2.0 - 125kbps&rpar;] - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/168102-game-of-thrones-2019-s08-ep-01-06-720p-1080p-jc-web-dl-%C3%97264tamil-aac-20-125kbps-leyon/&do=findComment&comment=356081)
-- [Game Of Thrones &lpar;2017&rpar; S07 EP &lpar;01 - 07&rpar; 720p &amp; 1080p JC WEB-DL ×264.[&lpar;Tamil &lpar;AAC 2.0 - 125kbps&rpar;] - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/168186-game-of-thrones-2017-s07-ep-01-07-720p-1080p-jc-web-dl-%C3%97264tamil-aac-20-125kbps-leyon/&do=findComment&comment=356080)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
