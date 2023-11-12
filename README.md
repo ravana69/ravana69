@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Koottil Ninnum | Thalavattam | Raghu Kumar | K.J.Yesudas | Hi-Res Audio](https://www.youtube.com/watch?v=MfWpRBO7YlA)
+- [Pachilayum Kathrikayum Pole | Rajahamsam | Vayalar | G Devarajan | P.Jayachandran | Evergreen Hits](https://www.youtube.com/watch?v=Io_MvB8rrOk)
 - [Vaidooryakammalaninju Video Song | Ee Puzhayum Kadannu| Manju Warrier | Gireesh Puthenchery| Johnson](https://www.youtube.com/watch?v=aCiuoFygJuE)
 - [പാട്ടുപെട്ടി | Paattupetti Vol 33 | Malayalam Film Songs](https://www.youtube.com/watch?v=MJyweAMYptw)
 - [Nakshathratharattu Malayalam Movie Songs | Kunchacko Boban | Yesudas | Mohan Sithara | Sound of Arts](https://www.youtube.com/watch?v=EDnZWPOUNnk)
 - [മൃതിയെനുകർന്നുത്ഥാനത്തിൻ | MRITHIYE NUKARNNUTHANATHIN | |ROY PUTHUR | MITHILA  MICHAEL #royputhur](https://www.youtube.com/watch?v=6NIj_1a9Cqs)
-- [Saa Ree Gaa Saa Ree Ga Maa | Aalippazhangal 1987  | Chorus, R. Usha | Malayala Movie Song](https://www.youtube.com/watch?v=qY2-TG8XmBU)
-- [Chirimozhikal | Aviyal | Shorts | Harishankar KS  #malayalamfilmsongs #shortsvideo](https://www.youtube.com/watch?v=ZDgMLG8g7cY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
