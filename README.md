@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Student No- 1 &lpar;2001&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DD5.0 - 448Kbps&rpar; - 6.1GB](https://www.1tamilmv.phd/index.php?/forums/topic/176234-student-no-1-2001-telugu-dvd9-untouched-576p-dd50-448kbps-61gb/&do=findComment&comment=356078)
+- [Thiraiyin Marupakkam &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176233-thiraiyin-marupakkam-2023-tamil-true-web-dl-1080p-720p-avc-26gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=356077)
+- [LAL SALAAM - Teaser | Rajinikanth | Aishwarya| Vishnu Vishal| Vikranth| AR Rahman| Subaskaran| Lyca](https://www.1tamilmv.phd/index.php?/forums/topic/176230-lal-salaam-teaser-rajinikanth-aishwarya-vishnu-vishal-vikranth-ar-rahman-subaskaran-lyca/&do=findComment&comment=356076)
 - [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;37-39&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176098-vera-maari-office-2023-s01-ep-37-39-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=356075)
 - [Tiger 3 &lpar;2023&rpar; Hindi HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176068-tiger-3-2023-hindi-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=356074)
-- [Raja Marthanda &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176232-raja-marthanda-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356073)
-- [Raja Marthanda &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176232-raja-marthanda-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356072)
-- [Mannarkudi Veeran &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176225-mannarkudi-veeran-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356071)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
