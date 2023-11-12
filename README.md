@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നീറുന്ന ജീവിതാനുഭവങ്ങളിൽ കൂടെയുള്ളവൻ. | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=uXMWs9EppzU)
+- [Chembakapoo Kaatile Video Song | Rathinirvedam | M Jayachandran #shorts](https://www.youtube.com/watch?v=4Jr464Y8NNA)
+- [Theyyam Kaattil Thekkan Kaattil Video Song | Mele Vaaryathe Maalaakhakkuttikal | KS Chithra](https://www.youtube.com/watch?v=_qYAvk8kSxY)
+- [Christian Melody Songs | Kester | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=2G909FQEwrM)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 12th of November 2023](https://www.youtube.com/watch?v=8DaOKc7i13U)
 - [Christian WhatsApp status](https://www.youtube.com/watch?v=0phU-fU2-G0)
-- [Koottil Ninnum | Thalavattam | Raghu Kumar | K.J.Yesudas | Hi-Res Audio](https://www.youtube.com/watch?v=MfWpRBO7YlA)
-- [Pachilayum Kathrikayum Pole | Rajahamsam | Vayalar | G Devarajan | P.Jayachandran | Evergreen Hits](https://www.youtube.com/watch?v=Io_MvB8rrOk)
-- [Vaidooryakammalaninju Video Song | Ee Puzhayum Kadannu| Manju Warrier | Gireesh Puthenchery| Johnson](https://www.youtube.com/watch?v=aCiuoFygJuE)
-- [പാട്ടുപെട്ടി | Paattupetti Vol 33 | Malayalam Film Songs](https://www.youtube.com/watch?v=MJyweAMYptw)
-- [Nakshathratharattu Malayalam Movie Songs | Kunchacko Boban | Yesudas | Mohan Sithara | Sound of Arts](https://www.youtube.com/watch?v=EDnZWPOUNnk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
