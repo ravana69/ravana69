@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Witch: Part 2 - The Other One &lpar;2022&rpar; [1080p, 720p AMZN WEB-DL ×264 [&lpar;Tamil + Hindi + Telugu&rpar; DD+ 2.0 - 224kbps] 8.5GB - 5.5 - 3GB - 1.5GB 1GB - ESub - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/167980-the-witch-part-2-the-other-one-2022-1080p-720p-amzn-web-dl-%C3%97264-tamil-hindi-telugu-dd-20-224kbps-85gb-55-3gb-15gb-1gb-esub-leyon/&do=findComment&comment=356083)
+- [House Of The Dragon &lpar;2022&rpar; S01 EP &lpar;01 - 10&rpar; 720p &amp; 1080p JC WEB-DL ×264.[&lpar;Tamil + Telugu + Hindi &lpar;AAC 2.0 - 125kbps&rpar;] - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/168053-house-of-the-dragon-2022-s01-ep-01-10-720p-1080p-jc-web-dl-%C3%97264tamil-telugu-hindi-aac-20-125kbps-leyon/&do=findComment&comment=356082)
 - [Game Of Thrones &lpar;2019&rpar; S08 EP &lpar;01 - 06&rpar; 720p &amp; 1080p JC WEB-DL ×264.[&lpar;Tamil &lpar;AAC 2.0 - 125kbps&rpar;] - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/168102-game-of-thrones-2019-s08-ep-01-06-720p-1080p-jc-web-dl-%C3%97264tamil-aac-20-125kbps-leyon/&do=findComment&comment=356081)
 - [Game Of Thrones &lpar;2017&rpar; S07 EP &lpar;01 - 07&rpar; 720p &amp; 1080p JC WEB-DL ×264.[&lpar;Tamil &lpar;AAC 2.0 - 125kbps&rpar;] - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/168186-game-of-thrones-2017-s07-ep-01-07-720p-1080p-jc-web-dl-%C3%97264tamil-aac-20-125kbps-leyon/&do=findComment&comment=356080)
 - [Game Of Thrones &lpar;2016&rpar; S06 EP &lpar;01 - 10&rpar; 720p &amp; 1080p JC WEB-DL ×264.[&lpar;Tamil &lpar;AAC 2.0 - 125kbps&rpar;] - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/168265-game-of-thrones-2016-s06-ep-01-10-720p-1080p-jc-web-dl-%C3%97264tamil-aac-20-125kbps-leyon/&do=findComment&comment=356079)
-- [Student No- 1 &lpar;2001&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DD5.0 - 448Kbps&rpar; - 6.1GB](https://www.1tamilmv.phd/index.php?/forums/topic/176234-student-no-1-2001-telugu-dvd9-untouched-576p-dd50-448kbps-61gb/&do=findComment&comment=356078)
-- [Thiraiyin Marupakkam &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176233-thiraiyin-marupakkam-2023-tamil-true-web-dl-1080p-720p-avc-26gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=356077)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
