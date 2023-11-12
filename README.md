@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vibes of #RakkaRakka | #Bandra | #Dileep, #Tamannaah | #SamCS | #ytshorts #shorts](https://www.youtube.com/watch?v=qmtjc1HHjiA)
+- [Lines of #RakkaRakka | #Bandra | #Dileep, #Tamannaah | #SamCS | #ytshorts #shorts](https://www.youtube.com/watch?v=NQZxAPboToU)
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 13th November 23](https://www.youtube.com/watch?v=wMW7v3x5ELU)
 - [ആരുമില്ലെന്നോർത്തു ഞാൻ ...](https://www.youtube.com/watch?v=Fcz9ElqygUo)
 - [Ellam Ange | Fr. Severios Thomas | Shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=L6jLsn6q0r0)
 - [Neela Kamaladalam | Panchapandavar | KJ Yesudas | KS Chithra | Sithara | Vijayakumar](https://www.youtube.com/watch?v=LpygPCVnFjA)
-- [നീറുന്ന ജീവിതാനുഭവങ്ങളിൽ കൂടെയുള്ളവൻ. | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=uXMWs9EppzU)
-- [Chembakapoo Kaatile Video Song | Rathinirvedam | M Jayachandran #shorts](https://www.youtube.com/watch?v=4Jr464Y8NNA)
-- [Theyyam Kaattil Thekkan Kaattil Video Song | Mele Vaaryathe Maalaakhakkuttikal | KS Chithra](https://www.youtube.com/watch?v=_qYAvk8kSxY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
