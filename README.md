@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Game Of Thrones &lpar;2019&rpar; S08 EP &lpar;01 - 06&rpar; 720p &amp; 1080p JC WEB-DL ×264.[&lpar;Tamil &lpar;AAC 2.0 - 125kbps&rpar;] - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/168102-game-of-thrones-2019-s08-ep-01-06-720p-1080p-jc-web-dl-%C3%97264tamil-aac-20-125kbps-leyon/&do=findComment&comment=356081)
+- [Game Of Thrones &lpar;2017&rpar; S07 EP &lpar;01 - 07&rpar; 720p &amp; 1080p JC WEB-DL ×264.[&lpar;Tamil &lpar;AAC 2.0 - 125kbps&rpar;] - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/168186-game-of-thrones-2017-s07-ep-01-07-720p-1080p-jc-web-dl-%C3%97264tamil-aac-20-125kbps-leyon/&do=findComment&comment=356080)
+- [Game Of Thrones &lpar;2016&rpar; S06 EP &lpar;01 - 10&rpar; 720p &amp; 1080p JC WEB-DL ×264.[&lpar;Tamil &lpar;AAC 2.0 - 125kbps&rpar;] - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/168265-game-of-thrones-2016-s06-ep-01-10-720p-1080p-jc-web-dl-%C3%97264tamil-aac-20-125kbps-leyon/&do=findComment&comment=356079)
 - [Student No- 1 &lpar;2001&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DD5.0 - 448Kbps&rpar; - 6.1GB](https://www.1tamilmv.phd/index.php?/forums/topic/176234-student-no-1-2001-telugu-dvd9-untouched-576p-dd50-448kbps-61gb/&do=findComment&comment=356078)
 - [Thiraiyin Marupakkam &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176233-thiraiyin-marupakkam-2023-tamil-true-web-dl-1080p-720p-avc-26gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=356077)
-- [LAL SALAAM - Teaser | Rajinikanth | Aishwarya| Vishnu Vishal| Vikranth| AR Rahman| Subaskaran| Lyca](https://www.1tamilmv.phd/index.php?/forums/topic/176230-lal-salaam-teaser-rajinikanth-aishwarya-vishnu-vishal-vikranth-ar-rahman-subaskaran-lyca/&do=findComment&comment=356076)
-- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;37-39&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176098-vera-maari-office-2023-s01-ep-37-39-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=356075)
-- [Tiger 3 &lpar;2023&rpar; Hindi HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176068-tiger-3-2023-hindi-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=356074)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
