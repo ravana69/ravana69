@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mezhuthirinalangale | Kristheeya Bhakthigaanangal | Christian Devotional Songs | Audio jukebox](https://www.youtube.com/watch?v=_kz8Hqp_fn8)
+- [#Hanuman Next Song out on NOV 14th at 5:04PM | This children’s day🤘 #SuperHeroHanuMan](https://www.youtube.com/watch?v=R8XIqCZWqlY)
+- [എന്റെ ദൈവം സ്വർഗ്ഗ സിംഹാസനം തന്നിൽ| ROY PUTHUR | AKSAH EBY #christiandevotionalsongs #royputhur](https://www.youtube.com/watch?v=f6tkz_YX154)
+- [Malarvaka Poomaaran | മലര്‍വാക പൂമാരന്‍  | Mylaanchi Super Hit Malayalam movie Song | K Aboobacker](https://www.youtube.com/watch?v=uqMEzYShqjU)
+- [Akame Lyrical Video | Manasammatham | Bonny Louis | Nitin K Siva | Neethusha A C](https://www.youtube.com/watch?v=-AU-3DeN_l8)
 - [Melle Melle Minni Minni | Fr. Shaji Thumpechirayil | Nithya Maman | #shorts #shortvideo](https://www.youtube.com/watch?v=IaKCo0RqviU)
-- [ഇതിലും മികച്ച ഗാനങ്ങൾ സ്വപ്‌നങ്ങളിൽ മാത്രം | EVERGREEN MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=MxkN4Gy9bTA)
-- [പ്രിയപ്പെട്ടവർക്ക് അത്രമേൽ പ്രിയമുള്ള മനം മയക്കുന്ന മലയാളസിനിമാഗാനങ്ങൾ | NISARI | SUPERHIT SONGS](https://www.youtube.com/watch?v=45Ro-Zhrmmg)
-- [Kannoram Chingaram | Rathinirvedam Romantic Song | Swetha Menon | M Jayachandran | Shreya Ghosal](https://www.youtube.com/watch?v=_YiLStgrFnQ)
-- [Priyathame Sakunthale | Karaoke Video | K J Yesudas | K S Chitra | M Jayachandran | Rajeev Alunkal](https://www.youtube.com/watch?v=12H9FbqL6Gc)
-- [അമൃത സരസ്സിലെ | Amrutha Sarasile | Mortuary Super Hit Movie Song | K J Yesudas | Poovachal Khader](https://www.youtube.com/watch?v=-XLl4h8W6zM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
