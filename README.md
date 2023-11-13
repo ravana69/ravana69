@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Tantiram &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.3GB &amp; 1.6GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176212-tantiram-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-23gb-16gb-x264-700mb-400mb-esub/&do=findComment&comment=356096)
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP43 DAY 42 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.5GB - 791MB &amp; 327MB | 12-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176236-bigg-boss-tamil-s07-ep43-day-42-true-web-dl-1080p-720p-480p-avc-untouched-15gb-791mb-327mb-12-11-2023/&do=findComment&comment=356095)
 - [Raja Marthanda &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176232-raja-marthanda-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356094)
 - [Thiraiyin Marupakkam &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176233-thiraiyin-marupakkam-2023-tamil-true-web-dl-1080p-720p-avc-26gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=356093)
 - [Manavoori Pandavulu &lpar;1978&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD5.0 - 448Kbps&rpar; - 3.4GB](https://www.1tamilmv.phd/index.php?/forums/topic/176241-manavoori-pandavulu-1978-telugu-dvd5-untouched-480p-dd50-448kbps-34gb/&do=findComment&comment=356091)
-- [Gharshana &lpar;1988&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD5.0 - 448Kbps&rpar; - 3.6GB](https://www.1tamilmv.phd/index.php?/forums/topic/176240-gharshana-1988-telugu-dvd5-untouched-480p-dd50-448kbps-36gb/&do=findComment&comment=356090)
-- [Game Of Thrones &lpar;2015&rpar; Complete S05 EP&lpar;01-10&rpar; Merged Bluray - [1080p - 720p - HEVC - [Telugu &lpar;Org JIO AAC 2.0 - 192Kbps&rpar;] - 7.5GB &amp; 3.6GB - 1.8GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176239-game-of-thrones-2015-complete-s05-ep01-10-merged-bluray-1080p-720p-hevc-telugu-org-jio-aac-20-192kbps-75gb-36gb-18gb-esub-google-drive/&do=findComment&comment=356089)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
