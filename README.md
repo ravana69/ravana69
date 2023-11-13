@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Mezhuthirinalangale | Kristheeya Bhakthigaanangal | Christian Devotional Songs | Audio jukebox](https://www.youtube.com/watch?v=_kz8Hqp_fn8)
-- [#Hanuman Next Song out on NOV 14th at 5:04PM | This children’s day🤘 #SuperHeroHanuMan](https://www.youtube.com/watch?v=R8XIqCZWqlY)
-- [എന്റെ ദൈവം സ്വർഗ്ഗ സിംഹാസനം തന്നിൽ| ROY PUTHUR | AKSAH EBY #christiandevotionalsongs #royputhur](https://www.youtube.com/watch?v=f6tkz_YX154)
-- [Malarvaka Poomaaran | മലര്‍വാക പൂമാരന്‍  | Mylaanchi Super Hit Malayalam movie Song | K Aboobacker](https://www.youtube.com/watch?v=uqMEzYShqjU)
-- [Akame Lyrical Video | Manasammatham | Bonny Louis | Nitin K Siva | Neethusha A C](https://www.youtube.com/watch?v=-AU-3DeN_l8)
-- [Melle Melle Minni Minni | Fr. Shaji Thumpechirayil | Nithya Maman | #shorts #shortvideo](https://www.youtube.com/watch?v=IaKCo0RqviU)
+- [ഒളിച്ചിരിക്കാൻ വള്ളിക്കുടിലൊന്ന് | Chithra Chechikkoppam Paadiyum Paranjum | Malayala Manorama](https://www.youtube.com/watch?v=4oWOwnoE5BA)
+- [കരുതും നിനക്കവൻ വേണ്ടതെല്ലാം കെടുതികൾ തീർക്കും നാൾ വരെയും| Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=I2r4ROKmn_Y)
+- [Manjakkunji Kathulla | Minnaram | MG Sreekumar | #shorts](https://www.youtube.com/watch?v=lK1FsgEMdNE)
+- [പ്രണയ ഗായിക | Romantic Solo Hits of Sujatha | Malayalam Songs | Audio Jukebox](https://www.youtube.com/watch?v=SK-4_y13sTc)
+- [Super Mom | Mummy & Me | Sayanora Philip | Sejo John | Shelton Pinhero](https://www.youtube.com/watch?v=13iHpN8zMF0)
+- [Ilam Manjin Kulirumayoru Remastered Audio Song Ninnishttam Ennishttam Movie Song KJ Yesudas S Janaki](https://www.youtube.com/watch?v=0aNupmA-5YI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
