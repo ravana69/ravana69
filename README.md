@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Game Of Thrones &lpar;2015&rpar; Complete S05 EP&lpar;01-10&rpar; Merged Bluray - [1080p - 720p - HEVC - [Telugu &lpar;Org JIO AAC 2.0 - 192Kbps&rpar;] - 7.5GB &amp; 3.6GB - 1.8GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176239-game-of-thrones-2015-complete-s05-ep01-10-merged-bluray-1080p-720p-hevc-telugu-org-jio-aac-20-192kbps-75gb-36gb-18gb-esub-google-drive/&do=findComment&comment=356088)
 - [Watch Bigg Boss Tamil S7 Episode 43 on Disney+ Hotstar &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176238-watch-bigg-boss-tamil-s7-episode-43-on-disney-hotstar-direct-download/&do=findComment&comment=356087)
 - [Nyad.2023.1080p,720p .NF.WEB-DL.DUAL.DDP5.1.Atmos.x264  &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176237-nyad20231080p720p-nfweb-dldualddp51atmosx264-direct-download/&do=findComment&comment=356086)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP43 DAY 42 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.5GB - 791MB &amp; 327MB | 12-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176236-bigg-boss-tamil-s07-ep43-day-42-true-web-dl-1080p-720p-480p-avc-untouched-15gb-791mb-327mb-12-11-2023/&do=findComment&comment=356085)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 Diwali Celebrations EP71 DAY 70 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 4GB - 2GB &amp; 790MB | 12-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176235-bigg-boss-telugu-s07-diwali-celebrations-ep71-day-70-true-web-dl-1080p-720p-480p-avc-untouched-4gb-2gb-790mb-12-11-2023/&do=findComment&comment=356084)
-- [The Witch: Part 2 - The Other One &lpar;2022&rpar; [1080p, 720p AMZN WEB-DL ×264 [&lpar;Tamil + Hindi + Telugu&rpar; DD+ 2.0 - 224kbps] 8.5GB - 5.5 - 3GB - 1.5GB 1GB - ESub - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/167980-the-witch-part-2-the-other-one-2022-1080p-720p-amzn-web-dl-%C3%97264-tamil-hindi-telugu-dd-20-224kbps-85gb-55-3gb-15gb-1gb-esub-leyon/&do=findComment&comment=356083)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
