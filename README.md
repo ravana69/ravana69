@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Thiraiyin Marupakkam &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176233-thiraiyin-marupakkam-2023-tamil-true-web-dl-1080p-720p-avc-26gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=356097)
 - [Tantiram &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.3GB &amp; 1.6GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176212-tantiram-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-23gb-16gb-x264-700mb-400mb-esub/&do=findComment&comment=356096)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP43 DAY 42 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.5GB - 791MB &amp; 327MB | 12-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176236-bigg-boss-tamil-s07-ep43-day-42-true-web-dl-1080p-720p-480p-avc-untouched-15gb-791mb-327mb-12-11-2023/&do=findComment&comment=356095)
 - [Raja Marthanda &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176232-raja-marthanda-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356094)
 - [Thiraiyin Marupakkam &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176233-thiraiyin-marupakkam-2023-tamil-true-web-dl-1080p-720p-avc-26gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=356093)
-- [Manavoori Pandavulu &lpar;1978&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD5.0 - 448Kbps&rpar; - 3.4GB](https://www.1tamilmv.phd/index.php?/forums/topic/176241-manavoori-pandavulu-1978-telugu-dvd5-untouched-480p-dd50-448kbps-34gb/&do=findComment&comment=356091)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
