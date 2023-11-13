@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Priyathame Sakunthale | Karaoke Video | K J Yesudas | K S Chitra | M Jayachandran | Rajeev Alunkal](https://www.youtube.com/watch?v=12H9FbqL6Gc)
 - [അമൃത സരസ്സിലെ | Amrutha Sarasile | Mortuary Super Hit Movie Song | K J Yesudas | Poovachal Khader](https://www.youtube.com/watch?v=-XLl4h8W6zM)
 - [Vasantham Thalirthu | Adukkan Entheluppam 1986 | Jerry Amaldev | K.J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=oo5sPFvBXbE)
 - [Chirimozhikal | Aviyal | Shorts | Harishankar KS  #malayalamfilmsongs #shortsvideo](https://www.youtube.com/watch?v=vHZISFDjJy8)
 - [Peeliveeshiyaadi Mayilukal | Gamanam | Vijayakumar | Maathu | Chithra | Ouseppachan](https://www.youtube.com/watch?v=Pj_LOyvEnuo)
 - [Vazhthuka Maname | Shreya Jayadeep  #shrots #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=OB9JaZT4d54)
-- [Japamala 13th of November 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 13th of November 23](https://www.youtube.com/watch?v=kfVFHUsAtOE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
