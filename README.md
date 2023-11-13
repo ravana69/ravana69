@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Watch Bigg Boss Tamil S7 Episode 44 on Disney+ Hotstar &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176246-watch-bigg-boss-tamil-s7-episode-44-on-disney-hotstar-direct-download/&do=findComment&comment=356113)
+- [Game of Thrones &lpar;2011&rpar; S01 Complete Bluray - 2160p [HDR] | 1080p [144FPS|60FPS] - 243 GB | 106 GB | 53.4 GB | 35.8 GB](https://www.1tamilmv.phd/index.php?/forums/topic/168027-game-of-thrones-2011-s01-complete-bluray-2160p-hdr-1080p-144fps60fps-243-gb-106-gb-534-gb-358-gb/&do=findComment&comment=356112)
+- [Avatar: The Way of Water &lpar;2022&rpar; MA WEB-DL MULTI Atmos Esubs - 2160p [HDR10-DoVi|60FPS] | 1080p [144FPS|60FPS] | 720p - 57.3 GB | 38.8 GB | 23.3 GB | 14.4 GB | 13 GB | 7.7 GB](https://www.1tamilmv.phd/index.php?/forums/topic/173788-avatar-the-way-of-water-2022-ma-web-dl-multi-atmos-esubs-2160p-hdr10-dovi60fps-1080p-144fps60fps-720p-573-gb-388-gb-233-gb-144-gb-13-gb-77-gb/&do=findComment&comment=356111)
 - [Nyad.2023.1080p,720p .NF.WEB-DL.DUAL.DDP5.1.Atmos.x264  &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176237-nyad20231080p720p-nfweb-dldualddp51atmosx264-direct-download/&do=findComment&comment=356110)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP72 DAY 71 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 557MB &amp; 234MB | 13-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176245-bigg-boss-telugu-s07-ep72-day-71-true-web-dl-1080p-720p-480p-avc-untouched-11gb-557mb-234mb-13-11-2023/&do=findComment&comment=356109)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP44 DAY 43 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 609MB &amp; 233MB | 13-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176244-bigg-boss-tamil-s07-ep44-day-43-true-web-dl-1080p-720p-480p-avc-untouched-11gb-609mb-233mb-13-11-2023/&do=findComment&comment=356108)
-- [Lyle, Lyle, Crocodile &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176243-lyle-lyle-crocodile-2022-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-24gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=356107)
-- [[REMUX] Avatar: The Way of Water &lpar;2022&rpar; BluRay REMUX Multi DDP5.1-ENG.TrueHD Atmos 7.1 Msubs - 2160p [HDR10] | 1080p - 67.9 GB | 40.3 GB](https://www.1tamilmv.phd/index.php?/forums/topic/173887-remux-avatar-the-way-of-water-2022-bluray-remux-multi-ddp51-engtruehd-atmos-71-msubs-2160p-hdr10-1080p-679-gb-403-gb/&do=findComment&comment=356106)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
