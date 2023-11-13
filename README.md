@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [അമൃത സരസ്സിലെ | Amrutha Sarasile | Mortuary Super Hit Movie Song | K J Yesudas | Poovachal Khader](https://www.youtube.com/watch?v=-XLl4h8W6zM)
+- [Vasantham Thalirthu | Adukkan Entheluppam 1986 | Jerry Amaldev | K.J. Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=oo5sPFvBXbE)
+- [Chirimozhikal | Aviyal | Shorts | Harishankar KS  #malayalamfilmsongs #shortsvideo](https://www.youtube.com/watch?v=vHZISFDjJy8)
+- [Peeliveeshiyaadi Mayilukal | Gamanam | Vijayakumar | Maathu | Chithra | Ouseppachan](https://www.youtube.com/watch?v=Pj_LOyvEnuo)
 - [Vazhthuka Maname | Shreya Jayadeep  #shrots #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=OB9JaZT4d54)
 - [Japamala 13th of November 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 13th of November 23](https://www.youtube.com/watch?v=kfVFHUsAtOE)
-- [കൃപാസനം മാതാവിന്റെ  പ്രാർത്ഥനയും ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #Kripasanam mother mary](https://www.youtube.com/watch?v=Gl88aPd7Gjk)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=oib1jqkPVzc)
-- [പ്രഭാത പ്രാര്‍ത്ഥന  November 13 # Athiravile Prarthana 13th of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=Xtxdji-2gs0)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=rEMGtz_XKEM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
