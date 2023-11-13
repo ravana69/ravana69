@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 14th November 23](https://www.youtube.com/watch?v=1Meb8n1rWv4)
 - [മനസിലെ മർമ്മരം തേങ്ങലായി , കരഞ്ഞു തളർന്നു ഞാൻ വീണു പോയി .](https://www.youtube.com/watch?v=sn0FYejx3kA)
 - [Oru Poovine | Meenathil Thalikettu | KJ Yesudas | Sujatha Mohan | Ouseppachan | Gireesh Puthanchery](https://www.youtube.com/watch?v=TBDBZUPMwuo)
 - [Bilsila He | Three Kings | Jayasurya | Ouseppachan | Shibu Chakravarthy](https://www.youtube.com/watch?v=HZXu0jVpf_k)
 - [Kuppivala Kilukile Video Song | Ayal Kadha Ezhuthukayanu | Mohanlal | Nandini| MG Sreekumar| Sujatha](https://www.youtube.com/watch?v=wW6QVKEx1C4)
 - [ഒളിച്ചിരിക്കാൻ വള്ളിക്കുടിലൊന്ന് | Chithra Chechikkoppam Paadiyum Paranjum | Malayala Manorama](https://www.youtube.com/watch?v=4oWOwnoE5BA)
-- [കരുതും നിനക്കവൻ വേണ്ടതെല്ലാം കെടുതികൾ തീർക്കും നാൾ വരെയും| Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=I2r4ROKmn_Y)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
