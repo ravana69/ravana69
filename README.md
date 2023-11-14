@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന  November 15 # Athiravile Prarthana 15th of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=IEYOZcYQ3k4)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=5rbOKITlhsw)
+- [Lines of #Vaarmeghame | #Bandra | #Dileep, #Tamannaah | #SamCS #ytshorts #shorts](https://www.youtube.com/watch?v=07y4DeHLD8Y)
+- [Tunes of #Vaarmeghame | #Bandra | #Dileep, #Tamannaah | #SamCS #ytshorts #shorts](https://www.youtube.com/watch?v=ZZ8IuVsTNp4)
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 15th November 23](https://www.youtube.com/watch?v=2yb1uH9mIKQ)
 - [Sreejayadeve | Thaniyavarthanam | KJ Yesudas | Mammootty | Babu Namboothiri | Parvathy](https://www.youtube.com/watch?v=5BrlQzOyqgI)
-- [ആശാദീപം കാണുന്നു ഞാൻ , നാഥാ നിന്നെ തേടുന്നു ഞാൻ .](https://www.youtube.com/watch?v=hDRUpR74Z0w)
-- [Swargangal Swapnam Kaanum Video Song | Malootty | Jayaram | Urvashi | Shamili | Bharathan](https://www.youtube.com/watch?v=rDmWI_NcGNk)
-- [Ammaanam Chemmaanam (Version, 1) (Lyric Video)](https://www.youtube.com/watch?v=oJH01qlzrH8)
-- [S. Balakrishanan, K.J. Yesudas - Chingaarakombathe (Lyric Video)](https://www.youtube.com/watch?v=b4HsxlSubD0)
-- [Mohan Sithara, K.S. Chithra - Kathirola Thumbi (Version, 2) (Lyric Video)](https://www.youtube.com/watch?v=btJ7v8X9tNo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
