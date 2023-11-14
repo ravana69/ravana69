@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [📌 SKANDA &lpar;2023&rpar; &lpar;Tel + Tam + Kan + Mal&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - 2160P / 1080P - DSNP - WEBDL DDP 5.1 ATMOS - ESUBS - 5GB](https://www.1tamilmv.phd/index.php?/forums/topic/176264-%F0%9F%93%8C-skanda-2023-tel-tam-kan-mal-music-video-album-2160p-1080p-dsnp-webdl-ddp-51-atmos-esubs-5gb/&do=findComment&comment=356163)
 - [Se7en &lpar;1995&rpar; | Soldier &lpar;1998&rpar; | The Master &lpar;1992&rpar; [Tam+Hin+Eng] 1808p [GDRIVE]](https://www.1tamilmv.phd/index.php?/forums/topic/147668-se7en-1995-soldier-1998-the-master-1992-tamhineng-1808p-gdrive/&do=findComment&comment=356162)
 - [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;40-42&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176248-vera-maari-office-2023-s01-ep-40-42-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=356161)
 - [Naan Kadavul Illai &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 4.4GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176255-naan-kadavul-illai-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-44gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356160)
 - [The.One.2001 AAC 2.0 Tamil-Telugu-Hindi-DTS5.1 English Open.Matte.1080p.BluRay.REMUX.AVC HD MA.5.1-Esubs [16GB]](https://www.1tamilmv.phd/index.php?/forums/topic/176263-theone2001-aac-20-tamil-telugu-hindi-dts51-english-openmatte1080pblurayremuxavc-hd-ma51-esubs-16gb/&do=findComment&comment=356159)
-- [Devadasu &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.4GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176262-devadasu-2006-telugu-dvd9-untouched-480p-dd51-448kbps-64gb-esub/&do=findComment&comment=356158)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
