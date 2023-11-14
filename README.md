@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Neelaanjanam | Desham 2002 | Gireesh Puthenchery | K. S. Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=Pk0jG2dwGm0)
+- [Kudapole Poomanam | Kaalachakram | Sonu Sisupal | Kaithapram | Indra Sisupal](https://www.youtube.com/watch?v=kLd_Qk1XgBQ)
 - [Chirimozhikal | Aviyal | Shorts | Harishankar KS  #malayalamfilmsongs #shortsvideo](https://www.youtube.com/watch?v=6prKTPSnaC4)
 - [SREENIVAS  & UNNIKRISHNAN HITS|CHRISTIAN DEVOTIONAL SONGS|OWN MEDIA MUSIC COLLECTION](https://www.youtube.com/watch?v=p2ZmHdmOGa8)
 - [Tu Hai Balwan | Shorts | Jijy Abraham  #manoramachristiandevotionalsongs #shorts](https://www.youtube.com/watch?v=rQeOab2Z_Bo)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mariyan songs non stop for November 14th 2023](https://www.youtube.com/watch?v=2w-bydnK_So)
-- [Japamala 14th of November 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 14th of November 23](https://www.youtube.com/watch?v=JUuBudUo2pE)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=Ne0hbL3mEZw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
