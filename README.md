@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The.Creator.2023.1080p.10bit.WEBRip.6CH.x265.HEVC-PSA - 1.4GB](https://www.1tamilmv.phd/index.php?/forums/topic/176249-thecreator20231080p10bitwebrip6chx265hevc-psa-14gb/&do=findComment&comment=356118)
+- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;40-42&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176248-vera-maari-office-2023-s01-ep-40-42-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=356117)
 - [Game of Thrones &lpar;2011&rpar; S01 Complete Bluray - 2160p [HDR] | 1080p [144FPS|60FPS] - 243 GB | 106 GB | 53.4 GB | 35.8 GB](https://www.1tamilmv.phd/index.php?/forums/topic/168027-game-of-thrones-2011-s01-complete-bluray-2160p-hdr-1080p-144fps60fps-243-gb-106-gb-534-gb-358-gb/&do=findComment&comment=356116)
 - [Game of Thrones &lpar;2011&rpar; S01 Complete Bluray - 2160p [HDR] | 1080p [144FPS|60FPS] - 243 GB | 106 GB | 53.4 GB | 35.8 GB](https://www.1tamilmv.phd/index.php?/forums/topic/168027-game-of-thrones-2011-s01-complete-bluray-2160p-hdr-1080p-144fps60fps-243-gb-106-gb-534-gb-358-gb/&do=findComment&comment=356115)
 - [The Village &lpar;2023&rpar; Tamil [24&amp;16Bit FLAC] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - Grishh G Musical](https://www.1tamilmv.phd/index.php?/forums/topic/176247-the-village-2023-tamil-2416bit-flac-itunes-hq-mp3-320kbps-128kbps-grishh-g-musical/&do=findComment&comment=356114)
-- [Watch Bigg Boss Tamil S7 Episode 44 on Disney+ Hotstar &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176246-watch-bigg-boss-tamil-s7-episode-44-on-disney-hotstar-direct-download/&do=findComment&comment=356113)
-- [Game of Thrones &lpar;2011&rpar; S01 Complete Bluray - 2160p [HDR] | 1080p [144FPS|60FPS] - 243 GB | 106 GB | 53.4 GB | 35.8 GB](https://www.1tamilmv.phd/index.php?/forums/topic/168027-game-of-thrones-2011-s01-complete-bluray-2160p-hdr-1080p-144fps60fps-243-gb-106-gb-534-gb-358-gb/&do=findComment&comment=356112)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
