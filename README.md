@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Neeyo Puzha Poleyen | Vaadamalli | Neetha Subair | Syam Balakrishnan | Vayalar Sarath Chandra Varma](https://www.youtube.com/watch?v=bVGZJagel9g)
-- [ക്രിസ്തുവിന്റെ ക്രൂശ് വെളിച്ചം തരുന്ന വിളക്കുമരമാണ് | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=TkcIBNZQQxw)
-- [Rakka Tikka Video Song | Class By A Soldier | Meenakshi Anoop | Chinmayi Nair | Sayanora | Ajith G](https://www.youtube.com/watch?v=Kg1K_Cpcx8U)
-- [Chembakapoo Kaatile Video Song | Rathinirvedam | M Jayachandran #shorts](https://www.youtube.com/watch?v=he284BYoNKs)
-- [SuperHero HanuMan From HANU-MAN(Malayalam) | Prasanth Varma | Teja Sajja | Anudeep Dev |Veda Vagdevi](https://www.youtube.com/watch?v=K296fD_X4OI)
-- [Oru Vallam Ponnum Video Song | M. G. Sreekumar | Sujatha Mohan | Mohanlal | Shobana](https://www.youtube.com/watch?v=t3sr9BHthbk)
+- [Ammaanam Chemmaanam (Version, 1) (Lyric Video)](https://www.youtube.com/watch?v=oJH01qlzrH8)
+- [S. Balakrishanan, K.J. Yesudas - Chingaarakombathe (Lyric Video)](https://www.youtube.com/watch?v=b4HsxlSubD0)
+- [Mohan Sithara, K.S. Chithra - Kathirola Thumbi (Version, 2) (Lyric Video)](https://www.youtube.com/watch?v=btJ7v8X9tNo)
+- [Saj Paul, M.G. Sreekumar, K.S. Chithra - Kaathirunna Kaamuki (Version, 1) (Lyric Video)](https://www.youtube.com/watch?v=UvtU6-Pjrq0)
+- [Mohan Sithara, M.G. Sreekumar, K.S. Chithra - Kathirola Thumbi (Version, 1) (Lyric Video)](https://www.youtube.com/watch?v=xnuvJQRlAOw)
+- [Manassinorayiram kilivathil (ഭൂമിക )Vinod velayudhan](https://www.youtube.com/watch?v=lB6-XoTezLQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
