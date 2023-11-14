@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;40-42&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176248-vera-maari-office-2023-s01-ep-40-42-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=356161)
+- [Naan Kadavul Illai &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 4.4GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176255-naan-kadavul-illai-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-44gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356160)
 - [The.One.2001 AAC 2.0 Tamil-Telugu-Hindi-DTS5.1 English Open.Matte.1080p.BluRay.REMUX.AVC HD MA.5.1-Esubs [16GB]](https://www.1tamilmv.phd/index.php?/forums/topic/176263-theone2001-aac-20-tamil-telugu-hindi-dts51-english-openmatte1080pblurayremuxavc-hd-ma51-esubs-16gb/&do=findComment&comment=356159)
 - [Devadasu &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.4GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176262-devadasu-2006-telugu-dvd9-untouched-480p-dd51-448kbps-64gb-esub/&do=findComment&comment=356158)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP73 DAY 72 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 543MB &amp; 230MB | 14-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176261-bigg-boss-telugu-s07-ep73-day-72-true-web-dl-1080p-720p-480p-avc-untouched-11gb-543mb-230mb-14-11-2023/&do=findComment&comment=356157)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP45 DAY 44 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 566MB &amp; 226MB | 14-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176260-bigg-boss-tamil-s07-ep45-day-44-true-web-dl-1080p-720p-480p-avc-untouched-1gb-566mb-226mb-14-11-2023/&do=findComment&comment=356156)
-- [Naan Kadavul Illai &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 4.4GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176255-naan-kadavul-illai-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-44gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356155)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
