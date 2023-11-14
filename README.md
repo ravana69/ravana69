@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Tu Hai Balwan | Shorts | Jijy Abraham  #manoramachristiandevotionalsongs #shorts](https://www.youtube.com/watch?v=rQeOab2Z_Bo)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mariyan songs non stop for November 14th 2023](https://www.youtube.com/watch?v=2w-bydnK_So)
+- [Japamala 14th of November 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 14th of November 23](https://www.youtube.com/watch?v=JUuBudUo2pE)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=Ne0hbL3mEZw)
 - [രാവിലെ പ്രാര്‍ത്ഥന  November 14# Athiravile Prarthana 14th of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=VPlIskxHmDE)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=5AkOH31M15g)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 14th November 23](https://www.youtube.com/watch?v=1Meb8n1rWv4)
-- [മനസിലെ മർമ്മരം തേങ്ങലായി , കരഞ്ഞു തളർന്നു ഞാൻ വീണു പോയി .](https://www.youtube.com/watch?v=sn0FYejx3kA)
-- [Oru Poovine | Meenathil Thalikettu | KJ Yesudas | Sujatha Mohan | Ouseppachan | Gireesh Puthanchery](https://www.youtube.com/watch?v=TBDBZUPMwuo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
