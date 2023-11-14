@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ramana &lpar;2002&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC- 6.2GB - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176251-ramana-2002-tamil-true-web-dl-1080p-720p-avc-62gb-29gb-14gb-x264-700mb-400mb/&do=findComment&comment=356120)
 - [Ra.One &lpar;2011&rpar; DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps &amp; DD2.0 - 224Kbps&rpar; - [Telugu + Hindi + Tamil] - 7.2GB - [ESub &amp; Arabic Sub]](https://www.1tamilmv.phd/index.php?/forums/topic/176250-raone-2011-dvd9-untouched-480p-dd51-448kbps-dd20-224kbps-telugu-hindi-tamil-72gb-esub-arabic-sub/&do=findComment&comment=356119)
 - [The.Creator.2023.1080p.10bit.WEBRip.6CH.x265.HEVC-PSA - 1.4GB](https://www.1tamilmv.phd/index.php?/forums/topic/176249-thecreator20231080p10bitwebrip6chx265hevc-psa-14gb/&do=findComment&comment=356118)
 - [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;40-42&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176248-vera-maari-office-2023-s01-ep-40-42-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=356117)
 - [Game of Thrones &lpar;2011&rpar; S01 Complete Bluray - 2160p [HDR] | 1080p [144FPS|60FPS] - 243 GB | 106 GB | 53.4 GB | 35.8 GB](https://www.1tamilmv.phd/index.php?/forums/topic/168027-game-of-thrones-2011-s01-complete-bluray-2160p-hdr-1080p-144fps60fps-243-gb-106-gb-534-gb-358-gb/&do=findComment&comment=356116)
-- [Game of Thrones &lpar;2011&rpar; S01 Complete Bluray - 2160p [HDR] | 1080p [144FPS|60FPS] - 243 GB | 106 GB | 53.4 GB | 35.8 GB](https://www.1tamilmv.phd/index.php?/forums/topic/168027-game-of-thrones-2011-s01-complete-bluray-2160p-hdr-1080p-144fps60fps-243-gb-106-gb-534-gb-358-gb/&do=findComment&comment=356115)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
