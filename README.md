@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Sreejayadeve | Thaniyavarthanam | KJ Yesudas | Mammootty | Babu Namboothiri | Parvathy](https://www.youtube.com/watch?v=5BrlQzOyqgI)
 - [ആശാദീപം കാണുന്നു ഞാൻ , നാഥാ നിന്നെ തേടുന്നു ഞാൻ .](https://www.youtube.com/watch?v=hDRUpR74Z0w)
 - [Swargangal Swapnam Kaanum Video Song | Malootty | Jayaram | Urvashi | Shamili | Bharathan](https://www.youtube.com/watch?v=rDmWI_NcGNk)
 - [Ammaanam Chemmaanam (Version, 1) (Lyric Video)](https://www.youtube.com/watch?v=oJH01qlzrH8)
 - [S. Balakrishanan, K.J. Yesudas - Chingaarakombathe (Lyric Video)](https://www.youtube.com/watch?v=b4HsxlSubD0)
 - [Mohan Sithara, K.S. Chithra - Kathirola Thumbi (Version, 2) (Lyric Video)](https://www.youtube.com/watch?v=btJ7v8X9tNo)
-- [Saj Paul, M.G. Sreekumar, K.S. Chithra - Kaathirunna Kaamuki (Version, 1) (Lyric Video)](https://www.youtube.com/watch?v=UvtU6-Pjrq0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
