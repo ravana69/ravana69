@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP73 DAY 72 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 543MB &amp; 230MB | 14-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176261-bigg-boss-telugu-s07-ep73-day-72-true-web-dl-1080p-720p-480p-avc-untouched-11gb-543mb-230mb-14-11-2023/&do=findComment&comment=356157)
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP45 DAY 44 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 566MB &amp; 226MB | 14-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176260-bigg-boss-tamil-s07-ep45-day-44-true-web-dl-1080p-720p-480p-avc-untouched-1gb-566mb-226mb-14-11-2023/&do=findComment&comment=356156)
 - [Naan Kadavul Illai &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 4.4GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176255-naan-kadavul-illai-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-44gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356155)
 - [Vaaranam Aayiram &lpar;2008&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 6.6GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176259-vaaranam-aayiram-2008-tamil-true-web-dl-1080p-hq-avc-untouched-ddp20-66gb-gdflix/&do=findComment&comment=356154)
 - [Game Of Thrones &lpar;2015&rpar; Complete S05 EP&lpar;01-10&rpar; Merged Bluray - [1080p - 720p - HEVC - [Telugu &lpar;Org JIO AAC 2.0 - 192Kbps&rpar;] - 7.5GB &amp; 3.6GB - 1.8GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176239-game-of-thrones-2015-complete-s05-ep01-10-merged-bluray-1080p-720p-hevc-telugu-org-jio-aac-20-192kbps-75gb-36gb-18gb-esub-google-drive/&do=findComment&comment=356153)
-- [Ra.One &lpar;2011&rpar; DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps &amp; DD2.0 - 224Kbps&rpar; - [Telugu + Hindi + Tamil] - 7.2GB - [ESub &amp; Arabic Sub]](https://www.1tamilmv.phd/index.php?/forums/topic/176250-raone-2011-dvd9-untouched-480p-dd51-448kbps-dd20-224kbps-telugu-hindi-tamil-72gb-esub-arabic-sub/&do=findComment&comment=356152)
-- [Game Of Thrones &lpar;2016&rpar; SeaSon 6 Ep &lpar;01-10&rpar; 2160p 4K UHD HDR BluRay HEVC 10bit Multi Audios [Org &lpar;Telugu+ Tamil+ Hindi&rpar; &lpar;DD2.0 ~ 192Kbps&rpar; + English AAC 7.1] - 20GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176257-game-of-thrones-2016-season-6-ep-01-10-2160p-4k-uhd-hdr-bluray-hevc-10bit-multi-audios-org-telugu-tamil-hindi-dd20-~-192kbps-english-aac-71-20gb-esub/&do=findComment&comment=356151)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
