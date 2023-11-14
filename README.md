@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Thirunadha Sharanam | Kristheeya Bhakthigaanangal | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=7XiPPwInVuM)
-- [Sanyasini Nin | Rajahamsam | G Devarajan | Vayalar | K J Yeshudas | Prem Naseer | Jayabharathi](https://www.youtube.com/watch?v=hlzfGmgI4ZU)
-- [Koorambaay Lyrical Video | Garudan | Suresh Gopi | Biju Menon | Jakes Bejoy | Arun Varma](https://www.youtube.com/watch?v=yEGqU_4fC10)
-- [കാലു മണ്ണിലുറയ്ക്കാത്ത | Kaalu Manniluraykkaatha | Mylaanchi Malayalam Movie Song | K J Yesudas](https://www.youtube.com/watch?v=6GQS8N2jP8U)
-- [മലയാളികൾ എപ്പോഴും കേട്ടുകൊണ്ടിരിക്കുന്ന മലയാളസിനിമയിലെ ഇമ്പമുള്ള ഗാനങ്ങൾ | EVERGREEN HITS](https://www.youtube.com/watch?v=a1H7fgceSio)
-- [Kinaavilennum Vannene | കിനാവിലെന്നും വന്നെന്നെ | Oral Koodi Kalanayi Movie Song| KJ Yesudas|P Leela](https://www.youtube.com/watch?v=vMaPvqQFiv4)
+- [Neeyo Puzha Poleyen | Vaadamalli | Neetha Subair | Syam Balakrishnan | Vayalar Sarath Chandra Varma](https://www.youtube.com/watch?v=bVGZJagel9g)
+- [ക്രിസ്തുവിന്റെ ക്രൂശ് വെളിച്ചം തരുന്ന വിളക്കുമരമാണ് | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=TkcIBNZQQxw)
+- [Rakka Tikka Video Song | Class By A Soldier | Meenakshi Anoop | Chinmayi Nair | Sayanora | Ajith G](https://www.youtube.com/watch?v=Kg1K_Cpcx8U)
+- [Chembakapoo Kaatile Video Song | Rathinirvedam | M Jayachandran #shorts](https://www.youtube.com/watch?v=he284BYoNKs)
+- [SuperHero HanuMan From HANU-MAN(Malayalam) | Prasanth Varma | Teja Sajja | Anudeep Dev |Veda Vagdevi](https://www.youtube.com/watch?v=K296fD_X4OI)
+- [Oru Vallam Ponnum Video Song | M. G. Sreekumar | Sujatha Mohan | Mohanlal | Shobana](https://www.youtube.com/watch?v=t3sr9BHthbk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
