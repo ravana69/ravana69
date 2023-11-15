@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Non Stop Christmas Carols | Jukebox | Christmas Songs](https://www.youtube.com/watch?v=yDmieBlEjeM)
+- [Manjin Thooval | Aviyal | Shorts | Harishankar KS  #malayalamfilmsongs #shortsvideo](https://www.youtube.com/watch?v=oMEwMO84Sn8)
 - [Jeevanakum Daivame | Minmini | Christian Melody Songs | Paul Chittoor | Christian Devotional Songs](https://www.youtube.com/watch?v=6JTUmNuAJGw)
 - [എത്രയും ദയയുള്ള മാതാവേ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #ethrayum dhayaulla maadhave #November 15th](https://www.youtube.com/watch?v=9Qdy0WRGG7U)
 - [Japamala 15th of November 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 15th of November 23](https://www.youtube.com/watch?v=2m1fg6B1X9k)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=re3fIRyaO8A)
-- [പ്രഭാത പ്രാര്‍ത്ഥന  November 15 # Athiravile Prarthana 15th of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=IEYOZcYQ3k4)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=5rbOKITlhsw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
