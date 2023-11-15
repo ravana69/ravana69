@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Blackout &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Rus&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176278-the-blackout-2019-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-rus-24gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=356193)
 - [ANNAVARAM &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176277-annavaram-2006-telugu-dvd9-untouched-480p-dd51-448kbps-7gb-esub/&do=findComment&comment=356192)
 - [Theeppori Benny &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176266-theeppori-benny-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356191)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP74 DAY 73 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 949MB - 477MB &amp; 193MB | 15-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176276-bigg-boss-telugu-s07-ep74-day-73-true-web-dl-1080p-720p-480p-avc-untouched-949mb-477mb-193mb-15-11-2023/&do=findComment&comment=356190)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP74 DAY 73 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 949MB - 477MB &amp; 193MB | 15-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176276-bigg-boss-telugu-s07-ep74-day-73-true-web-dl-1080p-720p-480p-avc-untouched-949mb-477mb-193mb-15-11-2023/&do=findComment&comment=356189)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP46 DAY 45 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 572MB &amp; 224MB | 15-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176275-bigg-boss-tamil-s07-ep46-day-45-true-web-dl-1080p-720p-480p-avc-untouched-1gb-572mb-224mb-15-11-2023/&do=findComment&comment=356188)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
