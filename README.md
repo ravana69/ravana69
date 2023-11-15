@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Rareeraaro - Lyrical Video | Puthumukhangal | Unni Menon | Rajesh Krishnan](https://www.youtube.com/watch?v=_L2XyLxdLo4)
+- [Anuraaga Vilochananayi With Narration | Neelathamara | V Sreekumar | Shreya Goshal | Vidyasagar](https://www.youtube.com/watch?v=HuEBK754ONk)
 - [ഒരുകാലത്ത് മലയാളികളുടെ കൂടെപ്പിറപ്പായിരുന്ന മധുര സ്മരണകളുണർത്തും സിനിമാഗാനങ്ങൾ ! SUPERHIT SONGS](https://www.youtube.com/watch?v=g-hUjuAxvoE)
 - [ശ്യാമ മേഘ വര്‍ണ്ണന്‍ | Shyamamegavarnan | Bhishmachariya Superhit Movie Song | Manoj K. Jayan](https://www.youtube.com/watch?v=OpsynfmeSfM)
 - [Koovaram Kili Paithale Video Song | Banaras | Navya Nair | Vineeth | Shweta Mohan | Vijay Yesudas](https://www.youtube.com/watch?v=LfCQNKHNLAk)
 - [Nakshathrakkoodaram - Athippazhathin Elaneer Churathum Lyric | Mohan Sithara | Suresh Gopi](https://www.youtube.com/watch?v=rlbkTXiYWY8)
-- [Mazhavilkkoodaram - Manjil Maayum Lyric Version 3 | S.Balakrishanan | Rahman, Annie](https://www.youtube.com/watch?v=xvtm9lXAQc4)
-- [Nakshathrakkoodaram - Nellikkaadu Chutty Lyric | Mohan Sithara | Suresh Gopi, Shweta Menon](https://www.youtube.com/watch?v=o88tHJBhx8A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
