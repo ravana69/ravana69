@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [[4K] Oppenheimer &lpar;2023&rpar; 2160p HDR10-DV IMAX BluRay REMUX DTS-HD.MA.5.1 Msubs x265 HEVC - 84.2 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176267-4k-oppenheimer-2023-2160p-hdr10-dv-imax-bluray-remux-dts-hdma51-msubs-x265-hevc-842-gb/&do=findComment&comment=356168)
 - [Game Of Thrones &lpar;2016&rpar; Complete S06 EP&lpar;01-10&rpar; Merged Bluray - [1080p - 720p - HEVC - [Telugu &lpar;Org JIO AAC 2.0 - 192Kbps&rpar;] - 7GB &amp; 3.6GB - 1.8GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176265-game-of-thrones-2016-complete-s06-ep01-10-merged-bluray-1080p-720p-hevc-telugu-org-jio-aac-20-192kbps-7gb-36gb-18gb-esub-google-drive/&do=findComment&comment=356166)
 - [Devadasu &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.4GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176262-devadasu-2006-telugu-dvd9-untouched-480p-dd51-448kbps-64gb-esub/&do=findComment&comment=356165)
 - [Devadasu &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.4GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176262-devadasu-2006-telugu-dvd9-untouched-480p-dd51-448kbps-64gb-esub/&do=findComment&comment=356164)
 - [📌 SKANDA &lpar;2023&rpar; &lpar;Tel + Tam + Kan + Mal&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - 2160P / 1080P - DSNP - WEBDL DDP 5.1 ATMOS - ESUBS - 5GB](https://www.1tamilmv.phd/index.php?/forums/topic/176264-%F0%9F%93%8C-skanda-2023-tel-tam-kan-mal-music-video-album-2160p-1080p-dsnp-webdl-ddp-51-atmos-esubs-5gb/&do=findComment&comment=356163)
-- [Se7en &lpar;1995&rpar; | Soldier &lpar;1998&rpar; | The Master &lpar;1992&rpar; [Tam+Hin+Eng] 1808p [GDRIVE]](https://www.1tamilmv.phd/index.php?/forums/topic/147668-se7en-1995-soldier-1998-the-master-1992-tamhineng-1808p-gdrive/&do=findComment&comment=356162)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
