@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Venky &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.8GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176273-venky-2004-telugu-dvd9-untouched-480p-dd51-448kbps-68gb-esub/&do=findComment&comment=356178)
-- [Transformers 1 &lpar;2007&rpar; [1080p &amp; 720p AMZN WEB-DL ×264 [&lpar;Tamil + Telugu + Hindi + English&rpar; DD+ 5.1 - 192/640kbps] 15GB - 11GB - 9GB - 6GB - 3GB - 1.4GB - ESub - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/167798-transformers-1-2007-1080p-720p-amzn-web-dl-%C3%97264-tamil-telugu-hindi-english-dd-51-192640kbps-15gb-11gb-9gb-6gb-3gb-14gb-esub-leyon/&do=findComment&comment=356177)
-- [65 Hollywood Movies - BluRay - H264 - Original Audio - [Tamil + Telugu + Hindi + Eng] - ESub - [720p - 70GB]](https://www.1tamilmv.phd/index.php?/forums/topic/127410-65-hollywood-movies-bluray-h264-original-audio-tamil-telugu-hindi-eng-esub-720p-70gb/&do=findComment&comment=356176)
-- [Cut &lpar;2000&rpar; AAC 2.0 Tamil-Telugu-Hindi-English 1080p 10bit BluRay x265 Esub [G-Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176272-cut-2000-aac-20-tamil-telugu-hindi-english-1080p-10bit-bluray-x265-esub-g-drive/&do=findComment&comment=356175)
-- [Apurva &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.2GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176271-apurva-2023-hindi-true-web-dl-1080p-720p-avc-dd51-192kbps-22gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=356174)
+- [Apurva &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.2GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176271-apurva-2023-hindi-true-web-dl-1080p-720p-avc-dd51-192kbps-22gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=356183)
+- [Theeppori Benny &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176266-theeppori-benny-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356182)
+- [K.G.F.Chapter.1.2018.1080p.BluRay.REMUX.AVC.[Hindi-Telugu AMZN DDP 5.1 640Kbps + Kannada DTS-HD MA 5.1]-MSubs 33GB [G-Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176274-kgfchapter120181080pblurayremuxavchindi-telugu-amzn-ddp-51-640kbps-kannada-dts-hd-ma-51-msubs-33gb-g-drive/&do=findComment&comment=356181)
+- [Mangalyam &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176268-mangalyam-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-26gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356180)
+- [[4K] Oppenheimer &lpar;2023&rpar; 2160p HDR10-DV IMAX BluRay REMUX DTS-HD.MA.5.1 Msubs x265 HEVC - 84.2 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176267-4k-oppenheimer-2023-2160p-hdr10-dv-imax-bluray-remux-dts-hdma51-msubs-x265-hevc-842-gb/&do=findComment&comment=356179)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
