@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഒരുകാലത്ത് മലയാളികളുടെ കൂടെപ്പിറപ്പായിരുന്ന മധുര സ്മരണകളുണർത്തും സിനിമാഗാനങ്ങൾ ! SUPERHIT SONGS](https://www.youtube.com/watch?v=g-hUjuAxvoE)
+- [ശ്യാമ മേഘ വര്‍ണ്ണന്‍ | Shyamamegavarnan | Bhishmachariya Superhit Movie Song | Manoj K. Jayan](https://www.youtube.com/watch?v=OpsynfmeSfM)
+- [Koovaram Kili Paithale Video Song | Banaras | Navya Nair | Vineeth | Shweta Mohan | Vijay Yesudas](https://www.youtube.com/watch?v=LfCQNKHNLAk)
 - [Nakshathrakkoodaram - Athippazhathin Elaneer Churathum Lyric | Mohan Sithara | Suresh Gopi](https://www.youtube.com/watch?v=rlbkTXiYWY8)
 - [Mazhavilkkoodaram - Manjil Maayum Lyric Version 3 | S.Balakrishanan | Rahman, Annie](https://www.youtube.com/watch?v=xvtm9lXAQc4)
 - [Nakshathrakkoodaram - Nellikkaadu Chutty Lyric | Mohan Sithara | Suresh Gopi, Shweta Menon](https://www.youtube.com/watch?v=o88tHJBhx8A)
-- [Mazhavilkkoodaram - Manjil Maayum Lyric Version 2 | S.Balakrishanan | Rahman, Annie](https://www.youtube.com/watch?v=KQ3klFGjTv8)
-- [Mazhavilkkoodaram - Pottukuthi Lyric | S.Balakrishanan | Rahman, Annie](https://www.youtube.com/watch?v=Dkxu_59KE7Q)
-- [Mazhavilkkoodaram - Varna Varna Lyric | S.Balakrishanan | Rahman, Annie](https://www.youtube.com/watch?v=8wlhgyx-M9A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
