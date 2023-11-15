@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP74 DAY 73 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 949MB - 477MB &amp; 193MB | 15-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176276-bigg-boss-telugu-s07-ep74-day-73-true-web-dl-1080p-720p-480p-avc-untouched-949mb-477mb-193mb-15-11-2023/&do=findComment&comment=356189)
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP46 DAY 45 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 572MB &amp; 224MB | 15-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176275-bigg-boss-tamil-s07-ep46-day-45-true-web-dl-1080p-720p-480p-avc-untouched-1gb-572mb-224mb-15-11-2023/&do=findComment&comment=356188)
+- [Jailer &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 10GB - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175193-jailer-2023-tamil-true-web-dl-4k1080p-720p-avc-hevc-dd51-640kbps-10gb-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356187)
 - [40 Hollywood Movies - BluRay - H264/H265 - [Tamil + Telugu + Hindi + Eng] - ESub - [4K &amp; 1080p - 250GB] [GDrive]](https://www.1tamilmv.phd/index.php?/forums/topic/145665-40-hollywood-movies-bluray-h264h265-tamil-telugu-hindi-eng-esub-4k-1080p-250gb-gdrive/&do=findComment&comment=356186)
 - [K.G.F.Chapter.1.2018.1080p.BluRay.REMUX.AVC.[Hindi-Telugu AMZN DDP 5.1 640Kbps + Kannada DTS-HD MA 5.1]-MSubs 33GB [G-Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176274-kgfchapter120181080pblurayremuxavchindi-telugu-amzn-ddp-51-640kbps-kannada-dts-hd-ma-51-msubs-33gb-g-drive/&do=findComment&comment=356185)
-- [Ghost Ship &lpar;2002&rpar; 1080p BluRay x264 DTS-5.1 [GDRIVE]](https://www.1tamilmv.phd/index.php?/forums/topic/148558-ghost-ship-2002-1080p-bluray-x264-dts-51-gdrive/&do=findComment&comment=356184)
-- [Apurva &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.2GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176271-apurva-2023-hindi-true-web-dl-1080p-720p-avc-dd51-192kbps-22gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=356183)
-- [Theeppori Benny &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176266-theeppori-benny-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356182)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
