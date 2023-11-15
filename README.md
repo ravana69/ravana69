@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Apurva &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.2GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176271-apurva-2023-hindi-true-web-dl-1080p-720p-avc-dd51-192kbps-22gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=356174)
 - [Mangalyam &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176268-mangalyam-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-26gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356173)
 - [GANDHI &lpar;1982&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD2.0 - 192Kbps&rpar; - 3GB](https://www.1tamilmv.phd/index.php?/forums/topic/176270-gandhi-1982-telugu-dvd5-untouched-480p-dd20-192kbps-3gb/&do=findComment&comment=356172)
 - [Theeppori Benny &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176266-theeppori-benny-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356171)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [15-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176269-movies-collection-all-languages-4k-1080p-720p-576p-480p-15-11-2023/&do=findComment&comment=356170)
-- [Mangalyam &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176268-mangalyam-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-26gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356169)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
