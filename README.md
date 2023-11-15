@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Rareeraaro - Lyrical Video | Puthumukhangal | Unni Menon | Rajesh Krishnan](https://www.youtube.com/watch?v=_L2XyLxdLo4)
-- [Anuraaga Vilochananayi With Narration | Neelathamara | V Sreekumar | Shreya Goshal | Vidyasagar](https://www.youtube.com/watch?v=HuEBK754ONk)
-- [ഒരുകാലത്ത് മലയാളികളുടെ കൂടെപ്പിറപ്പായിരുന്ന മധുര സ്മരണകളുണർത്തും സിനിമാഗാനങ്ങൾ ! SUPERHIT SONGS](https://www.youtube.com/watch?v=g-hUjuAxvoE)
-- [ശ്യാമ മേഘ വര്‍ണ്ണന്‍ | Shyamamegavarnan | Bhishmachariya Superhit Movie Song | Manoj K. Jayan](https://www.youtube.com/watch?v=OpsynfmeSfM)
-- [Koovaram Kili Paithale Video Song | Banaras | Navya Nair | Vineeth | Shweta Mohan | Vijay Yesudas](https://www.youtube.com/watch?v=LfCQNKHNLAk)
-- [Nakshathrakkoodaram - Athippazhathin Elaneer Churathum Lyric | Mohan Sithara | Suresh Gopi](https://www.youtube.com/watch?v=rlbkTXiYWY8)
+- [Vellaarappoomala Mele | Varavelpu | Johnson | K J Yesudas #SongOfTheDay](https://www.youtube.com/watch?v=tqD77jt6kig)
+- [എന്റെ ഉടയവനും ഞാൻ സേവിക്കുന്നവനുമായ ദൈവം എനിക്കുണ്ട്. | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=8iKtj2Som64)
+- [Theyyaare | Anubhoothi Malayalam Movie Song | Shyam | Arundhathi, Krishnachandran | Suresh Gopi](https://www.youtube.com/watch?v=7_GSor8hbBY)
+- [Thaarakapoovanam Aranjilla Video Song | Jwala | K. J Yesudas | P. Susheela](https://www.youtube.com/watch?v=s4vZ8GDypVk)
+- [ORU PATHIRATHAN | NITHYA MAMMEN | SUNIL V JOY | #shorts #shortvideo](https://www.youtube.com/watch?v=q5Pg9DQcM9k)
+- [Christian Melody Songs | Narayana Krishna | Christian Devotional Songs Malayalam | Abhijith Kollam](https://www.youtube.com/watch?v=BVtpWFPvvks)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
