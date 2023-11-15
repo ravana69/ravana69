@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന  November 16# Athiravile Prarthana 16th of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=pMVTGFGgzFs)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=EwQj8SFnGdE)
+- [ഈണവും താളവും ഇല്ലെങ്കിലും..| കെ ജെ യേശുദാസ് | K S Chitra | Original Audio Remastered movie songs](https://www.youtube.com/watch?v=_yufrbqhbY4)
 - [Pleasant vibes of #Vaarmeghame | #Bandra | #Dileep, #Tamannaah | #SamCS #ytshorts #shorts](https://www.youtube.com/watch?v=yXyvEazf7Gc)
 - [Rain vibes of #Vaarmeghame | #Bandra | #Dileep, #Tamannaah | #SamCS #ytshorts #shorts](https://www.youtube.com/watch?v=7v_9V5tGYcU)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 16th November 23](https://www.youtube.com/watch?v=xo6DYTniybo)
-- [Vanna Vazhikal | Wilson Piravom | Joy John | Shorts  #manoramachristiandevotionalsongs #ytshorts](https://www.youtube.com/watch?v=yLmxmSR5Tz4)
-- [Paandimelam | Rajamanikkam | Mammootty | Rahman | Bheeman Raghu | Pradeep Palluruthy | Alex Paul](https://www.youtube.com/watch?v=aFf47WXWl2I)
-- [15 November 2023](https://www.youtube.com/watch?v=w15JmX5alI4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
