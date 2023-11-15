@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Sona Sona| Kalabhavan Mani |Ben Johnson|Lyrical Video #shortsfeed #shorts #kalabhavanmani #deepakdev](https://www.youtube.com/watch?v=modlGqfxaKI)
+- [Jeevanakum Daivame | Daleema | Christian Melody Songs | Paul Chittoor | Christian Devotional Songs](https://www.youtube.com/watch?v=BOPjfBMAQOE)
 - [ഒന്നാനാം കുന്നില്‍ | Onnaanaam Kunnil | Dheem Tharikidathom Malayalam Movie Song | Lizy | Shankar](https://www.youtube.com/watch?v=yfouB6f9E2Q)
 - [അനുവാദമറിയാൻ അഴകൊന്നു നുള്ളുവാൻഅറിയാതെ പിടയും വിരലിന്റെ തുമ്പുകൾ  #everlastingmalayalammelodysongs](https://www.youtube.com/watch?v=JTj5OhyjsY0)
 - [Pranayam Anaadiyaam | Punyam 2002  | V.Madhusoodanan Nair | Malayalam Movie  Song](https://www.youtube.com/watch?v=n00G_jdf-bE)
 - [Thekkumkooradiyaathil | Ashwameddham  | Vayalar Ramavarama | G.Devarajan | B.Vasantha](https://www.youtube.com/watch?v=90W6fHKjkPI)
-- [Naadamayookham Vol.2 | Malayalam Selected Film Songs | Yesudas | Raveendran | Sound of Arts](https://www.youtube.com/watch?v=Gdan5E9KyCE)
-- [Non Stop Christmas Carols | Jukebox | Christmas Songs](https://www.youtube.com/watch?v=yDmieBlEjeM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
