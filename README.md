@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Sona Sona| Kalabhavan Mani |Ben Johnson|Lyrical Video #shortsfeed #shorts #kalabhavanmani #deepakdev](https://www.youtube.com/watch?v=modlGqfxaKI)
-- [Jeevanakum Daivame | Daleema | Christian Melody Songs | Paul Chittoor | Christian Devotional Songs](https://www.youtube.com/watch?v=BOPjfBMAQOE)
-- [ഒന്നാനാം കുന്നില്‍ | Onnaanaam Kunnil | Dheem Tharikidathom Malayalam Movie Song | Lizy | Shankar](https://www.youtube.com/watch?v=yfouB6f9E2Q)
-- [അനുവാദമറിയാൻ അഴകൊന്നു നുള്ളുവാൻഅറിയാതെ പിടയും വിരലിന്റെ തുമ്പുകൾ  #everlastingmalayalammelodysongs](https://www.youtube.com/watch?v=JTj5OhyjsY0)
-- [Pranayam Anaadiyaam | Punyam 2002  | V.Madhusoodanan Nair | Malayalam Movie  Song](https://www.youtube.com/watch?v=n00G_jdf-bE)
-- [Thekkumkooradiyaathil | Ashwameddham  | Vayalar Ramavarama | G.Devarajan | B.Vasantha](https://www.youtube.com/watch?v=90W6fHKjkPI)
+- [Nakshathrakkoodaram - Athippazhathin Elaneer Churathum Lyric | Mohan Sithara | Suresh Gopi](https://www.youtube.com/watch?v=rlbkTXiYWY8)
+- [Mazhavilkkoodaram - Manjil Maayum Lyric Version 3 | S.Balakrishanan | Rahman, Annie](https://www.youtube.com/watch?v=xvtm9lXAQc4)
+- [Nakshathrakkoodaram - Nellikkaadu Chutty Lyric | Mohan Sithara | Suresh Gopi, Shweta Menon](https://www.youtube.com/watch?v=o88tHJBhx8A)
+- [Mazhavilkkoodaram - Manjil Maayum Lyric Version 2 | S.Balakrishanan | Rahman, Annie](https://www.youtube.com/watch?v=KQ3klFGjTv8)
+- [Mazhavilkkoodaram - Pottukuthi Lyric | S.Balakrishanan | Rahman, Annie](https://www.youtube.com/watch?v=Dkxu_59KE7Q)
+- [Mazhavilkkoodaram - Varna Varna Lyric | S.Balakrishanan | Rahman, Annie](https://www.youtube.com/watch?v=8wlhgyx-M9A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
