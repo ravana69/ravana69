@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [K.G.F.Chapter.1.2018.1080p.BluRay.REMUX.AVC.[Hindi-Telugu AMZN DDP 5.1 640Kbps + Kannada DTS-HD MA 5.1]-MSubs 33GB [G-Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176274-kgfchapter120181080pblurayremuxavchindi-telugu-amzn-ddp-51-640kbps-kannada-dts-hd-ma-51-msubs-33gb-g-drive/&do=findComment&comment=356185)
+- [Ghost Ship &lpar;2002&rpar; 1080p BluRay x264 DTS-5.1 [GDRIVE]](https://www.1tamilmv.phd/index.php?/forums/topic/148558-ghost-ship-2002-1080p-bluray-x264-dts-51-gdrive/&do=findComment&comment=356184)
 - [Apurva &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.2GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176271-apurva-2023-hindi-true-web-dl-1080p-720p-avc-dd51-192kbps-22gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=356183)
 - [Theeppori Benny &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176266-theeppori-benny-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356182)
 - [K.G.F.Chapter.1.2018.1080p.BluRay.REMUX.AVC.[Hindi-Telugu AMZN DDP 5.1 640Kbps + Kannada DTS-HD MA 5.1]-MSubs 33GB [G-Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176274-kgfchapter120181080pblurayremuxavchindi-telugu-amzn-ddp-51-640kbps-kannada-dts-hd-ma-51-msubs-33gb-g-drive/&do=findComment&comment=356181)
-- [Mangalyam &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176268-mangalyam-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-26gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356180)
-- [[4K] Oppenheimer &lpar;2023&rpar; 2160p HDR10-DV IMAX BluRay REMUX DTS-HD.MA.5.1 Msubs x265 HEVC - 84.2 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176267-4k-oppenheimer-2023-2160p-hdr10-dv-imax-bluray-remux-dts-hdma51-msubs-x265-hevc-842-gb/&do=findComment&comment=356179)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
