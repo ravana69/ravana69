@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Pleasant vibes of #Vaarmeghame | #Bandra | #Dileep, #Tamannaah | #SamCS #ytshorts #shorts](https://www.youtube.com/watch?v=yXyvEazf7Gc)
+- [Rain vibes of #Vaarmeghame | #Bandra | #Dileep, #Tamannaah | #SamCS #ytshorts #shorts](https://www.youtube.com/watch?v=7v_9V5tGYcU)
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 16th November 23](https://www.youtube.com/watch?v=xo6DYTniybo)
 - [Vanna Vazhikal | Wilson Piravom | Joy John | Shorts  #manoramachristiandevotionalsongs #ytshorts](https://www.youtube.com/watch?v=yLmxmSR5Tz4)
 - [Paandimelam | Rajamanikkam | Mammootty | Rahman | Bheeman Raghu | Pradeep Palluruthy | Alex Paul](https://www.youtube.com/watch?v=aFf47WXWl2I)
 - [15 November 2023](https://www.youtube.com/watch?v=w15JmX5alI4)
-- [പുതുതലമുറയിലെ ആസ്വാദകരെ ഏറ്റവും കൂടുതൽ സ്വാധീനിച്ച സുരേഷ് പീറ്റേഴ്‌സിന്റെ  ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=90LIHQoGkck)
-- [Vellaarappoomala Mele | Varavelpu | Johnson | K J Yesudas #SongOfTheDay](https://www.youtube.com/watch?v=tqD77jt6kig)
-- [എന്റെ ഉടയവനും ഞാൻ സേവിക്കുന്നവനുമായ ദൈവം എനിക്കുണ്ട്. | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=8iKtj2Som64)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
