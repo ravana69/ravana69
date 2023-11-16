@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Furious &lpar;2017&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Rus&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176300-furious-2017-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-rus-24gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=356259)
 - [Kannur Squad &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176289-kannur-squad-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356258)
 - [Tiger Nageswara Rao &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176297-tiger-nageswara-rao-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356257)
 - [Tiger Nageswara Rao &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Malayalam + Kannada] - 2.6GB &amp; 1.4GB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176299-tiger-nageswara-rao-2023-true-web-dl-1080p-720p-avc-malayalam-kannada-26gb-14gb-x264-750mb-450mb-esub/&do=findComment&comment=356256)
 - [The Great Indian Family &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176298-the-great-indian-family-2023-hindi-true-web-dl-1080p-720p-avc-dd51-640kbps-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356255)
-- [Tiger Nageswara Rao &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176297-tiger-nageswara-rao-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356254)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
