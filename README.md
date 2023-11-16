@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Lakshmi &lpar;2018&rpar; Telugu &lpar;Original Version&rpar; - AVC - AAC - [1080p - 2GB | 720p - 1GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176282-lakshmi-2018-telugu-original-version-avc-aac-1080p-2gb-720p-1gb-esub/&do=findComment&comment=356207)
 - [[4K] Oppenheimer &lpar;2023&rpar; 2160p HDR10-DV IMAX BluRay REMUX DTS-HD.MA.5.1 Msubs x265 HEVC - 84.2 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176267-4k-oppenheimer-2023-2160p-hdr10-dv-imax-bluray-remux-dts-hdma51-msubs-x265-hevc-842-gb/&do=findComment&comment=356206)
 - [Jigarthanda &lpar;2014&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 5.5GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176281-jigarthanda-2014-tamil-true-web-dl-1080p-hq-avc-untouched-dd51-55gb-gdflix/&do=findComment&comment=356205)
 - [Naan Kadavul Illai &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 4.4GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176255-naan-kadavul-illai-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-44gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356204)
 - [Apurva &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.2GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176271-apurva-2023-hindi-true-web-dl-1080p-720p-avc-dd51-192kbps-22gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=356203)
-- [The Blackout &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Rus&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176278-the-blackout-2019-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-rus-24gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=356202)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
