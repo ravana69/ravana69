@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP46 DAY 45 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 572MB &amp; 224MB | 15-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176275-bigg-boss-tamil-s07-ep46-day-45-true-web-dl-1080p-720p-480p-avc-untouched-1gb-572mb-224mb-15-11-2023/&do=findComment&comment=356200)
+- [Lyle, Lyle, Crocodile &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176243-lyle-lyle-crocodile-2022-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-24gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=356199)
+- [Aranmanai 2 &lpar;2016&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 7GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176258-aranmanai-2-2016-tamil-true-web-dl-1080p-hq-avc-untouched-aac20-7gb-gdflix/&do=findComment&comment=356198)
+- [Naan Kadavul Illai &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 4.4GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176255-naan-kadavul-illai-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-44gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356197)
 - [Label S01 [E01-E03] DSNP WEB-DL MULTi DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p - Single Episodes - 10 GB | 3.31 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176280-label-s01-e01-e03-dsnp-web-dl-multi-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-single-episodes-10-gb-331-gb/&do=findComment&comment=356196)
-- [ANNAVARAM &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176277-annavaram-2006-telugu-dvd9-untouched-480p-dd51-448kbps-7gb-esub/&do=findComment&comment=356195)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [16-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176279-movies-collection-all-languages-4k-1080p-720p-576p-480p-16-11-2023/&do=findComment&comment=356194)
-- [The Blackout &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Rus&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176278-the-blackout-2019-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-rus-24gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=356193)
-- [ANNAVARAM &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176277-annavaram-2006-telugu-dvd9-untouched-480p-dd51-448kbps-7gb-esub/&do=findComment&comment=356192)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
