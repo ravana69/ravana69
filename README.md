@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Lion King Pentalogy &lpar;1994 - 2019&rpar; - BluRay - 720p - Multi - Original - Audios [ Tel&lpar;3&rpar; +Tam&lpar;2&rpar; + Hindi + Eng ] - x264 - ESub - 5GB](https://www.1tamilmv.phd/index.php?/forums/topic/95278-the-lion-king-pentalogy-1994-2019-bluray-720p-multi-original-audios-tel3-tam2-hindi-eng-x264-esub-5gb/&do=findComment&comment=356220)
 - [JR.NTR - Om Sakthi | Rakhee |  Jai Lava Kusa | Rabhasa | Brundavanam | Temper | Oosaravelli | Baadshah | Nannaku Prematho -  SUNNXT WEB-DL - 1080p - 720p - 360p ×264 [Tamil , Telugu  &lpar;DD+ 5.1- 192kbps&rpar;] - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/162331-jrntr-om-sakthi-rakhee-jai-lava-kusa-rabhasa-brundavanam-temper-oosaravelli-baadshah-nannaku-prematho-sunnxt-web-dl-1080p-720p-360p-%C3%97264-tamil-telugu-dd-51-192kbps-leyon/&do=findComment&comment=356219)
 - [Lyle, Lyle, Crocodile &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176243-lyle-lyle-crocodile-2022-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-24gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=356218)
 - [The Blackout &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Rus&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176278-the-blackout-2019-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-rus-24gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=356217)
 - [Brahmachari &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.3GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176130-brahmachari-2002-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-63gb-esub/&do=findComment&comment=356216)
-- [Geethanjali &lpar;2014&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 4GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176150-geethanjali-2014-telugu-dvd5-untouched-480p-dd51-448kbps-4gb-esub/&do=findComment&comment=356215)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
