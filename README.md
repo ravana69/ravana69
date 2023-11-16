@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [True Detective [S01 to S03] &lpar;2014 - 2019&rpar; WEB-DL - [1080p &amp; 720p - x264 - &lpar;Tam + Tel + Hin + Kan + Eng&rpar; - 6GB &amp; 3GB] - [x264 - &lpar;Tamil + Telugu&rpar; - 1GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176283-true-detective-s01-to-s03-2014-2019-web-dl-1080p-720p-x264-tam-tel-hin-kan-eng-6gb-3gb-x264-tamil-telugu-1gb-esub/&do=findComment&comment=356247)
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP47 DAY 46 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 550MB &amp; 214MB | 16-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176286-bigg-boss-tamil-s07-ep47-day-46-true-web-dl-1080p-720p-480p-avc-untouched-1gb-550mb-214mb-16-11-2023/&do=findComment&comment=356246)
+- [Narayana &amp; Co &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176285-narayana-co-2023-tamil-true-web-dl-1080p-720p-avc-25gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356245)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP75 DAY 74 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 523MB &amp; 225MB | 16-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176287-bigg-boss-telugu-s07-ep75-day-74-true-web-dl-1080p-720p-480p-avc-untouched-1gb-523mb-225mb-16-11-2023/&do=findComment&comment=356239)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP47 DAY 46 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 550MB &amp; 214MB | 16-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176286-bigg-boss-tamil-s07-ep47-day-46-true-web-dl-1080p-720p-480p-avc-untouched-1gb-550mb-214mb-16-11-2023/&do=findComment&comment=356238)
-- [Aranmanai 2 &lpar;2016&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 7GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176258-aranmanai-2-2016-tamil-true-web-dl-1080p-hq-avc-untouched-aac20-7gb-gdflix/&do=findComment&comment=356237)
-- [Narayana &amp; Co &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176285-narayana-co-2023-tamil-true-web-dl-1080p-720p-avc-25gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356236)
-- [True Detective [S01 to S03] &lpar;2014 - 2019&rpar; WEB-DL - [1080p &amp; 720p - x264 - &lpar;Tam + Tel + Hin + Kan + Eng&rpar; - 6GB &amp; 3GB] - [x264 - &lpar;Tamil + Telugu&rpar; - 1GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176283-true-detective-s01-to-s03-2014-2019-web-dl-1080p-720p-x264-tam-tel-hin-kan-eng-6gb-3gb-x264-tamil-telugu-1gb-esub/&do=findComment&comment=356235)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
