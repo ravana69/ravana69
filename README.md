@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [മഞ്ഞുനിലാവേ നിന്റെ പുഞ്ചിരി പൂമുഖം കാണാൻ..  | Fr. Shaji Thumpechirayil | #shortsvideo  #shots](https://www.youtube.com/watch?v=VILG5TEqKNs)
-- [Kuzhi Madiya Song Shorts | Oridathoru Postman #shorts](https://www.youtube.com/watch?v=qfmzqWgKXnA)
-- [Phoenix  Teaser | Aju Varghese | Anoop Menon | Vishnu Bharathan | Midhun Manuel Thomas](https://www.youtube.com/watch?v=VDJR_0ls2bA)
-- [Darshanam Thedi | AUDIO JUKEBOX | Ayyappa Devotional Songs Malayalam | Sabarimala | Hindu Devotional](https://www.youtube.com/watch?v=f9FyJzL9DKI)
-- [മലയാളിത്തമുള്ള മണ്ണിൻ സുഗന്ധമുള്ള മലയാളികളെന്നും കേൾക്കാൻ കൊതിക്കുന്ന മനോഹരഗാനങ്ങൾ ! SUPERHITS SONGS](https://www.youtube.com/watch?v=v5Y6ampUhUw)
-- [Kombil Kilukkum Ketti | Karimbana | AT Ummer | Bichu Thirumala | KJ Yesudas |Loving Memmory Of Jayan](https://www.youtube.com/watch?v=we6E-AqIU5g)
+- [Mujhe Paale - Video Song | Bandra | Dileep, Tamannaah | Sam C.S | Arun Gopy](https://www.youtube.com/watch?v=5_uqj3s01gw)
+- [പ്രതീക്ഷ നഷ്ടപ്പെടുന്നിടത്ത് ആശ്വാസം പകരുന്ന ദൈവം നിന്നോടൊപ്പമുണ്ട് | Rev. Aneesh P Joseph #shorts](https://www.youtube.com/watch?v=IUyUuc6iIMQ)
+- [Puzhayorathil | Adharvam | Ilayaraja | K S Chithra | O N V Kurup | Silk Smitha #SongOfTheDay](https://www.youtube.com/watch?v=sjF4MP2G7zs)
+- [ഉണ്ണികൾക്കുൽസവമേള  | Unnikalkkulsava Vela | Manithalli Super Hit Movie Song | Mammootty | Seema](https://www.youtube.com/watch?v=8kkhFZ3wNtw)
+- [Christian Melody Songs | Abhijith Kollam | Christian Devotional Songs Malayalam | Wilson Piravom](https://www.youtube.com/watch?v=lNHJ3j63DTI)
+- [Chentharmizhi Video Song | Kavaya Madhavan | Vineeth | KS Chithra| Madhu Balakrishnan|M Jayachandran](https://www.youtube.com/watch?v=Z_zJyGNnzdY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
