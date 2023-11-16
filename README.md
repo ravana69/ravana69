@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Sivaji &lpar;2007&rpar; Tamil - 1080p - API Blu-Ray - Remux - DTS-HDMA 5.1 - 38.5GB](https://www.1tamilmv.phd/index.php?/forums/topic/99106-sivaji-2007-tamil-1080p-api-blu-ray-remux-dts-hdma-51-385gb%C2%A0/&do=findComment&comment=356224)
+- [65 Hollywood Movies - BluRay - H264 - Original Audio - [Tamil + Telugu + Hindi + Eng] - ESub - [720p - 70GB]](https://www.1tamilmv.phd/index.php?/forums/topic/127410-65-hollywood-movies-bluray-h264-original-audio-tamil-telugu-hindi-eng-esub-720p-70gb/&do=findComment&comment=356223)
 - [The Blackout &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Rus&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176278-the-blackout-2019-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-rus-24gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=356222)
 - [Cut &lpar;2000&rpar; AAC 2.0 Tamil-Telugu-Hindi-English 1080p 10bit BluRay x265 Esub [G-Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176272-cut-2000-aac-20-tamil-telugu-hindi-english-1080p-10bit-bluray-x265-esub-g-drive/&do=findComment&comment=356221)
 - [The Lion King Pentalogy &lpar;1994 - 2019&rpar; - BluRay - 720p - Multi - Original - Audios [ Tel&lpar;3&rpar; +Tam&lpar;2&rpar; + Hindi + Eng ] - x264 - ESub - 5GB](https://www.1tamilmv.phd/index.php?/forums/topic/95278-the-lion-king-pentalogy-1994-2019-bluray-720p-multi-original-audios-tel3-tam2-hindi-eng-x264-esub-5gb/&do=findComment&comment=356220)
-- [JR.NTR - Om Sakthi | Rakhee |  Jai Lava Kusa | Rabhasa | Brundavanam | Temper | Oosaravelli | Baadshah | Nannaku Prematho -  SUNNXT WEB-DL - 1080p - 720p - 360p ×264 [Tamil , Telugu  &lpar;DD+ 5.1- 192kbps&rpar;] - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/162331-jrntr-om-sakthi-rakhee-jai-lava-kusa-rabhasa-brundavanam-temper-oosaravelli-baadshah-nannaku-prematho-sunnxt-web-dl-1080p-720p-360p-%C3%97264-tamil-telugu-dd-51-192kbps-leyon/&do=findComment&comment=356219)
-- [Lyle, Lyle, Crocodile &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176243-lyle-lyle-crocodile-2022-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-24gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=356218)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
