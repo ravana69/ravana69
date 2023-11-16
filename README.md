@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oro Thulli Chorayil... | Malayalam Classic Movie | Mooladhanam | Movie Song | Ft. Prem Nazir](https://www.youtube.com/watch?v=4QY4daPJAd8)
 - [യേശുവേ എൻ പ്രാണനായകാ | ROY PUTHUR | SIONA BABU  PRINCE | #christiandevotionalsongs #royputhur](https://www.youtube.com/watch?v=hWGKtxwziG4)
 - [പഴയകാല പ്രഭാതഗാനങ്ങൾ കേട്ട് പ്രാർത്ഥിച്ചു ഉണരാം daily morning old worship songs with lyrics](https://www.youtube.com/watch?v=fg5k0pu9_Tg)
 - [ഹൃദയം തകർന്നിരിക്കുവാണോ ഈ ഗാനങ്ങൾ കേട്ടുനോക്ക്  | Christian Melody Songs Malayalam](https://www.youtube.com/watch?v=ZSU56EDU22w)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #daily prayer mother mary for November 16th 2023](https://www.youtube.com/watch?v=qDcb_aS4Bx8)
 - [Japamala 16th of November 23 # Mathavinte Japamala Prakashathinte Rahasyangal 16th of November 23](https://www.youtube.com/watch?v=1bLbhoKdYmM)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=tuV7-tZm5Io)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
