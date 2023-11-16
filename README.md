@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Good vibes of #Vaarmeghame | #Bandra | #Dileep, #Tamannaah | #SamCS #ytshorts #shorts](https://www.youtube.com/watch?v=cj2w25gNMQk)
+- [Good beats of #Vaarmeghame | #Bandra | #Dileep, #Tamannaah | #SamCS #ytshorts #shorts](https://www.youtube.com/watch?v=o004G606PdE)
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 17th November 23](https://www.youtube.com/watch?v=h07ok95hXsU)
 - [അറിയുന്നു ഞാൻ ദിവ്യ സ്നേഹം .](https://www.youtube.com/watch?v=4uMd77cI5W8)
 - [Thamarapoovil Vazhum | Chandralekha | Berny Ignatious | Gireesh Puthenchery |MG Sreekumar |Mohanlal](https://www.youtube.com/watch?v=2KMSL3qI_mo)
 - [Mujhe Paale - Video Song | Bandra | Dileep, Tamannaah | Sam C.S | Arun Gopy](https://www.youtube.com/watch?v=5_uqj3s01gw)
-- [പ്രതീക്ഷ നഷ്ടപ്പെടുന്നിടത്ത് ആശ്വാസം പകരുന്ന ദൈവം നിന്നോടൊപ്പമുണ്ട് | Rev. Aneesh P Joseph #shorts](https://www.youtube.com/watch?v=IUyUuc6iIMQ)
-- [Puzhayorathil | Adharvam | Ilayaraja | K S Chithra | O N V Kurup | Silk Smitha #SongOfTheDay](https://www.youtube.com/watch?v=sjF4MP2G7zs)
-- [ഉണ്ണികൾക്കുൽസവമേള  | Unnikalkkulsava Vela | Manithalli Super Hit Movie Song | Mammootty | Seema](https://www.youtube.com/watch?v=8kkhFZ3wNtw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
