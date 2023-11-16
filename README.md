@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പഴയകാല പ്രഭാതഗാനങ്ങൾ കേട്ട് പ്രാർത്ഥിച്ചു ഉണരാം daily morning old worship songs with lyrics](https://www.youtube.com/watch?v=fg5k0pu9_Tg)
+- [ഹൃദയം തകർന്നിരിക്കുവാണോ ഈ ഗാനങ്ങൾ കേട്ടുനോക്ക്  | Christian Melody Songs Malayalam](https://www.youtube.com/watch?v=ZSU56EDU22w)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #daily prayer mother mary for November 16th 2023](https://www.youtube.com/watch?v=qDcb_aS4Bx8)
+- [Japamala 16th of November 23 # Mathavinte Japamala Prakashathinte Rahasyangal 16th of November 23](https://www.youtube.com/watch?v=1bLbhoKdYmM)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=tuV7-tZm5Io)
 - [രാവിലെ പ്രാര്‍ത്ഥന  November 16# Athiravile Prarthana 16th of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=pMVTGFGgzFs)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=EwQj8SFnGdE)
-- [ഈണവും താളവും ഇല്ലെങ്കിലും..| കെ ജെ യേശുദാസ് | K S Chitra | Original Audio Remastered movie songs](https://www.youtube.com/watch?v=_yufrbqhbY4)
-- [Pleasant vibes of #Vaarmeghame | #Bandra | #Dileep, #Tamannaah | #SamCS #ytshorts #shorts](https://www.youtube.com/watch?v=yXyvEazf7Gc)
-- [Rain vibes of #Vaarmeghame | #Bandra | #Dileep, #Tamannaah | #SamCS #ytshorts #shorts](https://www.youtube.com/watch?v=7v_9V5tGYcU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
