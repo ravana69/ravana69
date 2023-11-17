@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Aranmanai 3 &lpar;2021&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 4.7GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176305-aranmanai-3-2021-tamil-true-web-dl-1080p-avc-untouched-aac20-47gb-esub-gdflix/&do=findComment&comment=356277)
+- [Ghost &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176292-ghost-2023-kannada-true-web-dl-1080p-720p-avc-dd51-384kbps-2gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356276)
+- [The Devil&#39;s Deal &lpar;2021&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Kor&rpar; - 2.2GB &amp; 1.3GB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176304-the-devils-deal-2021-hd-original-audios-1080p-720p-x264-tamil-hindi-kor-22gb-13gb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=356275)
 - [Aranmanai 3 &lpar;2021&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 4.7GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176305-aranmanai-3-2021-tamil-true-web-dl-1080p-avc-untouched-aac20-47gb-esub-gdflix/&do=findComment&comment=356274)
 - [The Devil&#39;s Deal &lpar;2021&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Kor&rpar; - 2.2GB &amp; 1.3GB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176304-the-devils-deal-2021-hd-original-audios-1080p-720p-x264-tamil-hindi-kor-22gb-13gb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=356273)
-- [Label S01E04 2160p DSNP WEB-DL Multi DDP5.1 Esubs - 2160p | 1080p | 720p - 3.3 GB | 1.2 GB | 0.5 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176303-label-s01e04-2160p-dsnp-web-dl-multi-ddp51-esubs-2160p-1080p-720p-33-gb-12-gb-05-gb/&do=findComment&comment=356272)
-- [The Devil&#39;s Deal &lpar;2021&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Kor&rpar; - 2.2GB &amp; 1.3GB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176304-the-devils-deal-2021-hd-original-audios-1080p-720p-x264-tamil-hindi-kor-22gb-13gb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=356271)
-- [Label S01E04 2160p DSNP WEB-DL Multi DDP5.1 Esubs - 2160p | 1080p | 720p - 3.3 GB | 1.2 GB | 0.5 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176303-label-s01e04-2160p-dsnp-web-dl-multi-ddp51-esubs-2160p-1080p-720p-33-gb-12-gb-05-gb/&do=findComment&comment=356270)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
