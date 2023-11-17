@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [KERALA COMEDY COMBAT - PROMO ✨](https://www.youtube.com/watch?v=QIP4LKJmYeU)
-- [Karimizhi Niraye | Janaki Jaane | K.S Harisankar | Sithara Krishnakumar | Manu Manjith | Kailas](https://www.youtube.com/watch?v=oXuoVVhy6WQ)
-- [Kannadi Kayyil Video Song | Johnson Master | KS Chithra | Kaithapram | Pavam Pavam Rajakumaran](https://www.youtube.com/watch?v=zc8tAFoM5NA)
-- [മനം കുളിരുന്ന  മലയാളസിനിമയിലെ സ്നേഹസാന്ദ്രമാം ചലച്ചിത്രഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=7l1asXhJM18)
-- [Moonnam Mani Samayam | Aarudeyum Karalaliyippikkunna Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=G5y-VpFqUyM)
-- [SuperHero HanuMan From HANU-MAN(Malayalam) | #malayalamsongs #tipsmalayalam #hanuman](https://www.youtube.com/watch?v=EhG4qBS5PKo)
+- [Shyaamaambaram Neele | Artham | Johnson | K J Yesudas #SongOfTheDay](https://www.youtube.com/watch?v=w3WR73U-7zE)
+- [Enikkoru Nilavinte | Bhakthajanangalude Sradhakku | KJ Yesudas | Natesh Sankar|Jayakumar Chengamanad](https://www.youtube.com/watch?v=KVCvZWl7D5Y)
+- [വരുവാനുള്ള തേജസ്സ് വിചാരിച്ചാൽ ഈ ലോകത്തിലെ കഷ്ടങ്ങൾ സാരമില്ല | Rev. Aneesh P Joseph #shorts](https://www.youtube.com/watch?v=6b-cxlcI2Qs)
+- [Seethapakshi Video Song | Oru Sundariyude Kadha | P. Susheela | Classic Malayalam Songs](https://www.youtube.com/watch?v=eYawiTmUA2s)
+- [Ilammanjin Kulirumayoru | Evergreen Malayalam Movie Song | Ninnishtam Ennishtam | Mohanlal | Priya](https://www.youtube.com/watch?v=OnGUillq_MA)
+- [Oru Kathilola Njan... | Vettam | M G Sreekumar | #shorts](https://www.youtube.com/watch?v=xmF8_Qz4QlE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
