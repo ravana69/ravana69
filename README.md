@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Tiger Nageswara Rao &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 20GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176297-tiger-nageswara-rao-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-20gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356264)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [17-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176301-movies-collection-all-languages-4k-1080p-720p-576p-480p-17-11-2023/&do=findComment&comment=356263)
 - [Mass &lpar;2004&rpar; TELUGU - Original - REMASTERED - HD - 1080P - AVC -8 Bit- EAC3.2.0 Channels 10GB [G-Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176284-mass-2004-telugu-original-remastered-hd-1080p-avc-8-bit-eac320-channels-10gb-g-drive/&do=findComment&comment=356262)
 - [Kannur Squad &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176293-kannur-squad-2023-malayalam-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356261)
 - [Kannur Squad &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176289-kannur-squad-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356260)
-- [Furious &lpar;2017&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Rus&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176300-furious-2017-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-rus-24gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=356259)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
