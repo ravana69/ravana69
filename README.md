@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Deepavali Padakkangal Audio Jukebox | #happydeepavali2023 | Malayalam Hits](https://www.youtube.com/watch?v=eL5rODm-KeY)
+- [Pakaliravukal - Lofi | Kurup | Sushin Shyam | Neha Nair | AJX](https://www.youtube.com/watch?v=mdaiKt9mZsQ)
+- [Thenmazhayo Poomazhayo | Daisy | Krishachandran | Hareesh | Soniya | Shyam](https://www.youtube.com/watch?v=-viWSVyHc-c)
 - [പഴമയുടെ തനിമയുള്ള ക്രിസ്മസ് ഗാനങ്ങൾ old malayalam christmas songs | christmas Carol songs #carol](https://www.youtube.com/watch?v=Vk3-zP3W2go)
 - [Onnumillaykayil Ninnenne | Kester | Christian Devotional Songs Malayalam | Prayer & Worship Songs](https://www.youtube.com/watch?v=YqtJI4sJ94Y)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം # november 17th daily mother mary songs](https://www.youtube.com/watch?v=rL2utsB9Q0A)
-- [Japamala 17th of November 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 17th of November 23](https://www.youtube.com/watch?v=-j1RDtz3nEQ)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=jcfkwo4k_Mg)
-- [Aradhana | Rev. Dr. Binoy Checkonthayil CMI | Mithila Michael | Christian Devotional Song](https://www.youtube.com/watch?v=9qratRznb0o)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
