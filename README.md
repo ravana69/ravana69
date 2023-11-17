@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Penninte Chenchundil Song Guruji Oru Vaakku KJ Yesudas KS Chithra Bichu Thirumala Jerry Amaldev](https://www.youtube.com/watch?v=tXQIec1K_Lo)
 - [Shyaamaambaram Neele | Artham | Johnson | K J Yesudas #SongOfTheDay](https://www.youtube.com/watch?v=w3WR73U-7zE)
 - [Enikkoru Nilavinte | Bhakthajanangalude Sradhakku | KJ Yesudas | Natesh Sankar|Jayakumar Chengamanad](https://www.youtube.com/watch?v=KVCvZWl7D5Y)
 - [വരുവാനുള്ള തേജസ്സ് വിചാരിച്ചാൽ ഈ ലോകത്തിലെ കഷ്ടങ്ങൾ സാരമില്ല | Rev. Aneesh P Joseph #shorts](https://www.youtube.com/watch?v=6b-cxlcI2Qs)
 - [Seethapakshi Video Song | Oru Sundariyude Kadha | P. Susheela | Classic Malayalam Songs](https://www.youtube.com/watch?v=eYawiTmUA2s)
 - [Ilammanjin Kulirumayoru | Evergreen Malayalam Movie Song | Ninnishtam Ennishtam | Mohanlal | Priya](https://www.youtube.com/watch?v=OnGUillq_MA)
-- [Oru Kathilola Njan... | Vettam | M G Sreekumar | #shorts](https://www.youtube.com/watch?v=xmF8_Qz4QlE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
