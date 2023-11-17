@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന  November 18 # Athiravile Prarthana 18th of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=Mlbc0yjwn7Y)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=5wWYnIStNrQ)
 - [#OruPennithaa | #Kushi (Malayalam) | #VijayDeverakonda,#Samantha| #ytshorts #shorts](https://www.youtube.com/watch?v=U5uV8Thhas0)
 - [#OruPennithaa | #Kushi (Malayalam) | #VijayDeverakonda,#Samantha| #ytshorts #shorts](https://www.youtube.com/watch?v=OIl_-YHaKTk)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 18th November 23](https://www.youtube.com/watch?v=WLCl8QPS_H4)
 - [Ottagathai Kattiko | Gentleman | A.R.Rahman | S.P.B & S.Janaki | Hi-Res Audio](https://www.youtube.com/watch?v=pm8YtbjXLqw)
-- [Tharalitharavil Mayangiyo | Sooryamanasam | Mammootty | MM Keeravani | KJ Yesudas](https://www.youtube.com/watch?v=VG8Y8tDVR5U)
-- [എന്നിഷ്ടം മാത്രം നോക്കുമ്പോൾ നിന്റെ സ്നേഹത്തിൻ ആഴം കാണാതായി .](https://www.youtube.com/watch?v=F-435d-CqbI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
