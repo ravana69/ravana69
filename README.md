@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP48 DAY 47 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.3GB - 711MB &amp; 297MB | 17-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176319-bigg-boss-tamil-s07-ep48-day-47-true-web-dl-1080p-720p-480p-avc-untouched-13gb-711mb-297mb-17-11-2023/&do=findComment&comment=356324)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP76 DAY 75 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.2GB - 608MB &amp; 244MB | 17-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176318-bigg-boss-telugu-s07-ep76-day-75-true-web-dl-1080p-720p-480p-avc-untouched-12gb-608mb-244mb-17-11-2023/&do=findComment&comment=356323)
 - [K.G.F.Chapter.2.&lpar;2022&rpar;.[Kan+Hin+Tel+Tam+Mal] 1080p Blu-Ray 13GB [G-Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176317-kgfchapter22022kanhinteltammal-1080p-blu-ray-13gb-g-drive/&do=findComment&comment=356322)
 - [Chevvaikizhamai &lpar;2023&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176310-chevvaikizhamai-2023-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=356321)
 - [Mark Antony &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175741-mark-antony-2023-true-web-dl-1080p-720p-avc-malayalam-kannada-dd51-192kbps-26gb-14gb-x264-750mb-450mb-esub/&do=findComment&comment=356320)
-- [Apurva &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.2GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176271-apurva-2023-hindi-true-web-dl-1080p-720p-avc-dd51-192kbps-22gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=356319)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
