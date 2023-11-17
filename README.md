@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Chevvaikizhamai &lpar;2023&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176310-chevvaikizhamai-2023-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=356321)
+- [Mark Antony &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/175741-mark-antony-2023-true-web-dl-1080p-720p-avc-malayalam-kannada-dd51-192kbps-26gb-14gb-x264-750mb-450mb-esub/&do=findComment&comment=356320)
+- [Apurva &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.2GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176271-apurva-2023-hindi-true-web-dl-1080p-720p-avc-dd51-192kbps-22gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=356319)
 - [K.G.F.Chapter.2.&lpar;2022&rpar;.[Kan+Hin+Tel+Tam+Mal] 1080p Blu-Ray 13GB [G-Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176317-kgfchapter22022kanhinteltammal-1080p-blu-ray-13gb-g-drive/&do=findComment&comment=356318)
 - [Label S01E04 2160p DSNP WEB-DL Multi DDP5.1 Esubs - 2160p | 1080p | 720p - 3.3 GB | 1.2 GB | 0.5 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176303-label-s01e04-2160p-dsnp-web-dl-multi-ddp51-esubs-2160p-1080p-720p-33-gb-12-gb-05-gb/&do=findComment&comment=356317)
-- [Narayana &amp; Co &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176285-narayana-co-2023-tamil-true-web-dl-1080p-720p-avc-25gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356316)
-- [Kannur Squad &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176289-kannur-squad-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356315)
-- [Tiger Nageswara Rao &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 20GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176297-tiger-nageswara-rao-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-20gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356314)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
