@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [K.G.F.Chapter.1.2018.1080p.BluRay.REMUX.AVC.[Hindi-Telugu AMZN DDP 5.1 640Kbps + Kannada DTS-HD MA 5.1]-MSubs 33GB [G-Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176274-kgfchapter120181080pblurayremuxavchindi-telugu-amzn-ddp-51-640kbps-kannada-dts-hd-ma-51-msubs-33gb-g-drive/&do=findComment&comment=356306)
+- [Ezhu Kadal Thaandi - Side B &lpar;2023&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176308-ezhu-kadal-thaandi-side-b-2023-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=356305)
 - [Jigarthanda &lpar;2014&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 5.5GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176281-jigarthanda-2014-tamil-true-web-dl-1080p-hq-avc-untouched-dd51-55gb-gdflix/&do=findComment&comment=356304)
 - [Aranmanai 3 &lpar;2021&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 4.7GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176305-aranmanai-3-2021-tamil-true-web-dl-1080p-avc-untouched-aac20-47gb-esub-gdflix/&do=findComment&comment=356303)
 - [Tiger Nageswara Rao &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 20GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176297-tiger-nageswara-rao-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-20gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356302)
-- [Ra.One &lpar;2011&rpar; DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps &amp; DD2.0 - 224Kbps&rpar; - [Telugu + Hindi + Tamil] - 7.2GB - [ESub &amp; Arabic Sub]](https://www.1tamilmv.phd/index.php?/forums/topic/176250-raone-2011-dvd9-untouched-480p-dd51-448kbps-dd20-224kbps-telugu-hindi-tamil-72gb-esub-arabic-sub/&do=findComment&comment=356301)
-- [Vaaranam Aayiram &lpar;2008&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 6.6GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176259-vaaranam-aayiram-2008-tamil-true-web-dl-1080p-hq-avc-untouched-ddp20-66gb-gdflix/&do=findComment&comment=356300)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
