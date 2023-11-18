@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Game Of Thrones &lpar;2016&rpar; SeaSon 6 Ep &lpar;01-10&rpar; 2160p 4K UHD HDR BluRay HEVC 10bit Multi Audios [Org &lpar;Telugu+ Tamil+ Hindi&rpar; &lpar;DD2.0 ~ 192Kbps&rpar; + English AAC 7.1] - 20GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176257-game-of-thrones-2016-season-6-ep-01-10-2160p-4k-uhd-hdr-bluray-hevc-10bit-multi-audios-org-telugu-tamil-hindi-dd20-~-192kbps-english-aac-71-20gb-esub/&do=findComment&comment=356371)
 - [Reacher &lpar;2022&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 6.5GB - 2.9GB &amp; 1GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176322-reacher-2022-s01-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-eng-dd51-192kbps-65gb-29gb-1gb-esub/&do=findComment&comment=356370)
 - [Anjani Putra &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Kannada] - 2.5GB - 1.3GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176326-anjani-putra-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-kannada-25gb-13gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356369)
 - [Pulikkuthi Pandi &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC- [Telugu + Malayalam + Kannada] - 2.5GB - 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176224-pulikkuthi-pandi-2023-true-web-dl-1080p-720p-avc-telugu-malayalam-kannada-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356368)
 - [Pournami &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176325-pournami-2006-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=356367)
-- [Loki &lpar;2021&rpar; Complete S01 Merged DSNP WEB-DL - [1080p - 720p - AVC - [Tam + Tel + Hin + Mal + Kan + Eng] - &lpar;DD+5.1 - 640Kbps&rpar; - 7.8GB - 2.3GB &amp; 1GB] - MSub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/174281-loki-2021-complete-s01-merged-dsnp-web-dl-1080p-720p-avc-tam-tel-hin-mal-kan-eng-dd51-640kbps-78gb-23gb-1gb-msub-google-drive/&do=findComment&comment=356366)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
