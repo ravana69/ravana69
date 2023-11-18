@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Reacher &lpar;2022&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 6.5GB - 2.9GB &amp; 1GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176322-reacher-2022-s01-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-eng-dd51-192kbps-65gb-29gb-1gb-esub/&do=findComment&comment=356349)
+- [Pournami &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176325-pournami-2006-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=356348)
+- [The Railway Men &lpar;2023&rpar; S01 EP &lpar;01-04&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi] - &lpar;DD+5.1 - 640Kbps&rpar; - 5GB - 1.8GB &amp; 700MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176324-the-railway-men-2023-s01-ep-01-04-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-dd51-640kbps-5gb-18gb-700mb-esub/&do=findComment&comment=356347)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [18-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176323-movies-collection-all-languages-4k-1080p-720p-576p-480p-18-11-2023/&do=findComment&comment=356346)
 - [Reacher &lpar;2022&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 6.5GB - 2.9GB &amp; 1GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176322-reacher-2022-s01-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-eng-dd51-192kbps-65gb-29gb-1gb-esub/&do=findComment&comment=356345)
-- [Game Of Thrones &lpar;2017&rpar; Complete S07 EP&lpar;01-07&rpar; Merged Bluray - [1080p - 720p - HEVC - [Telugu &lpar;Org JIO AAC 2.0 - 192Kbps&rpar;] - 6GB &amp; 3GB - 1GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176321-game-of-thrones-2017-complete-s07-ep01-07-merged-bluray-1080p-720p-hevc-telugu-org-jio-aac-20-192kbps-6gb-3gb-1gb-esub-google-drive/&do=findComment&comment=356344)
-- [Magadheera &lpar;2009&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/174606-magadheera-2009-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-7gb-esub/&do=findComment&comment=356343)
-- [[REMUX] K.G.F: Chapter 2 &lpar;2022&rpar; 1080p BluRay REMUX Multi DTS-HD.MA.5.1 Msubs x264 - 35 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176320-remux-kgf-chapter-2-2022-1080p-bluray-remux-multi-dts-hdma51-msubs-x264-35-gb/&do=findComment&comment=356342)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
