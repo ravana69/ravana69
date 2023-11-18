@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Game Of Thrones &lpar;2017&rpar; Complete S07 EP&lpar;01-07&rpar; Merged Bluray - [1080p - 720p - HEVC - [Telugu &lpar;Org JIO AAC 2.0 - 192Kbps&rpar;] - 6GB &amp; 3GB - 1GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176321-game-of-thrones-2017-complete-s07-ep01-07-merged-bluray-1080p-720p-hevc-telugu-org-jio-aac-20-192kbps-6gb-3gb-1gb-esub-google-drive/&do=findComment&comment=356344)
+- [Magadheera &lpar;2009&rpar; Telugu - DVD9 - UNTOUCHED - 480p - 448Kbps &lpar;Dolby Digital® 5.1&rpar; - 7GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/174606-magadheera-2009-telugu-dvd9-untouched-480p-448kbps-dolby-digital%C2%AE-51-7gb-esub/&do=findComment&comment=356343)
+- [[REMUX] K.G.F: Chapter 2 &lpar;2022&rpar; 1080p BluRay REMUX Multi DTS-HD.MA.5.1 Msubs x264 - 35 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176320-remux-kgf-chapter-2-2022-1080p-bluray-remux-multi-dts-hdma51-msubs-x264-35-gb/&do=findComment&comment=356342)
 - [Sesham Mike-il Fathima &lpar;2023&rpar; Malayalam Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176314-sesham-mike-il-fathima-2023-malayalam-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=356341)
 - [Pokemon Season 1 - 11  Ultimate Collection 1080p JC WEB-DL AAC 2.0 &lpar;Tamil + Telugu + Hindi + English&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/160917-pokemon-season-1-11-ultimate-collection-1080p-jc-web-dl-aac-20-tamil-telugu-hindi-english/&do=findComment&comment=356340)
-- [[REMUX] K.G.F: Chapter 2 &lpar;2022&rpar; 1080p BluRay REMUX Multi DTS-HD.MA.5.1 Msubs x264 - 35 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176320-remux-kgf-chapter-2-2022-1080p-bluray-remux-multi-dts-hdma51-msubs-x264-35-gb/&do=findComment&comment=356339)
-- [Falimy &lpar;2023&rpar; Malayalam HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176311-falimy-2023-malayalam-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=356338)
-- [Sesham Mike-il Fathima &lpar;2023&rpar; Malayalam Proper HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176314-sesham-mike-il-fathima-2023-malayalam-proper-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=356337)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
