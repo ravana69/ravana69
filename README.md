@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vibe to the lines of #OruPennithaa | #Kushi | #VijayDeverakonda,#Samantha| #ytshorts #shorts](https://www.youtube.com/watch?v=LKRdhwIcNK8)
+- [Vibe to the beats of #OruPennithaa | #Kushi | #VijayDeverakonda,#Samantha| #ytshorts #shorts](https://www.youtube.com/watch?v=HhpaSGHDN3o)
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 19th November 23](https://www.youtube.com/watch?v=huefM-28Puo)
 - [യേശുനാഥാ നീ എന്നിൽ കനിയേണം](https://www.youtube.com/watch?v=vUTQ2xqsTvg)
 - [Paathimey Maranjathenthe | Pavam Pavam Rajakumaran | Sreenivasan | Rekha | KJ Yesudas](https://www.youtube.com/watch?v=K4N1YQiPcO8)
 - [Enthe Innum Vanneela | Gramaphone | Vidyasagar | P Jayachandran |  Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=9MpPtVgy_C4)
-- [ജീവിതത്തിലെ ഏറ്റവും വലിയ നേട്ടം എന്താണെന്നറിയാമോ?  | Rev. Aneesh P Joseph #shorts](https://www.youtube.com/watch?v=gyiFC_iRVKs)
-- [Ashwaroodanaaya Viswanadhane | Manushya Mrugam | Jassie Gift | Sayan Anwar](https://www.youtube.com/watch?v=Beb5jDmy5xU)
-- [KERALA COMEDY COMBAT - Promo | Saina Play | Centre Square Mall | Shabareesh](https://www.youtube.com/watch?v=mMKGfoLo1UE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
