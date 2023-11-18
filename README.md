@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Sapta Sagaralu Dhaati - Side B &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176307-sapta-sagaralu-dhaati-side-b-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=356336)
+- [Mangalavaaram &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176309-mangalavaaram-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=356335)
+- [The Hunger Games The Ballad of Songbirds Snakes &lpar;2023&rpar; English HQ HDCAM - [1080p &amp; 720p - x264 - 1.8GB &amp; 900MB | x264 - 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176313-the-hunger-games-the-ballad-of-songbirds-snakes-2023-english-hq-hdcam-1080p-720p-x264-18gb-900mb-x264-400mb/&do=findComment&comment=356334)
 - [Ezhu Kadal Thaandi - Side B &lpar;2023&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176308-ezhu-kadal-thaandi-side-b-2023-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=356333)
 - [Chevvaikizhamai &lpar;2023&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176310-chevvaikizhamai-2023-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=356332)
-- [35 Telugu Movies 1080p WEB DL H264 DD5.1/AAC ESub 100GB [GDrive]](https://www.1tamilmv.phd/index.php?/forums/topic/165400-35-telugu-movies-1080p-web-dl-h264-dd51aac-esub-100gb-gdrive/&do=findComment&comment=356331)
-- [K.G.F.Chapter.2.&lpar;2022&rpar;.[Kan+Hin+Tel+Tam+Mal] 1080p Blu-Ray 13GB [G-Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176317-kgfchapter22022kanhinteltammal-1080p-blu-ray-13gb-g-drive/&do=findComment&comment=356330)
-- [Spark L.I.F.E &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176312-spark-life-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=356329)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
