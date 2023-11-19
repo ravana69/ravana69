@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Naa Ready &lpar;From &quot;Leo&quot;&rpar; Tamil Video Song 4K &amp; 1080p &amp; 720p](https://www.1tamilmv.phd/index.php?/forums/topic/176343-naa-ready-from-leo-tamil-video-song-4k-1080p-720p/&do=findComment&comment=356410)
 - [Darling &lpar;2010&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176342-darling-2010-telugu-dvd9-untouched-480p-dd51-448kbps-71gb-esub/&do=findComment&comment=356409)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [19-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176341-movies-collection-all-languages-4k-1080p-720p-576p-480p-19-11-2023/&do=findComment&comment=356408)
 - [The Amazing Spider-Man Duology &lpar;2012 - 2014&rpar; BluRay Multi 5.1 MSubs - 2160p [HDR] | 1080p | 720p - 28.4 GB | 21.1 GB | 10.6 GB | 5.1 GB | 3 GB](https://www.1tamilmv.phd/index.php?/forums/topic/168748-the-amazing-spider-man-duology-2012-2014-bluray-multi-51-msubs-2160p-hdr-1080p-720p-284-gb-211-gb-106-gb-51-gb-3-gb/&do=findComment&comment=356407)
 - [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;40-42&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176248-vera-maari-office-2023-s01-ep-40-42-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=356406)
-- [The.Amazing.Spider-Man.2012 DD5.1 Tamil-Telugu-Hindi-English UHD.Blu-Ray 1080p &amp; 2160p.TrueHD.Atmos.7.1.HEVC.REMUX Msub 7GB &amp; 50GB [G-Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/171320-theamazingspider-man2012-dd51-tamil-telugu-hindi-english-uhdblu-ray-1080p-2160ptruehdatmos71hevcremux-msub-7gb-50gb-g-drive/&do=findComment&comment=356405)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
