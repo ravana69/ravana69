@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന  November 20 # Athiravile Prarthana 20th of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=OWd5GJbFYDs)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=Fv2lqFbj9Jg)
+- [Dance to #OruPennithaa | #Kushi | #VijayDeverakonda,#Samantha| #ytshorts #shorts](https://www.youtube.com/watch?v=PJ3JSZ7yBJI)
+- [Sweeping the floor #OruPennithaa | #Kushi | #VijayDeverakonda,#Samantha| #ytshorts #shorts](https://www.youtube.com/watch?v=RhwqgWID2ZU)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 20th November 23](https://www.youtube.com/watch?v=Wcl34tNo7bM)
 - [ഗുരുവെന്ന പേരിൽ ശരണം ഗമിപ്പാൻ ഭൂമിയിൽ നീ മാത്രമല്ലോ](https://www.youtube.com/watch?v=wNyP37iMq6A)
-- [Himaval Swami | Makante Achan | Vineeth Sreenivasan | Sreenivasan | M Jayachandran | Kaithapram](https://www.youtube.com/watch?v=OtFS8lYlqjA)
-- [നിനക്ക് ആരാണ് ദൈവം?  | Rev. Aneesh P Joseph #shorts #motivationalvideo](https://www.youtube.com/watch?v=42bpasummNE)
-- [Aaru paranjalum Video Song | Puthukottayile Puthumanavalan | K J Yesudas | S Ramesan Nair](https://www.youtube.com/watch?v=F4SjsHzVTn4)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 19th of November 2023](https://www.youtube.com/watch?v=VR9dCNsc6Nc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
