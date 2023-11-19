@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP50 DAY 49 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.4GB - 745MB &amp; 309MB | 19-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176348-bigg-boss-tamil-s07-ep50-day-49-true-web-dl-1080p-720p-480p-avc-untouched-14gb-745mb-309mb-19-11-2023/&do=findComment&comment=356427)
+- [Deyyam &lpar;1996&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 4.8GB - ESub - KAD DVD](https://www.1tamilmv.phd/index.php?/forums/topic/176347-deyyam-1996-telugu-dvd9-untouched-480p-dd51-448kbps-48gb-esub-kad-dvd/&do=findComment&comment=356426)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP78 DAY 77 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.5GB - 761MB &amp; 325MB | 19-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176346-bigg-boss-telugu-s07-ep78-day-77-true-web-dl-1080p-720p-480p-avc-untouched-15gb-761mb-325mb-19-11-2023/&do=findComment&comment=356425)
 - [LEO - Naa Ready Song Video - 1080P &amp; 4K - YT Audio Upmixed - DD5.1 640Kbps &lpar;Cinema Surround&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176344-leo-naa-ready-song-video-1080p-4k-yt-audio-upmixed-dd51-640kbps-cinema-surround/&do=findComment&comment=356424)
 - [Daylight &lpar;1996&rpar; DDP5.1 Hindi-AAC 2.0 Tamil-Telugu-DTS 5.1 English 1080p Blu-Ray Remux Msubs 33GB [G-Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176345-daylight-1996-ddp51-hindi-aac-20-tamil-telugu-dts-51-english-1080p-blu-ray-remux-msubs-33gb-g-drive/&do=findComment&comment=356423)
-- [The.Amazing.Spider-Man.2012 DD5.1 Tamil-Telugu-Hindi-English UHD.Blu-Ray 1080p &amp; 2160p.TrueHD.Atmos.7.1.HEVC.REMUX Msub 7GB &amp; 50GB [G-Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/171320-theamazingspider-man2012-dd51-tamil-telugu-hindi-english-uhdblu-ray-1080p-2160ptruehdatmos71hevcremux-msub-7gb-50gb-g-drive/&do=findComment&comment=356422)
-- [The Railway Men &lpar;2023&rpar; S01 EP &lpar;01-04&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi] - &lpar;DD+5.1 - 640Kbps&rpar; - 5GB - 1.8GB &amp; 700MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176324-the-railway-men-2023-s01-ep-01-04-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-dd51-640kbps-5gb-18gb-700mb-esub/&do=findComment&comment=356421)
-- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;40-42&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176248-vera-maari-office-2023-s01-ep-40-42-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=356420)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
