@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [LEO - Naa Ready Song Video - 1080P &amp; 4K - YT Audio Upmixed - DD5.1 640Kbps &lpar;Cinema Surround&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176344-leo-naa-ready-song-video-1080p-4k-yt-audio-upmixed-dd51-640kbps-cinema-surround/&do=findComment&comment=356424)
 - [Daylight &lpar;1996&rpar; DDP5.1 Hindi-AAC 2.0 Tamil-Telugu-DTS 5.1 English 1080p Blu-Ray Remux Msubs 33GB [G-Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176345-daylight-1996-ddp51-hindi-aac-20-tamil-telugu-dts-51-english-1080p-blu-ray-remux-msubs-33gb-g-drive/&do=findComment&comment=356423)
 - [The.Amazing.Spider-Man.2012 DD5.1 Tamil-Telugu-Hindi-English UHD.Blu-Ray 1080p &amp; 2160p.TrueHD.Atmos.7.1.HEVC.REMUX Msub 7GB &amp; 50GB [G-Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/171320-theamazingspider-man2012-dd51-tamil-telugu-hindi-english-uhdblu-ray-1080p-2160ptruehdatmos71hevcremux-msub-7gb-50gb-g-drive/&do=findComment&comment=356422)
 - [The Railway Men &lpar;2023&rpar; S01 EP &lpar;01-04&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi] - &lpar;DD+5.1 - 640Kbps&rpar; - 5GB - 1.8GB &amp; 700MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176324-the-railway-men-2023-s01-ep-01-04-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-dd51-640kbps-5gb-18gb-700mb-esub/&do=findComment&comment=356421)
 - [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;40-42&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176248-vera-maari-office-2023-s01-ep-40-42-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=356420)
-- [Unleashing Quantum Power: Ai Trading&#39;s Quantum Leap into Future Finance!](https://www.1tamilmv.phd/index.php?/forums/topic/162001-unleashing-quantum-power-ai-tradings-quantum-leap-into-future-finance/&do=findComment&comment=356419)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
