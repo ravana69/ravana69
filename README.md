@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Despicable Me 3 &lpar;2017&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 384Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176331-despicable-me-3-2017-bluray-original-audios-1080p-720p-x264-dd51-384kbps-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=356400)
+- [Anjani Putra &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Kannada] - 2.5GB - 1.3GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176326-anjani-putra-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-kannada-25gb-13gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356399)
 - [The.Railway.Men.The.Untold.Story.of.Bhopal.1984.S01.1080p,720p NF.WEB-DL.MULTI.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176338-therailwaymentheuntoldstoryofbhopal1984s011080p720p-nfweb-dlmultiddp51-direct-download/&do=findComment&comment=356398)
 - [Reacher.S01.2160p,1080p,720p.AMZN.WEB-DL.MULTI.DDP5.1 English, ಕನ್ನಡ, தமிழ், తెలుగు, മലയാളം, हिन्दी &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176337-reachers012160p1080p720pamznweb-dlmultiddp51-english-%E0%B2%95%E0%B2%A8%E0%B3%8D%E0%B2%A8%E0%B2%A1-%E0%AE%A4%E0%AE%AE%E0%AE%BF%E0%AE%B4%E0%AF%8D-%E0%B0%A4%E0%B1%86%E0%B0%B2%E0%B1%81%E0%B0%97%E0%B1%81-%E0%B4%AE%E0%B4%B2%E0%B4%AF%E0%B4%BE%E0%B4%B3%E0%B4%82-%E0%A4%B9%E0%A4%BF%E0%A4%A8%E0%A5%8D%E0%A4%A6%E0%A5%80-direct-download/&do=findComment&comment=356397)
 - [Despicable Me 3 &lpar;2017&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 384Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176331-despicable-me-3-2017-bluray-original-audios-1080p-720p-x264-dd51-384kbps-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=356396)
-- [Tim.2023.1080p.AMZN.WEB-DL.Multi.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176336-tim20231080pamznweb-dlmultiddp51-direct-download/&do=findComment&comment=356395)
-- [Ghost.2023.1080p.ZEE5.WEB-DL.DD+5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176335-ghost20231080pzee5web-dldd51-direct-download/&do=findComment&comment=356394)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
