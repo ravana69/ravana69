@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മൃദുലവികാര ബിന്ദുവാണു ഞാൻ ... #evergreenhits #sallapam #dileep #manjuwarrier](https://www.youtube.com/watch?v=hBM8vOtzwPI)
+- [En Swaram Poovidum | Anupallavi | Bichu Thirumala | KJ Joy | KJ Yesudas | Ravikumar | Bhavani](https://www.youtube.com/watch?v=I5ul9DJV1mU)
 - [താരങ്ങൾ പുഞ്ചിരി തൂകിയ രാത്രി | CAROL SONG | ROY PUTHUR | ROJI PONNACHAN #christmas2023 #royputhur](https://www.youtube.com/watch?v=rTXDh0nXFnE)
 - [Thaipirandhaal Vazhi | Nagaravadhu | K.S.Chithra | M.Jayachandran | Sound of Arts | Remastered Audio](https://www.youtube.com/watch?v=KG6D_7EfLdM)
 - [Illathe Kalyanathinu | Vettam  | M.G. Sreekumar | Sujatha ...](https://www.youtube.com/watch?v=VoJoJsy7MYM)
 - [പാട്ടുപെട്ടി | Paattupetti Vol 34 | Malayalam Film Songs](https://www.youtube.com/watch?v=b2niM75U2uA)
-- [Midu Midu Midukkan |  Rajadhi Raja | Mammootty  #shortsfeed  #mammootty #lyricalvideo](https://www.youtube.com/watch?v=T439aFNTUts)
-- [Kaattu Valli Oonjaalaadaam | Vinayapoorvam Vidyaadharan 2000 | Yesudas | Malayalam Movie Song](https://www.youtube.com/watch?v=xND_56E-f4Y)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
