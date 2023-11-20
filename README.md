@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Paani Poori &lpar;2023&rpar; S01 EP &lpar;01-08&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 5.5GB - 2.5GB &amp; 900MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176357-paani-poori-2023-s01-ep-01-08-tamil-true-web-dl-1080p-720p-avc-55gb-25gb-900mb/&do=findComment&comment=356455)
-- [JAI BOLO TELANGANA &lpar;2011&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.6GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176356-jai-bolo-telangana-2011-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-66gb-esub/&do=findComment&comment=356454)
-- [Deyyam &lpar;1996&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 4.8GB - ESub - KAD DVD](https://www.1tamilmv.phd/index.php?/forums/topic/176347-deyyam-1996-telugu-dvd9-untouched-480p-dd51-448kbps-48gb-esub-kad-dvd/&do=findComment&comment=356453)
-- [Reacher &lpar;2022&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 6.5GB - 2.9GB &amp; 1GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176322-reacher-2022-s01-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-eng-dd51-192kbps-65gb-29gb-1gb-esub/&do=findComment&comment=356452)
-- [Rajathanthiram The Piano &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176354-rajathanthiram-the-piano-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-26gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356451)
+- [JAI BOLO TELANGANA &lpar;2011&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.6GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176356-jai-bolo-telangana-2011-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-66gb-esub/&do=findComment&comment=356462)
+- [Breaking Cosmic Barriers: Ai&#39;s Quest for Extraterrestrial Life in our Solar System!](https://www.1tamilmv.phd/index.php?/forums/topic/159540-breaking-cosmic-barriers-ais-quest-for-extraterrestrial-life-in-our-solar-system/&do=findComment&comment=356461)
+- [Ai Uncovers Mind-Bending Time Dilation in Ferocious Black Holes of the Early Universe!](https://www.1tamilmv.phd/index.php?/forums/topic/159539-ai-uncovers-mind-bending-time-dilation-in-ferocious-black-holes-of-the-early-universe/&do=findComment&comment=356460)
+- [Cosmic Paradigm Shift: Ai&#39;s Revolutionary Alternative to the Big Bang Theory](https://www.1tamilmv.phd/index.php?/forums/topic/159538-cosmic-paradigm-shift-ais-revolutionary-alternative-to-the-big-bang-theory/&do=findComment&comment=356459)
+- [Cracking the Cosmic Code: Ai-Originated White Holes are Reverse Reflections of Black Holes](https://www.1tamilmv.phd/index.php?/forums/topic/159537-cracking-the-cosmic-code-ai-originated-white-holes-are-reverse-reflections-of-black-holes/&do=findComment&comment=356458)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
