@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Invincible &lpar;2021&rpar; Complete S01 EP &lpar;01-08&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada + Eng] - &lpar;DD5.1 - 192Kbps&rpar; - 6.9GB - 3GB &amp; 900MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/174809-invincible-2021-complete-s01-ep-01-08-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-eng-dd51-192kbps-69gb-3gb-900mb-esub-google-drive/&do=findComment&comment=356465)
+- [Reacher &lpar;2022&rpar; Complete S01 EP &lpar;01-08&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 6.5GB - 2.9GB &amp; 1GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176359-reacher-2022-complete-s01-ep-01-08-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-eng-dd51-192kbps-65gb-29gb-1gb-esub-google-drive/&do=findComment&comment=356464)
 - [Jujutsu Kaisen &lpar;2020&rpar; Complete S01 EP&lpar;01 - 24&rpar; Merged - [1080p - 720p &amp; 480p HEVC BDRip 10bit - &lpar;AAC 2.0 - 128kbps&rpar;] - x265 ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176358-jujutsu-kaisen-2020-complete-s01-ep01-24-merged-1080p-720p-480p-hevc-bdrip-10bit-aac-20-128kbps-x265-esub-google-drive/&do=findComment&comment=356463)
 - [JAI BOLO TELANGANA &lpar;2011&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.6GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176356-jai-bolo-telangana-2011-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-66gb-esub/&do=findComment&comment=356462)
 - [Breaking Cosmic Barriers: Ai&#39;s Quest for Extraterrestrial Life in our Solar System!](https://www.1tamilmv.phd/index.php?/forums/topic/159540-breaking-cosmic-barriers-ais-quest-for-extraterrestrial-life-in-our-solar-system/&do=findComment&comment=356461)
-- [Ai Uncovers Mind-Bending Time Dilation in Ferocious Black Holes of the Early Universe!](https://www.1tamilmv.phd/index.php?/forums/topic/159539-ai-uncovers-mind-bending-time-dilation-in-ferocious-black-holes-of-the-early-universe/&do=findComment&comment=356460)
-- [Cosmic Paradigm Shift: Ai&#39;s Revolutionary Alternative to the Big Bang Theory](https://www.1tamilmv.phd/index.php?/forums/topic/159538-cosmic-paradigm-shift-ais-revolutionary-alternative-to-the-big-bang-theory/&do=findComment&comment=356459)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
