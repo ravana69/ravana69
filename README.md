@@ -36,8 +36,8 @@
 - [Ottamuri Vakkumayi - Audio Song | Romancham | Sushin Shyam | Johnpaul George Productions](https://www.youtube.com/watch?v=B6KN8Zvw9N4)
 - [Kandappol | Ellaam Ninakku Vendi 1981 | V.Dakshinamoorthy| Yesudas, C.O.Anto | Malayalam Movie Song](https://www.youtube.com/watch?v=62xD5uFm_As)
 - [Poove Poove Paalappoove Video Song | Devadoothan | Mohanlal | KS Chithra| P Jayachandran| Vidyasagar](https://www.youtube.com/watch?v=7XBi6ivqZ7c)
+- [Ente Priyan Yeshurajan | Sithara Krishnakumar | Malayalam Christian Deotional Songs](https://www.youtube.com/watch?v=-z_kqOkF3aE)
 - [Tu Hai Balwan | Shorts | Jijy Abraham  #manoramachristiandevotionalsongs #shorts](https://www.youtube.com/watch?v=rT026pi9Pt8)
-- [Japamala 20th of November 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 20th of November 23](https://www.youtube.com/watch?v=2thMLbtJQtI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
