@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [K.G.F.Chapter.2 DDP 5.1 Hindi-Tamil-Telugu-Malayalam-DTS  Kannada 2022.1080p.BluRay.REMUX.DTS-HD.MA.5.1.AVC Msubs 36GB [G-Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176351-kgfchapter2-ddp-51-hindi-tamil-telugu-malayalam-dts-kannada-20221080pblurayremuxdts-hdma51avc-msubs-36gb-g-drive/&do=findComment&comment=356431)
+- [True Detective Complete [S01 to S03] Merged WEB-DL - [1080p &amp; 720p - x264 - &lpar;Tam + Tel + Hin + Kan + Eng&rpar; - 6GB &amp; 3GB] - [x264 - &lpar;Tamil + Telugu&rpar; - 1GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176350-true-detective-complete-s01-to-s03-merged-web-dl-1080p-720p-x264-tam-tel-hin-kan-eng-6gb-3gb-x264-tamil-telugu-1gb-esub-google-drive/&do=findComment&comment=356430)
 - [Deyyam &lpar;1996&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 4.8GB - ESub - KAD DVD](https://www.1tamilmv.phd/index.php?/forums/topic/176347-deyyam-1996-telugu-dvd9-untouched-480p-dd51-448kbps-48gb-esub-kad-dvd/&do=findComment&comment=356429)
 - [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;43-45&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176349-vera-maari-office-2023-s01-ep-43-45-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=356428)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP50 DAY 49 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.4GB - 745MB &amp; 309MB | 19-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176348-bigg-boss-tamil-s07-ep50-day-49-true-web-dl-1080p-720p-480p-avc-untouched-14gb-745mb-309mb-19-11-2023/&do=findComment&comment=356427)
-- [Deyyam &lpar;1996&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 4.8GB - ESub - KAD DVD](https://www.1tamilmv.phd/index.php?/forums/topic/176347-deyyam-1996-telugu-dvd9-untouched-480p-dd51-448kbps-48gb-esub-kad-dvd/&do=findComment&comment=356426)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 EP78 DAY 77 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.5GB - 761MB &amp; 325MB | 19-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176346-bigg-boss-telugu-s07-ep78-day-77-true-web-dl-1080p-720p-480p-avc-untouched-15gb-761mb-325mb-19-11-2023/&do=findComment&comment=356425)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
