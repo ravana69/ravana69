@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന  November 21 # Athiravile Prarthana 21st of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=i3brkjfOC3A)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=eQtAm4H9Xok)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 21st November 23](https://www.youtube.com/watch?v=5N1Ve1-0AL0)
 - [ഇന്ദുവദനേ നിൻ മന്ദഹാസത്തിൽ..| കെ ജെ യേശുദാസ് | K S Chitra | Original Audio Remastered movie songs](https://www.youtube.com/watch?v=sqplqHPkN04)
 - [Yeshu En Swantham | Shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=DzEosALDYvI)
 - [Move with her steps from#MujhePaale | #Bandra | #Dileep | #Tamannaah | #SamCS | #shorts | #ytshorts](https://www.youtube.com/watch?v=lRbA2ATV93A)
-- [Shyaamaambaram Neele| Artham | Mammootty | KJ Yesudas | Johnson | Kaithapram](https://www.youtube.com/watch?v=5Uz_-NrhWnM)
-- [കരയല്ലേ നീ എന്റെ മകനല്ലേ ; നീ എന്റെ മകളല്ലേ ...](https://www.youtube.com/watch?v=NGvgQ1f9vuc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
