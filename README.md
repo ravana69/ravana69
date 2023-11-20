@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Experience the terror in its full glory on the big screen! | Phoenix | #PhoenixHorror #HorrorCinema](https://www.youtube.com/watch?v=AC-kUpv3FUE)
+- [വീശുക നീ കൊടുങ്കാറ്റേ | Veeshuka Nee Kodumkatte | Oral Koodi Kalanayi Movie Hit Song | Prem Nazir](https://www.youtube.com/watch?v=bS6INL7Ghqw)
 - [Paathira Pullunarnnu  | Ee Puzhayum Kadannu | Dileep | Manju Warrier |Johnson - Yesudas Hits](https://www.youtube.com/watch?v=zasvZT9ONdY)
 - [മലയാളികളെന്നും  കേൾക്കാൻ കൊതിക്കുന്ന അപൂർവ്വ സുന്ദര മെലഡി ഗാനങ്ങൾ | EVERGREEN HITS](https://www.youtube.com/watch?v=Xf8sH4oPMGg)
 - [പണ്ട് കേട്ടവർ ഇന്ന് ആവേശത്തോടെ കേൾക്കുന്ന മലയാളസിനിമയിലെ അനശ്വരഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=kw8whePztQg)
 - [O January Video Song Shorts | Big B | Sayanora | Alphons #shorts](https://www.youtube.com/watch?v=2zC3TYuL_sw)
-- [Ezhezhuu Sagarangal | Masmaram | Sureshgopi | Arpana Rao | Chithra | S P Venkitesh](https://www.youtube.com/watch?v=um7IJoJcITM)
-- [Ottamuri Vakkumayi - Audio Song | Romancham | Sushin Shyam | Johnpaul George Productions](https://www.youtube.com/watch?v=B6KN8Zvw9N4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
