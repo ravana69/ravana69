@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Paani Poori &lpar;2023&rpar; S01 EP &lpar;01-08&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 5.5GB - 2.5GB &amp; 900MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176357-paani-poori-2023-s01-ep-01-08-tamil-true-web-dl-1080p-720p-avc-55gb-25gb-900mb/&do=findComment&comment=356455)
+- [JAI BOLO TELANGANA &lpar;2011&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.6GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176356-jai-bolo-telangana-2011-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-66gb-esub/&do=findComment&comment=356454)
+- [Deyyam &lpar;1996&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 4.8GB - ESub - KAD DVD](https://www.1tamilmv.phd/index.php?/forums/topic/176347-deyyam-1996-telugu-dvd9-untouched-480p-dd51-448kbps-48gb-esub-kad-dvd/&do=findComment&comment=356453)
 - [Reacher &lpar;2022&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 6.5GB - 2.9GB &amp; 1GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176322-reacher-2022-s01-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-eng-dd51-192kbps-65gb-29gb-1gb-esub/&do=findComment&comment=356452)
 - [Rajathanthiram The Piano &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176354-rajathanthiram-the-piano-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-26gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356451)
-- [Paani Poori &lpar;2023&rpar; S01 EP &lpar;01-08&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 5.5GB - 2.5GB &amp; 900MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176357-paani-poori-2023-s01-ep-01-08-tamil-true-web-dl-1080p-720p-avc-55gb-25gb-900mb/&do=findComment&comment=356450)
-- [Despicable Me 3 &lpar;2017&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 384Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176331-despicable-me-3-2017-bluray-original-audios-1080p-720p-x264-dd51-384kbps-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=356449)
-- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;43-45&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176349-vera-maari-office-2023-s01-ep-43-45-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=356448)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
