@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Paathira Pullunarnnu  | Ee Puzhayum Kadannu | Dileep | Manju Warrier |Johnson - Yesudas Hits](https://www.youtube.com/watch?v=zasvZT9ONdY)
+- [മലയാളികളെന്നും  കേൾക്കാൻ കൊതിക്കുന്ന അപൂർവ്വ സുന്ദര മെലഡി ഗാനങ്ങൾ | EVERGREEN HITS](https://www.youtube.com/watch?v=Xf8sH4oPMGg)
+- [പണ്ട് കേട്ടവർ ഇന്ന് ആവേശത്തോടെ കേൾക്കുന്ന മലയാളസിനിമയിലെ അനശ്വരഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=kw8whePztQg)
+- [O January Video Song Shorts | Big B | Sayanora | Alphons #shorts](https://www.youtube.com/watch?v=2zC3TYuL_sw)
 - [Ezhezhuu Sagarangal | Masmaram | Sureshgopi | Arpana Rao | Chithra | S P Venkitesh](https://www.youtube.com/watch?v=um7IJoJcITM)
 - [Ottamuri Vakkumayi - Audio Song | Romancham | Sushin Shyam | Johnpaul George Productions](https://www.youtube.com/watch?v=B6KN8Zvw9N4)
-- [Kandappol | Ellaam Ninakku Vendi 1981 | V.Dakshinamoorthy| Yesudas, C.O.Anto | Malayalam Movie Song](https://www.youtube.com/watch?v=62xD5uFm_As)
-- [Poove Poove Paalappoove Video Song | Devadoothan | Mohanlal | KS Chithra| P Jayachandran| Vidyasagar](https://www.youtube.com/watch?v=7XBi6ivqZ7c)
-- [Ente Priyan Yeshurajan | Sithara Krishnakumar | Malayalam Christian Deotional Songs](https://www.youtube.com/watch?v=-z_kqOkF3aE)
-- [Tu Hai Balwan | Shorts | Jijy Abraham  #manoramachristiandevotionalsongs #shorts](https://www.youtube.com/watch?v=rT026pi9Pt8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
