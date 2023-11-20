@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [വാനിൽ താരം പാടി താരം ഗാനം മൂളി | Fr. Shaji Thumpechirayil | #shorts](https://www.youtube.com/watch?v=Cf0jynoxAfI)
-- [സുന്ദരി നീയും.. സുന്ദരൻ ഞാനും ചേർന്നുനിന്നാൽ തിരുവോണം #kamalhaasan  #malayalamsongs #moviemusic](https://www.youtube.com/watch?v=kkInvS7gO6A)
-- [Thamarapoovil Vazhum Video Song | Chandralekha | Mohanlal | MG Sreekumar | Gireesh Puthenchery](https://www.youtube.com/watch?v=do3EyBJdOwg)
-- [Experience the terror in its full glory on the big screen! | Phoenix | #PhoenixHorror #HorrorCinema](https://www.youtube.com/watch?v=AC-kUpv3FUE)
-- [വീശുക നീ കൊടുങ്കാറ്റേ | Veeshuka Nee Kodumkatte | Oral Koodi Kalanayi Movie Hit Song | Prem Nazir](https://www.youtube.com/watch?v=bS6INL7Ghqw)
-- [Paathira Pullunarnnu  | Ee Puzhayum Kadannu | Dileep | Manju Warrier |Johnson - Yesudas Hits](https://www.youtube.com/watch?v=zasvZT9ONdY)
+- [സഹനവഴിയിലെ ഒരിക്കലും മാഞ്ഞുപോകാത്ത ദിവ്യ അടയാളമാണ് ക്രിസ്തു | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=f81g_NemdRo)
+- [Groovy ✨ #MujhePaale | #Bandra | #Dileep | #Tamannaah | #SamCS](https://www.youtube.com/watch?v=rrM4RnK5Rro)
+- [Pookkaalam - Original Sound Track | Vijayaraghavan, KPAC Leela, Vineeth Sreenivasan | Sachin Warrier](https://www.youtube.com/watch?v=m_5nnihcYHA)
+- [Garudan Audio Jukebox | Jakes Bejoy | Suresh Gopi | Biju Menon | Arun Varma](https://www.youtube.com/watch?v=5ds45vTCTPQ)
+- [Mazhathullikal Video Song | Vettam Movie | Berny Ignatius | M G Sreekumar | Dileep | Bhavana Pani](https://www.youtube.com/watch?v=e7ovVo3ZBtE)
+- [Vennilave Ninnarikil with Narration | Queen | KS Harisankar | Sooraj Santhosh | Zia Ul Haq](https://www.youtube.com/watch?v=53-93-yxM34)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
