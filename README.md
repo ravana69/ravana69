@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP51 DAY 50 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 528MB &amp; 213MB | 20-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176362-bigg-boss-tamil-s07-ep51-day-50-true-web-dl-1080p-720p-480p-avc-untouched-1gb-528mb-213mb-20-11-2023/&do=findComment&comment=356485)
+- [Made in Caravan &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 5.1 - 256Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176363-made-in-caravan-2023-malayalam-true-web-dl-1080p-720p-avc-aac-51-256kbps-28gb-14gb-x264-700mb-400mb/&do=findComment&comment=356484)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP79 DAY 78 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 990MB - 460MB &amp; 202MB | 20-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176364-bigg-boss-telugu-s07-ep79-day-78-true-web-dl-1080p-720p-480p-avc-untouched-990mb-460mb-202mb-20-11-2023/&do=findComment&comment=356483)
 - [Made in Caravan &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 5.1 - 256Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176363-made-in-caravan-2023-malayalam-true-web-dl-1080p-720p-avc-aac-51-256kbps-28gb-14gb-x264-700mb-400mb/&do=findComment&comment=356482)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP51 DAY 50 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 528MB &amp; 213MB | 20-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176362-bigg-boss-tamil-s07-ep51-day-50-true-web-dl-1080p-720p-480p-avc-untouched-1gb-528mb-213mb-20-11-2023/&do=findComment&comment=356481)
-- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;43-45&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176349-vera-maari-office-2023-s01-ep-43-45-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=356480)
-- [Despicable Me 3 &lpar;2017&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 384Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176331-despicable-me-3-2017-bluray-original-audios-1080p-720p-x264-dd51-384kbps-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=356479)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
