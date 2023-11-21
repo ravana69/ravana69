@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Poru Nee Vaarilam | Kaashmeeram | M G Radhakrishnan | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=PvM5gl2P1T4)
+- [ഒരപകടം സംഭവിച്ചാൽ  ആരായിരിക്കും നിങ്ങളെ സഹായിക്കുവാനായി  പോകുന്നത്  | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=p_7kfZHCP5Y)
 - [Sexy dance show 💖 #MujhePaale | #Bandra | #Dileep | #Tamannaah | #SamCS | #shorts | #ytshorts](https://www.youtube.com/watch?v=6zdJgwMPj8U)
 - [Varikennil Nadha | Kristheeya Bhakthigaanangal | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=hRNgrLFGO0k)
 - [പണ്ടുപണ്ടീ | Pandu Pandu | Pradeshika Varthakal Super Hit Movie Song | M. G. Sreekumar | Jagathy](https://www.youtube.com/watch?v=lVa5fU5kshc)
 - [Singer Of The Week | MG Sreekumar | Christian Devotional Songs Malayalam | Joji Johns |Melody Songs](https://www.youtube.com/watch?v=urxjqGUfSXk)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 21st of November 2023](https://www.youtube.com/watch?v=hSfZ0hc5E3c)
-- [Venna Tholkumudalode Video Song | Oru Sundhariyude Kadha | K. J Yesudas | Vayalar](https://www.youtube.com/watch?v=UzS3JD479cs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
