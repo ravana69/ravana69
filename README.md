@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Moody 💕✨ #MujhePaale | #Bandra | #Dileep | #Tamannaah | #SamCS | #shorts | #ytshorts](https://www.youtube.com/watch?v=KG-B1Pv6t7s)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #November   21st mother mary morning songsnon stop](https://www.youtube.com/watch?v=LD7UKX64AlQ)
 - [Japamala 21st of November 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 21st of November 23](https://www.youtube.com/watch?v=N_VZysmNRiQ)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=WJAk6iSAL5Q)
 - [20 November 2023](https://www.youtube.com/watch?v=aH-C_EKAkNc)
 - [പ്രഭാത പ്രാര്‍ത്ഥന  November 21 # Athiravile Prarthana 21st of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=i3brkjfOC3A)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=eQtAm4H9Xok)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
