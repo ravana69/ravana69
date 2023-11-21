@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [📌 CHATRAPATHI &lpar;2023&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - HQ 1080P - AMZN - WEBDL - H264 - DDP 5.1 @ 640 Kb/s - ESubs - 1.2GB](https://www.1tamilmv.phd/index.php?/forums/topic/176380-%F0%9F%93%8C-chatrapathi-2023-music-video-album-hq-1080p-amzn-webdl-h264-ddp-51-640-kbs-esubs-12gb/&do=findComment&comment=356545)
 - [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;40-42&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176248-vera-maari-office-2023-s01-ep-40-42-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=356544)
 - [The Blackout &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Rus&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176278-the-blackout-2019-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-rus-24gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=356543)
 - [Narayana &amp; Co &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176285-narayana-co-2023-tamil-true-web-dl-1080p-720p-avc-25gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356542)
 - [Furious &lpar;2017&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Rus&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176300-furious-2017-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-rus-24gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=356541)
-- [T.I.M. &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.6GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176291-tim-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-26gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=356540)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
