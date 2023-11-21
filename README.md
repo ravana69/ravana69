@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP80 DAY 79 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 479MB &amp; 207MB | 21-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176377-bigg-boss-telugu-s07-ep80-day-79-true-web-dl-1080p-720p-480p-avc-untouched-1gb-479mb-207mb-21-11-2023/&do=findComment&comment=356529)
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP52 DAY 51 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 975MB - 501MB &amp; 204MB | 21-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176376-bigg-boss-tamil-s07-ep52-day-51-true-web-dl-1080p-720p-480p-avc-untouched-975mb-501mb-204mb-21-11-2023/&do=findComment&comment=356528)
+- [LEO &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.2GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176374-leo-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-32gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=356527)
 - [ADHURS &lpar;2010&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176375-adhurs-2010-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-71gb-esub/&do=findComment&comment=356526)
 - [LEO &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.2GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176374-leo-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-32gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=356525)
-- [POKIRI 2006 TELUGU MOVIE REMASTERD VIDEO SONGS HD1080P WITH 5.1 DTS.](https://www.1tamilmv.phd/index.php?/forums/topic/167481-pokiri-2006-telugu-movie-remasterd-video-songs-hd1080p-with-51-dts/&do=findComment&comment=356524)
-- [Shankar Dada Zindabad &lpar;2007&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/174960-shankar-dada-zindabad-2007-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=356523)
-- [Shankar Dada MBBS &lpar;2004&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0 - 192Kbps&rpar; - 4.9GB - 3.6GB &amp; 1.1GB] - [x264 - 2.6GB - 1.5GB &amp; 950MB] [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176013-shankar-dada-mbbs-2004-telugu-true-web-dl-1080p-720p-avc-aac-20-192kbps-49gb-36gb-11gb-x264-26gb-15gb-950mb-google-drive/&do=findComment&comment=356522)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
