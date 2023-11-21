@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 22nd November 23](https://www.youtube.com/watch?v=r9Ja9tgN9Q0)
 - [അരികിൽ ഇരിക്കുന്ന ദൈവം .](https://www.youtube.com/watch?v=gxAat6Dyw5s)
 - [Chanthu Thottille Video Song | Banaras | Kavya Madhavan | Vineeth | Shreya Ghoshal | M Jayachandran](https://www.youtube.com/watch?v=g_pVkuh2tu8)
+- [Kottum Paattum - Lyrical | Asthra | Amith Chakkalakal, Suhasini Kumaran | Mohan Sithara](https://www.youtube.com/watch?v=5ZakvHOyMes)
 - [Poru Nee Vaarilam | Kaashmeeram | M G Radhakrishnan | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=PvM5gl2P1T4)
 - [ഒരപകടം സംഭവിച്ചാൽ  ആരായിരിക്കും നിങ്ങളെ സഹായിക്കുവാനായി  പോകുന്നത്  | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=p_7kfZHCP5Y)
-- [Sexy dance show 💖 #MujhePaale | #Bandra | #Dileep | #Tamannaah | #SamCS | #shorts | #ytshorts](https://www.youtube.com/watch?v=6zdJgwMPj8U)
-- [Varikennil Nadha | Kristheeya Bhakthigaanangal | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=hRNgrLFGO0k)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
