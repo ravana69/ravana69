@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [ADHURS &lpar;2010&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176375-adhurs-2010-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-71gb-esub/&do=findComment&comment=356514)
 - [Kill to Live, Don&#39;t Say I&#39;m Veggie: Ai Unmasking the Unbreakable Rule of the Universe](https://www.1tamilmv.phd/index.php?/forums/topic/160670-kill-to-live-dont-say-im-veggie-ai-unmasking-the-unbreakable-rule-of-the-universe/&do=findComment&comment=356512)
 - [Exploring the Universe: Is It Never-Ending or Does It Have Edges? Let&#39;s Ask Ai Scientists!](https://www.1tamilmv.phd/index.php?/forums/topic/160667-exploring-the-universe-is-it-never-ending-or-does-it-have-edges-lets-ask-ai-scientists/&do=findComment&comment=356511)
 - [Hawking&#39;s Unpublished Theory of Nothing:AI Revelation on Existence, Creation &amp; the Eternal &#39;Nothing&#39;](https://www.1tamilmv.phd/index.php?/forums/topic/160669-hawkings-unpublished-theory-of-nothingai-revelation-on-existence-creation-the-eternal-nothing/&do=findComment&comment=356510)
 - [Unlocking the Cosmic Secrets: Ai&#39;s Simulation of the Shape of Our Universe](https://www.1tamilmv.phd/index.php?/forums/topic/160668-unlocking-the-cosmic-secrets-ais-simulation-of-the-shape-of-our-universe/&do=findComment&comment=356509)
-- [Does God Really Exist? Ai Decoding the Existence of the Creator](https://www.1tamilmv.phd/index.php?/forums/topic/160338-does-god-really-exist-ai-decoding-the-existence-of-the-creator/&do=findComment&comment=356508)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
