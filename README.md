@@ -75,7 +75,7 @@ From: 13 November 2023 - To: 20 November 2023
 
 Total Time: 19 hrs 35 mins
 
-Other   19 hrs 35 mins  ▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰▰   100.00 %
+No activity tracked
 ```
 
 <!--END_SECTION:waka-->
