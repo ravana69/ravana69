@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Squid Game The Challenge &lpar;2023&rpar; S01 EP &lpar;01-05&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 640Kbps&rpar; - 7.9GB - 1.8GB &amp; 700MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176385-squid-game-the-challenge-2023-s01-ep-01-05-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-640kbps-79gb-18gb-700mb-esub/&do=findComment&comment=356566)
-- [Squid Game The Challenge &lpar;2023&rpar; S01 EP &lpar;01-05&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 640Kbps&rpar; - 7.9GB - 1.8GB &amp; 700MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176385-squid-game-the-challenge-2023-s01-ep-01-05-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-640kbps-79gb-18gb-700mb-esub/&do=findComment&comment=356565)
-- [Squid Game The Challenge &lpar;2023&rpar; S01 EP &lpar;01-05&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 640Kbps&rpar; - 7.9GB - 1.8GB &amp; 700MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176385-squid-game-the-challenge-2023-s01-ep-01-05-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-640kbps-79gb-18gb-700mb-esub/&do=findComment&comment=356564)
-- [ADHURS &lpar;2010&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176375-adhurs-2010-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-71gb-esub/&do=findComment&comment=356563)
-- [Aayirathil Oruvan &lpar;2010&rpar; Tamil UNCUT HD DVD - Color Graded Version - 1080p - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 13.1GB - HC-Esub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176383-aayirathil-oruvan-2010-tamil-uncut-hd-dvd-color-graded-version-1080p-avc-untouched-dd51-131gb-hc-esub-gdflix/&do=findComment&comment=356562)
+- [Ai Unlock Your Potential: Mastering Life&#39;s Blueprint with Tony Robbins&#39; Secrets](https://www.1tamilmv.phd/index.php?/forums/topic/162000-ai-unlock-your-potential-mastering-lifes-blueprint-with-tony-robbins-secrets/&do=findComment&comment=356572)
+- [Einstein&#39;s Cosmic Belief: Ai Exploring His Unique Connection to God Beyond Religion](https://www.1tamilmv.phd/index.php?/forums/topic/161997-einsteins-cosmic-belief-ai-exploring-his-unique-connection-to-god-beyond-religion/&do=findComment&comment=356571)
+- [Ai Decoding DNA of Nikola Tesla: Did Extraterrestrial Intelligence Power His Inventions?](https://www.1tamilmv.phd/index.php?/forums/topic/161999-ai-decoding-dna-of-nikola-tesla-did-extraterrestrial-intelligence-power-his-inventions/&do=findComment&comment=356570)
+- [Revealing the Cosmic Code: Ai Scientists Have Captured the First-Ever &#39;Image&#39; of Dark Matter!](https://www.1tamilmv.phd/index.php?/forums/topic/159590-revealing-the-cosmic-code-ai-scientists-have-captured-the-first-ever-image-of-dark-matter/&do=findComment&comment=356569)
+- [Ai Explores Intriguing Link Between Singularity, Big Bang, Black Holes](https://www.1tamilmv.phd/index.php?/forums/topic/159589-ai-explores-intriguing-link-between-singularity-big-bang-black-holes/&do=findComment&comment=356568)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
