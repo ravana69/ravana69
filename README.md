@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=Z-A7hoT9sAA)
-- [രാവിലെ പ്രാര്‍ത്ഥന  November 22 # Athiravile Prarthana 22nd of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=iKu06ojjYyM)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=2cxoxCUp9Ow)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 22nd November 23](https://www.youtube.com/watch?v=r9Ja9tgN9Q0)
-- [അരികിൽ ഇരിക്കുന്ന ദൈവം .](https://www.youtube.com/watch?v=gxAat6Dyw5s)
-- [Chanthu Thottille Video Song | Banaras | Kavya Madhavan | Vineeth | Shreya Ghoshal | M Jayachandran](https://www.youtube.com/watch?v=g_pVkuh2tu8)
+- [Malayalam Christmas Carol Songs 2023 # Christmas Songs Malayalam](https://www.youtube.com/watch?v=nutzH8sWOAk)
+- [Njanorikkal | Hits Of Kester |  Christian Traditional Songs | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=LqO5BkbdvFI)
+- [രാവിലെ കേൾക്കാൻ ഏറ്റവും നല്ല ഗാനങ്ങൾ daily worship songs | christian devotional songs malayalam](https://www.youtube.com/watch?v=1ULglg908xs)
+- [#pavithram #yesudas #പവിത്രം #mohanlal #shobana #ശ്രീരാഗമോ #oldmalayalammelodysongs](https://www.youtube.com/watch?v=EDEh4FL2oog)
+- [#suhasini #koodevide #janaki #song #oldmalayalammelodysongs #everlastingmalayalammelodysongs](https://www.youtube.com/watch?v=EPmDFsFQqtI)
+- [കൃപാസന മാതാവിന്റെ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kripasanam  mother mary sonsg malayalam](https://www.youtube.com/watch?v=B7fDqiFnvfg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
