@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Jujutsu Kaisen &lpar;2020&rpar; Complete S01 EP&lpar;01 - 24&rpar; Merged - [1080p - 720p &amp; 480p HEVC BDRip 10bit - &lpar;AAC 2.0 - 128kbps&rpar;] - x265 ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176358-jujutsu-kaisen-2020-complete-s01-ep01-24-merged-1080p-720p-480p-hevc-bdrip-10bit-aac-20-128kbps-x265-esub-google-drive/&do=findComment&comment=356579)
 - [Label &lpar;2023&rpar; Tamil [24&amp;16Bit FLAC] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - Sam C S Musical](https://www.1tamilmv.phd/index.php?/forums/topic/176143-label-2023-tamil-2416bit-flac-itunes-hq-mp3-320kbps-128kbps-sam-c-s-musical/&do=findComment&comment=356578)
 - [Squid Game: The Challenge &lpar;2023&rpar; S01 EP &lpar;01-05&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 640Kbps&rpar; - 7.9GB - 2.5GB &amp; 750MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176385-squid-game-the-challenge-2023-s01-ep-01-05-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-640kbps-79gb-25gb-750mb-esub/&do=findComment&comment=356577)
 - [Pennin Manathai Thottu &lpar;2000&rpar;.Tamil.1080p + 720p.Web-dl.x264.AAC2.0 - 4.2GB + 2.2GB - GOFILE](https://www.1tamilmv.phd/index.php?/forums/topic/132531-pennin-manathai-thottu-2000tamil1080p-720pweb-dlx264aac20-42gb-22gb-gofile/&do=findComment&comment=356576)
 - [Squid Game: The Challenge &lpar;2023&rpar; S01 EP &lpar;01-05&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 640Kbps&rpar; - 7.9GB - 2.5GB &amp; 750MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176385-squid-game-the-challenge-2023-s01-ep-01-05-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-640kbps-79gb-25gb-750mb-esub/&do=findComment&comment=356575)
-- [Aayirathil Oruvan &lpar;2010&rpar; Tamil UNCUT HD DVD - Color Graded Version - 1080p - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 13.1GB - HC-Esub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176383-aayirathil-oruvan-2010-tamil-uncut-hd-dvd-color-graded-version-1080p-avc-untouched-dd51-131gb-hc-esub-gdflix/&do=findComment&comment=356574)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
