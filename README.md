@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Oppenheimer &lpar;2023&rpar; BluRay - [1080p &amp; 720p - x264 - [Hindi+ Eng] - &lpar;DD+5.1 - 640Kbps&rpar; - 3.8GB - 1.8GB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176382-oppenheimer-2023-bluray-1080p-720p-x264-hindi-eng-dd51-640kbps-38gb-18gb-400mb-esub/&do=findComment&comment=356561)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP52 DAY 51 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 975MB - 501MB &amp; 204MB | 21-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176376-bigg-boss-tamil-s07-ep52-day-51-true-web-dl-1080p-720p-480p-avc-untouched-975mb-501mb-204mb-21-11-2023/&do=findComment&comment=356560)
 - [Jujutsu Kaisen &lpar;2020&rpar; Complete S01 EP&lpar;01 - 24&rpar; Merged - [1080p - 720p &amp; 480p HEVC BDRip 10bit - &lpar;AAC 2.0 - 128kbps&rpar;] - x265 ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176358-jujutsu-kaisen-2020-complete-s01-ep01-24-merged-1080p-720p-480p-hevc-bdrip-10bit-aac-20-128kbps-x265-esub-google-drive/&do=findComment&comment=356559)
 - [Tangled: Before Ever After &lpar;2017&rpar; HDRip - 1080p - x264 - Original Audios [Telugu + Tamil + Hindi + Eng] - 900MB - ESub - First On NET](https://www.1tamilmv.phd/index.php?/forums/topic/61776-tangled-before-ever-after-2017-hdrip-1080p-x264-original-audios-telugu-tamil-hindi-eng-900mb-esub-first-on-net/&do=findComment&comment=356558)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [22-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176384-movies-collection-all-languages-4k-1080p-720p-576p-480p-22-11-2023/&do=findComment&comment=356557)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [21-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176372-movies-collection-all-languages-4k-1080p-720p-576p-480p-21-11-2023/&do=findComment&comment=356556)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
