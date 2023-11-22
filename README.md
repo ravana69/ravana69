@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [LEO &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.2GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176374-leo-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-32gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=356594)
+- [Squid Game: The Challenge &lpar;2023&rpar; S01 EP &lpar;01-05&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 640Kbps&rpar; - 7.9GB - 2.5GB &amp; 750MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176385-squid-game-the-challenge-2023-s01-ep-01-05-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-640kbps-79gb-25gb-750mb-esub/&do=findComment&comment=356593)
 - [AHA Complete [ Telugu DUBBED 1080p Movies Collection 55GB ]](https://www.1tamilmv.phd/index.php?/forums/topic/176332-aha-complete-telugu-dubbed-1080p-movies-collection-55gb/&do=findComment&comment=356592)
 - [The Blackout &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Rus&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176278-the-blackout-2019-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-rus-24gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=356591)
 - [Reacher &lpar;2022&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 6.5GB - 2.9GB &amp; 1GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176322-reacher-2022-s01-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-eng-dd51-192kbps-65gb-29gb-1gb-esub/&do=findComment&comment=356590)
-- [The Railway Men &lpar;2023&rpar; S01 EP &lpar;01-04&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi] - &lpar;DD+5.1 - 640Kbps&rpar; - 5GB - 1.8GB &amp; 700MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176324-the-railway-men-2023-s01-ep-01-04-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-dd51-640kbps-5gb-18gb-700mb-esub/&do=findComment&comment=356589)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 EP81 DAY 80 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 940MB - 455MB &amp; 196MB | 22-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176388-bigg-boss-telugu-s07-ep81-day-80-true-web-dl-1080p-720p-480p-avc-untouched-940mb-455mb-196mb-22-11-2023/&do=findComment&comment=356588)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
