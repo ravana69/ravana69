@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ayyappanum Koshiyum 2020 Malayalam AMZN WEB DL - H264/H265 - DDP5.1 - [1080p - 8.7GB &amp; 3.8GB] [GDRIVE]](https://www.1tamilmv.phd/index.php?/forums/topic/169176-ayyappanum-koshiyum-2020-malayalam-amzn-web-dl-h264h265-ddp51-1080p-87gb-38gb-gdrive/&do=findComment&comment=356585)
+- [40 Tamil Movies - ASTRO/AMZN/SS/SUN NXT WEB DL H264 - DD5.1/DDP5.1/AAC2.0 - ESub - [4K, 1080p &amp; 720p - 375GB] [GDRIVE]](https://www.1tamilmv.phd/index.php?/forums/topic/169067-40-tamil-movies-astroamznsssun-nxt-web-dl-h264-dd51ddp51aac20-esub-4k-1080p-720p-375gb-gdrive/&do=findComment&comment=356584)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP81 DAY 80 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 940MB - 455MB &amp; 196MB | 22-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176388-bigg-boss-telugu-s07-ep81-day-80-true-web-dl-1080p-720p-480p-avc-untouched-940mb-455mb-196mb-22-11-2023/&do=findComment&comment=356583)
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP53 DAY 52 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 560MB &amp; 225MB | 22-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176387-bigg-boss-tamil-s07-ep53-day-52-true-web-dl-1080p-720p-480p-avc-untouched-1gb-560mb-225mb-22-11-2023/&do=findComment&comment=356582)
 - [Prema Katha Chitram &lpar;2013&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176386-prema-katha-chitram-2013-telugu-dvd9-untouched-480p-dd51-448kbps-6gb-esub/&do=findComment&comment=356581)
-- [Prema Katha Chitram &lpar;2013&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176386-prema-katha-chitram-2013-telugu-dvd9-untouched-480p-dd51-448kbps-6gb-esub/&do=findComment&comment=356580)
-- [Jujutsu Kaisen &lpar;2020&rpar; Complete S01 EP&lpar;01 - 24&rpar; Merged - [1080p - 720p &amp; 480p HEVC BDRip 10bit - &lpar;AAC 2.0 - 128kbps&rpar;] - x265 ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176358-jujutsu-kaisen-2020-complete-s01-ep01-24-merged-1080p-720p-480p-hevc-bdrip-10bit-aac-20-128kbps-x265-esub-google-drive/&do=findComment&comment=356579)
-- [Label &lpar;2023&rpar; Tamil [24&amp;16Bit FLAC] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - Sam C S Musical](https://www.1tamilmv.phd/index.php?/forums/topic/176143-label-2023-tamil-2416bit-flac-itunes-hq-mp3-320kbps-128kbps-sam-c-s-musical/&do=findComment&comment=356578)
-- [Squid Game: The Challenge &lpar;2023&rpar; S01 EP &lpar;01-05&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 640Kbps&rpar; - 7.9GB - 2.5GB &amp; 750MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176385-squid-game-the-challenge-2023-s01-ep-01-05-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-640kbps-79gb-25gb-750mb-esub/&do=findComment&comment=356577)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
