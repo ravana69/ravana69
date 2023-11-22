@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [യേശുവേ എൻ അഭയ കേന്ദ്രം| ROY PUTHUR | IRIN P BINU #christiandevotionalsongs #royputhur](https://www.youtube.com/watch?v=wnFjiQi4RhY)
+- [Daivathin Puthran | Fr. Shyju & Grace | Shorts #shortsvideo #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=lk_oH9tCdMI)
 - [Malayalam Christmas Carol Songs 2023 # Christmas Songs Malayalam](https://www.youtube.com/watch?v=nutzH8sWOAk)
 - [Njanorikkal | Hits Of Kester |  Christian Traditional Songs | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=LqO5BkbdvFI)
 - [രാവിലെ കേൾക്കാൻ ഏറ്റവും നല്ല ഗാനങ്ങൾ daily worship songs | christian devotional songs malayalam](https://www.youtube.com/watch?v=1ULglg908xs)
 - [#pavithram #yesudas #പവിത്രം #mohanlal #shobana #ശ്രീരാഗമോ #oldmalayalammelodysongs](https://www.youtube.com/watch?v=EDEh4FL2oog)
-- [#suhasini #koodevide #janaki #song #oldmalayalammelodysongs #everlastingmalayalammelodysongs](https://www.youtube.com/watch?v=EPmDFsFQqtI)
-- [കൃപാസന മാതാവിന്റെ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kripasanam  mother mary sonsg malayalam](https://www.youtube.com/watch?v=B7fDqiFnvfg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
