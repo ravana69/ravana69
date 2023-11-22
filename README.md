@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP52 DAY 51 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 975MB - 501MB &amp; 204MB | 21-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176376-bigg-boss-tamil-s07-ep52-day-51-true-web-dl-1080p-720p-480p-avc-untouched-975mb-501mb-204mb-21-11-2023/&do=findComment&comment=356560)
+- [Jujutsu Kaisen &lpar;2020&rpar; Complete S01 EP&lpar;01 - 24&rpar; Merged - [1080p - 720p &amp; 480p HEVC BDRip 10bit - &lpar;AAC 2.0 - 128kbps&rpar;] - x265 ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176358-jujutsu-kaisen-2020-complete-s01-ep01-24-merged-1080p-720p-480p-hevc-bdrip-10bit-aac-20-128kbps-x265-esub-google-drive/&do=findComment&comment=356559)
 - [Tangled: Before Ever After &lpar;2017&rpar; HDRip - 1080p - x264 - Original Audios [Telugu + Tamil + Hindi + Eng] - 900MB - ESub - First On NET](https://www.1tamilmv.phd/index.php?/forums/topic/61776-tangled-before-ever-after-2017-hdrip-1080p-x264-original-audios-telugu-tamil-hindi-eng-900mb-esub-first-on-net/&do=findComment&comment=356558)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [22-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176384-movies-collection-all-languages-4k-1080p-720p-576p-480p-22-11-2023/&do=findComment&comment=356557)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [21-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176372-movies-collection-all-languages-4k-1080p-720p-576p-480p-21-11-2023/&do=findComment&comment=356556)
-- [📌 CHATRAPATHI &lpar;2023&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - HQ 1080P - AMZN - WEBDL - H264 - DDP 5.1 @ 640 Kb/s - ESubs - 1.2GB](https://www.1tamilmv.phd/index.php?/forums/topic/176380-%F0%9F%93%8C-chatrapathi-2023-music-video-album-hq-1080p-amzn-webdl-h264-ddp-51-640-kbs-esubs-12gb/&do=findComment&comment=356555)
-- [Madras &lpar;2014&rpar; SS WEB-DL DD5.1 Esubs x264 - 1080p | 720p - 4.2 GB | 2.3 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176365-madras-2014-ss-web-dl-dd51-esubs-x264-1080p-720p-42-gb-23-gb/&do=findComment&comment=356554)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
