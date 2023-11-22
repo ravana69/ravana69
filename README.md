@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Puthan Pulari - Lyrical Video | Puthumukhangal | Evergreen Malayalam Songs](https://www.youtube.com/watch?v=EsmYp7Ow6II)
-- [വെള്ളത്താമര | Vellathaamara | Pradeshika Varthakal Super Hit Movie Song | Jayaram | Parvathy](https://www.youtube.com/watch?v=a9eisqVY4E0)
-- [Curvy moves 💋🌹 #MujhePaale | #Bandra | #Dileep | #Tamannaah | #SamCS | #shorts | #ytshorts](https://www.youtube.com/watch?v=LzYhMQ9u_hY)
-- [Tharam vaalkannadi Nokki - Keli (1991) | Kaithapram | K.S.Chithra | Johnson Master | Bharathan](https://www.youtube.com/watch?v=KFM2br0krQs)
-- [Uncle Bun Malayalam Movie Songs | Mohanlal | Raveendran | Yesudas | Bhadran | Sound of Arts](https://www.youtube.com/watch?v=Fr4cONoWfUk)
-- [Koodarakoottil Thengum Video Song | Sundarakilladi | Dileep | Shalini | KJ Yesudas | KS Chithra](https://www.youtube.com/watch?v=yl0id5Oet7Y)
+- [കണ്ണുനീർ കൊണ്ട് പാദം കഴുകിയ സ്ത്രീയുടെ സ്നേഹത്തിന്റെ ആഴം  | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=DOvC0FNVGck)
+- [മേഘം പൂത്തു തുടങ്ങി Megham Poothu Thudangi Audio Song Thoovaanathumbikal Mohanlal  KJ Yesudas](https://www.youtube.com/watch?v=QdJjuEaziBo)
+- [Shiva Perumal Video Song | My Dear Karadi | M. G. Sreekumar](https://www.youtube.com/watch?v=pi6ITxcroec)
+- [Ennamme Onnu Kaanaan | Evergreen Malayalam Song | Nammal | Suhasini | Jishnu | Sidharth | Renuka](https://www.youtube.com/watch?v=cWxo3lKq2dc)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 22nd of November 2023](https://www.youtube.com/watch?v=bRpyXsSnwtk)
+- [Konji Konji Video Song | Kalippaattom | M G Sreekumar | Raveendran | Bichu Thirumala](https://www.youtube.com/watch?v=hJCN12HxiMU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
