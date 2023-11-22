@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കുങ്കുമക്കുറിയണിഞ്ഞു ആടിവാ..| കെ ജെ യേശുദാസ് | K S Chitra | Original Audio Remastered movie songs](https://www.youtube.com/watch?v=5LDVm7ozuzI)
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 23rd November 23](https://www.youtube.com/watch?v=U190MzfHLQk)
 - [22 November 2023](https://www.youtube.com/watch?v=gI0Kla_ABHw)
 - [Ariyathe Vannu Nee | അറിയാതെ വന്നു നീ | Ormmakkai | K S Chithra | East Coast Vijayan | #Shorts](https://www.youtube.com/watch?v=KsOeTjyrBPc)
 - [Ilam Manjin | Ninnishtam Ennishtam | Mohanlal | Kannur Rajan | KJ Yesudas | S Janaki](https://www.youtube.com/watch?v=nASk1bH7cJQ)
 - [കാരുണ്യം കോലുന്ന  | Kaarunyam Kolunna | Oral Koodi Kallanayi Movie Song |P Leela| Prem Nazir| Sheela](https://www.youtube.com/watch?v=fMotNd5Yp3s)
-- [Pranaya Sowgandhikangal | Darling Darling | Ouseppachan | K S Chithra #SongOfTheDay](https://www.youtube.com/watch?v=qL_xzMXSCTg)
-- [കണ്ണുനീർ കൊണ്ട് പാദം കഴുകിയ സ്ത്രീയുടെ സ്നേഹത്തിന്റെ ആഴം  | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=DOvC0FNVGck)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
