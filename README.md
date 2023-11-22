@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Azhake Nin Shorts  | Amaram | Short Video | Yesudas | Raveendran | Short Video](https://www.youtube.com/watch?v=Ru9ZFaixcYE)
 - [Venna Tholkumudalode Video Song | Oru Sundhariyude Kadha | K. J Yesudas #shorts](https://www.youtube.com/watch?v=YUAK85icFFQ)
 - [Oru Kudam Kulirum | Sreenath | S.Janaki | Poovachal Khader | Prem Nazeer](https://www.youtube.com/watch?v=OIqlf8nVOpA)
 - [യേശുവേ എൻ അഭയ കേന്ദ്രം| ROY PUTHUR | IRIN P BINU #christiandevotionalsongs #royputhur](https://www.youtube.com/watch?v=wnFjiQi4RhY)
+- [Pulariyil Ilaveyil | Thaal |Studio Version| Bijibal|B K Harinarayanan| K S Harishankar |Shweta Mohan](https://www.youtube.com/watch?v=7lsMR_sHAkU)
 - [Daivathin Puthran | Fr. Shyju & Grace | Shorts #shortsvideo #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=lk_oH9tCdMI)
-- [Malayalam Christmas Carol Songs 2023 # Christmas Songs Malayalam](https://www.youtube.com/watch?v=nutzH8sWOAk)
-- [Njanorikkal | Hits Of Kester |  Christian Traditional Songs | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=LqO5BkbdvFI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
