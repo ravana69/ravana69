@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [വ്യത്യസ്തമായ ജീവിതാനുഭവങ്ങളേകും മികവാർന്ന സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | EVERGREEN SUPERHIT SONGS](https://www.youtube.com/watch?v=_4PNvMYAdJs)
+- [Poomakal Vaazhunna | Kaattu Vannu Vilichappol (2000)  | M G Radhakrishnan | Chippy | M G Sreekumar](https://www.youtube.com/watch?v=7FFnpZDq87o)
 - [Azhake Nin Shorts  | Amaram | Short Video | Yesudas | Raveendran | Short Video](https://www.youtube.com/watch?v=Ru9ZFaixcYE)
 - [Venna Tholkumudalode Video Song | Oru Sundhariyude Kadha | K. J Yesudas #shorts](https://www.youtube.com/watch?v=YUAK85icFFQ)
 - [Oru Kudam Kulirum | Sreenath | S.Janaki | Poovachal Khader | Prem Nazeer](https://www.youtube.com/watch?v=OIqlf8nVOpA)
 - [യേശുവേ എൻ അഭയ കേന്ദ്രം| ROY PUTHUR | IRIN P BINU #christiandevotionalsongs #royputhur](https://www.youtube.com/watch?v=wnFjiQi4RhY)
-- [Pulariyil Ilaveyil | Thaal |Studio Version| Bijibal|B K Harinarayanan| K S Harishankar |Shweta Mohan](https://www.youtube.com/watch?v=7lsMR_sHAkU)
-- [Daivathin Puthran | Fr. Shyju & Grace | Shorts #shortsvideo #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=lk_oH9tCdMI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
