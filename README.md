@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Tharam vaalkannadi Nokki - Keli (1991) | Kaithapram | K.S.Chithra | Johnson Master | Bharathan](https://www.youtube.com/watch?v=KFM2br0krQs)
+- [Uncle Bun Malayalam Movie Songs | Mohanlal | Raveendran | Yesudas | Bhadran | Sound of Arts](https://www.youtube.com/watch?v=Fr4cONoWfUk)
 - [Koodarakoottil Thengum Video Song | Sundarakilladi | Dileep | Shalini | KJ Yesudas | KS Chithra](https://www.youtube.com/watch?v=yl0id5Oet7Y)
 - [Vanna Vazhikal | Wilson Piravom | Joy John | Shorts  #manoramachristiandevotionalsongs #ytshorts](https://www.youtube.com/watch?v=wEdjUaWISjg)
 - [വ്യത്യസ്തമായ ജീവിതാനുഭവങ്ങളേകും മികവാർന്ന സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | EVERGREEN SUPERHIT SONGS](https://www.youtube.com/watch?v=_4PNvMYAdJs)
 - [Poomakal Vaazhunna | Kaattu Vannu Vilichappol (2000)  | M G Radhakrishnan | Chippy | M G Sreekumar](https://www.youtube.com/watch?v=7FFnpZDq87o)
-- [Azhake Nin Shorts  | Amaram | Short Video | Yesudas | Raveendran | Short Video](https://www.youtube.com/watch?v=Ru9ZFaixcYE)
-- [Venna Tholkumudalode Video Song | Oru Sundhariyude Kadha | K. J Yesudas #shorts](https://www.youtube.com/watch?v=YUAK85icFFQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
