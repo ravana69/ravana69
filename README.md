@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന  November 23 # Athiravile Prarthana 23rd of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=50V0A11Vj14)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=Y63R1dwWehU)
+- [Raja Chenkolilum | Fr. Shaji Thumpechirayil | #shorts #shortsvideo](https://www.youtube.com/watch?v=LDEkEaPOlSg)
 - [കുങ്കുമക്കുറിയണിഞ്ഞു ആടിവാ..| കെ ജെ യേശുദാസ് | K S Chitra | Original Audio Remastered movie songs](https://www.youtube.com/watch?v=5LDVm7ozuzI)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 23rd November 23](https://www.youtube.com/watch?v=U190MzfHLQk)
 - [22 November 2023](https://www.youtube.com/watch?v=gI0Kla_ABHw)
-- [Ariyathe Vannu Nee | അറിയാതെ വന്നു നീ | Ormmakkai | K S Chithra | East Coast Vijayan | #Shorts](https://www.youtube.com/watch?v=KsOeTjyrBPc)
-- [Ilam Manjin | Ninnishtam Ennishtam | Mohanlal | Kannur Rajan | KJ Yesudas | S Janaki](https://www.youtube.com/watch?v=nASk1bH7cJQ)
-- [കാരുണ്യം കോലുന്ന  | Kaarunyam Kolunna | Oral Koodi Kallanayi Movie Song |P Leela| Prem Nazir| Sheela](https://www.youtube.com/watch?v=fMotNd5Yp3s)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
