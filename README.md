@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Venky &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.8GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176273-venky-2004-telugu-dvd9-untouched-480p-dd51-448kbps-68gb-esub/&do=findComment&comment=356598)
 - [Pulimada &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Telugu + Kannada] - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176391-pulimada-2023-true-web-dl-1080p-720p-avc-telugu-kannada-dd51-640kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356597)
-- [Pulimada &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176390-pulimada-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356596)
+- [Pulimada &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.6GB - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176390-pulimada-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-56gb-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356596)
 - [Pulimada &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176389-pulimada-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-56gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356595)
 - [LEO &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.2GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176374-leo-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-32gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=356594)
-- [Squid Game: The Challenge &lpar;2023&rpar; S01 EP &lpar;01-05&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 640Kbps&rpar; - 7.9GB - 2.5GB &amp; 750MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176385-squid-game-the-challenge-2023-s01-ep-01-05-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-640kbps-79gb-25gb-750mb-esub/&do=findComment&comment=356593)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
