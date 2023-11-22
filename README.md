@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Pranaya Sowgandhikangal | Darling Darling | Ouseppachan | K S Chithra #SongOfTheDay](https://www.youtube.com/watch?v=qL_xzMXSCTg)
 - [കണ്ണുനീർ കൊണ്ട് പാദം കഴുകിയ സ്ത്രീയുടെ സ്നേഹത്തിന്റെ ആഴം  | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=DOvC0FNVGck)
 - [മേഘം പൂത്തു തുടങ്ങി Megham Poothu Thudangi Audio Song Thoovaanathumbikal Mohanlal  KJ Yesudas](https://www.youtube.com/watch?v=QdJjuEaziBo)
 - [Shiva Perumal Video Song | My Dear Karadi | M. G. Sreekumar](https://www.youtube.com/watch?v=pi6ITxcroec)
 - [Ennamme Onnu Kaanaan | Evergreen Malayalam Song | Nammal | Suhasini | Jishnu | Sidharth | Renuka](https://www.youtube.com/watch?v=cWxo3lKq2dc)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 22nd of November 2023](https://www.youtube.com/watch?v=bRpyXsSnwtk)
-- [Konji Konji Video Song | Kalippaattom | M G Sreekumar | Raveendran | Bichu Thirumala](https://www.youtube.com/watch?v=hJCN12HxiMU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
