@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Aayirathil Oruvan &lpar;2010&rpar; Tamil UNCUT HD DVD - Color Graded Version - 1080p - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 13.1GB - HC-Esub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176383-aayirathil-oruvan-2010-tamil-uncut-hd-dvd-color-graded-version-1080p-avc-untouched-dd51-131gb-hc-esub-gdflix/&do=findComment&comment=356553)
-- [Leo &lpar;2023&rpar; 1080p NF WEB-DL Multi DDP5.1 Esubs x264 - 5.6 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176381-leo-2023-1080p-nf-web-dl-multi-ddp51-esubs-x264-56-gb/&do=findComment&comment=356552)
-- [Oppenheimer &lpar;2023&rpar; BluRay - [1080p &amp; 720p - x264 - [Hindi+ Eng] - &lpar;DD+5.1 - 640Kbps&rpar; - 3.8GB - 1.8GB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176382-oppenheimer-2023-bluray-1080p-720p-x264-hindi-eng-dd51-640kbps-38gb-18gb-400mb-esub/&do=findComment&comment=356551)
-- [LEO &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.2GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176374-leo-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-32gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=356550)
-- [Aayirathil Oruvan &lpar;2010&rpar; Tamil UNCUT HD DVD - Color Graded Version - 1080p - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 13.1GB - HC-Esub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176383-aayirathil-oruvan-2010-tamil-uncut-hd-dvd-color-graded-version-1080p-avc-untouched-dd51-131gb-hc-esub-gdflix/&do=findComment&comment=356549)
+- [Tangled: Before Ever After &lpar;2017&rpar; HDRip - 1080p - x264 - Original Audios [Telugu + Tamil + Hindi + Eng] - 900MB - ESub - First On NET](https://www.1tamilmv.phd/index.php?/forums/topic/61776-tangled-before-ever-after-2017-hdrip-1080p-x264-original-audios-telugu-tamil-hindi-eng-900mb-esub-first-on-net/&do=findComment&comment=356558)
+- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [22-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176384-movies-collection-all-languages-4k-1080p-720p-576p-480p-22-11-2023/&do=findComment&comment=356557)
+- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [21-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176372-movies-collection-all-languages-4k-1080p-720p-576p-480p-21-11-2023/&do=findComment&comment=356556)
+- [📌 CHATRAPATHI &lpar;2023&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - HQ 1080P - AMZN - WEBDL - H264 - DDP 5.1 @ 640 Kb/s - ESubs - 1.2GB](https://www.1tamilmv.phd/index.php?/forums/topic/176380-%F0%9F%93%8C-chatrapathi-2023-music-video-album-hq-1080p-amzn-webdl-h264-ddp-51-640-kbs-esubs-12gb/&do=findComment&comment=356555)
+- [Madras &lpar;2014&rpar; SS WEB-DL DD5.1 Esubs x264 - 1080p | 720p - 4.2 GB | 2.3 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176365-madras-2014-ss-web-dl-dd51-esubs-x264-1080p-720p-42-gb-23-gb/&do=findComment&comment=356554)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
