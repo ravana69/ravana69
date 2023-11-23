@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ariyuka Nee Yeshunadhane | Kristheeya Bhakthigaanangal |  Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=JVj290Bb6cA)
+- [Malayalam Video Song Kanmani Nin | K. S. Chithra | Vadhu Doctoraanu | Kannur Rajan | വധു ഡോക്ടറാണ്](https://www.youtube.com/watch?v=JAOtvBosk5E)
+- [GOSHALAYIL PONPAITHALAYI | Fr. Shaji Thumpechirayil | #shortsvideo #shorts](https://www.youtube.com/watch?v=5IfphXx2Pnc)
+- [Marannuvo Poomakale  #shortsfeed #shorts #mohanlal #mjayachandran #lyricalvideo #kjyesudas #dileep](https://www.youtube.com/watch?v=pAUu4vXU1y0)
 - [Varuvanillarumee | Manichithrathazhu | Sobhana | Chithra | Bichu Thirumala | Fazil](https://www.youtube.com/watch?v=dxPoPAgfL_E)
 - [Tu Hai Balwan | Shorts | Jijy Abraham  #manoramachristiandevotionalsongs #shorts](https://www.youtube.com/watch?v=X2qdoHzuMKk)
-- [ദേവാലയങ്ങളിൽ പാടുന്ന സൂപ്പർഹിറ്റ് കരോൾ ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Kester](https://www.youtube.com/watch?v=0XuQvqwBbs4)
-- [Japamala 23rd of November 23 # Mathavinte Japamala Prakashathinte Rahasyangal 23rd of November 23](https://www.youtube.com/watch?v=WyMCJy29hLg)
-- [കൃപാസനം മാതാവിന്റെ  പ്രാർത്ഥനയും ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #Kripasanam #november 23rd](https://www.youtube.com/watch?v=EpXzE-Pj9qM)
-- [Sthothrageethangal Jukebox | Malayalam Christian Songs | Kester | Sujatha | Wilson Piravom](https://www.youtube.com/watch?v=MgHztjy6Y1g)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
