@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന November 24 # Athiravile Prarthana 24th November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=y9nBuB7ZaXk)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=sSgkqaqSCpU)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 24th November 23](https://www.youtube.com/watch?v=UuMlI_yY-Io)
 - [23 November 2023](https://www.youtube.com/watch?v=u5YEFo3XEdQ)
 - [Punnaaga Kombathu | Bhakthajanangalude Sradhakku | Sujatha Mohan | Natesh Sankar | Rafeeq Ahammed](https://www.youtube.com/watch?v=9KFC7C2eRpk)
 - [Vaalinmel Poovum | Pavithram | Sharreth | M G Sreekumar | Sujatha Mohan | O N V Kurup #SongOfTheDay](https://www.youtube.com/watch?v=ugpZzLdVk2Q)
-- [ഓരോരുത്തരുടെ ഉള്ളിലും ഉണരാൻ കിടക്കുന്ന ഒരു മാലാഖയും പിശാശുമുണ്ട് | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=2F3qu9nfcMw)
-- [Oro Poovilum Romantic Video Song | T. P. Balagopalan M. A.| K. J.Yesudas | Mohanlal | Shobhana](https://www.youtube.com/watch?v=i6jAaUXt1m0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
