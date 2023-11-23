@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Chakravyuham &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Kannada] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176396-chakravyuham-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-kannada-26gb-14gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=356615)
+- [Chakravyuham &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Kannada] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176396-chakravyuham-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-kannada-26gb-14gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=356614)
+- [Pulimada &lpar;2023&rpar; NF WEB-DL MULTI DDP5.1 Esubs x264 - 1080p | 720p - 5.7 GB | 2.5 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176392-pulimada-2023-nf-web-dl-multi-ddp51-esubs-x264-1080p-720p-57-gb-25-gb/&do=findComment&comment=356613)
 - [Pulimada &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176389-pulimada-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-56gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356612)
 - [Pulimada &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Telugu + Kannada] - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176391-pulimada-2023-true-web-dl-1080p-720p-avc-telugu-kannada-dd51-640kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356611)
-- [Pulimada &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.6GB - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176390-pulimada-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-56gb-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356610)
-- [Napoleon &lpar;2023&rpar; English HQ HDCAM - [1080p &amp; 720p - x264 - 1.8GB &amp; 900MB | x264 - 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/175824-napoleon-2023-english-hq-hdcam-1080p-720p-x264-18gb-900mb-x264-400mb/&do=findComment&comment=356609)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [23-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176395-movies-collection-all-languages-4k-1080p-720p-576p-480p-23-11-2023/&do=findComment&comment=356608)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
