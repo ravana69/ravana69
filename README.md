@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [KANUMBOL KANUMBOL | FR. SHAJI THUMPECHIARAYIL | #shorts #shortvideo](https://www.youtube.com/watch?v=aY7SqJO5iNA)
+- [#malayalamoldsongs #chithra_songs #malayalamwhatsappstatusvideosong](https://www.youtube.com/watch?v=fsSyl7iF8jE)
 - [Ariyuka Nee Yeshunadhane | Kristheeya Bhakthigaanangal |  Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=JVj290Bb6cA)
 - [Malayalam Video Song Kanmani Nin | K. S. Chithra | Vadhu Doctoraanu | Kannur Rajan | വധു ഡോക്ടറാണ്](https://www.youtube.com/watch?v=JAOtvBosk5E)
 - [GOSHALAYIL PONPAITHALAYI | Fr. Shaji Thumpechirayil | #shortsvideo #shorts](https://www.youtube.com/watch?v=5IfphXx2Pnc)
 - [Marannuvo Poomakale  #shortsfeed #shorts #mohanlal #mjayachandran #lyricalvideo #kjyesudas #dileep](https://www.youtube.com/watch?v=pAUu4vXU1y0)
-- [Varuvanillarumee | Manichithrathazhu | Sobhana | Chithra | Bichu Thirumala | Fazil](https://www.youtube.com/watch?v=dxPoPAgfL_E)
-- [Tu Hai Balwan | Shorts | Jijy Abraham  #manoramachristiandevotionalsongs #shorts](https://www.youtube.com/watch?v=X2qdoHzuMKk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
