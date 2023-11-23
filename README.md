@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Marrichettu &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 5.2GB - ESub - KAD DVD](https://www.1tamilmv.phd/index.php?/forums/topic/176408-marrichettu-2004-telugu-dvd9-untouched-480p-dd51-448kbps-52gb-esub-kad-dvd/&do=findComment&comment=356641)
+- [Marrichettu &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 5.2GB - ESub - KAD DVD](https://www.1tamilmv.phd/index.php?/forums/topic/176408-marrichettu-2004-telugu-dvd9-untouched-480p-dd51-448kbps-52gb-esub-kad-dvd/&do=findComment&comment=356640)
 - [The Village &lpar;2023&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.3GB - 2.3GB &amp; 800MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176404-the-village-2023-s01-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-53gb-23gb-800mb-esub/&do=findComment&comment=356638)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP82 DAY 81 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 521MB &amp; 226MB | 23-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176406-bigg-boss-telugu-s07-ep82-day-81-true-web-dl-1080p-720p-480p-avc-untouched-1gb-521mb-226mb-23-11-2023/&do=findComment&comment=356637)
 - [The Village &lpar;2023&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.3GB - 2.3GB &amp; 800MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176404-the-village-2023-s01-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-53gb-23gb-800mb-esub/&do=findComment&comment=356636)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP54 DAY 53 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 958MB - 499MB &amp; 207MB | 23-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176405-bigg-boss-tamil-s07-ep54-day-53-true-web-dl-1080p-720p-480p-avc-untouched-958mb-499mb-207mb-23-11-2023/&do=findComment&comment=356635)
-- [The Village &lpar;2023&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.3GB - 2.3GB &amp; 800MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176404-the-village-2023-s01-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-53gb-23gb-800mb-esub/&do=findComment&comment=356634)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
