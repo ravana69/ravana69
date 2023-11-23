@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [23-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176395-movies-collection-all-languages-4k-1080p-720p-576p-480p-23-11-2023/&do=findComment&comment=356608)
+- [CHIRUTHA &lpar;2007&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176394-chirutha-2007-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=356607)
 - [Thithikudhe &lpar;2003&rpar; Tamil TRUE WEB-DL - 480p - x264 - UNTOUCHED - &lpar;AAC.2.0&rpar; - 1.4GB - HC-ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176393-thithikudhe-2003-tamil-true-web-dl-480p-x264-untouched-aac20-14gb-hc-esub-gdflix/&do=findComment&comment=356606)
 - [Pulimada &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Telugu + Kannada] - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176391-pulimada-2023-true-web-dl-1080p-720p-avc-telugu-kannada-dd51-640kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356605)
 - [Pulimada &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.6GB - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176390-pulimada-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-56gb-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356604)
-- [Pulimada &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176389-pulimada-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-56gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356603)
-- [Pulimada &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176389-pulimada-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-56gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356602)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
