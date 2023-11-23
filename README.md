@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രേക്ഷകമനസുകൾ കീഴടക്കിയ  ഏവരുടെയും ഇഷ്‌ട പ്രണയജോഡികൾ പാർവതി ജയറാമിന്റെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ](https://www.youtube.com/watch?v=_vWzqV1ByIk)
+- [കളകളമൊഴീ | Kala Kala Mozhi | Prema Geethangal Malayalam Movie Song | Johnson | Subash Chandran](https://www.youtube.com/watch?v=OIlroe5gfg4)
+- [Paragamay Pozhiyunnu |  Vaachalam (1997) | K.J Yesudas | K.S Chithra | Kaithapram | Johnson](https://www.youtube.com/watch?v=NhaZzJor0GA)
+- [മലയാളത്തിന്റെ ശാലീനത തുളുമ്പുന്ന  താളങ്ങൾ ഒന്നിക്കുന്ന മലയാളസിനിമയിലെ ഇമ്പമാർന്ന ഗാനങ്ങൾ ! EVERGREEN](https://www.youtube.com/watch?v=F07_gOAGTMI)
 - [KANUMBOL KANUMBOL | FR. SHAJI THUMPECHIARAYIL | #shorts #shortvideo](https://www.youtube.com/watch?v=aY7SqJO5iNA)
 - [#malayalamoldsongs #chithra_songs #malayalamwhatsappstatusvideosong](https://www.youtube.com/watch?v=fsSyl7iF8jE)
-- [Ariyuka Nee Yeshunadhane | Kristheeya Bhakthigaanangal |  Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=JVj290Bb6cA)
-- [Malayalam Video Song Kanmani Nin | K. S. Chithra | Vadhu Doctoraanu | Kannur Rajan | വധു ഡോക്ടറാണ്](https://www.youtube.com/watch?v=JAOtvBosk5E)
-- [GOSHALAYIL PONPAITHALAYI | Fr. Shaji Thumpechirayil | #shortsvideo #shorts](https://www.youtube.com/watch?v=5IfphXx2Pnc)
-- [Marannuvo Poomakale  #shortsfeed #shorts #mohanlal #mjayachandran #lyricalvideo #kjyesudas #dileep](https://www.youtube.com/watch?v=pAUu4vXU1y0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
