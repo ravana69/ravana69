@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Chakravyuham &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Kannada] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176396-chakravyuham-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-kannada-26gb-14gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=356632)
+- [Sathiya Sothanai &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176397-sathiya-sothanai-2023-tamil-true-web-dl-1080p-720p-avc-hevc-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356631)
 - [Chaaver &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176398-chaaver-2023-malayalam-true-web-dl-1080p-720p-avc-hevc-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356630)
 - [Kaathal - The Core &lpar;2023&rpar; Malayalam HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176401-kaathal-the-core-2023-malayalam-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=356629)
 - [Chaaver &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil + Telugu + Hindi + Kannada] - 2.7GB - 1.6GB &amp; 800MB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176399-chaaver-2023-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-hindi-kannada-27gb-16gb-800mb-x264-750mb-450mb-esub/&do=findComment&comment=356628)
-- [Sathiya Sothanai &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176397-sathiya-sothanai-2023-tamil-true-web-dl-1080p-720p-avc-hevc-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356627)
-- [Chaaver &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil + Telugu + Hindi + Kannada] - 2.7GB - 1.6GB &amp; 800MB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176399-chaaver-2023-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-hindi-kannada-27gb-16gb-800mb-x264-750mb-450mb-esub/&do=findComment&comment=356626)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
