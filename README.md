@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Tu Hai Balwan | Shorts | Jijy Abraham  #manoramachristiandevotionalsongs #shorts](https://www.youtube.com/watch?v=X2qdoHzuMKk)
 - [ദേവാലയങ്ങളിൽ പാടുന്ന സൂപ്പർഹിറ്റ് കരോൾ ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Kester](https://www.youtube.com/watch?v=0XuQvqwBbs4)
 - [Japamala 23rd of November 23 # Mathavinte Japamala Prakashathinte Rahasyangal 23rd of November 23](https://www.youtube.com/watch?v=WyMCJy29hLg)
 - [കൃപാസനം മാതാവിന്റെ  പ്രാർത്ഥനയും ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #Kripasanam #november 23rd](https://www.youtube.com/watch?v=EpXzE-Pj9qM)
 - [Sthothrageethangal Jukebox | Malayalam Christian Songs | Kester | Sujatha | Wilson Piravom](https://www.youtube.com/watch?v=MgHztjy6Y1g)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=t36BStXzpXc)
-- [പ്രഭാത പ്രാര്‍ത്ഥന  November 23 # Athiravile Prarthana 23rd of November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=50V0A11Vj14)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
