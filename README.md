@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Neeyente Pattil | Nakshathratharattu | Short Video | Yesudas | Kunchacko Boban | Malayalam Shorts](https://www.youtube.com/watch?v=dXkbcQAmPTY)
 - [24 November 2023](https://www.youtube.com/watch?v=BBwG35epov8)
 - [Poompaithale | Merry Christmas | KS Chithra | Sanjay Prasannan | Karthik R | Midhun jyothi | Hari](https://www.youtube.com/watch?v=OC1RfO3_JMA)
 - [Unarunaroo Janma | Innalekalillathe | KS Chithra | Manju Warrier | Biju Menon | Rex Issac](https://www.youtube.com/watch?v=G5UDpcudWaQ)
+- [O Manuja - Video Song | Djinn | Soubin Shahir, Santhy | Prashant Pillai | Sidharth Bharathan](https://www.youtube.com/watch?v=jCLAR7JsVTc)
 - [കണ്ണുകൾ തന്ന ദൈവം നിന്റെ കണ്ണുനീർ കാണാതിരിക്കുമോ? | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=pb6xXvxBayA)
-- [Mounam Swaramaay | Aayushkkaalam | Ouseppachan | K J Yesudas | K S Chithra #SongOfTheDay](https://www.youtube.com/watch?v=vUbHhdNYiEk)
-- [Arayilotta Mundedutha Penne Video Song | Oru Sundhariyude Kadha | K. J. Yesudas | G Devarajan](https://www.youtube.com/watch?v=QyCFVYogP0s)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
