@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന November 25 # Athiravile Prarthana 25th November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=l86agK1QaVw)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=LGZnjiGT37o)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 25th November 23](https://www.youtube.com/watch?v=X84iHbZf1BQ)
 - [Neeyente Pattil | Nakshathratharattu | Short Video | Yesudas | Kunchacko Boban | Malayalam Shorts](https://www.youtube.com/watch?v=dXkbcQAmPTY)
 - [24 November 2023](https://www.youtube.com/watch?v=BBwG35epov8)
 - [Poompaithale | Merry Christmas | KS Chithra | Sanjay Prasannan | Karthik R | Midhun jyothi | Hari](https://www.youtube.com/watch?v=OC1RfO3_JMA)
-- [Unarunaroo Janma | Innalekalillathe | KS Chithra | Manju Warrier | Biju Menon | Rex Issac](https://www.youtube.com/watch?v=G5UDpcudWaQ)
-- [O Manuja - Video Song | Djinn | Soubin Shahir, Santhy | Prashant Pillai | Sidharth Bharathan](https://www.youtube.com/watch?v=jCLAR7JsVTc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
