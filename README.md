@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aarezhuthi Aavo Video Song | Spanish Masala | Kunchacko Boban | Karthik | Shreya Ghoshal| Vidyasagar](https://www.youtube.com/watch?v=O4EELp5Li5A)
 - [Vittupidi | Dance Party | Fejo | Rahul Raj | Shorts](https://www.youtube.com/watch?v=53YgQ0isKKk)
 - [Vittupidi | Dance Party | Rahul Raj |  Fejo  #manoramamusic](https://www.youtube.com/watch?v=hgKDMu_IJSE)
 - [Pachilakkadukalil | Sapadham | Mankombu Gopalakrishnan | Raveendran | Sujatha mohan | Evergreen Hits](https://www.youtube.com/watch?v=rvFPhDrRYhk)
 - [EVERGREEN HITS OF MG SREEKUMAR | HIT SONGS OF MG SREKUMAR | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=XGXQCSh_sbk)
 - [Chithramani Kattil | Symphony | Kaithapram | Deepak Dev | KS Chithra | P Jayachandran |Superhit Song](https://www.youtube.com/watch?v=3ba204Ge5v8)
-- [യാ ഹബ്ബി | Yaa Habbi | Super hit Song from the Movie Manithali | Prem Nazir | Seema](https://www.youtube.com/watch?v=2ylECyOnijE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
