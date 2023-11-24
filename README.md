@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പോകുന്നു ഞാനെൻ വത്സലരേ |FILM - കർമ്മയോഗി (1986)|ROY PUTHUR #royputhur](https://www.youtube.com/watch?v=Alc4oaj5RYI)
 - [Sree Yeshunadhante Bhavaam | Christian Superhit Songs | Paul Chittoor | Gagul Joseph | Melody Song](https://www.youtube.com/watch?v=M52mwUgnjeE)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mariyan songs non stop for November 24th 2023 3mot](https://www.youtube.com/watch?v=mNqD9afNAOc)
 - [Japamala 24th of November 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 24th of November 23](https://www.youtube.com/watch?v=8JdXsgQu8HI)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=jNkfEuge9FU)
 - [രാവിലെ പ്രാര്‍ത്ഥന November 24 # Athiravile Prarthana 24th November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=y9nBuB7ZaXk)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=sSgkqaqSCpU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
