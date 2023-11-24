@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Vittupidi | Dance Party | Fejo | Rahul Raj | Shorts  #manoramafilmsongs #danceparty](https://www.youtube.com/watch?v=iswqq6FKh6Q)
-- [Vittupidi | Dance Party | Fejo | Rahul Raj | Shorts  #manoramafilmsongs #danceparty](https://www.youtube.com/watch?v=OLIskZi_7j0)
-- [Now In Theatres Phoenix Movie !! | Vidaathe Vichaaram #phoenixmovie](https://www.youtube.com/watch?v=WwT8_6OhREM)
-- [sadened for the day 😌  #KanneerpoovinuKootumay | #MrHacker | #shorts #ytshorts](https://www.youtube.com/watch?v=_uQ2NWTfW3M)
-- [Thazhvaram Manpoove | Short Video | Jackpot | Mammoootty | Yesudas | Malayalam Short Video](https://www.youtube.com/watch?v=13GeyeinwRI)
-- [Aaro Melle Love Song | Class By A Soldier | Vijay Yesudas | Swetha Mohan | Chinmayi Nair](https://www.youtube.com/watch?v=HMR72OQroII)
+- [കണ്ണുകൾ തന്ന ദൈവം നിന്റെ കണ്ണുനീർ കാണാതിരിക്കുമോ? | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=pb6xXvxBayA)
+- [Mounam Swaramaay | Aayushkkaalam | Ouseppachan | K J Yesudas | K S Chithra #SongOfTheDay](https://www.youtube.com/watch?v=vUbHhdNYiEk)
+- [Arayilotta Mundedutha Penne Video Song | Oru Sundhariyude Kadha | K. J. Yesudas | G Devarajan](https://www.youtube.com/watch?v=QyCFVYogP0s)
+- [Kayamkulam Kochunni Hit Movie Song | കാര്‍ത്തിക വിളക്കു കണ്ട്‌ | Kaarthika Vilakku Kandu | Sukumari](https://www.youtube.com/watch?v=gQouqckNDrI)
+- [Songs Of The Week | Aji Dennis | Christmas Carol Songs | Joji Johns | Christian melody Songs](https://www.youtube.com/watch?v=oVYMkn3ROp4)
+- [Akale Akale Neelakaasham Video Song | Aadyathe Kanmani | Jayaram | K J Yesudas | S Janaki](https://www.youtube.com/watch?v=u47PXGQnagI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
