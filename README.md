@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Now In Theatres Phoenix Movie !! | Vidaathe Vichaaram #phoenixmovie](https://www.youtube.com/watch?v=kCoTVVD789o)
-- [Akkarai Illaa - Kattumarakaran - Ilaiyaraaja - Hi-Res Audio](https://www.youtube.com/watch?v=4qq9rdjPQWY)
-- [prayer 🤲 for better days #KanneerpoovinuKootumay | #MrHacker | #shorts #ytshorts](https://www.youtube.com/watch?v=_Sq6__SL5n0)
-- [Ellam Ange | Fr. Severios Thomas | Shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=P0KiN3bf6-I)
-- [Raa chakkana Pekkali | Annan Thambi | Mammootty | Gopika | Lakshmi Rai | Rahul Raj](https://www.youtube.com/watch?v=JoQQ1u8J95U)
-- [പൊൻനാളമേ മിന്നാരമേ... | Fr. Shaji Thumpechirayil | Kester | #shortvideo #short](https://www.youtube.com/watch?v=Lc5dZKK5DC8)
+- [Vittupidi | Dance Party | Fejo | Rahul Raj | Shorts](https://www.youtube.com/watch?v=53YgQ0isKKk)
+- [Vittupidi | Dance Party | Rahul Raj |  Fejo  #manoramamusic](https://www.youtube.com/watch?v=hgKDMu_IJSE)
+- [Pachilakkadukalil | Sapadham | Mankombu Gopalakrishnan | Raveendran | Sujatha mohan | Evergreen Hits](https://www.youtube.com/watch?v=rvFPhDrRYhk)
+- [EVERGREEN HITS OF MG SREEKUMAR | HIT SONGS OF MG SREKUMAR | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=XGXQCSh_sbk)
+- [Chithramani Kattil | Symphony | Kaithapram | Deepak Dev | KS Chithra | P Jayachandran |Superhit Song](https://www.youtube.com/watch?v=3ba204Ge5v8)
+- [യാ ഹബ്ബി | Yaa Habbi | Super hit Song from the Movie Manithali | Prem Nazir | Seema](https://www.youtube.com/watch?v=2ylECyOnijE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
