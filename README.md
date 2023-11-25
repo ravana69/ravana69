@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [My Dress-Up Darling S01 EP01 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 250MB - 150MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176455-my-dress-up-darling-s01-ep01-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-250mb-150mb-esub-google-drive/&do=findComment&comment=356790)
-- [Leo &lpar;2023&rpar; TRUE WEB-DL - 1080p - AVC - UNTOUCHED - [Tamil + Telugu + Malayalam + Kannada] - DD+5.1&lpar;768kbps&rpar; Atmos - 9.1GB - ESub [GDrive]](https://www.1tamilmv.phd/index.php?/forums/topic/176454-leo-2023-true-web-dl-1080p-avc-untouched-tamil-telugu-malayalam-kannada-dd51768kbps-atmos-91gb-esub-gdrive/&do=findComment&comment=356789)
-- [Sabapathy.1941.Tamil.576p.AMZN.AVC.AAC2.0 - 2.8GB](https://www.1tamilmv.phd/index.php?/forums/topic/176453-sabapathy1941tamil576pamznavcaac20-28gb/&do=findComment&comment=356788)
-- [Unstoppable Limited Edition &lpar;2023&rpar; S03 EP02 Telugu TRUE WEB-DL - [1080p - 720p - AVC - &lpar;AAC 2.0&rpar; - 2.1GB - 1.1GB &amp; 670MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176452-unstoppable-limited-edition-2023-s03-ep02-telugu-true-web-dl-1080p-720p-avc-aac-20-21gb-11gb-670mb-esub/&do=findComment&comment=356787)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [25-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176451-movies-collection-all-languages-4k-1080p-720p-576p-480p-25-11-2023/&do=findComment&comment=356786)
+- [Kudukku 2025 &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.2GB - 750MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176438-kudukku-2025-2023-malayalam-true-web-dl-1080p-720p-avc-12gb-750mb-400mb/&do=findComment&comment=356803)
+- [Leo &lpar;2023&rpar; Tamil Proper TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 6.6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176409-leo-2023-tamil-proper-true-web-dl-1080p-720p-avc-hevc-dd51-atmos-768kbps-66gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=356802)
+- [Hubble&#39;s Ai Vision Unveils Crystal Clear Images of Rare Metallic Asteroid Worth at $10K Quadrillion](https://www.1tamilmv.phd/index.php?/forums/topic/159731-hubbles-ai-vision-unveils-crystal-clear-images-of-rare-metallic-asteroid-worth-at-10k-quadrillion/&do=findComment&comment=356801)
+- [Ai Challenging Quantum Physics:The Notion of Death Doesn’t Exist And It Is Probably Just An Illusion](https://www.1tamilmv.phd/index.php?/forums/topic/159730-ai-challenging-quantum-physicsthe-notion-of-death-doesn%E2%80%99t-exist-and-it-is-probably-just-an-illusion/&do=findComment&comment=356800)
+- [Ai Scientists Uncover Mind-Blowing Discovery: Human Brain Constructs Structures in 11 Dimensions](https://www.1tamilmv.phd/index.php?/forums/topic/159729-ai-scientists-uncover-mind-blowing-discovery-human-brain-constructs-structures-in-11-dimensions/&do=findComment&comment=356799)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
