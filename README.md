@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Bad Manners &lpar;2023&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176432-bad-manners-2023-kannada-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=356816)
 - [[🔥FIRST ON NET] Odiyan &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K - 1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 7GB - 3.6GB &amp; 1.9B] - [x264 - 950MB &amp; 450MB] - [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176459-%F0%9F%94%A5first-on-net-odiyan-2023-telugu-true-web-dl-4k-1080p-720p-avc-aac-20-7gb-36gb-19b-x264-950mb-450mb-google-drive/&do=findComment&comment=356815)
 - [Tantiram &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.3GB &amp; 1.6GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176446-tantiram-2023-true-web-dl-1080p-720p-avc-tamil-telugu-malayalam-kannada-dd51-192kbps-23gb-16gb-x264-700mb-400mb-esub/&do=findComment&comment=356813)
 - [SOLO &lpar;2011&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.9GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176450-solo-2011-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-69gb-esub/&do=findComment&comment=356812)
 - [📌 ATHARINTIKI DAAREDI &lpar;2013&rpar; &lpar;Music Video Album&rpar; - 1080P - BLU-RAY - UNTOUCHED BDREUMX - AVC - DTS-HD® MA 5.1 @ 2929 Kbps - ESubs - 6.5GB](https://www.1tamilmv.phd/index.php?/forums/topic/173194-%F0%9F%93%8C-atharintiki-daaredi-2013-music-video-album-1080p-blu-ray-untouched-bdreumx-avc-dts-hd%C2%AE-ma-51-2929-kbps-esubs-65gb/&do=findComment&comment=356811)
-- [📌 LEO &lpar;2023&rpar; &lpar;Tam + Tel + Mal + Kan + Hin&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - HQ 1080P - NF - WEBDL - DDP ATMOS 5.1 @ 768 Kbps - MSubs - 1.6GB](https://www.1tamilmv.phd/index.php?/forums/topic/176445-%F0%9F%93%8C-leo-2023-tam-tel-mal-kan-hin-music-video-album-hq-1080p-nf-webdl-ddp-atmos-51-768-kbps-msubs-16gb/&do=findComment&comment=356810)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
