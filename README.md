@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Warriorr &lpar;2022&rpar; Tamil &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 10GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176456-the-warriorr-2022-tamil-original-version-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-10gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356809)
 - [The Warriorr &lpar;2022&rpar; Tamil &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 10GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176456-the-warriorr-2022-tamil-original-version-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-10gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356808)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [21-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176372-movies-collection-all-languages-4k-1080p-720p-576p-480p-21-11-2023/&do=findComment&comment=356807)
 - [[60FPS] Leo &lpar;2023&rpar; Tamil - WEBRip - 1080p HQ - x265 - HEVC - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 11.3GB - MSubs](https://www.1tamilmv.phd/index.php?/forums/topic/176457-60fps-leo-2023-tamil-webrip-1080p-hq-x265-hevc-dd51-atmos-768kbps-113gb-msubs/&do=findComment&comment=356806)
 - [The Warriorr &lpar;2022&rpar; Tamil &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 10GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176456-the-warriorr-2022-tamil-original-version-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-10gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356805)
-- [LGM - Let&#39;s Get Married &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Telugu + Hindi] - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176449-lgm-lets-get-married-2023-true-web-dl-1080p-720p-avc-telugu-hindi-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356804)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
