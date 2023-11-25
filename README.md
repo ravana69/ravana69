@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [[HDR10-Dovi|60FPS] Leo &lpar;2023&rpar; 1080p NF WEB.DL DDP5.1 Atmos Esubs x265 HEVC - 13.9 GB | 3.1 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176464-hdr10-dovi60fps-leo-2023-1080p-nf-webdl-ddp51-atmos-esubs-x265-hevc-139-gb-31-gb/&do=findComment&comment=356827)
+- [The Warriorr &lpar;2022&rpar; AMZN WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 9.6 GB | 5.1 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176463-the-warriorr-2022-amzn-web-dl-ddp51-esubs-x264-1080p-720p-96-gb-51-gb/&do=findComment&comment=356826)
 - [Amigos &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176458-amigos-2023-tamil-true-web-dl-1080p-720p-avc-hevc-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356825)
 - [Amigos &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176458-amigos-2023-tamil-true-web-dl-1080p-720p-avc-hevc-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356824)
 - [Seema Tapakai &lpar;2011&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps &amp; DD2.0 - 224Kbps&rpar; - 6.4GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176462-seema-tapakai-2011-telugu-dvd9-untouched-480p-dd51-448kbps-dd20-224kbps-64gb-esub/&do=findComment&comment=356823)
-- [Seema Tapakai &lpar;2011&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps &amp; DD2.0 - 224Kbps&rpar; - 6.4GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176462-seema-tapakai-2011-telugu-dvd9-untouched-480p-dd51-448kbps-dd20-224kbps-64gb-esub/&do=findComment&comment=356822)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP56 DAY 55 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.7GB - 895MB &amp; 381MB | 25-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176461-bigg-boss-tamil-s07-ep56-day-55-true-web-dl-1080p-720p-480p-avc-untouched-17gb-895mb-381mb-25-11-2023/&do=findComment&comment=356821)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
