@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [DIL &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps &amp; DD2.0 - 192Kbps&rpar; - 6.4GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176443-dil-2003-telugu-dvd9-untouched-480p-dd51-448kbps-dd20-192kbps-64gb-esub/&do=findComment&comment=356770)
+- [Kuiko &lpar;2023&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176431-kuiko-2023-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=356769)
 - [Leo 2023 Tamil DTS -MA 5.1 Bluray &lpar;Fanmade&rpar; &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176444-leo-2023-tamil-dts-ma-51-bluray-fanmade-direct-download/&do=findComment&comment=356768)
 - [Sila Nodigalil &lpar;2023&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176430-sila-nodigalil-2023-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=356767)
 - [Kuiko &lpar;2023&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176431-kuiko-2023-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=356766)
-- [Kudukku 2025 &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.2GB - 750MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176438-kudukku-2025-2023-malayalam-true-web-dl-1080p-720p-avc-12gb-750mb-400mb/&do=findComment&comment=356765)
-- [Sapta Sagaralu Dhaati - Side B &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176307-sapta-sagaralu-dhaati-side-b-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=356764)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
