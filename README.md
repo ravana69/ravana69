@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Ganamanu Njan Song | Kunchacko Boban | Kavya Madhavan | #malayalamsongs | #youtubeshorts](https://www.youtube.com/watch?v=VF17uQrp_ZU)
-- [Prathyasayoditha | Shorts | Diya Mary Alex  #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=mkgriuBh6JI)
-- [Akale Akale Neelakaasham | Aadyathe Kanmani | Jayaram | K J Yesudas | S Janaki | #shortvideo](https://www.youtube.com/watch?v=PkCC6etT8Tk)
-- [Yeshu En Swantham | Shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=35cpbuQgHoQ)
-- [താളമേളങ്ങൾ കൊണ്ട് മനസിൽ മത്തുപിടിപ്പിക്കും സുരേഷ് പീറ്റേഴ്‌സിന്റെ ദിലീപ് ചിത്രങ്ങളിലെ ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=hO0Zqqy44g4)
-- [ഗാനമാണു ഞാൻ | Ganamanu Njan... | Iruvattam Manavatti Songs | Kunchacko Boban | Kavya Madhavan](https://www.youtube.com/watch?v=qHOTKSx6rPQ)
+- [ഇന്നോളം കൈപിടിച്ച്  നടത്തിയ ദൈവം ഇനിയും  നിന്നെ കൈപിടിച്ച് നടത്തും.| Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=u04OkH5kmoA)
+- [O Manomi | Raama Raavanan | Vidhu Prathap | Kaithapram](https://www.youtube.com/watch?v=3BeEd18pbUw)
+- [Thumbayum Thulasiyum | Megham | Ouseppachan | K S Chithra | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=YI7mgFIqpAI)
+- [Mazhaye Thoomazhaye Video Song | Pattam Pole | Dulquer Salmaan | Malavika Mohanan | M Jayachandran](https://www.youtube.com/watch?v=ujhMyQrxUHY)
+- [Vathilil Aa Vaathilil with Narration | Ustad Hotel | Haricharan | Gopi Sunder | Rafeeq Ahamad](https://www.youtube.com/watch?v=NMM9fbCVFeA)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 25th of November 2023](https://www.youtube.com/watch?v=L5VfUORfV1E)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
