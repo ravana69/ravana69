@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [SOLO &lpar;2011&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.9GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176450-solo-2011-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-69gb-esub/&do=findComment&comment=356812)
 - [📌 ATHARINTIKI DAAREDI &lpar;2013&rpar; &lpar;Music Video Album&rpar; - 1080P - BLU-RAY - UNTOUCHED BDREUMX - AVC - DTS-HD® MA 5.1 @ 2929 Kbps - ESubs - 6.5GB](https://www.1tamilmv.phd/index.php?/forums/topic/173194-%F0%9F%93%8C-atharintiki-daaredi-2013-music-video-album-1080p-blu-ray-untouched-bdreumx-avc-dts-hd%C2%AE-ma-51-2929-kbps-esubs-65gb/&do=findComment&comment=356811)
 - [📌 LEO &lpar;2023&rpar; &lpar;Tam + Tel + Mal + Kan + Hin&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - HQ 1080P - NF - WEBDL - DDP ATMOS 5.1 @ 768 Kbps - MSubs - 1.6GB](https://www.1tamilmv.phd/index.php?/forums/topic/176445-%F0%9F%93%8C-leo-2023-tam-tel-mal-kan-hin-music-video-album-hq-1080p-nf-webdl-ddp-atmos-51-768-kbps-msubs-16gb/&do=findComment&comment=356810)
 - [The Warriorr &lpar;2022&rpar; Tamil &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 10GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176456-the-warriorr-2022-tamil-original-version-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-10gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356809)
 - [The Warriorr &lpar;2022&rpar; Tamil &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 10GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176456-the-warriorr-2022-tamil-original-version-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-10gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356808)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [21-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176372-movies-collection-all-languages-4k-1080p-720p-576p-480p-21-11-2023/&do=findComment&comment=356807)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
