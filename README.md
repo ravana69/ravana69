@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [താളമേളങ്ങൾ കൊണ്ട് മനസിൽ മത്തുപിടിപ്പിക്കും സുരേഷ് പീറ്റേഴ്‌സിന്റെ ദിലീപ് ചിത്രങ്ങളിലെ ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=hO0Zqqy44g4)
 - [ഗാനമാണു ഞാൻ | Ganamanu Njan... | Iruvattam Manavatti Songs | Kunchacko Boban | Kavya Madhavan](https://www.youtube.com/watch?v=qHOTKSx6rPQ)
 - [Varunnitha Nadhan | Jassie Gift | Lekshmi Jayan | Samson Silva #shortsvideo](https://www.youtube.com/watch?v=sqVMnH-icus)
 - [memories of people 😖😭 #KanneerpoovinuKootumay | #MrHacker | #shorts #ytshorts](https://www.youtube.com/watch?v=_nytCbi35Bk)
 - [Ragavum Thalavum | രാഗവും താളവും Malayalam Video Song | Sathyan Anthikkad | Yesudas, S. Janaki](https://www.youtube.com/watch?v=MP6ZFYjFz_s)
 - [ശ്രോതാക്കളറിയാതെ അവരുടെ ഹൃദയം കീഴടക്കിയ മലയാളസിനിമയിലെ ആരും കേൾക്കാൻ കൊതിക്കുന്ന അമൂല്യ ഗാനങ്ങൾ](https://www.youtube.com/watch?v=mAQp89F7xnk)
-- [ഏത് ഭാഷ വന്നാലും ഏത് ഫാഷൻ വന്നാലും മലയാളികൾ മറക്കാതെ നെഞ്ചോട് ചേർക്കുന്ന മനംകുളിർപ്പിക്കും ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=ccR2qvWYrUo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
