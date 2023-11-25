@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aradhya (Malayalam) - Rainy Lofi | Kushi (Malayalam) | Hesham Abdul Wahab | Abhishek Martyn](https://www.youtube.com/watch?v=hMtDixp4ykA)
+- [console them 🤗🙂  #KanneerpoovinuKootumay | #MrHacker | #shorts #ytshorts](https://www.youtube.com/watch?v=lEgdfY4bq88)
+- [Mattuponkal Masam | Phantom Paily | S P B | Chithra | Mammootty | Deva](https://www.youtube.com/watch?v=CnGMp4z5WrI)
 - [Aradhana | Rev. Dr. Binoy Checkonthayil CMI | Mithila Michael | Minus Track With Chorus](https://www.youtube.com/watch?v=HZUyYQHSUwk)
 - [രാവിലെ കേൾക്കാൻ ഏറ്റവും നല്ല ഗാനങ്ങൾ daily worship songs | christian devotional songs malayalam](https://www.youtube.com/watch?v=v11FPJj71q0)
 - [Christmas Video Songs | Santhosh Panditt | Carol Songs Malayalam | Joji Johns | Christmas Songs](https://www.youtube.com/watch?v=JEBNX7F51lk)
-- [ഇന്നത്തെ ദിവസം നവംബർ  25 # എത്രയോ  മനോഹരം ഇതിലെ ഗാനങ്ങൾ കേട്ട് ഇരുന്നു പോകും #കേൾക്കാതെ പോകരുതേ](https://www.youtube.com/watch?v=XoSruoYuSaM)
-- [Japamala 25th of November 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 25th of November 23](https://www.youtube.com/watch?v=OtHb7RJy9ds)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=iAcSqR0BQDo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
