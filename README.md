@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Gopika Vasantham Thedi|His Highness Abdullah|Mohanlal|Gauthami|](https://www.youtube.com/watch?v=PaOH6Xvekj4)
+- [Kaliyodam Chanchadum(Hey Lelo) | Crazy Gopalan | Dileep | Radha Varma | Rahul Raj](https://www.youtube.com/watch?v=6Itsu_WwwOM)
 - [25 November 2023](https://www.youtube.com/watch?v=rMBSjmm7n_I)
 - [ഒന്നാം രാഗം പാടി Onnaam Raagam Paadi Thoovaanathumbikal Audio Song KS Chithra G Venugopal](https://www.youtube.com/watch?v=fsZS66MafCE)
 - [Jhalakraani | Mannar Mathai Speaking | Jaya Jaya Jaya Jaya Hey | Mukesh #SainaMixpod](https://www.youtube.com/watch?v=2JX8opfxYQ8)
 - [ഇന്നോളം കൈപിടിച്ച്  നടത്തിയ ദൈവം ഇനിയും  നിന്നെ കൈപിടിച്ച് നടത്തും.| Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=u04OkH5kmoA)
-- [O Manomi | Raama Raavanan | Vidhu Prathap | Kaithapram](https://www.youtube.com/watch?v=3BeEd18pbUw)
-- [Thumbayum Thulasiyum | Megham | Ouseppachan | K S Chithra | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=YI7mgFIqpAI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
