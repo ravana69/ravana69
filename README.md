@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Arayilotta Mundedutha Penne Song Shorts | Oru Sundhariyude Kadha | K. J. Yesudas #shorts](https://www.youtube.com/watch?v=cqZrr-KY6Fw)
 - [Manassilayiram |Lyrical Video| Bhaskar The Rascal | Mammootty |Afsal| Harinarayanan BK | Deepak Dev](https://www.youtube.com/watch?v=X8yC_iAixQE)
 - [Aradhya (Malayalam) - Rainy Lofi | Kushi (Malayalam) | Hesham Abdul Wahab | Abhishek Martyn](https://www.youtube.com/watch?v=hMtDixp4ykA)
 - [console them 🤗🙂  #KanneerpoovinuKootumay | #MrHacker | #shorts #ytshorts](https://www.youtube.com/watch?v=lEgdfY4bq88)
 - [Mattuponkal Masam | Phantom Paily | S P B | Chithra | Mammootty | Deva](https://www.youtube.com/watch?v=CnGMp4z5WrI)
 - [Aradhana | Rev. Dr. Binoy Checkonthayil CMI | Mithila Michael | Minus Track With Chorus](https://www.youtube.com/watch?v=HZUyYQHSUwk)
-- [രാവിലെ കേൾക്കാൻ ഏറ്റവും നല്ല ഗാനങ്ങൾ daily worship songs | christian devotional songs malayalam](https://www.youtube.com/watch?v=v11FPJj71q0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
