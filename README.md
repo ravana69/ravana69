@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ശ്രോതാക്കളറിയാതെ അവരുടെ ഹൃദയം കീഴടക്കിയ മലയാളസിനിമയിലെ ആരും കേൾക്കാൻ കൊതിക്കുന്ന അമൂല്യ ഗാനങ്ങൾ](https://www.youtube.com/watch?v=mAQp89F7xnk)
+- [ഏത് ഭാഷ വന്നാലും ഏത് ഫാഷൻ വന്നാലും മലയാളികൾ മറക്കാതെ നെഞ്ചോട് ചേർക്കുന്ന മനംകുളിർപ്പിക്കും ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=ccR2qvWYrUo)
 - [Arayilotta Mundedutha Penne Song Shorts | Oru Sundhariyude Kadha | K. J. Yesudas #shorts](https://www.youtube.com/watch?v=cqZrr-KY6Fw)
 - [Manassilayiram |Lyrical Video| Bhaskar The Rascal | Mammootty |Afsal| Harinarayanan BK | Deepak Dev](https://www.youtube.com/watch?v=X8yC_iAixQE)
 - [Aradhya (Malayalam) - Rainy Lofi | Kushi (Malayalam) | Hesham Abdul Wahab | Abhishek Martyn](https://www.youtube.com/watch?v=hMtDixp4ykA)
 - [console them 🤗🙂  #KanneerpoovinuKootumay | #MrHacker | #shorts #ytshorts](https://www.youtube.com/watch?v=lEgdfY4bq88)
-- [Mattuponkal Masam | Phantom Paily | S P B | Chithra | Mammootty | Deva](https://www.youtube.com/watch?v=CnGMp4z5WrI)
-- [Aradhana | Rev. Dr. Binoy Checkonthayil CMI | Mithila Michael | Minus Track With Chorus](https://www.youtube.com/watch?v=HZUyYQHSUwk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
