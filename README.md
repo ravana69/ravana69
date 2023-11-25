@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ganamanu Njan Song | Kunchacko Boban | Kavya Madhavan | #malayalamsongs | #youtubeshorts](https://www.youtube.com/watch?v=VF17uQrp_ZU)
+- [Prathyasayoditha | Shorts | Diya Mary Alex  #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=mkgriuBh6JI)
+- [Akale Akale Neelakaasham | Aadyathe Kanmani | Jayaram | K J Yesudas | S Janaki | #shortvideo](https://www.youtube.com/watch?v=PkCC6etT8Tk)
+- [Yeshu En Swantham | Shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=35cpbuQgHoQ)
 - [താളമേളങ്ങൾ കൊണ്ട് മനസിൽ മത്തുപിടിപ്പിക്കും സുരേഷ് പീറ്റേഴ്‌സിന്റെ ദിലീപ് ചിത്രങ്ങളിലെ ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=hO0Zqqy44g4)
 - [ഗാനമാണു ഞാൻ | Ganamanu Njan... | Iruvattam Manavatti Songs | Kunchacko Boban | Kavya Madhavan](https://www.youtube.com/watch?v=qHOTKSx6rPQ)
-- [Varunnitha Nadhan | Jassie Gift | Lekshmi Jayan | Samson Silva #shortsvideo](https://www.youtube.com/watch?v=sqVMnH-icus)
-- [memories of people 😖😭 #KanneerpoovinuKootumay | #MrHacker | #shorts #ytshorts](https://www.youtube.com/watch?v=_nytCbi35Bk)
-- [Ragavum Thalavum | രാഗവും താളവും Malayalam Video Song | Sathyan Anthikkad | Yesudas, S. Janaki](https://www.youtube.com/watch?v=MP6ZFYjFz_s)
-- [ശ്രോതാക്കളറിയാതെ അവരുടെ ഹൃദയം കീഴടക്കിയ മലയാളസിനിമയിലെ ആരും കേൾക്കാൻ കൊതിക്കുന്ന അമൂല്യ ഗാനങ്ങൾ](https://www.youtube.com/watch?v=mAQp89F7xnk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
