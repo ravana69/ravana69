@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [LGM - Let&#39;s Get Married &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Telugu + Hindi] - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176449-lgm-lets-get-married-2023-true-web-dl-1080p-720p-avc-telugu-hindi-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356804)
 - [Kudukku 2025 &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.2GB - 750MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176438-kudukku-2025-2023-malayalam-true-web-dl-1080p-720p-avc-12gb-750mb-400mb/&do=findComment&comment=356803)
 - [Leo &lpar;2023&rpar; Tamil Proper TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 6.6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - Soft ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176409-leo-2023-tamil-proper-true-web-dl-1080p-720p-avc-hevc-dd51-atmos-768kbps-66gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-soft-esub/&do=findComment&comment=356802)
 - [Hubble&#39;s Ai Vision Unveils Crystal Clear Images of Rare Metallic Asteroid Worth at $10K Quadrillion](https://www.1tamilmv.phd/index.php?/forums/topic/159731-hubbles-ai-vision-unveils-crystal-clear-images-of-rare-metallic-asteroid-worth-at-10k-quadrillion/&do=findComment&comment=356801)
 - [Ai Challenging Quantum Physics:The Notion of Death Doesn’t Exist And It Is Probably Just An Illusion](https://www.1tamilmv.phd/index.php?/forums/topic/159730-ai-challenging-quantum-physicsthe-notion-of-death-doesn%E2%80%99t-exist-and-it-is-probably-just-an-illusion/&do=findComment&comment=356800)
-- [Ai Scientists Uncover Mind-Blowing Discovery: Human Brain Constructs Structures in 11 Dimensions](https://www.1tamilmv.phd/index.php?/forums/topic/159729-ai-scientists-uncover-mind-blowing-discovery-human-brain-constructs-structures-in-11-dimensions/&do=findComment&comment=356799)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
