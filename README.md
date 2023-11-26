@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manikyakallal Video Song | Varnapakittu | Mohanlal | Divya Unni | MG Sreekumar | Swarnalatha](https://www.youtube.com/watch?v=-45wGna6Y58)
 - [Kannadiyattil | Vachalam (1997) | Kaithapram | Johnson | Minmini | Maathu | Malayalam Song](https://www.youtube.com/watch?v=zE63495zz4o)
 - [Anuraga Madhuchashakam Video Song | Bhargavi Nilayam | S. Janaki | MS Baburaj | P Bhaskaran](https://www.youtube.com/watch?v=OvjGEsUz_cg)
 - [നിനക്കെന്തഴകാണഴകേ.....❤❤❤  #viralthottalviriyunna #phantommovie  #everlastingmalayalammelodysongs](https://www.youtube.com/watch?v=41uueYJtFYM)
 - [Feeling alone just with memories 😶😐#KanneerpoovinuKootumay | #MrHacker | #shorts #ytshorts](https://www.youtube.com/watch?v=e6Us2Z5sKAY)
 - [പാട്ടുപെട്ടി | Paattupetti Vol 35 | Malayalam Film Songs](https://www.youtube.com/watch?v=cdk75VEtX2g)
-- [Christian songs status](https://www.youtube.com/watch?v=mLggOHi6XM8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
