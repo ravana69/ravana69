@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Gremlins &lpar;1984&rpar; AC-3 Hindi-Telugu-DTS 5.1 English 1080p Blu-Ray Remux Esubs 20GB [G-Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176474-gremlins-1984-ac-3-hindi-telugu-dts-51-english-1080p-blu-ray-remux-esubs-20gb-g-drive/&do=findComment&comment=356859)
+- [Odiyan &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176473-odiyan-2023-telugu-true-web-dl-1080p-720p-avc-28gb-14gb-x264-700mb-400mb/&do=findComment&comment=356858)
+- [Dahanam &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176472-dahanam-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-25gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=356857)
+- [Detective Karthik &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176471-detective-karthik-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356856)
 - [Endrendrum Punnagai &lpar;2013&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 5.7GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176469-endrendrum-punnagai-2013-tamil-true-web-dl-1080p-hq-avc-untouched-ddp20-57gb-gdflix/&do=findComment&comment=356855)
-- [Amigos &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176458-amigos-2023-tamil-true-web-dl-1080p-720p-avc-hevc-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356854)
-- [The Warriorr &lpar;2022&rpar; Tamil &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 10GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176456-the-warriorr-2022-tamil-original-version-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-10gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356853)
-- [Amigos &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176458-amigos-2023-tamil-true-web-dl-1080p-720p-avc-hevc-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356852)
-- [Beware of Online Seduction It Could Be Ai Manipulating You](https://www.1tamilmv.phd/index.php?/forums/topic/163326-beware-of-online-seduction-it-could-be-ai-manipulating-you/&do=findComment&comment=356851)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
