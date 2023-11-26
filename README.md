@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Swathi Mutthina Male Haniye &lpar;2023&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176434-swathi-mutthina-male-haniye-2023-kannada-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=356839)
+- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;43-45&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176349-vera-maari-office-2023-s01-ep-43-45-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=356838)
 - [Seema Tapakai &lpar;2011&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps &amp; DD2.0 - 224Kbps&rpar; - 6.4GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176462-seema-tapakai-2011-telugu-dvd9-untouched-480p-dd51-448kbps-dd20-224kbps-64gb-esub/&do=findComment&comment=356837)
 - [Striker &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - Kbps&rpar; - 2.5GB - 1.3GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176448-striker-2023-tamil-true-web-dl-1080p-720p-avc-dd51-kbps-25gb-13gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356836)
 - [LGM - Let&#39;s Get Married &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Telugu + Hindi] - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176449-lgm-lets-get-married-2023-true-web-dl-1080p-720p-avc-telugu-hindi-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356835)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP56 DAY 55 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.7GB - 895MB &amp; 381MB | 25-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176461-bigg-boss-tamil-s07-ep56-day-55-true-web-dl-1080p-720p-480p-avc-untouched-17gb-895mb-381mb-25-11-2023/&do=findComment&comment=356834)
-- [80s Buildup &lpar;2023&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176426-80s-buildup-2023-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=356833)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
