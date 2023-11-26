@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പാട്ടുപെട്ടി | Paattupetti Vol 35 | Malayalam Film Songs](https://www.youtube.com/watch?v=cdk75VEtX2g)
+- [KARAOKE | താരങ്ങൾ പുഞ്ചിരി തൂകിയ രാത്രി | ROY PUTHUR | ROJI PONNACHAN #christmas2023 #royputhur](https://www.youtube.com/watch?v=vPQ8PCwVDDU)
 - [old memories with people 🙂😓 #KanneerpoovinuKootumay | #MrHacker | #shorts #ytshorts](https://www.youtube.com/watch?v=myslhw3TTY4)
 - [Thanga Magan   Baashha   Deva   Hi Res Audio](https://www.youtube.com/watch?v=ZZr0Yw1ylYE)
 - [Oru Pushpam Mathramen | Pareeksha | Prem Nazeer | P Bhaskaran | Yesudas](https://www.youtube.com/watch?v=DbWbpXrc_dI)
 - [Tu Hai Balwan | Shorts | Jijy Abraham  #manoramachristiandevotionalsongs #shorts](https://www.youtube.com/watch?v=D9-CDEIVkdk)
-- [നോമ്പിന് ഒരുങ്ങുന്നവർ കേൾക്കേണ്ട ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Kester](https://www.youtube.com/watch?v=kvXDLiCKCQo)
-- [Japamala 26th of November 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 26th  of November 23](https://www.youtube.com/watch?v=aMugtr0uC74)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
