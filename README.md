@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [SOLO &lpar;2011&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.9GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176450-solo-2011-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-69gb-esub/&do=findComment&comment=356870)
 - [Endrendrum Punnagai &lpar;2013&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 5.7GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176469-endrendrum-punnagai-2013-tamil-true-web-dl-1080p-hq-avc-untouched-ddp20-57gb-gdflix/&do=findComment&comment=356869)
 - [Amigos &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176458-amigos-2023-tamil-true-web-dl-1080p-720p-avc-hevc-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356868)
 - [Richie Gadi Pelli &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.3GB &amp; 1.6GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176478-richie-gadi-pelli-2023-telugu-true-web-dl-1080p-720p-avc-dd51-384kbps-23gb-16gb-x264-700mb-400mb-esub/&do=findComment&comment=356867)
 - [Dhruva Nakshathram &lpar;2023&rpar; Telugu Full Album - [FLAC -24Bit-48kHz &amp; 16Bit-44.1kHz - 223MB &amp; 116MB] - Harris Jayaraj Musical](https://www.1tamilmv.phd/index.php?/forums/topic/176477-dhruva-nakshathram-2023-telugu-full-album-flac-24bit-48khz-16bit-441khz-223mb-116mb-harris-jayaraj-musical/&do=findComment&comment=356866)
-- [Dhruva Natchathiram &lpar;2023&rpar; Tamil Full Album - [FLAC -24Bit-48kHz &amp; 16Bit-44.1kHz - 223MB &amp; 116MB] - Harris Jayaraj Musical](https://www.1tamilmv.phd/index.php?/forums/topic/176476-dhruva-natchathiram-2023-tamil-full-album-flac-24bit-48khz-16bit-441khz-223mb-116mb-harris-jayaraj-musical/&do=findComment&comment=356865)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
