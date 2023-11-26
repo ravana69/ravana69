@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Bhagavanth Kesari &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 7.3GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176412-bhagavanth-kesari-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-73gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356881)
+- [Leo &lpar;2023&rpar; Telugu &lpar;Original Version&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 6.6GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176410-leo-2023-telugu-original-version-true-web-dl-1080p-720p-avc-hevc-dd51-atmos-768kbps-66gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356880)
 - [Chiru Navvutho &lpar;2000&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 384Kbps&rpar; - 5.7GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176481-chiru-navvutho-2000-telugu-dvd9-untouched-480p-dd51-384kbps-57gb-esub/&do=findComment&comment=356879)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP57 DAY 56 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.5GB - 786MB &amp; 332MB | 26-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176480-bigg-boss-tamil-s07-ep57-day-56-true-web-dl-1080p-720p-480p-avc-untouched-15gb-786mb-332mb-26-11-2023/&do=findComment&comment=356878)
 - [The Legend of the Five &lpar;2020&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176475-the-legend-of-the-five-2020-hd-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=356877)
-- [Detective Karthik &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176471-detective-karthik-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356876)
-- [Dahanam &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176472-dahanam-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-25gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=356875)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
