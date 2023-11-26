@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Rama Rama Krishna Krishna &lpar;2009&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176470-rama-rama-krishna-krishna-2009-telugu-dvd9-untouched-480p-dd51-448kbps-7gb-esub/&do=findComment&comment=356845)
 - [[HDR10-Dovi|60FPS] Leo &lpar;2023&rpar; 1080p NF WEB.DL DDP5.1 Atmos Esubs x265 HEVC - 13.9 GB | 3.1 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176464-hdr10-dovi60fps-leo-2023-1080p-nf-webdl-ddp51-atmos-esubs-x265-hevc-139-gb-31-gb/&do=findComment&comment=356844)
 - [Endrendrum Punnagai &lpar;2013&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 5.7GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176469-endrendrum-punnagai-2013-tamil-true-web-dl-1080p-hq-avc-untouched-ddp20-57gb-gdflix/&do=findComment&comment=356843)
 - [🔰Vel &lpar;2007&rpar; AYN DVD9 Tamil - &lpar;DOLBY DIGITAL 5.1 &amp; DTS&rpar; ESUBS - 7GB](https://www.1tamilmv.phd/index.php?/forums/topic/155255-%F0%9F%94%B0vel-2007-ayn-dvd9-tamil-dolby-digital-51-dts-esubs-7gb/&do=findComment&comment=356842)
 - [Sabapathy.1941.Tamil.576p.AMZN.AVC.AAC2.0 - 2.8GB](https://www.1tamilmv.phd/index.php?/forums/topic/176453-sabapathy1941tamil576pamznavcaac20-28gb/&do=findComment&comment=356841)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [26-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176468-movies-collection-all-languages-4k-1080p-720p-576p-480p-26-11-2023/&do=findComment&comment=356840)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
