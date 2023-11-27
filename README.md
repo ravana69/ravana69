@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP86 DAY 85 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 950MB - 548MB &amp; 220MB | 27-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176494-bigg-boss-telugu-s07-ep86-day-85-true-web-dl-1080p-720p-480p-avc-untouched-950mb-548mb-220mb-27-11-2023/&do=findComment&comment=356920)
 - [Die Hard Pentalogy &lpar;1988 - 2013&rpar; Blu-Ray&#39;s- 720p - [Tamil + Telugu &lpar;2&rpar; + Hindi + Eng] - 5.5GB &amp; 1.9GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176492-die-hard-pentalogy-1988-2013-blu-rays-720p-tamil-telugu-2-hindi-eng-55gb-19gb-esub/&do=findComment&comment=356919)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP58 DAY 57 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 535MB &amp; 213MB | 27-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176493-bigg-boss-tamil-s07-ep58-day-57-true-web-dl-1080p-720p-480p-avc-untouched-1gb-535mb-213mb-27-11-2023/&do=findComment&comment=356918)
 - [Cupid &lpar;2020&rpar; &lpar;UnCut HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176490-cupid-2020-uncut-hd-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=356917)
 - [Die Hard Pentalogy &lpar;1988 - 2013&rpar; Blu-Ray&#39;s- 720p - [Tamil + Telugu &lpar;2&rpar; + Hindi + Eng] - 5.5GB &amp; 1.9GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176492-die-hard-pentalogy-1988-2013-blu-rays-720p-tamil-telugu-2-hindi-eng-55gb-19gb-esub/&do=findComment&comment=356916)
-- [Dhruva Natchathiram &lpar;2023&rpar; Tamil Full Album - [FLAC -24Bit-48kHz &amp; 16Bit-44.1kHz - 223MB &amp; 116MB] - Harris Jayaraj Musical](https://www.1tamilmv.phd/index.php?/forums/topic/176476-dhruva-natchathiram-2023-tamil-full-album-flac-24bit-48khz-16bit-441khz-223mb-116mb-harris-jayaraj-musical/&do=findComment&comment=356915)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
