@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Yeshu En Swantham | Shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=hmcfowOjkC8)
+- [​ഇരുപതു വയസ്സുള്ള ചിത്രയുടെ ഓർമ്മയുമായി ഡോക്ടർ അമ്മിണി | Paadiyum Paranjum | Malayala Manorama](https://www.youtube.com/watch?v=XpuFrkYEQmM)
+- [Aliyaarude Omanabeevi | Harmonium Cover by Sharan Appus #shortsfeed #shorts #instrumental #harmonium](https://www.youtube.com/watch?v=wacoiVa2sao)
+- [Malayittu Mala Kayarum | Audio Jukebox | P Jayachandran | Ayyappa Devotional Songs | Sabarimala](https://www.youtube.com/watch?v=8rBMrgZpXsI)
 - [Theeppori Pambaram Video Song | CID Moosa | Dileep | KJ Yesudas | Vidyasagar | Gireesh Puthenchery](https://www.youtube.com/watch?v=Q70eR-r9tHY)
 - [Rabbi Re Ralli | Yaraana | Anu Malik | Udit Narayan & Kavita Krishnamurthy | Hi-Res Audio](https://www.youtube.com/watch?v=4amul9_BTs4)
-- [Aathmaavil Thengunnallo | Vachalam |Kaithapram |Johnson | K J Yesudas |Malayalam Sad Songs](https://www.youtube.com/watch?v=JzXxSPfZqLg)
-- [സ്വപ്നം വെറുമൊരു സ്വപ്നം| Swapnam Verumoru | Prema Geethangal Malayalam Movie Song | Yesudas,Janaki](https://www.youtube.com/watch?v=ZTfjtWnPlzw)
-- [Akame Video Song | Manasammatham | Bonny Louis | Nitin K Siva | Neethusha A C | Manjusha Martin](https://www.youtube.com/watch?v=iPsz1lBB4Rc)
-- [Move your legs with Rockstars #Halaballoo #RDX #shorts #ytshorts](https://www.youtube.com/watch?v=odGzVKOlhZI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
