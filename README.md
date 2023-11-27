@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Theeppori Pambaram Video Song | CID Moosa | Dileep | KJ Yesudas | Vidyasagar | Gireesh Puthenchery](https://www.youtube.com/watch?v=Q70eR-r9tHY)
+- [Rabbi Re Ralli | Yaraana | Anu Malik | Udit Narayan & Kavita Krishnamurthy | Hi-Res Audio](https://www.youtube.com/watch?v=4amul9_BTs4)
 - [Aathmaavil Thengunnallo | Vachalam |Kaithapram |Johnson | K J Yesudas |Malayalam Sad Songs](https://www.youtube.com/watch?v=JzXxSPfZqLg)
 - [സ്വപ്നം വെറുമൊരു സ്വപ്നം| Swapnam Verumoru | Prema Geethangal Malayalam Movie Song | Yesudas,Janaki](https://www.youtube.com/watch?v=ZTfjtWnPlzw)
 - [Move your legs with Rockstars #Halaballoo #RDX #shorts #ytshorts](https://www.youtube.com/watch?v=odGzVKOlhZI)
 - [അഭിമാനത്തോടെ മലയാളികൾ എന്നും കേൾക്കുന്ന മനസ്സിൽ പിടിച്ച ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=dabCQ5dVmKk)
-- [Manasse Ninte മനസ്സേ നിന്റെ | Veruthe Oru Pinakkam Malayalam Video Song, Sathyan Anthikkad,  Yesudas](https://www.youtube.com/watch?v=3jn6ewpko98)
-- [Aliyarude Omana Beevi | Vaanku  #shortsfeed #shorts #ousepachan #ramzan #lyricalvideo](https://www.youtube.com/watch?v=MlN__q0_dTg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
