@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Die Hard Pentalogy &lpar;1988 - 2013&rpar; Blu-Ray&#39;s- 720p - [Tamil + Telugu &lpar;2&rpar; + Hindi + Eng] - 5.5GB &amp; 1.9GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176492-die-hard-pentalogy-1988-2013-blu-rays-720p-tamil-telugu-2-hindi-eng-55gb-19gb-esub/&do=findComment&comment=356919)
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP58 DAY 57 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 535MB &amp; 213MB | 27-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176493-bigg-boss-tamil-s07-ep58-day-57-true-web-dl-1080p-720p-480p-avc-untouched-1gb-535mb-213mb-27-11-2023/&do=findComment&comment=356918)
 - [Cupid &lpar;2020&rpar; &lpar;UnCut HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176490-cupid-2020-uncut-hd-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=356917)
-- [Die Hard Pentalogy &lpar;1988 - 2013&rpar; Blu-Ray&#39;s- 720p - [Tamil + Telugu + Hindi + Eng] - 12GB &amp; 450MB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176492-die-hard-pentalogy-1988-2013-blu-rays-720p-tamil-telugu-hindi-eng-12gb-450mb-esub/&do=findComment&comment=356916)
+- [Die Hard Pentalogy &lpar;1988 - 2013&rpar; Blu-Ray&#39;s- 720p - [Tamil + Telugu &lpar;2&rpar; + Hindi + Eng] - 5.5GB &amp; 1.9GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176492-die-hard-pentalogy-1988-2013-blu-rays-720p-tamil-telugu-2-hindi-eng-55gb-19gb-esub/&do=findComment&comment=356916)
 - [Dhruva Natchathiram &lpar;2023&rpar; Tamil Full Album - [FLAC -24Bit-48kHz &amp; 16Bit-44.1kHz - 223MB &amp; 116MB] - Harris Jayaraj Musical](https://www.1tamilmv.phd/index.php?/forums/topic/176476-dhruva-natchathiram-2023-tamil-full-album-flac-24bit-48khz-16bit-441khz-223mb-116mb-harris-jayaraj-musical/&do=findComment&comment=356915)
-- [Smugglers &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Kor&rpar; - 3GB &amp; 1.5GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 500MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176491-smugglers-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-kor-3gb-15gb-x264-tamil-telugu-hindi-500mb-esub/&do=findComment&comment=356914)
-- [Tumbbad &lpar;2018&rpar; AMZN WEB DL H264 - [Tamil + Telugu + Hindi] DDP5.1 &lpar;640Kbps&rpar; MSub - [1080p - 6.8GB &amp; 4.6GB] [GDrive]](https://www.1tamilmv.phd/index.php?/forums/topic/168494-tumbbad-2018-amzn-web-dl-h264-tamil-telugu-hindi-ddp51-640kbps-msub-1080p-68gb-46gb-gdrive/&do=findComment&comment=356913)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
