@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Yeshu En Swantham | Shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=hmcfowOjkC8)
-- [​ഇരുപതു വയസ്സുള്ള ചിത്രയുടെ ഓർമ്മയുമായി ഡോക്ടർ അമ്മിണി | Paadiyum Paranjum | Malayala Manorama](https://www.youtube.com/watch?v=XpuFrkYEQmM)
-- [Aliyaarude Omanabeevi | Harmonium Cover by Sharan Appus #shortsfeed #shorts #instrumental #harmonium](https://www.youtube.com/watch?v=wacoiVa2sao)
-- [Malayittu Mala Kayarum | Audio Jukebox | P Jayachandran | Ayyappa Devotional Songs | Sabarimala](https://www.youtube.com/watch?v=8rBMrgZpXsI)
-- [Theeppori Pambaram Video Song | CID Moosa | Dileep | KJ Yesudas | Vidyasagar | Gireesh Puthenchery](https://www.youtube.com/watch?v=Q70eR-r9tHY)
-- [Rabbi Re Ralli | Yaraana | Anu Malik | Udit Narayan & Kavita Krishnamurthy | Hi-Res Audio](https://www.youtube.com/watch?v=4amul9_BTs4)
+- [Malayalam Christmas Carol Songs 2023 # Christmas Songs Malayalam](https://www.youtube.com/watch?v=cM2eTtRvLIU)
+- [Attinkarayorathu | Film song on Gayathri Veena | Vaikom Vijayalakshmi | Ilayaraja | Instrumental](https://www.youtube.com/watch?v=Lbbas3GSQ_Q)
+- [പ്രാർത്ഥന കേൾക്കുന്ന നിന്റെ ദൈവം ശക്തനാണ്. | Rev. Aneesh P Joseph | #shorts #motivationalvideo](https://www.youtube.com/watch?v=GpYbw-bWVio)
+- [Poomala Poonkuzhali | Neelaponman | S Janaki | Salil Chowdury #shorts](https://www.youtube.com/watch?v=YcIIM5JU0pY)
+- [Ponmuraliyoothum | Aaryan | Raghu Kumar | M G Sreekumar | Sujatha Mohan | Kaithapram #SongOfTheDay](https://www.youtube.com/watch?v=8OB9pnx9lCI)
+- [ദൈവസ്നേഹത്തെ അനുഭവിക്കാൻ മനുജന്‌  കൃപയേകും  ദൈവസ്നേഹ ഗീതങ്ങൾ  |Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=RbBZpDQ6yIA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
