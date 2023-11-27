@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kittu On Duty &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176485-kittu-on-duty-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=356889)
+- [The Legend of the Five &lpar;2020&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176475-the-legend-of-the-five-2020-hd-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=356888)
+- [Kittu On Duty &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176485-kittu-on-duty-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=356887)
 - [Sakalakala.Vallavan.1992.Tamil.576p.AMZN.H264.DDP.2.0.ESub - 2.8GB](https://www.1tamilmv.phd/index.php?/forums/topic/176484-sakalakalavallavan1992tamil576pamznh264ddp20esub-28gb/&do=findComment&comment=356886)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [27-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176483-movies-collection-all-languages-4k-1080p-720p-576p-480p-27-11-2023/&do=findComment&comment=356885)
-- [Richie Gadi Pelli &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.3GB &amp; 1.6GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176478-richie-gadi-pelli-2023-telugu-true-web-dl-1080p-720p-avc-dd51-384kbps-23gb-16gb-x264-700mb-400mb-esub/&do=findComment&comment=356884)
-- [Chiru Navvutho &lpar;2000&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 384Kbps&rpar; - 5.7GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176481-chiru-navvutho-2000-telugu-dvd9-untouched-480p-dd51-384kbps-57gb-esub/&do=findComment&comment=356883)
-- [Demon Slayer : Mugen Train Arc S02 EP&lpar;01-07&rpar; BR-Rip 10bit - [1080p - 720p - HEVC - Telugu - &lpar;AAC 2.0 - 128Kbps&rpar; - 300MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176482-demon-slayer-mugen-train-arc-s02-ep01-07-br-rip-10bit-1080p-720p-hevc-telugu-aac-20-128kbps-300mb-200mb-esub-google-drive/&do=findComment&comment=356882)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
