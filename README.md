@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aliyarude Omana Beevi | Vaanku  #shortsfeed #shorts #ousepachan #ramzan #lyricalvideo](https://www.youtube.com/watch?v=MlN__q0_dTg)
 - [ചപ്പാര മഞ്ഞത്തിൽ ആട സോപ്പന ലോഗത്തിൽ കൂട #kamalhaasan #urvashi #malayalamsongs](https://www.youtube.com/watch?v=RpmDOXpxFH4)
 - [Manjupole Maankunju Pole | Dhosth | Kunchacko Boban | Kavya Madhavan | Vidyasagar | Sreenivas](https://www.youtube.com/watch?v=NxTgX0aOnbw)
 - [Dance moves of rockstars  #Halaballoo #RDX #shorts #ytshorts](https://www.youtube.com/watch?v=BIaYvAw-5SU)
 - [Japamala 27th of November 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 27th of November 23](https://www.youtube.com/watch?v=cyW6N5GHkZ0)
 - [ഒരുപാട് നല്ല ഗാനങ്ങൾ ഇതിൽ ഉണ്ട് #ഇഷ്ടപെട്ടാൽ ഒന്ന് ഷെയർ ചെയ്യണേ](https://www.youtube.com/watch?v=a6wHNvA3MWQ)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=UcpH96zTTW4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
