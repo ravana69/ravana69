@@ -36,8 +36,8 @@
 - [Rabbi Re Ralli | Yaraana | Anu Malik | Udit Narayan & Kavita Krishnamurthy | Hi-Res Audio](https://www.youtube.com/watch?v=4amul9_BTs4)
 - [Aathmaavil Thengunnallo | Vachalam |Kaithapram |Johnson | K J Yesudas |Malayalam Sad Songs](https://www.youtube.com/watch?v=JzXxSPfZqLg)
 - [സ്വപ്നം വെറുമൊരു സ്വപ്നം| Swapnam Verumoru | Prema Geethangal Malayalam Movie Song | Yesudas,Janaki](https://www.youtube.com/watch?v=ZTfjtWnPlzw)
+- [Akame Video Song | Manasammatham | Bonny Louis | Nitin K Siva | Neethusha A C | Manjusha Martin](https://www.youtube.com/watch?v=iPsz1lBB4Rc)
 - [Move your legs with Rockstars #Halaballoo #RDX #shorts #ytshorts](https://www.youtube.com/watch?v=odGzVKOlhZI)
-- [അഭിമാനത്തോടെ മലയാളികൾ എന്നും കേൾക്കുന്ന മനസ്സിൽ പിടിച്ച ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=dabCQ5dVmKk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
