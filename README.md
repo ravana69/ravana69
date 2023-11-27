@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 28th November 23](https://www.youtube.com/watch?v=vm9GF77Ab2k)
 - [27 November 2023](https://www.youtube.com/watch?v=rqNLvU2BTnk)
 - [Thumbapoo Kattil  | Ninnishtam Ennishtam | Mohanlal | Kannur Rajan | KJ Yesudas | S Janaki](https://www.youtube.com/watch?v=GX4TQsMGN48)
 - [Enikkoru Nilavinte | Bhakthajanangalude Sradhakku | KS Chithra | Natesh Sankar|Jayakumar Chengamanad](https://www.youtube.com/watch?v=EiWu-_OXnhA)
 - [Malayalam Christmas Carol Songs 2023 # Christmas Songs Malayalam](https://www.youtube.com/watch?v=cM2eTtRvLIU)
 - [Attinkarayorathu | Film song on Gayathri Veena | Vaikom Vijayalakshmi | Ilayaraja | Instrumental](https://www.youtube.com/watch?v=Lbbas3GSQ_Q)
-- [പ്രാർത്ഥന കേൾക്കുന്ന നിന്റെ ദൈവം ശക്തനാണ്. | Rev. Aneesh P Joseph | #shorts #motivationalvideo](https://www.youtube.com/watch?v=GpYbw-bWVio)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
