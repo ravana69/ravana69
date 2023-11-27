@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kantara A Legend Chapter-1 First Look Teaser | RishabShetty|Ajaneesh| VijayKiragandur |Hombale Films](https://www.1tamilmv.phd/index.php?/forums/topic/176489-kantara-a-legend-chapter-1-first-look-teaser-rishabshettyajaneesh-vijaykiragandur-hombale-films/&do=findComment&comment=356907)
 - [Odiyan &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176473-odiyan-2023-telugu-true-web-dl-1080p-720p-avc-28gb-14gb-x264-700mb-400mb/&do=findComment&comment=356906)
 - [The Legend of the Five &lpar;2020&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176475-the-legend-of-the-five-2020-hd-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=356905)
 - [Kittu On Duty &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176485-kittu-on-duty-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=356904)
 - [Kantara A Legend Chapter-1 First Look Teaser | RishabShetty|Ajaneesh| VijayKiragandur |Hombale Films](https://www.1tamilmv.phd/index.php?/forums/topic/176489-kantara-a-legend-chapter-1-first-look-teaser-rishabshettyajaneesh-vijaykiragandur-hombale-films/&do=findComment&comment=356903)
-- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;46-48&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176487-vera-maari-office-2023-s01-ep-46-48-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=356902)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
