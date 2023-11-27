@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aathmaavil Thengunnallo | Vachalam |Kaithapram |Johnson | K J Yesudas |Malayalam Sad Songs](https://www.youtube.com/watch?v=JzXxSPfZqLg)
+- [സ്വപ്നം വെറുമൊരു സ്വപ്നം| Swapnam Verumoru | Prema Geethangal Malayalam Movie Song | Yesudas,Janaki](https://www.youtube.com/watch?v=ZTfjtWnPlzw)
+- [Move your legs with Rockstars #Halaballoo #RDX #shorts #ytshorts](https://www.youtube.com/watch?v=odGzVKOlhZI)
+- [അഭിമാനത്തോടെ മലയാളികൾ എന്നും കേൾക്കുന്ന മനസ്സിൽ പിടിച്ച ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=dabCQ5dVmKk)
+- [Manasse Ninte മനസ്സേ നിന്റെ | Veruthe Oru Pinakkam Malayalam Video Song, Sathyan Anthikkad,  Yesudas](https://www.youtube.com/watch?v=3jn6ewpko98)
 - [Aliyarude Omana Beevi | Vaanku  #shortsfeed #shorts #ousepachan #ramzan #lyricalvideo](https://www.youtube.com/watch?v=MlN__q0_dTg)
-- [ചപ്പാര മഞ്ഞത്തിൽ ആട സോപ്പന ലോഗത്തിൽ കൂട #kamalhaasan #urvashi #malayalamsongs](https://www.youtube.com/watch?v=RpmDOXpxFH4)
-- [Manjupole Maankunju Pole | Dhosth | Kunchacko Boban | Kavya Madhavan | Vidyasagar | Sreenivas](https://www.youtube.com/watch?v=NxTgX0aOnbw)
-- [Dance moves of rockstars  #Halaballoo #RDX #shorts #ytshorts](https://www.youtube.com/watch?v=BIaYvAw-5SU)
-- [Japamala 27th of November 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 27th of November 23](https://www.youtube.com/watch?v=cyW6N5GHkZ0)
-- [ഒരുപാട് നല്ല ഗാനങ്ങൾ ഇതിൽ ഉണ്ട് #ഇഷ്ടപെട്ടാൽ ഒന്ന് ഷെയർ ചെയ്യണേ](https://www.youtube.com/watch?v=a6wHNvA3MWQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
