@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Kerala Comedy Combat: 2 Days To Go! Get Ready For Kerala's First Live Stand-up Comedy Challenge .](https://www.youtube.com/watch?v=7Z5nJhfbNvk)
-- [Kerala Comedy Combat: 2 Days To Go! Get Ready For Kerala's First Live Stand-up Comedy Challenge .](https://www.youtube.com/watch?v=jVXSShV6Lck)
-- [Kooki Paayum | Dance Party | Jassie Gift | Moeha | V3K | Sohan Seenulal](https://www.youtube.com/watch?v=wEwRA4NP-tQ)
-- [മൂടൽ മഞ്ഞിൻ | Moodal Manjin Charuthayil | Thadakam Malayalam Movie Song | K J Yesudas,S janaki](https://www.youtube.com/watch?v=YPAYtGDVo5Y)
-- [Kooki paayum  song from Film - Dance Party | Jassie Gift | Moeha | V3K](https://www.youtube.com/watch?v=2sPuDw5PjWc)
-- [Ammoommakkili Video Song | Chandralekha | Pooja Batra | KS Chithra | Gireesh Puthenchery](https://www.youtube.com/watch?v=YPOsrvoiiTw)
+- [Vaarmukile | Mazha | K S Chithra | Raveendran | Yusufali Kecheri #SongOfTheDay](https://www.youtube.com/watch?v=CQXV6Az3kDQ)
+- [മുത്തും മുടിപ്പൊന്നും | Muthum Mudi Ponnum | Prema Geethangal Movie Song | K J Yesudas | Vanijayaram](https://www.youtube.com/watch?v=puz0IZXWOLE)
+- [Manassin Kavadam | Sankaranum Mohananum | Renjini Jose | Mohan Sithara | K Jayakumar](https://www.youtube.com/watch?v=b_b5-6Ya-Ys)
+- [വിളിച്ചിറക്കിയവൻ ദൈവമെങ്കിൽ നിന്നെ വഴിയിലൊരിക്കലും ഉപേക്ഷിക്കില്ല | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=NXg4ZTONeh8)
+- [Singer Of The Week | Wilson Piravom | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=Qn9c_OVlXDE)
+- [Phoenix Movie | Audio Jukebox | Sam C. S | Vishnu Bharathan | Midhun Manuel Thomas | 123Musix](https://www.youtube.com/watch?v=P3Vufmor8P8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
