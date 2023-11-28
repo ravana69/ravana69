@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kooki paayum  song from Film - Dance Party | Jassie Gift | Moeha | V3K](https://www.youtube.com/watch?v=2sPuDw5PjWc)
+- [Ammoommakkili Video Song | Chandralekha | Pooja Batra | KS Chithra | Gireesh Puthenchery](https://www.youtube.com/watch?v=YPOsrvoiiTw)
 - [എത്രകേട്ടാലും കൊതി മാറാത്ത അത്രമേൽ ഇഷ്‌ടമുള്ള മലയാളസിനിമയിലെ അസുലഭ ഗാനങ്ങൾ  ! MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=so24gmXJeW4)
 - [Be in vibe with the gang of RDX #Halaballoo #RDX #shorts #ytshorts](https://www.youtube.com/watch?v=kQHQDWyH0l8)
 - [Keshabhaaram Kabariyil | Rajahamsam (1977) | Vayalar |G Devarajan | Manoharan | Evergreen Hits](https://www.youtube.com/watch?v=kBC20AuFwE4)
 - [അലൈപായുതേ കണ്ണാ | Alaipayuthe Kanna | Munnilonnu Super Hit Movie Song | K. S. Chitra](https://www.youtube.com/watch?v=E649y9bMxQM)
-- [NIN SANIDHYAM DEVA | ATHIRA SHAJU | PAVITHRAN AMACHAL | BINCY ELAPPARA | JINO KUNNUMPURATH | REEL 1](https://www.youtube.com/watch?v=Vzbdme4uIu4)
-- [Kerala Comedy Combat Journey! Get Ready For Kerala's First Live Stand-up Comedy Challenge .](https://www.youtube.com/watch?v=fVr_6-MuMcA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
