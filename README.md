@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [എൻ സ്നേഹം നീ മാത്രം .](https://www.youtube.com/watch?v=JJpiqf_o298)
 - [Vaarmukile | Mazha | K S Chithra | Raveendran | Yusufali Kecheri #SongOfTheDay](https://www.youtube.com/watch?v=CQXV6Az3kDQ)
 - [മുത്തും മുടിപ്പൊന്നും | Muthum Mudi Ponnum | Prema Geethangal Movie Song | K J Yesudas | Vanijayaram](https://www.youtube.com/watch?v=puz0IZXWOLE)
 - [Manassin Kavadam | Sankaranum Mohananum | Renjini Jose | Mohan Sithara | K Jayakumar](https://www.youtube.com/watch?v=b_b5-6Ya-Ys)
 - [വിളിച്ചിറക്കിയവൻ ദൈവമെങ്കിൽ നിന്നെ വഴിയിലൊരിക്കലും ഉപേക്ഷിക്കില്ല | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=NXg4ZTONeh8)
 - [Singer Of The Week | Wilson Piravom | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=Qn9c_OVlXDE)
-- [Phoenix Movie | Audio Jukebox | Sam C. S | Vishnu Bharathan | Midhun Manuel Thomas | 123Musix](https://www.youtube.com/watch?v=P3Vufmor8P8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
