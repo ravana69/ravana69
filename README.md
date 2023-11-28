@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന November 29 # Athiravile Prarthana 29th November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=-b2ZIcuXiBE)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=R7s1DpiFMkY)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 29th November 23](https://www.youtube.com/watch?v=tFW10_Jw194)
 - [Ponnumkudathinu | Vinayapoorvam Vidhyadharan | Jagathi | KJ Yesudas | Sukanya | Jagadeesh](https://www.youtube.com/watch?v=z6FpwQVJE2k)
 - [Paavanamadhuraanilaye Video Song | Oru Sundhariyude Kadha | P Jayachandran | Vayalar Ramavarma](https://www.youtube.com/watch?v=JSLqjjxQUbI)
 - [Palkudangal Thulumbum | Pranayanilavu | S Ramesan Nair | Berny Ignatius | K J Yesudas Radhika Thilak](https://www.youtube.com/watch?v=9TAxa3OJFAM)
-- [കരകവിഞ്ഞൊഴുകും കരുണയിൻ കരങ്ങൾ | ROY PUTHUR | #christiandevotionalsongs  #royputhurprayer #royputhur](https://www.youtube.com/watch?v=YvbpKss2ugg)
-- [എൻ സ്നേഹം നീ മാത്രം .](https://www.youtube.com/watch?v=JJpiqf_o298)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
