@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Palkudangal Thulumbum | Pranayanilavu | S Ramesan Nair | Berny Ignatius | K J Yesudas Radhika Thilak](https://www.youtube.com/watch?v=9TAxa3OJFAM)
+- [കരകവിഞ്ഞൊഴുകും കരുണയിൻ കരങ്ങൾ | ROY PUTHUR | #christiandevotionalsongs  #royputhurprayer #royputhur](https://www.youtube.com/watch?v=YvbpKss2ugg)
 - [എൻ സ്നേഹം നീ മാത്രം .](https://www.youtube.com/watch?v=JJpiqf_o298)
 - [Vaarmukile | Mazha | K S Chithra | Raveendran | Yusufali Kecheri #SongOfTheDay](https://www.youtube.com/watch?v=CQXV6Az3kDQ)
 - [മുത്തും മുടിപ്പൊന്നും | Muthum Mudi Ponnum | Prema Geethangal Movie Song | K J Yesudas | Vanijayaram](https://www.youtube.com/watch?v=puz0IZXWOLE)
 - [Manassin Kavadam | Sankaranum Mohananum | Renjini Jose | Mohan Sithara | K Jayakumar](https://www.youtube.com/watch?v=b_b5-6Ya-Ys)
-- [വിളിച്ചിറക്കിയവൻ ദൈവമെങ്കിൽ നിന്നെ വഴിയിലൊരിക്കലും ഉപേക്ഷിക്കില്ല | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=NXg4ZTONeh8)
-- [Singer Of The Week | Wilson Piravom | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=Qn9c_OVlXDE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
