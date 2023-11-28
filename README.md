@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [28-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176501-movies-collection-all-languages-4k-1080p-720p-576p-480p-28-11-2023/&do=findComment&comment=356954)
 - [Chithha &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 12GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176495-chithha-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-12gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356953)
 - [Demon Slayer : Mugen Train Arc S02 EP&lpar;01-07&rpar; BR-Rip 10bit - [1080p - 720p - HEVC - Telugu - &lpar;AAC 2.0 - 128Kbps&rpar; - 300MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176482-demon-slayer-mugen-train-arc-s02-ep01-07-br-rip-10bit-1080p-720p-hevc-telugu-aac-20-128kbps-300mb-200mb-esub-google-drive/&do=findComment&comment=356952)
 - [Chikku &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176499-chikku-2023-kannada-true-web-dl-1080p-720p-avc-dd51-192kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356951)
 - [Chikku &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176499-chikku-2023-kannada-true-web-dl-1080p-720p-avc-dd51-192kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356950)
-- [Chithha &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176500-chithha-2023-hindi-true-web-dl-1080p-720p-avc-dd51-192kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356949)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
