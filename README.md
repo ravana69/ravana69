@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [28-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176501-movies-collection-all-languages-4k-1080p-720p-576p-480p-28-11-2023/&do=findComment&comment=356963)
-- [Chitta &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176498-chitta-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-192kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=356962)
-- [Die Hard Pentalogy &lpar;1988 - 2013&rpar; Blu-Ray&#39;s- 720p - [Tamil + Telugu &lpar;2&rpar; + Hindi + Eng] - 5.5GB &amp; 1.9GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176492-die-hard-pentalogy-1988-2013-blu-rays-720p-tamil-telugu-2-hindi-eng-55gb-19gb-esub/&do=findComment&comment=356961)
-- [Cupid &lpar;2020&rpar; &lpar;UnCut HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176490-cupid-2020-uncut-hd-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=356960)
-- [Smugglers &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Kor&rpar; - 3GB &amp; 1.5GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 500MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176491-smugglers-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-kor-3gb-15gb-x264-tamil-telugu-hindi-500mb-esub/&do=findComment&comment=356959)
+- [Beware of Online Seduction It Could Be Ai Manipulating You](https://www.1tamilmv.phd/index.php?/forums/topic/163326-beware-of-online-seduction-it-could-be-ai-manipulating-you/&do=findComment&comment=356973)
+- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [28-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176501-movies-collection-all-languages-4k-1080p-720p-576p-480p-28-11-2023/&do=findComment&comment=356972)
+- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [28-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176501-movies-collection-all-languages-4k-1080p-720p-576p-480p-28-11-2023/&do=findComment&comment=356971)
+- [QUEEN OF SPADES 2021 HINDI ORG DUAL AUDIO 720P &amp; 480P BLURAY ESUB](https://www.1tamilmv.phd/index.php?/forums/topic/153941-queen-of-spades-2021-hindi-org-dual-audio-720p-480p-bluray-esub/&do=findComment&comment=356970)
+- [CHAHAT PART 1 2023 ULLU HINDI WEB SERIES 1080P | 720P | 480P HDRIP](https://www.1tamilmv.phd/index.php?/forums/topic/152388-chahat-part-1-2023-ullu-hindi-web-series-1080p-720p-480p-hdrip/&do=findComment&comment=356969)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
