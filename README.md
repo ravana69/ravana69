@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Martin Luther King &lpar;2023&rpar; TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - [Tamil + Malayalam + Hindi + Kannada] - 10GB - 2.7GB - 1.6GB &amp; 800MB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176504-martin-luther-king-2023-true-web-dl-4k-1080p-720p-avc-hevc-tamil-malayalam-hindi-kannada-10gb-27gb-16gb-800mb-x264-750mb-450mb-esub/&do=findComment&comment=356984)
+- [Chithha &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 12GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176495-chithha-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-12gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=356983)
 - [Ai Unlocking the Blue Brain Project: Research Finds Multidimensional Universe Inside the Human Brain](https://www.1tamilmv.phd/index.php?/forums/topic/161998-ai-unlocking-the-blue-brain-project-research-finds-multidimensional-universe-inside-the-human-brain/&do=findComment&comment=356982)
 - [Surprise! Ai Officially Confirmed: Earth Has Two Extra, Hidden &#39;Moons&#39;](https://www.1tamilmv.phd/index.php?/forums/topic/159732-surprise-ai-officially-confirmed-earth-has-two-extra-hidden-moons/&do=findComment&comment=356981)
 - [Debunking the Brain&#39;s Myth: Can Our Brains Truly Rewire Themselves?](https://www.1tamilmv.phd/index.php?/forums/topic/159482-debunking-the-brains-myth-can-our-brains-truly-rewire-themselves/&do=findComment&comment=356980)
-- [Kirathakudu &lpar;1986&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.6GB - ESub - KAD DVD](https://www.1tamilmv.phd/index.php?/forums/topic/176503-kirathakudu-1986-telugu-dvd9-untouched-480p-dd51-448kbps-66gb-esub-kad-dvd/&do=findComment&comment=356979)
-- [Unveiling the Hero&#39;s Journey: A Science-Backed Blueprint for a More Meaningful Life](https://www.1tamilmv.phd/index.php?/forums/topic/159483-unveiling-the-heros-journey-a-science-backed-blueprint-for-a-more-meaningful-life/&do=findComment&comment=356978)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
