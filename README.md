@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [എത്രകേട്ടാലും കൊതി മാറാത്ത അത്രമേൽ ഇഷ്‌ടമുള്ള മലയാളസിനിമയിലെ അസുലഭ ഗാനങ്ങൾ  ! MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=so24gmXJeW4)
+- [Be in vibe with the gang of RDX #Halaballoo #RDX #shorts #ytshorts](https://www.youtube.com/watch?v=kQHQDWyH0l8)
+- [Keshabhaaram Kabariyil | Rajahamsam (1977) | Vayalar |G Devarajan | Manoharan | Evergreen Hits](https://www.youtube.com/watch?v=kBC20AuFwE4)
 - [അലൈപായുതേ കണ്ണാ | Alaipayuthe Kanna | Munnilonnu Super Hit Movie Song | K. S. Chitra](https://www.youtube.com/watch?v=E649y9bMxQM)
 - [NIN SANIDHYAM DEVA | ATHIRA SHAJU | PAVITHRAN AMACHAL | BINCY ELAPPARA | JINO KUNNUMPURATH | REEL 1](https://www.youtube.com/watch?v=Vzbdme4uIu4)
 - [Kerala Comedy Combat Journey! Get Ready For Kerala's First Live Stand-up Comedy Challenge .](https://www.youtube.com/watch?v=fVr_6-MuMcA)
-- [Kerala Comedy Combat Journey! Get Ready For Kerala's First Live Stand-up Comedy Challenge.](https://www.youtube.com/watch?v=zn_tzgIBBPE)
-- [Kiliye Kiliye - Lofi | Aa Raathri | Ilaiyaraaja | S. Janaki | Alvin Bruno](https://www.youtube.com/watch?v=wOGnhEDXbxo)
-- [Oru Rajamalli | Aniyathipravu | Kunchacko Boban | Shalini | Ouseppachan | M G Sreekumar | Fazil](https://www.youtube.com/watch?v=q8jcS3LzwXk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
