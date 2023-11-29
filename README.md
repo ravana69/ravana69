@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ദൈവമേ നീയെന്നെ ...#OWN MEDIA MUSIC COLLECTION #FR.SHAJAN THERMADOM #JOY CHERUVATHOOR # KESTER#](https://www.youtube.com/watch?v=ObkLUgIzKhw)
+- [സുഖം സുഖകരം ഈഗാനങ്ങൾ  | കെ ജെ യേശുദാസ് | ചിത്ര | Selected Remastered Movie songs | Evergreen Hits](https://www.youtube.com/watch?v=UpjZY-k2p0c)
 - [Yadukula Gopike | Vazhiyorakazhchakal | Mohanlal | Ratheesh | Ambika | KS Chithra | KJ Yesudas](https://www.youtube.com/watch?v=sroB0rWD27Q)
 - [Hridayame | Lyrical Video | Vaasam | Najim Arhad | Vaiga Nambiar | Vinu Sreelakam | Viswajith C T](https://www.youtube.com/watch?v=nEHk7XNu1Dw)
 - [Yamam Kuliru Peyyum | Shapadham | Raveendran | Mankombu Gopalakrishnan | S Janaki | Captain Raju](https://www.youtube.com/watch?v=OoD1ai1W57M)
 - [Bandra - Full Album | Dileep, Tamannaah | Sam C.S | Shankar Mahadevan, Nakshathra](https://www.youtube.com/watch?v=y7TOcXGgbJQ)
-- [Velippenninu Thaalikku | Mazhathullikkilukkam | Sreenivas | Sujatha Mohan #SongOfTheDay](https://www.youtube.com/watch?v=4XPQbd3Gn6w)
-- [Pubukulla Machaney | Video Song | Point Range | Sainu Chavakkadan | Sarath Appani | Shiji Mohammed](https://www.youtube.com/watch?v=rgfJyILT4oY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
