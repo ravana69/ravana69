@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thaal | Movie Teaser | Rajasaagar | Anson Paul | Rahul Madhav | Aju Varghese | Aradhya Anna | Rohini](https://www.youtube.com/watch?v=8w2LcCI0LyI)
+- [Punchavayal Karayil | Campus song from Thaal #shortsfeed #shorts #bijibal #soorajsanthosh #filmsongs](https://www.youtube.com/watch?v=K-Cu4kHP-50)
+- [Kinavinte Minarathil| Adaminte Makan Abu |Karaoke Video| Hariharan |Rafeeque Ahammed |Ramesh Narayan](https://www.youtube.com/watch?v=CylROx1Gc-s)
 - [Happy sides of rockstar #Halaballoo #RDX #shorts #ytshorts](https://www.youtube.com/watch?v=bx00YFMenGs)
 - [Sahyasaanu Shruthi | Karumaadikkuttan | K J Yesudas | Mohan Sithara | Yusufali Kechery](https://www.youtube.com/watch?v=MBzzdYCNkaw)
 - [Yeshu En Swantham | Shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=TZFFLVoSGgQ)
-- [എന്റെ ചിത്തം എന്റെ രക്ഷകനായ ദൈവത്തില്‍ ആനന്ദിക്കുന്നു . അവിടുന്ന് തന്റെ ദാസിയുടെ താഴ്മയെ കടാക്ഷിച്ചു](https://www.youtube.com/watch?v=o0notPIjxCU)
-- [Japamala 29th of November 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 29th  of November 23](https://www.youtube.com/watch?v=RYge_ST0ANo)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=aDMSxuKe4_8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
