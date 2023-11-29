@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന November 30 # Athiravile Prarthana 30th November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=Vh77z9kZ2v4)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=qt5_D4893UI)
 - [29 November 2023](https://www.youtube.com/watch?v=fcxQKofsvbY)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 30th November 23](https://www.youtube.com/watch?v=HKROOi8fEiQ)
 - [Omkaram Shankil Cherumbol Video Song | Veruthe Oru Bharya | Gopika | Unni Menon | Shyam Dharman](https://www.youtube.com/watch?v=bYjikdCLTmg)
 - [ദൈവമേ നീയെന്നെ ...#OWN MEDIA MUSIC COLLECTION #FR.SHAJAN THERMADOM #JOY CHERUVATHOOR # KESTER#](https://www.youtube.com/watch?v=ObkLUgIzKhw)
-- [സുഖം സുഖകരം ഈഗാനങ്ങൾ  | കെ ജെ യേശുദാസ് | ചിത്ര | Selected Remastered Movie songs | Evergreen Hits](https://www.youtube.com/watch?v=UpjZY-k2p0c)
-- [Yadukula Gopike | Vazhiyorakazhchakal | Mohanlal | Ratheesh | Ambika | KS Chithra | KJ Yesudas](https://www.youtube.com/watch?v=sroB0rWD27Q)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
