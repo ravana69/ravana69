@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Velippenninu Thaalikku | Mazhathullikkilukkam | Sreenivas | Sujatha Mohan #SongOfTheDay](https://www.youtube.com/watch?v=4XPQbd3Gn6w)
 - [Pubukulla Machaney | Video Song | Point Range | Sainu Chavakkadan | Sarath Appani | Shiji Mohammed](https://www.youtube.com/watch?v=rgfJyILT4oY)
 - [നല്ല ബന്ധങ്ങളെ നമുക്ക് കാത്തുസൂക്ഷിക്കാം  | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=FCrzz5Xgl08)
 - [Kerala Comedy Combat: 1 Day To Go! Get Ready For Kerala's First Live Stand-up Comedy Challenge](https://www.youtube.com/watch?v=H91bQ9bimCw)
 - [Shanthamee Raathriyil Video Song | Johnnie Walker |  KJ Yesudas | Gireesh Puthenchery](https://www.youtube.com/watch?v=yOsZZBRau5U)
 - [Tharum Thalirum Mizhi Pooti Audio Song Chilambu Movie Song KJ Yesudas Lathika Bharathan Ouseppachan](https://www.youtube.com/watch?v=icTpmhXqaaI)
-- [Aadhi Gurunadhe | Bhakthajanangalude Sradhakku | Vidyadharan | Natesh Sankar | Mullanezhi](https://www.youtube.com/watch?v=xia4-LsomcI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
