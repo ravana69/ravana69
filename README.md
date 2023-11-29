@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Paruthiveeran &lpar;2007&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD5.1 - 320Kbps&rpar; - 5.5GB - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176515-paruthiveeran-2007-tamil-true-web-dl-1080p-720p-avc-dd51-320kbps-55gb-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=357010)
+- [Kaadhalikka.Neramillai.1964.Tamil.480p.AVC.AAC2.0 - 1.5GB](https://www.1tamilmv.phd/index.php?/forums/topic/176516-kaadhalikkaneramillai1964tamil480pavcaac20-15gb/&do=findComment&comment=357009)
 - [Paruthiveeran &lpar;2007&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD5.1 - 320Kbps&rpar; - 5.5GB - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176515-paruthiveeran-2007-tamil-true-web-dl-1080p-720p-avc-dd51-320kbps-55gb-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=357008)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [29-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176514-movies-collection-all-languages-4k-1080p-720p-576p-480p-29-11-2023/&do=findComment&comment=357007)
 - [Poovellam Un Vasam &lpar;2001&rpar; Tamil TRUE WEB-DL - 576p HQ - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 6.5GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176513-poovellam-un-vasam-2001-tamil-true-web-dl-576p-hq-avc-untouched-aac20-65gb-gdflix/&do=findComment&comment=357006)
-- [A Couple of Cuckoos S01 EP04 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 400MB - 250MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176512-a-couple-of-cuckoos-s01-ep04-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-400mb-250mb-esub-google-drive/&do=findComment&comment=357005)
-- [Martin Luther King &lpar;2023&rpar; Telugu TRUE WEB-DL - [4k ,1080p &amp; 720p - AVC / HEVC - 10GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176505-martin-luther-king-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-10gb-28gb-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=357004)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
