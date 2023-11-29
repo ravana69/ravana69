@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [അഭിനയിച്ച ചിത്രങ്ങളെല്ലാം സൂപ്പർഹിറ്റാക്കിയ താരജോഡി ദിലീപ് മോഹിനി ടീമിന്റെ ഇഷ്ടഗാനങ്ങൾ DILEEP MOHINI](https://www.youtube.com/watch?v=nZw-PQ80oCA)
+- [സപ്തവർണങ്ങളാലും സപ്തസ്വരങ്ങളാലും ശ്രോതാക്കളുടെ മനസിൽ ഏഴഴകുമായി നിന്ന മലയാളസിനിമാഗാനങ്ങൾ !](https://www.youtube.com/watch?v=_pOG710qTI4)
+- [Get energized with 🕺 #Halaballoo #RDX #shorts #ytshorts](https://www.youtube.com/watch?v=MC-B0cfkjII)
 - [Thaal | Movie Teaser | Rajasaagar | Anson Paul | Rahul Madhav | Aju Varghese | Aradhya Anna | Rohini](https://www.youtube.com/watch?v=8w2LcCI0LyI)
 - [Punchavayal Karayil | Campus song from Thaal #shortsfeed #shorts #bijibal #soorajsanthosh #filmsongs](https://www.youtube.com/watch?v=K-Cu4kHP-50)
 - [Kinavinte Minarathil| Adaminte Makan Abu |Karaoke Video| Hariharan |Rafeeque Ahammed |Ramesh Narayan](https://www.youtube.com/watch?v=CylROx1Gc-s)
-- [Happy sides of rockstar #Halaballoo #RDX #shorts #ytshorts](https://www.youtube.com/watch?v=bx00YFMenGs)
-- [Sahyasaanu Shruthi | Karumaadikkuttan | K J Yesudas | Mohan Sithara | Yusufali Kechery](https://www.youtube.com/watch?v=MBzzdYCNkaw)
-- [Yeshu En Swantham | Shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=TZFFLVoSGgQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
