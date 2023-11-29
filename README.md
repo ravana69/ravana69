@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Paruthiveeran &lpar;2007&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD5.1 - 320Kbps&rpar; - 5.5GB - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176515-paruthiveeran-2007-tamil-true-web-dl-1080p-720p-avc-dd51-320kbps-55gb-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=357008)
+- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [29-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176514-movies-collection-all-languages-4k-1080p-720p-576p-480p-29-11-2023/&do=findComment&comment=357007)
+- [Poovellam Un Vasam &lpar;2001&rpar; Tamil TRUE WEB-DL - 576p HQ - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 6.5GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176513-poovellam-un-vasam-2001-tamil-true-web-dl-576p-hq-avc-untouched-aac20-65gb-gdflix/&do=findComment&comment=357006)
 - [A Couple of Cuckoos S01 EP04 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 400MB - 250MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176512-a-couple-of-cuckoos-s01-ep04-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-400mb-250mb-esub-google-drive/&do=findComment&comment=357005)
 - [Martin Luther King &lpar;2023&rpar; Telugu TRUE WEB-DL - [4k ,1080p &amp; 720p - AVC / HEVC - 10GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176505-martin-luther-king-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-10gb-28gb-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=357004)
-- [Martin Luther King &lpar;2023&rpar; TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - [Tamil + Malayalam + Hindi + Kannada] - 10GB - 2.7GB - 1.6GB &amp; 800MB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176504-martin-luther-king-2023-true-web-dl-4k-1080p-720p-avc-hevc-tamil-malayalam-hindi-kannada-10gb-27gb-16gb-800mb-x264-750mb-450mb-esub/&do=findComment&comment=357003)
-- [Oppenheimer &lpar;2023&rpar; BluRay - [1080p &amp; 720p - x264 - [Hindi+ Eng] - &lpar;DD+5.1 - 640Kbps&rpar; - 3.8GB - 1.8GB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176382-oppenheimer-2023-bluray-1080p-720p-x264-hindi-eng-dd51-640kbps-38gb-18gb-400mb-esub/&do=findComment&comment=357002)
-- [Dora &lpar;2017&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 2.8GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176502-dora-2017-tamil-true-web-dl-1080p-avc-untouched-aac20-28gb-esub-gdflix/&do=findComment&comment=357001)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
