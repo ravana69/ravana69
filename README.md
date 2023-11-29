@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [KS Chitra's New Malayalam Song Poompaithale | #MerryChristmas #malayalamsongs](https://www.youtube.com/watch?v=JgHl5rbskQI)
+- [ശബരിമലയിൽ തങ്കസൂര്യോദയം ഈ സംക്രമപ്പുലരിയിൽ അഭിഷേകം #ayyappan #swamiayyappa #sabarimala](https://www.youtube.com/watch?v=DWLGStCbFQw)
+- [Nerinu Verulla Narane | Manushya Mrugam | Benny Dayal | Sayan Anwar | Vayalar Sarath Chandra Varma](https://www.youtube.com/watch?v=rxXWXuly43E)
+- [മനസ്സില്‍ കുളിരുകോരും | Aadyathe Kanmani  | KS Chithra | #shorts](https://www.youtube.com/watch?v=Um5HIQu1ZG4)
 - [തങ്കത്തേരില്‍ Malayalam Video Song Thankatheril | Yesudas, Chithra | Vadhu Doctoraanu വധു ഡോക്ടറാണ്](https://www.youtube.com/watch?v=SpFRJ11WkGg)
 - [തങ്കത്തേരില്‍ Malayalam Video Song Thankatheril | Yesudas, Chithra | Vadhu Doctoraanu വധു ഡോക്ടറാണ്](https://www.youtube.com/watch?v=OKfrTovfE1w)
-- [ഉണ്ണണം ഉറങ്ങണം | Unnanam Uranganam | Oral Koodi Kallanayi Malayalam Movie Song | Prem Nazir | Sheela](https://www.youtube.com/watch?v=7RxR1Utg70M)
-- [Kaliyon Se Palkhen Hain | Vishwavidhaata | A.R.Rahman | Hariharan | Hi-Res Audio](https://www.youtube.com/watch?v=oafngP2-3-k)
-- [അഭിനയിച്ച ചിത്രങ്ങളെല്ലാം സൂപ്പർഹിറ്റാക്കിയ താരജോഡി ദിലീപ് മോഹിനി ടീമിന്റെ ഇഷ്ടഗാനങ്ങൾ DILEEP MOHINI](https://www.youtube.com/watch?v=nZw-PQ80oCA)
-- [സപ്തവർണങ്ങളാലും സപ്തസ്വരങ്ങളാലും ശ്രോതാക്കളുടെ മനസിൽ ഏഴഴകുമായി നിന്ന മലയാളസിനിമാഗാനങ്ങൾ !](https://www.youtube.com/watch?v=_pOG710qTI4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
