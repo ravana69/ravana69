@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [A Couple of Cuckoos S01 EP04 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 400MB - 250MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176512-a-couple-of-cuckoos-s01-ep04-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-400mb-250mb-esub-google-drive/&do=findComment&comment=357005)
 - [Martin Luther King &lpar;2023&rpar; Telugu TRUE WEB-DL - [4k ,1080p &amp; 720p - AVC / HEVC - 10GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176505-martin-luther-king-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-10gb-28gb-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=357004)
 - [Martin Luther King &lpar;2023&rpar; TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - [Tamil + Malayalam + Hindi + Kannada] - 10GB - 2.7GB - 1.6GB &amp; 800MB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176504-martin-luther-king-2023-true-web-dl-4k-1080p-720p-avc-hevc-tamil-malayalam-hindi-kannada-10gb-27gb-16gb-800mb-x264-750mb-450mb-esub/&do=findComment&comment=357003)
 - [Oppenheimer &lpar;2023&rpar; BluRay - [1080p &amp; 720p - x264 - [Hindi+ Eng] - &lpar;DD+5.1 - 640Kbps&rpar; - 3.8GB - 1.8GB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176382-oppenheimer-2023-bluray-1080p-720p-x264-hindi-eng-dd51-640kbps-38gb-18gb-400mb-esub/&do=findComment&comment=357002)
 - [Dora &lpar;2017&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 2.8GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176502-dora-2017-tamil-true-web-dl-1080p-avc-untouched-aac20-28gb-esub-gdflix/&do=findComment&comment=357001)
-- [[144FPS | 60FPS].K.G.F.Chapter.2.2022.1080p.AMZN.WEBRip.Multi.DDP5.1.H.265.Homelander - 144FPS | 60FPS - 20.49 GB | 14.08 GB](https://www.1tamilmv.phd/index.php?/forums/topic/162439-144fps-60fpskgfchapter220221080pamznwebripmultiddp51h265homelander-144fps-60fps-2049-gb-1408-gb/&do=findComment&comment=357000)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
