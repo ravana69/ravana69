@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [KS Chitra's New Malayalam Song Poompaithale | #MerryChristmas #malayalamsongs](https://www.youtube.com/watch?v=JgHl5rbskQI)
-- [ശബരിമലയിൽ തങ്കസൂര്യോദയം ഈ സംക്രമപ്പുലരിയിൽ അഭിഷേകം #ayyappan #swamiayyappa #sabarimala](https://www.youtube.com/watch?v=DWLGStCbFQw)
-- [Nerinu Verulla Narane | Manushya Mrugam | Benny Dayal | Sayan Anwar | Vayalar Sarath Chandra Varma](https://www.youtube.com/watch?v=rxXWXuly43E)
-- [മനസ്സില്‍ കുളിരുകോരും | Aadyathe Kanmani  | KS Chithra | #shorts](https://www.youtube.com/watch?v=Um5HIQu1ZG4)
-- [തങ്കത്തേരില്‍ Malayalam Video Song Thankatheril | Yesudas, Chithra | Vadhu Doctoraanu വധു ഡോക്ടറാണ്](https://www.youtube.com/watch?v=SpFRJ11WkGg)
-- [തങ്കത്തേരില്‍ Malayalam Video Song Thankatheril | Yesudas, Chithra | Vadhu Doctoraanu വധു ഡോക്ടറാണ്](https://www.youtube.com/watch?v=OKfrTovfE1w)
+- [Pubukulla Machaney | Video Song | Point Range | Sainu Chavakkadan | Sarath Appani | Shiji Mohammed](https://www.youtube.com/watch?v=rgfJyILT4oY)
+- [നല്ല ബന്ധങ്ങളെ നമുക്ക് കാത്തുസൂക്ഷിക്കാം  | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=FCrzz5Xgl08)
+- [Kerala Comedy Combat: 1 Day To Go! Get Ready For Kerala's First Live Stand-up Comedy Challenge](https://www.youtube.com/watch?v=H91bQ9bimCw)
+- [Shanthamee Raathriyil Video Song | Johnnie Walker |  KJ Yesudas | Gireesh Puthenchery](https://www.youtube.com/watch?v=yOsZZBRau5U)
+- [Tharum Thalirum Mizhi Pooti Audio Song Chilambu Movie Song KJ Yesudas Lathika Bharathan Ouseppachan](https://www.youtube.com/watch?v=icTpmhXqaaI)
+- [Aadhi Gurunadhe | Bhakthajanangalude Sradhakku | Vidyadharan | Natesh Sankar | Mullanezhi](https://www.youtube.com/watch?v=xia4-LsomcI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
