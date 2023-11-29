@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Yeshu En Swantham | Shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=TZFFLVoSGgQ)
 - [എന്റെ ചിത്തം എന്റെ രക്ഷകനായ ദൈവത്തില്‍ ആനന്ദിക്കുന്നു . അവിടുന്ന് തന്റെ ദാസിയുടെ താഴ്മയെ കടാക്ഷിച്ചു](https://www.youtube.com/watch?v=o0notPIjxCU)
 - [Japamala 29th of November 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 29th  of November 23](https://www.youtube.com/watch?v=RYge_ST0ANo)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=aDMSxuKe4_8)
 - [പ്രഭാത പ്രാര്‍ത്ഥന November 29 # Athiravile Prarthana 29th November 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=-b2ZIcuXiBE)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=R7s1DpiFMkY)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 29th November 23](https://www.youtube.com/watch?v=tFW10_Jw194)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
