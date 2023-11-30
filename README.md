@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഒരു രാജമല്ലി Aniyathipraavu | M. G. Sreekumar | Shalini, Kunchacko Boban](https://www.youtube.com/watch?v=NIGJjbP_QQA)
+- [Kashithumba Kavayi Neelavanam | Mookkilla Rajyathu | Kaithapram | Ouseppachan | MG Sreekumar](https://www.youtube.com/watch?v=qT4s3SwFlyY)
+- [ഒരിക്കൽ കൂടി കേട്ടിരുന്നെങ്കിലോയെന്ന് ഒരുപാട് ആശിച്ചുപോയ മലയാളചലച്ചിത്ര ഗാനങ്ങൾ | MALAYALAM HITS](https://www.youtube.com/watch?v=lODEl1u1FLw)
+- [ഹൃദയത്തിൻ അകതാരിൽ | Hridayathin Akatharil | Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=ZFtF1T0XXgc)
+- [Appathin Bhavanamam Bethlahemil | Dr. Lal Thompson | Sambath V S | Malayalam Carol 2023](https://www.youtube.com/watch?v=OxOj7TkzelY)
 - [Aaro Paadunnu |  Kadha Thudarunnu  #shortsfeed #shorts #ilayaraja #deepakdev #hariharan #kschitra](https://www.youtube.com/watch?v=CFAvDKfOG5s)
-- [Maanathe Chandiranothoru Video Song | Chandralekha | MG Sreekumar | Mohanlal | Sreenivasan](https://www.youtube.com/watch?v=zNrVqvHilRI)
-- [Rambamba Ramba | Praja | Vasundaradas | Mohanlal | M G Radhakrishnan | Gireesh Puthanchery | Joshiy](https://www.youtube.com/watch?v=8kRDw8mJgXg)
-- [മനം നിറയ്ക്കും ഡിസംബർ മാസ ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | KG Markose](https://www.youtube.com/watch?v=Nr6pAxgNPVk)
-- [Malayalam Christmas Carol Songs 2023 # Christmas Songs Malayalam](https://www.youtube.com/watch?v=IMN_Gh1lH4U)
-- [കൃപാസനം മാതാവിന്റെ  ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kripasanam  November 30th 2023](https://www.youtube.com/watch?v=IPt6uOBIjo8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
