@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 1st December 23](https://www.youtube.com/watch?v=3ff4PvjPsj0)
+- [30 November 2023](https://www.youtube.com/watch?v=GuTEkPX--L8)
 - [Doore Oru Kurunnilam | Ente Veedu Appuntem | Kalidas | Jayaram | Jyothirmayi | Ouseppachan](https://www.youtube.com/watch?v=l2O20Oo7Xd0)
 - [Phoenix Sneak Peek | Aju Varghese | Anoop Menon | Vishnu Bharathan | Midhun Manuel Thomas](https://www.youtube.com/watch?v=6HccgZ-Wqak)
 - [Mukila Simhame Video Song | Anarkali | Vayalar | MS Baburaj | P Susheela | M Balamuralikrishna](https://www.youtube.com/watch?v=lp0-qcaaVy8)
 - [Vibing with guys #Padminiye #Padmini #shorts #ytshorts](https://www.youtube.com/watch?v=eMWGEI3yvoI)
-- [Fall for her cuteness 💕 #Padminiye #Padmini #shorts #ytshorts](https://www.youtube.com/watch?v=PAIrFHXPuTc)
-- [സ്വർഗ്ഗത്തിന്റെയും ഭൂമിയുടെയും അധിപനായിരുന്നിട്ടും ദരിദ്രനായി ജീവിച്ചു Rev. Aneesh P Joseph #shorts](https://www.youtube.com/watch?v=qIF5ANxzbQ0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
