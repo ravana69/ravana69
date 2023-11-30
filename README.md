@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Dhootha &lpar;2023&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 5GB - 3.5GB &amp; 1GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176534-dhootha-2023-s01-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-5gb-35gb-1gb-esub/&do=findComment&comment=357110)
+- [Mayandi Kudumbathar &lpar;2009&rpar; 480p SS WEB-DL AAC2.0 x264 - 1.3 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176528-mayandi-kudumbathar-2009-480p-ss-web-dl-aac20-x264-13-gb/&do=findComment&comment=357109)
+- [Noodles &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176533-noodles-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357108)
 - [Dhootha &lpar;2023&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 5GB - 3.5GB &amp; 1GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176534-dhootha-2023-s01-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-5gb-35gb-1gb-esub/&do=findComment&comment=357107)
 - [Dhootha &lpar;2023&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 5GB - 3.5GB &amp; 1GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176534-dhootha-2023-s01-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-5gb-35gb-1gb-esub/&do=findComment&comment=357106)
-- [Noodles &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176533-noodles-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357105)
-- [Mayandi Kudumbathar &lpar;2009&rpar; 480p SS WEB-DL AAC2.0 x264 - 1.3 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176528-mayandi-kudumbathar-2009-480p-ss-web-dl-aac20-x264-13-gb/&do=findComment&comment=357104)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 EP89 DAY 88 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 507MB &amp; 212MB | 30-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176538-bigg-boss-telugu-s07-ep89-day-88-true-web-dl-1080p-720p-480p-avc-untouched-1gb-507mb-212mb-30-11-2023/&do=findComment&comment=357103)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
