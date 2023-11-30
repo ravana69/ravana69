@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vijay Sethupathi Movies Collections &lpar;2010 - 2023&rpar; ITune / NF / TK / JC / SS / AMZN /SUNXT - WEB-DL - H264/H265 [4k &amp; 1080p &amp; 720p] [GDRIVE &amp; Telegram]Esubs](https://www.1tamilmv.phd/index.php?/forums/topic/147475-vijay-sethupathi-movies-collections-2010-2023-itune-nf-tk-jc-ss-amzn-sunxt-web-dl-h264h265-4k-1080p-720p-gdrive-telegramesubs/&do=findComment&comment=357064)
+- [Mayandi Kudumbathar &lpar;2009&rpar; 480p SS WEB-DL AAC2.0 x264 - 1.3 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176528-mayandi-kudumbathar-2009-480p-ss-web-dl-aac20-x264-13-gb/&do=findComment&comment=357063)
+- [Pudhupettai &lpar;2006&rpar; AHA WEB-DL AAC2.0 Esubs x264 - 1080p | 720p - 3.2 GB | 1.7 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176527-pudhupettai-2006-aha-web-dl-aac20-esubs-x264-1080p-720p-32-gb-17-gb/&do=findComment&comment=357062)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [30-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176526-movies-collection-all-languages-4k-1080p-720p-576p-480p-30-11-2023/&do=findComment&comment=357061)
 - [Stranger Things Complete S01 - S04 Merged All Episodes In One File NETFLIX WEB-DL [Telugu + Tamil + Hindi + English] | 1080p, 720p, 480p | AVC, HEVC | DDP 5.1 | ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/165433-stranger-things-complete-s01-s04-merged-all-episodes-in-one-file-netflix-web-dl-telugu-tamil-hindi-english-1080p-720p-480p-avc-hevc-ddp-51-esub-google-drive/&do=findComment&comment=357060)
-- [Oppenheimer &lpar;2023&rpar; BluRay - [1080p &amp; 720p - x264 - [Hindi+ Eng] - &lpar;DD+5.1 - 640Kbps&rpar; - 3.8GB - 1.8GB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/161713-oppenheimer-2023-bluray-1080p-720p-x264-hindi-eng-dd51-640kbps-38gb-18gb-400mb-esub/&do=findComment&comment=357059)
-- [50 Tamil Movies - TK/JC/AMZN/SUN NXT/SS - WEB DL - H264/H265 - DDP5.1/AAC2.0 - Esub - [2160p, 1080p &amp; 720p - 475GB] [GDRIVE]](https://www.1tamilmv.phd/index.php?/forums/topic/139539-50-tamil-movies-tkjcamznsun-nxtss-web-dl-h264h265-ddp51aac20-esub-2160p-1080p-720p-475gb-gdrive/&do=findComment&comment=357058)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP60 DAY 59 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 598MB &amp; 234MB | 29-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176525-bigg-boss-tamil-s07-ep60-day-59-true-web-dl-1080p-720p-480p-avc-untouched-11gb-598mb-234mb-29-11-2023/&do=findComment&comment=357057)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
