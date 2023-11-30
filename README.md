@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vibing with guys #Padminiye #Padmini #shorts #ytshorts](https://www.youtube.com/watch?v=eMWGEI3yvoI)
 - [Fall for her cuteness 💕 #Padminiye #Padmini #shorts #ytshorts](https://www.youtube.com/watch?v=PAIrFHXPuTc)
 - [സ്വർഗ്ഗത്തിന്റെയും ഭൂമിയുടെയും അധിപനായിരുന്നിട്ടും ദരിദ്രനായി ജീവിച്ചു Rev. Aneesh P Joseph #shorts](https://www.youtube.com/watch?v=qIF5ANxzbQ0)
 - [Malayalam Christmas Carol Songs 2023 # Christmas Songs Malayalam](https://www.youtube.com/watch?v=JsimXrtmdAw)
 - [LATEST ENGLISH CHRISTMAS CAROL SONG 2023 | Fr. SHAJI THUMPECHIRAYIL | SP BROTHERS](https://www.youtube.com/watch?v=OijCj-KwQbY)
 - [SUPER HIT CHRISTMAS CAROL SONGS 2023 - 2024 | NONSTOP CAROL SONGS MEDLY | JINO KUNNUMPURATH](https://www.youtube.com/watch?v=0y89fuXAqkw)
-- [Thalirvettilayundo | Dhruvam | S P Venkitesh | G Venugopal | K S Chithra | Mammootty #SongOfTheDay](https://www.youtube.com/watch?v=A_KPtuaue1o)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
