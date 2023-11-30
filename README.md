@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Noodles &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176533-noodles-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357087)
+- [Rules Ranjann &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 6.7GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176532-rules-ranjann-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-67gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357086)
+- [Rules Ranjann &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 6.7GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176532-rules-ranjann-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-67gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357085)
 - [Kushi &lpar;2001&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p, 480p - AVC - &lpar;DD+5.1 - 640Kbps &amp; AAC 2.0&rpar; - 7GB - 3.7GB &amp; 1.4GB] - ESub - Netflix](https://www.1tamilmv.phd/index.php?/forums/topic/176531-kushi-2001-telugu-true-web-dl-1080p-720p-480p-avc-dd51-640kbps-aac-20-7gb-37gb-14gb-esub-netflix/&do=findComment&comment=357084)
 - [Stranger Things Complete S01 - S04 Merged All Episodes In One File NETFLIX WEB-DL [Telugu + Tamil + Hindi + English] | 1080p, 720p, 480p | AVC, HEVC | DDP 5.1 | ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/165433-stranger-things-complete-s01-s04-merged-all-episodes-in-one-file-netflix-web-dl-telugu-tamil-hindi-english-1080p-720p-480p-avc-hevc-ddp-51-esub-google-drive/&do=findComment&comment=357083)
-- [Unveiling the Future of Astrophysics with AI Revolutionizing Cosmic Exploration](https://www.1tamilmv.phd/index.php?/forums/topic/163264-unveiling-the-future-of-astrophysics-with-ai-revolutionizing-cosmic-exploration/&do=findComment&comment=357082)
-- [The Future of Virtual Reality: Ai Paving the Way for Unprecedented Experiences](https://www.1tamilmv.phd/index.php?/forums/topic/163265-the-future-of-virtual-reality-ai-paving-the-way-for-unprecedented-experiences/&do=findComment&comment=357081)
-- [Astro-Harmony Unleashed: Scientists Uncover Six Alien Worlds in Perfect Synchronization!](https://www.1tamilmv.phd/index.php?/forums/topic/159431-astro-harmony-unleashed-scientists-uncover-six-alien-worlds-in-perfect-synchronization/&do=findComment&comment=357080)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
