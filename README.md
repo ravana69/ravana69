@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Padiyum Paranjum | Vayalar Sarath Chandra Varma with Sreejith K. Warrier | Interview](https://www.youtube.com/watch?v=hdq0mzX1rq4)
+- [Manchu Mancheera Video Song | Aagneyam | KJ Yesudas | Jayaram | Gautami](https://www.youtube.com/watch?v=9pymWDldA5A)
 - [NIN SANIDHYAM DEVA | ATHIRA SHAJU | PAVITHRAN AMACHAL | BINCY ELAPPARA | JINO KUNNUMPURATH | REEL 2](https://www.youtube.com/watch?v=PIpa_wSXfG4)
 - [Avva Avva Video Song | Sathyam Sivam Sundaram | Kunchacko Boban | Aswathy Menon | Vidyasagar](https://www.youtube.com/watch?v=cexqDWo692c)
 - [ഒരു രാജമല്ലി Aniyathipraavu | M. G. Sreekumar | Shalini, Kunchacko Boban](https://www.youtube.com/watch?v=NIGJjbP_QQA)
 - [Kashithumba Kavayi Neelavanam | Mookkilla Rajyathu | Kaithapram | Ouseppachan | MG Sreekumar](https://www.youtube.com/watch?v=qT4s3SwFlyY)
-- [ഒരിക്കൽ കൂടി കേട്ടിരുന്നെങ്കിലോയെന്ന് ഒരുപാട് ആശിച്ചുപോയ മലയാളചലച്ചിത്ര ഗാനങ്ങൾ | MALAYALAM HITS](https://www.youtube.com/watch?v=lODEl1u1FLw)
-- [ഹൃദയത്തിൻ അകതാരിൽ | Hridayathin Akatharil | Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=ZFtF1T0XXgc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
