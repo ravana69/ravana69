@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Shehar Lakhot &lpar;2023&rpar; S01 EP &lpar;01-08&rpar; Hindi TRUE WEB-DL - [1080p - 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 3GB &amp; 1GB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176522-shehar-lakhot-2023-s01-ep-01-08-hindi-true-web-dl-1080p-720p-avc-dd51-192kbps-3gb-1gb-esub/&do=findComment&comment=357074)
-- [SUPER &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.8GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176529-super-2005-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-68gb-esub/&do=findComment&comment=357073)
-- [Chitta &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176498-chitta-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-192kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=357072)
-- [Cupid &lpar;2020&rpar; &lpar;UnCut HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176490-cupid-2020-uncut-hd-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=357071)
-- [Smugglers &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Kor&rpar; - 3GB &amp; 1.5GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 500MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176491-smugglers-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-kor-3gb-15gb-x264-tamil-telugu-hindi-500mb-esub/&do=findComment&comment=357070)
+- [Unveiling the Future of Astrophysics with AI Revolutionizing Cosmic Exploration](https://www.1tamilmv.phd/index.php?/forums/topic/163264-unveiling-the-future-of-astrophysics-with-ai-revolutionizing-cosmic-exploration/&do=findComment&comment=357082)
+- [The Future of Virtual Reality: Ai Paving the Way for Unprecedented Experiences](https://www.1tamilmv.phd/index.php?/forums/topic/163265-the-future-of-virtual-reality-ai-paving-the-way-for-unprecedented-experiences/&do=findComment&comment=357081)
+- [Astro-Harmony Unleashed: Scientists Uncover Six Alien Worlds in Perfect Synchronization!](https://www.1tamilmv.phd/index.php?/forums/topic/159431-astro-harmony-unleashed-scientists-uncover-six-alien-worlds-in-perfect-synchronization/&do=findComment&comment=357080)
+- [Unlocking the Genetic Secrets of ADHD: Single Gene Variations Unveil Surprising Insights](https://www.1tamilmv.phd/index.php?/forums/topic/159430-unlocking-the-genetic-secrets-of-adhd-single-gene-variations-unveil-surprising-insights/&do=findComment&comment=357079)
+- [Unveiling the Cosmic Battery: Harnessing Tiny Black Holes for Nuclear Power!](https://www.1tamilmv.phd/index.php?/forums/topic/159429-unveiling-the-cosmic-battery-harnessing-tiny-black-holes-for-nuclear-power/&do=findComment&comment=357078)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
