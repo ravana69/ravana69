@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [SUPER &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.8GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176529-super-2005-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-68gb-esub/&do=findComment&comment=357073)
 - [Chitta &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176498-chitta-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-192kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=357072)
 - [Cupid &lpar;2020&rpar; &lpar;UnCut HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176490-cupid-2020-uncut-hd-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=357071)
 - [Smugglers &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Kor&rpar; - 3GB &amp; 1.5GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 500MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176491-smugglers-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-kor-3gb-15gb-x264-tamil-telugu-hindi-500mb-esub/&do=findComment&comment=357070)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP88 DAY 87 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 974MB - 472MB &amp; 197MB | 29-11-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176524-bigg-boss-telugu-s07-ep88-day-87-true-web-dl-1080p-720p-480p-avc-untouched-974mb-472mb-197mb-29-11-2023/&do=findComment&comment=357069)
-- [Dhoomam &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 8.5GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176518-dhoomam-2023-malayalam-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-85gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357068)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
