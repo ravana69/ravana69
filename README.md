@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Candy Cane Lane &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Malayalam + Kannada + Eng&rpar; - 4GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176550-candy-cane-lane-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-malayalam-kannada-eng-4gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=357133)
 - [Candy Cane Lane &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Malayalam + Kannada + Eng&rpar; - 4GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176550-candy-cane-lane-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-malayalam-kannada-eng-4gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=357132)
 - [Stranger Things Complete S01 - S04 Merged All Episodes In One File NETFLIX WEB-DL [Telugu + Tamil + Hindi + English] | 1080p, 720p, 480p | AVC, HEVC | DDP 5.1 | ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/165433-stranger-things-complete-s01-s04-merged-all-episodes-in-one-file-netflix-web-dl-telugu-tamil-hindi-english-1080p-720p-480p-avc-hevc-ddp-51-esub-google-drive/&do=findComment&comment=357131)
 - [Candy Cane Lane &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Malayalam + Kannada + Eng&rpar; - 4GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176550-candy-cane-lane-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-malayalam-kannada-eng-4gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=357127)
 - [Chithha &lpar;2023&rpar; WEB-DL DDP5.1 Esubs - 2160p | 1080p - 12.2 GB | 10.1 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176549-chithha-2023-web-dl-ddp51-esubs-2160p-1080p-122-gb-101-gb/&do=findComment&comment=357126)
-- [Label S01E06 2160p DSNP WEB-DL Multi DDP5.1 Esubs - 2160p | 1080p | 720p - 2.7 GB | 1 GB | 0.5 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176548-label-s01e06-2160p-dsnp-web-dl-multi-ddp51-esubs-2160p-1080p-720p-27-gb-1-gb-05-gb/&do=findComment&comment=357125)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
