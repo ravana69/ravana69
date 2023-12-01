@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP90 DAY 89 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 491MB &amp; 204MB | 01-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176571-bigg-boss-telugu-s07-ep90-day-89-true-web-dl-1080p-720p-480p-avc-untouched-1gb-491mb-204mb-01-12-2023/&do=findComment&comment=357192)
 - [Annapoorani - The Goddess of Food &lpar;2023&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176557-annapoorani-the-goddess-of-food-2023-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357191)
 - [800 &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 8GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176574-800-2023-hindi-true-web-dl-1080p-720p-avc-hevc-8gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357190)
 - [800 &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 8GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176573-800-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-8gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357189)
 - [800 &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 8GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176572-800-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-8gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357188)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 EP90 DAY 89 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 491MB &amp; 204MB | 01-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176571-bigg-boss-telugu-s07-ep90-day-89-true-web-dl-1080p-720p-480p-avc-untouched-1gb-491mb-204mb-01-12-2023/&do=findComment&comment=357187)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
