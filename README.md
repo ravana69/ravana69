@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Ormakkai Iniyoru Snehageetham | Ormakkai  | K J Yesudas, K S Chithra | East Coast Vijayan #Shorts](https://www.youtube.com/watch?v=r4CEi_H8ZW8)
-- [RITHU | Musical Album | G.Venugopal | Anil Zacharia Chennamkara | Sreekumar S. Nair | Ajith Menon S](https://www.youtube.com/watch?v=le6w7o2Uav0)
-- [James Bond Super Power | Adayaalam | SP Balasubrahmanyam  |#shorts](https://www.youtube.com/watch?v=L1jffcT13vQ)
-- [Christmas Acapella Song | Bethlehem Night | Choir | Kings & Queens Band promo video](https://www.youtube.com/watch?v=Z2dcas4erlk)
-- [Christmas Acapella Song | Bethlehem Night | Choir | Fr. Justin kaliyaniyil CMI | Kings & Queens Band](https://www.youtube.com/watch?v=pUuRqThFYQ8)
-- [Pulli Promo Song | Lyrical video | Jiju Asokan | Indrans | Dev Mohan | Bijibal | 123Musix](https://www.youtube.com/watch?v=Zxk-pTBd9q4)
+- [ഹാഗറേ നിനക്കെന്ത് നീ ഭയപ്പെടേണ്ട!  Rev. Aneesh P Joseph #shorts](https://www.youtube.com/watch?v=zk5X5JvbdY0)
+- [Anthikku Vaanil | Bangkok Summer | Sujatha Mohan | Ouseppachan | Shibu Chakravarthy](https://www.youtube.com/watch?v=xP0nuYeldmM)
+- [Harimuraleeravam | Aaraam Thamburaan | Raveendran | K J Yesudas | Gireesh Puthenchery #songoftheday](https://www.youtube.com/watch?v=hi9ksGD9SSo)
+- [Minnaram Maanathu Video Song | Guru | Sujatha Mohan | Ilayaraja](https://www.youtube.com/watch?v=WZ5CgHXbLbE)
+- [Welcome December✨#shorts|#christmasshorts #christmas2023 #trendingchristmasstatus](https://www.youtube.com/watch?v=zZcahDmgkEc)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 1st of December 2023](https://www.youtube.com/watch?v=oIIgArsEDL0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
