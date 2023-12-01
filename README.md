@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Noodles &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176533-noodles-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357123)
 - [Gadar 2 &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 384Kbps&rpar; - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176539-gadar-2-2023-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-384kbps-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357122)
 - [Thank You for Coming &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176546-thank-you-for-coming-2023-hindi-true-web-dl-1080p-720p-avc-dd51-640kbps-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=357121)
 - [Ghost &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176545-ghost-2023-telugu-true-web-dl-1080p-720p-avc-dd51-384kbps-2gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=357120)
 - [Dhootha &lpar;2023&rpar; S01 EP &lpar;01 - 08&rpar; 1080p , 720p AMZN WEB-DL ×264/265 [&lpar;Tamil + Telugu + Hindi + Malayalam + Kannada&rpar; DD+ 5.1 - 192/640kbps] - 18GB - 15GB - 8GB - 5GB - ESub - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/167794-dhootha-2023-s01-ep-01-08-1080p-720p-amzn-web-dl-%C3%97264265-tamil-telugu-hindi-malayalam-kannada-dd-51-192640kbps-18gb-15gb-8gb-5gb-esub-leyon/&do=findComment&comment=357119)
-- [Garudan &lpar;2023&rpar; Malayalam TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176544-garudan-2023-malayalam-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357118)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
