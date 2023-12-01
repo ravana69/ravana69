@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [1 December 2023](https://www.youtube.com/watch?v=0_GemIqGDMQ)
 - [Thumbi Manjaleri Vaa | Mazha Peyyunnu Maddhalam Kottunnu | MG Sreekumar | Mohanlal | Mukesh](https://www.youtube.com/watch?v=kKQ2sKSaltM)
 - [Balachandra Menon, K.J. Yesudas - Ezhaam Kadal (Lyric Video)](https://www.youtube.com/watch?v=5Qtv2zqIZQs)
 - [Johnson, Biju Narayanan, K.S. Chithra - Poovo Nilaavo Paalaazhiyo (Lyric Video)](https://www.youtube.com/watch?v=bePcv6ciRsw)
 - [Johnson, K.S. Chithra - Thevaara Poomalayil (Version, 2) (Lyric Video)](https://www.youtube.com/watch?v=2Spbi-gg0Lw)
 - [M. Jayachandran, M.G. Sreekumar, Sujatha - Hello Hello Mister Romeo (Lyric Video)](https://www.youtube.com/watch?v=QzTDndnrA-A)
-- [Joody, K.S. Chithra - Arinjo Ariyaatheyo (Version, 2) (Lyric Video)](https://www.youtube.com/watch?v=Xk-KmmEWMp8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
