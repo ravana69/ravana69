@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Salaar CeaseFire &lpar;Tamil + Telugu + Malayalam  + Kannada + Hindi&rpar;Trailer | Prabhas, Prashanth, Prithviraj, Shruthi, Vijay Kiragandur |Hombale](https://www.1tamilmv.phd/index.php?/forums/topic/176569-salaar-ceasefire-tamil-telugu-malayalam-kannada-hinditrailer-prabhas-prashanth-prithviraj-shruthi-vijay-kiragandur-hombale/&do=findComment&comment=357184)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [1-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176547-movies-collection-all-languages-4k-1080p-720p-576p-480p-1-12-2023/&do=findComment&comment=357183)
 - [Gadar 2 &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 384Kbps&rpar; - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176568-gadar-2-2023-telugu-true-web-dl-1080p-720p-avc-hevc-aac-51-384kbps-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357182)
 - [Gadar 2 &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 384Kbps&rpar; - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176539-gadar-2-2023-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-384kbps-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357181)
 - [Animal &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176555-animal-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357180)
-- [Animal &lpar;2023&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176554-animal-2023-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357179)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
