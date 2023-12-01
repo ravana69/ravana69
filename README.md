@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Uriyadi &lpar;2016&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 6.2GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176552-uriyadi-2016-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-62gb-esub-gdflix/&do=findComment&comment=357194)
 - [Indiana Jones and the Dial of Destiny &lpar;2023&rpar; TRUE WEB-DL - 4K &amp; 1080p - HEVC / AVC - UNTOUCHED - [Tamil + Telugu + Hindi + English&lpar;DD+5.1&lpar;768kbps&rpar; Atmos&rpar;] - DD+5.1&lpar;192kbps&rpar; - 23.4GB &amp; 12.3GB - ESub [GDrive]](https://www.1tamilmv.phd/index.php?/forums/topic/176575-indiana-jones-and-the-dial-of-destiny-2023-true-web-dl-4k-1080p-hevc-avc-untouched-tamil-telugu-hindi-englishdd51768kbps-atmos-dd51192kbps-234gb-123gb-esub-gdrive/&do=findComment&comment=357193)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP90 DAY 89 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 491MB &amp; 204MB | 01-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176571-bigg-boss-telugu-s07-ep90-day-89-true-web-dl-1080p-720p-480p-avc-untouched-1gb-491mb-204mb-01-12-2023/&do=findComment&comment=357192)
 - [Annapoorani - The Goddess of Food &lpar;2023&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176557-annapoorani-the-goddess-of-food-2023-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357191)
 - [800 &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 8GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176574-800-2023-hindi-true-web-dl-1080p-720p-avc-hevc-8gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357190)
-- [800 &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 8GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176573-800-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-8gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357189)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
