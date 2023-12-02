@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈ ലുത്തിനിയ നിങ്ങൾ കേട്ട് പ്രാർത്ഥിച്ചു പോകും # അമ്മയെൻ പുണ്യം എന്ന ആൽബത്തിൽ നിന്നും](https://www.youtube.com/watch?v=fBXoI8FIPwo)
+- [Christian Video Songs | Sreya Jayadeep | Kester | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=I0YKKgB0QsI)
+- [Japamala 2nd of December 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 2nd of December 23](https://www.youtube.com/watch?v=Fx82BVbz3i4)
+- [മാതാവിൻറെ  ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #christian devotional songs malayalam mother dec](https://www.youtube.com/watch?v=B4VooJzKurE)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=BygbvQG_oSg)
 - [പ്രഭാത പ്രാര്‍ത്ഥന December 2 # Athiravile Prarthana 2nd December 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=OxYzG2kypn8)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=j_zGZFqPEFM)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 2nd December 23](https://www.youtube.com/watch?v=LSs1lttdqA4)
-- [പദ്മരാജൻ ഹിറ്റ്‌സ് 2| കെ ജെ യേശുദാസ് | കെ എസ് ചിത്ര | മലയാളചലച്ചിത്രഗാനങ്ങൾ | Padmarajan Hits](https://www.youtube.com/watch?v=6HVpyCYRAxA)
-- [1 December 2023](https://www.youtube.com/watch?v=0_GemIqGDMQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
