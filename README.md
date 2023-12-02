@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [800 &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 8GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176572-800-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-8gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357205)
+- [Indiana Jones and the Dial of Destiny &lpar;2023&rpar; &lpar;BluRay + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 8GB - 3.2GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176553-indiana-jones-and-the-dial-of-destiny-2023-bluray-original-audios-4k-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-eng-8gb-32gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=357204)
+- [Kaadhalikka.Neramillai.1964.Tamil.480p.AVC.AAC2.0 - 1.5GB](https://www.1tamilmv.phd/index.php?/forums/topic/176516-kaadhalikkaneramillai1964tamil480pavcaac20-15gb/&do=findComment&comment=357203)
+- [[4K] Dhootha S01 COMPLETE 2160p AMZN WEB-DL Multi DDP5.1 Esubs x265 HEVC - Single Episodes - 42.7 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176582-4k-dhootha-s01-complete-2160p-amzn-web-dl-multi-ddp51-esubs-x265-hevc-single-episodes-427-gb/&do=findComment&comment=357202)
 - [Parking &lpar;2023&rpar; Tamil HQ PreDVD - 1080p - x264 - AI Cleaned Audio - 2.7GB - TMV](https://www.1tamilmv.phd/index.php?/forums/topic/176581-parking-2023-tamil-hq-predvd-1080p-x264-ai-cleaned-audio-27gb-tmv/&do=findComment&comment=357201)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [2-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176580-movies-collection-all-languages-4k-1080p-720p-576p-480p-2-12-2023/&do=findComment&comment=357200)
-- [The.Angel.Maker.2023.1080p.,720p AMZN.WEB-DL.DDP5.1 &lpar;Direct download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176579-theangelmaker20231080p720p-amznweb-dlddp51-direct-download/&do=findComment&comment=357199)
-- [Garudan.2023.2160p, 1080p, 720p .AMZN.WEB-DL.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176578-garudan20232160p-1080p-720p-amznweb-dlddp51-direct-download/&do=findComment&comment=357198)
-- [800 &lpar;2023&rpar; JC WEB-DL DDP5.1 Esubs x264 - 2160p | 1080p | 720p - 17.9 GB | 9.5 GB | 1.5 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176577-800-2023-jc-web-dl-ddp51-esubs-x264-2160p-1080p-720p-179-gb-95-gb-15-gb/&do=findComment&comment=357197)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
