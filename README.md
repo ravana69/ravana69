@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [[4K] Dhootha S01 COMPLETE 2160p AMZN WEB-DL Multi DDP5.1 Esubs x265 HEVC - Single Episodes - 42.7 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176582-4k-dhootha-s01-complete-2160p-amzn-web-dl-multi-ddp51-esubs-x265-hevc-single-episodes-427-gb/&do=findComment&comment=357245)
+- [800 &lpar;2023&rpar; JC WEB-DL DDP5.1 Esubs x264 - 2160p | 1080p | 720p - 17.9 GB | 9.5 GB | 1.5 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176577-800-2023-jc-web-dl-ddp51-esubs-x264-2160p-1080p-720p-179-gb-95-gb-15-gb/&do=findComment&comment=357244)
+- [Indiana Jones and the Dial of Destiny &lpar;2023&rpar; 2160p ,1080p, 720p DSNP WEB-DL ×264/265 [Tamil + Telugu + Hindi + English &lpar;DD+ 5.1 - 192kbps&rpar;] - 14.7GB - 9.5GB - 5.3GB - 3.2GB - 2.6GB - 1.6GB - 1.2GB - ESub - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/167721-indiana-jones-and-the-dial-of-destiny-2023-2160p-1080p-720p-dsnp-web-dl-%C3%97264265-tamil-telugu-hindi-english-dd-51-192kbps-147gb-95gb-53gb-32gb-26gb-16gb-12gb-esub-leyon/&do=findComment&comment=357243)
 - [Fight Club - Official Teaser | Vijay Kumar | Govind Vasantha | Abbas A Rahmath](https://www.1tamilmv.phd/index.php?/forums/topic/176588-fight-club-official-teaser-vijay-kumar-govind-vasantha-abbas-a-rahmath/&do=findComment&comment=357242)
 - [Uriyadi 2 &lpar;2019&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 4GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176583-uriyadi-2-2019-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-4gb-esub-gdflix/&do=findComment&comment=357241)
-- [Indiana.Jones.and.the.Dial.of.Destiny.2023 DDP 5.1 Tamil-Telugu-Hindi 1080p.Remux-Esubs 32GB [G-Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176590-indianajonesandthedialofdestiny2023-ddp-51-tamil-telugu-hindi-1080premux-esubs-32gb-g-drive/&do=findComment&comment=357240)
-- [Oohalu Gusagusalade &lpar;2014&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.4GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176589-oohalu-gusagusalade-2014-telugu-dvd9-untouched-480p-dd51-448kbps-64gb-esub/&do=findComment&comment=357239)
-- [Fight Club - Official Teaser | Vijay Kumar | Govind Vasantha | Abbas A Rahmath](https://www.1tamilmv.phd/index.php?/forums/topic/176588-fight-club-official-teaser-vijay-kumar-govind-vasantha-abbas-a-rahmath/&do=findComment&comment=357238)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
