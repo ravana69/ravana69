@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Fight Club - Official Teaser | Vijay Kumar | Govind Vasantha | Abbas A Rahmath](https://www.1tamilmv.phd/index.php?/forums/topic/176588-fight-club-official-teaser-vijay-kumar-govind-vasantha-abbas-a-rahmath/&do=findComment&comment=357238)
 - [Fire Force S01 EP04 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 250MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176587-fire-force-s01-ep04-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-250mb-200mb-esub-google-drive/&do=findComment&comment=357237)
 - [Fire Force S01 EP02 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 200MB - 150MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176586-fire-force-s01-ep02-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-200mb-150mb-esub-google-drive/&do=findComment&comment=357236)
 - [Fire Force S01 EP03 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 250MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176585-fire-force-s01-ep03-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-250mb-200mb-esub-google-drive/&do=findComment&comment=357235)
 - [Fire Force S01 EP01 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 300MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176584-fire-force-s01-ep01-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-300mb-200mb-esub-google-drive/&do=findComment&comment=357234)
-- [Uriyadi 2 &lpar;2019&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 4GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176583-uriyadi-2-2019-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-4gb-esub-gdflix/&do=findComment&comment=357233)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
