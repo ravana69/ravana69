@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളികൾ കാതു കൂർപ്പിച്ച് കേട്ടിരുന്ന മലയാളസിനിമയിലെ അനശ്വരഗാനങ്ങൾ | EVERLASTING MALAYALAM SONGS](https://www.youtube.com/watch?v=OQ1pNV_1BtQ)
+- [നവരസങ്ങളും മിന്നിമറയുന്ന നായികാപ്രതിഭാസം ഉർവ്വശിയുടെ ഇഷ്ടഗാനങ്ങൾ | HITS OF URVASHI | EVERGREEN HITS](https://www.youtube.com/watch?v=NtiiawNHPiU)
 - [ആശ്രിതരുടെ ആശ്രയം | TRIBUTE TO BARNABAS THIRUMENI | ROY PUTHUR |#royputhur #christiandevotionalsongs](https://www.youtube.com/watch?v=pSGoBTeeIIY)
 - [ആരോരും ഇല്ലാത്ത നേരങ്ങളിൽ തുണയായി അണഞ്ഞീടും രാജകന്യകേ #ammeyen punniyam album song](https://www.youtube.com/watch?v=T4DXnGsGzpc)
 - [Karayaruthennu Video Song | Class By A Soldier | Meenakshi Anoop | Sreya Jayadeep | Chinmayi Nair](https://www.youtube.com/watch?v=_PU2KIfGHJE)
 - [Kaanju Poyenteyee | Ordinary | Vidyadharan | Vidyasagar | Rajeev Govindan](https://www.youtube.com/watch?v=XMAV1OPYS94)
-- [ആരും വിളിക്കാതെ ചിലപ്പോൾ യേശു വരും | Rev. Aneesh P Joseph #shorts](https://www.youtube.com/watch?v=hOo5PtXeGmw)
-- [Thei Oru Thenavayal | Chandranudikkunna Dikkil | Vidyasagar #SongOfTheDay](https://www.youtube.com/watch?v=cIkoG0HcpeU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
