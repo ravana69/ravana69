@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Ellam Ange | Fr. Severios Thomas | Shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=4PNfkwqKWs0)
-- [James Bond Super Power Video Song | Adayaalam | S P Balasubrahmanyam | Mammootty](https://www.youtube.com/watch?v=8nlYHwzbhIM)
-- [PONNANINJA PONPULARI |  Christmas Carol Song 2023 | Vishnu P R | Emanual | Fr Shaji Thumpechirayil](https://www.youtube.com/watch?v=4nZiUNSbTF0)
-- [Doore Mamarakombil Video Song | Varnapakittu | Meena | Mohanlal | KS Chithra | Vidyasagar](https://www.youtube.com/watch?v=FboPnLn-v4s)
-- [In library 📖 #Padminiye #Padmini #shorts #ytshorts](https://www.youtube.com/watch?v=QgwZA_HoLUQ)
-- [Cheena Trophy | Official Trailer | Dhyan Sreenivasan |  Kendy Zirdo | Johny Antony | Anil Lal](https://www.youtube.com/watch?v=hUAVJfyEia8)
+- [Karayaruthennu Video Song | Class By A Soldier | Meenakshi Anoop | Sreya Jayadeep | Chinmayi Nair](https://www.youtube.com/watch?v=_PU2KIfGHJE)
+- [Kaanju Poyenteyee | Ordinary | Vidyadharan | Vidyasagar | Rajeev Govindan](https://www.youtube.com/watch?v=XMAV1OPYS94)
+- [ആരും വിളിക്കാതെ ചിലപ്പോൾ യേശു വരും | Rev. Aneesh P Joseph #shorts](https://www.youtube.com/watch?v=hOo5PtXeGmw)
+- [Thei Oru Thenavayal | Chandranudikkunna Dikkil | Vidyasagar #SongOfTheDay](https://www.youtube.com/watch?v=cIkoG0HcpeU)
+- [Kamukippattu × Gandhinagar 2nd Street | Sooraj Santhosh | Mohanlal | Karthika | Saina Music Mixpod!](https://www.youtube.com/watch?v=ktQc7ZYQYZg)
+- [Hits of Jayaram | Malayalam Film CompilationS | Yesudas | Johnson | Sound of Arts](https://www.youtube.com/watch?v=q9kvPbgpkn4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
