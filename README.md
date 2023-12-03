@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [എന്റെ ദയ നിന്നെ വിട്ടുമാറുകയില്ല; | Rev. Aneesh P Joseph #shortvideo #shorts](https://www.youtube.com/watch?v=uhhRUKK71Qo)
+- [Aanalla Pennalla Video Song | Njangal Santhushtaranu | Ouseppachan | MG Sreekumar | Jayaram](https://www.youtube.com/watch?v=ychgLjvPbIs)
+- [Kallayi Kadavathe Video Song | Perumazhakkalam| Dileep| Meera Jasmine| P Jayachandran| Sujatha Mohan](https://www.youtube.com/watch?v=cCLK6RWYPL8)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 3rd of December 2023](https://www.youtube.com/watch?v=Yg9v0QdSvhI)
+- [നിത്യരക്ഷകനെ കാത്തിരിക്കുന്നവർക്ക് പ്രതീക്ഷയേകുന്ന ഗാനങ്ങൾ | Rithuraj | Christian Devotional Songs](https://www.youtube.com/watch?v=9YqXYKtu8Us)
 - [Thaimavin Thanalil |Oru Yathramozhi | Mohanlal | Ranjitha #shorts](https://www.youtube.com/watch?v=wgeq9prtfkg)
-- [Blissful melody  #MunnilRandChembarathi #BhagavanDasanteRamarajyam #shorts #ytshorts](https://www.youtube.com/watch?v=Gg_sfior4f0)
-- [December 3 Christmas Reflection](https://www.youtube.com/watch?v=-vx40-mLzCM)
-- [Sandhye Kanneerithenthe | Madanolsavam | ONV Kuruppu | Salil Chowdhury | S Janaki | Evergreen Hits](https://www.youtube.com/watch?v=CGh-lhPmpIs)
-- [ഒഴുകൂ സരയൂ നദിയായ് രാഗോന്മാദം #evergreenhits #dileep #manjuwarrier #movieworldmusic #shortsyoutube](https://www.youtube.com/watch?v=KRu7SKIr0Qw)
-- [HAALEL | ഹാലെൽ | CHRISTMAS CAROL SONG | ROY PUTHUR | VISHNU VIJAY #chrismas2023  #christmascarols](https://www.youtube.com/watch?v=bPhQUlLHkBk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
