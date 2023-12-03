@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ee Neelaravil | Kottayam Kunjachan | Mammootty | Yesudas | Short Video | Sound of Arts](https://www.youtube.com/watch?v=MKK7cIBRnes)
+- [മധുരമുള്ള ക്രിസ്മസ് ഗാനങ്ങൾ  | Christian Devotional Songs Malayalam | KG Markose](https://www.youtube.com/watch?v=ewNsyXcD0_A)
+- [ക്രിസ്ത്മസ് ഗാനങ്ങൾ #christmas  SONGS MALAYALAM EVERGREEN HITS #നല്ല ഗാനങ്ങൾ ഇതിൽ ഉണ്ട്](https://www.youtube.com/watch?v=NDSXzVpRWtw)
+- [Japamala 3rd of December 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 3rd of December 2023](https://www.youtube.com/watch?v=bEMiA5mb3WA)
+- [എത്രയും ദയയുള്ള മാതാവേ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം # 3rd  December 2023 #Ethrayeum dhayaulla ma](https://www.youtube.com/watch?v=jeqzkswLwDM)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=UiilVqasHXA)
-- [രാവിലെ പ്രാര്‍ത്ഥന December 3 # Athiravile Prarthana 3rd of December 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=viI7Awp0I0o)
-- [Christmas Acapella Song | Bethlehem Night | Choir | Fr. Justin kaliyaniyil CMI | Kings & Queens Band](https://www.youtube.com/watch?v=b_5_pXRSe3Q)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=-UpaE4Nfbgg)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 3rd December 23](https://www.youtube.com/watch?v=h-mNaubrc64)
-- [2 December 2023](https://www.youtube.com/watch?v=is0rKZ2cYcM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
