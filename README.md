@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Bujjigadu Made In Chennai &lpar;2008&rpar; Telugu TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DD+5.1 - 640Kbps &amp; AAC 2.0&rpar; - 5.8GB - ESub - Netflix](https://www.1tamilmv.phd/index.php?/forums/topic/176601-bujjigadu-made-in-chennai-2008-telugu-true-web-dl-1080p-avc-untouched-dd51-640kbps-aac-20-58gb-esub-netflix/&do=findComment&comment=357275)
+- [The Idol &lpar;2023&rpar; S01 EP &lpar;01-05&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada + Eng] - 3.7GB - 1.8GB &amp; 800MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176600-the-idol-2023-s01-ep-01-05-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-37gb-18gb-800mb-esub/&do=findComment&comment=357274)
 - [The Idol &lpar;2023&rpar; S01 EP &lpar;01-05&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada + Eng] - 3.7GB - 1.8GB &amp; 800MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176600-the-idol-2023-s01-ep-01-05-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-37gb-18gb-800mb-esub/&do=findComment&comment=357273)
 - [Piranha Duology &lpar;2010 - 2012&rpar; UNRATED BluRay - 1080p - x264 - Original Audios &lpar;DD5.1 - 192Kbps&rpar; - [ Tamil + Telugu + Hindi + Eng] - 3.5GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/124877-piranha-duology-2010-2012-unrated-bluray-1080p-x264-original-audios-dd51-192kbps-tamil-telugu-hindi-eng-35gb-esub/&do=findComment&comment=357272)
 - [800 &lpar;2023&rpar; Kannnada TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176599-800-2023-kannnada-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-26gb-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=357271)
-- [800 &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176598-800-2023-malayalam-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-26gb-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=357270)
-- [Piranha Duology &lpar;2010 - 2012&rpar; UNRATED BluRay - 1080p - x264 - Original Audios &lpar;DD5.1 - 192Kbps&rpar; - [ Tamil + Telugu + Hindi + Eng] - 3.5GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/124877-piranha-duology-2010-2012-unrated-bluray-1080p-x264-original-audios-dd51-192kbps-tamil-telugu-hindi-eng-35gb-esub/&do=findComment&comment=357269)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
