@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [NIJAM &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 384Kbps&rpar; - 6.4GB - ESub - Crow DVD](https://www.1tamilmv.phd/index.php?/forums/topic/176597-nijam-2003-telugu-dvd9-untouched-480p-dd51-384kbps-64gb-esub-crow-dvd/&do=findComment&comment=357263)
+- [Vikram Rathod &lpar;2023&rpar; Telugu HD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176564-vikram-rathod-2023-telugu%C2%A0hd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357262)
 - [800 &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 8GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176572-800-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-8gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357261)
 - [Kanithan &lpar;2016&rpar; 480p SUARA DVD5 REMUX DD5.1 Esubs x264 - 4.1 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176595-kanithan-2016-480p-suara-dvd5-remux-dd51-esubs-x264-41-gb/&do=findComment&comment=357260)
 - [NIJAM &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 384Kbps&rpar; - 6.4GB - ESub - Crow DVD](https://www.1tamilmv.phd/index.php?/forums/topic/176597-nijam-2003-telugu-dvd9-untouched-480p-dd51-384kbps-64gb-esub-crow-dvd/&do=findComment&comment=357259)
-- [Dhanush Movies Collections &lpar;2002 - 2023&rpar; HD / NF / TK / SS / AMZN / SNXT / AYN - WEB DL - H264/H265 [4k &amp; 1080p] GDRIVE Esubs](https://www.1tamilmv.phd/index.php?/forums/topic/147465-dhanush-movies-collections-2002-2023-hd-nf-tk-ss-amzn-snxt-ayn-web-dl-h264h265-4k-1080p-gdrive-esubs/&do=findComment&comment=357258)
-- [[4K] Indiana Jones and the Dial of Destiny &lpar;2023&rpar; Bluray REMUX Multi TrueHD Atmos7.1 Esubs - 2160p [HDR10-DoVi] - 71.8 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176596-4k-indiana-jones-and-the-dial-of-destiny-2023-bluray-remux-multi-truehd-atmos71-esubs-2160p-hdr10-dovi-718-gb/&do=findComment&comment=357257)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
