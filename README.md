@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [സാറെ പറ . കേരളം അറിയട്ടെ  Naradan Movie Scene| Aashiq Abu | Tovino Thomas | Anna Ben | Indrans |](https://www.youtube.com/watch?v=auPVhztXqKM)
+- [വക്കിൽ നോട്ടീസ് ഇത് ആദ്യമായിട്ട് ഒന്നുമല്ലലോ. Naradan Movie Scene | Aashiq Abu | Tovino Thomas |](https://www.youtube.com/watch?v=Q10gaNs3-Ak)
 - [മിനിസ്റ്റർ ഇതുവരെ റീയാക്ട് ചെയ്തിട്ടില്ല Naradan Movie scene | Aashiq Abu | Tovino Thomas | Anna Ben](https://www.youtube.com/watch?v=o4Q7gSdKXgc)
 - [നിന്റെ കൈയിൽ ഐറ്റമുണ്ടെന്ന് അയാൾക്ക് അറിയാം Naradan Movie Scene | Aashiq Abu | Tovino Thomas |](https://www.youtube.com/watch?v=Bb976ah6U64)
 - [ഞങ്ങളാണ് പ്രചാരകർ | Naradan Movie scene | Aashiq Abu | Tovino Thomas | Anna Ben](https://www.youtube.com/watch?v=qQct-OUd74Y)
 - [നിങ്ങളുടെ  സൈലെൻസല്ല എനിക്ക് വേണ്ട ഉത്തരം Naradan Movie Scene | Aashiq Abu | Tovino Thomas |](https://www.youtube.com/watch?v=b9-Jc_7GRLg)
-- [ചന്ദ്രപ്രകാശ നിന്റെ പ്രകാശമൊക്കെ പോയല്ലോ. Naradan | Movie scenes | Aashiq Abu | Tovino Thomas |](https://www.youtube.com/watch?v=1fCMbMi3rpM)
-- [രണ്ടു നല്ല സ്റ്റോറി കിട്ടിയ നമ്മൾ രക്ഷപെടും . Naradan Movie Scene | Aashiq Abu | Tovino Thomas |](https://www.youtube.com/watch?v=UgUHDNkIQx4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
