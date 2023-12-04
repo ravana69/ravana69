@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Choodarum | CheenaTrophy | Shorts  #manoramamusic](https://www.youtube.com/watch?v=k_ZcooIe5ok)
-- [Prabhatha Geethangal | Wilson Piravom | Joji Johns | Manjeri | Morning Prayer Songs| Christian Songs](https://www.youtube.com/watch?v=5C4g0zwDKMw)
-- [Japamala 4th of December 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 4th of December 23](https://www.youtube.com/watch?v=nKY2dcmtSZA)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mariyan songs non stop for December 4th 2023](https://www.youtube.com/watch?v=Z0YcmAXCk_k)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=yBxNlaJRy1k)
-- [December 4 Christmas Reflection](https://www.youtube.com/watch?v=86JgkEQre5M)
+- [Kodu Kodu - EDM Mix | Padachone Ingalu Katholi | Shaan Rahman | Alvin Bruno](https://www.youtube.com/watch?v=qALLbZ43oTg)
+- [Fall in love #MunnilRandChembarathi #BhagavanDasanteRamarajyam #shorts #ytshorts](https://www.youtube.com/watch?v=feoPaAI0vgA)
+- [ധില്‍ ഹേയ് Mohanlal Old Malayalam Movie Song | Indrajaalam Movie Songs | S P Balasubrahmanyam](https://www.youtube.com/watch?v=t5TN4_UNbZA)
+- [Valittezhuthiya | Life is Beatiful | Mohanlal | Samyuktha | Yesudas | Ouseppachan](https://www.youtube.com/watch?v=JC0UqLy8oQM)
+- [Kooki Paayum | Dance Party | Shorts  #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=CCb4aDg8v6M)
+- [Thaal | Movie Trailer | Rajasaagar | Anson Paul | Rahul Madhav | Aju Varghese | Aradhya Anna |Rohini](https://www.youtube.com/watch?v=Nl0vO6IYfKo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
