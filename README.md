@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന December 5 # Athiravile Prarthana 5th of December 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=NNdPiXkqMvY)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=hEZkFE0PS3k)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 5th December 23](https://www.youtube.com/watch?v=8w4jBbbLv_Q)
 - [4 December 2023](https://www.youtube.com/watch?v=t82vtcYadyw)
 - [Karale Nin Kaipidichal | Devadoothan | Vineethkumar | Mohanlal | Vidyasagar | Sibi Malayil](https://www.youtube.com/watch?v=S3lXfzbYoxs)
 - [തിരുപിറവിക്കായ് ഒരുങ്ങുന്ന ഏവരും ഏറെ സന്തോഷത്തോടെ കേൾക്കുന്ന  മനോഹര ഗാനങ്ങൾ  | Christmas Songs 2023](https://www.youtube.com/watch?v=EAhbFWn_AHc)
-- [Rangeelare | Collector | Ranjini Jose | Raghukumar | Sudhamsu](https://www.youtube.com/watch?v=SPJWRMT8jcU)
-- [പ്രാർത്ഥനയുടെ യാഗപീഠങ്ങളിൽ വാക്കുകൾ മോചനമായി മാറണം | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=r2xDtUOKZd0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
