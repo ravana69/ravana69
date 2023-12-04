@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Fire Force S01 EP06 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 250MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176606-fire-force-s01-ep06-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-250mb-200mb-esub-google-drive/&do=findComment&comment=357282)
 - [Fire Force S01 EP05 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 200MB - 150MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176605-fire-force-s01-ep05-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-200mb-150mb-esub-google-drive/&do=findComment&comment=357281)
 - [A Couple of Cuckoos S01 EP05 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 350MB - 250MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176604-a-couple-of-cuckoos-s01-ep05-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-350mb-250mb-esub-google-drive/&do=findComment&comment=357280)
 - [Kongu Nattu Raja [Kothala Rayudu] &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.6GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176594-kongu-nattu-raja-kothala-rayudu-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-26gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357279)
 - [The Idol &lpar;2023&rpar; S01 EP &lpar;01-05&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada + Eng] - 3.7GB - 1.8GB &amp; 800MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176600-the-idol-2023-s01-ep-01-05-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-37gb-18gb-800mb-esub/&do=findComment&comment=357278)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP64 DAY 63 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.5GB - 764MB &amp; 324MB | 03-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176603-bigg-boss-tamil-s07-ep64-day-63-true-web-dl-1080p-720p-480p-avc-untouched-15gb-764mb-324mb-03-12-2023/&do=findComment&comment=357277)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
