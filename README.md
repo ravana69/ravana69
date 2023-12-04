@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Velikku Veluppaankaalam Video Song | Kaliyattam | Kaithapram | Suresh Gopi | Manju Warrier](https://www.youtube.com/watch?v=bJO7LGxuwl4)
 - [ഹിസ്സ് ഹൈനസ്സ് അബ്ദുള്ളയിലെ ഹിറ്റ് ഗാനങ്ങൾ | His Highness Abdulla VideoJukebox| Mohanlal |KJ Yesudas](https://www.youtube.com/watch?v=d-6mUKnuJqA)
 - [Thirubalithaarayil | Pappachan Olivilanu | Ouseppachan | Sinto Sunny |  Deva Reghuchandran Nair](https://www.youtube.com/watch?v=QSg6NFYwtl8)
 - [NONA | OFFICIAL TRAILER | RAJESH IRULAM | JACOB UTHUP | MYSTICALROSE PRODUCTIONS](https://www.youtube.com/watch?v=WyLv-ClJrwA)
 - [മഞ്ഞുകാലത്തെ പ്രഭാതം പോൽ മനസ്സിൽ കുളിർമ്മയേകും സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ  | SUPERHIT GANANGAL MALAYALAM](https://www.youtube.com/watch?v=LOZe_yeW1Cc)
 - [Kannil Nin meyyil Audio Song Innale Malayalam Movie Song KS Chithra Kaithapram](https://www.youtube.com/watch?v=sbAHUDm7U-g)
-- [Ezhu Chirakulla Theru Video Song | Anarkali | Vayalar | P Susheela | Evergreen Hits](https://www.youtube.com/watch?v=0hgcqku7mfg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
