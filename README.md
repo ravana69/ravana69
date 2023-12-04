@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Velikku Veluppaankaalam Video Song | Kaliyattam | Kaithapram | Suresh Gopi | Manju Warrier](https://www.youtube.com/watch?v=bJO7LGxuwl4)
-- [ഹിസ്സ് ഹൈനസ്സ് അബ്ദുള്ളയിലെ ഹിറ്റ് ഗാനങ്ങൾ | His Highness Abdulla VideoJukebox| Mohanlal |KJ Yesudas](https://www.youtube.com/watch?v=d-6mUKnuJqA)
-- [Thirubalithaarayil | Pappachan Olivilanu | Ouseppachan | Sinto Sunny |  Deva Reghuchandran Nair](https://www.youtube.com/watch?v=QSg6NFYwtl8)
-- [NONA | OFFICIAL TRAILER | RAJESH IRULAM | JACOB UTHUP | MYSTICALROSE PRODUCTIONS](https://www.youtube.com/watch?v=WyLv-ClJrwA)
-- [മഞ്ഞുകാലത്തെ പ്രഭാതം പോൽ മനസ്സിൽ കുളിർമ്മയേകും സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ  | SUPERHIT GANANGAL MALAYALAM](https://www.youtube.com/watch?v=LOZe_yeW1Cc)
-- [Kannil Nin meyyil Audio Song Innale Malayalam Movie Song KS Chithra Kaithapram](https://www.youtube.com/watch?v=sbAHUDm7U-g)
+- [പ്രാർത്ഥനയുടെ യാഗപീഠങ്ങളിൽ വാക്കുകൾ മോചനമായി മാറണം | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=r2xDtUOKZd0)
+- [Pallitherundo | Mazhavilkkaavadi | Johnson| G Venugopal | Sujatha Mohan #SongOfTheDay](https://www.youtube.com/watch?v=r870QpsdO_U)
+- [Christmas Carol Song | Ravil Mele Vinil | Fr. Subin Kalayamkandathil | Niya Charley](https://www.youtube.com/watch?v=eyENy5JE-ZA)
+- [Omana Thinkal Kidavo | Spanish Masala | Nikhitha | Vidyasagar](https://www.youtube.com/watch?v=zKllaGBFFps)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 4th of December 2023](https://www.youtube.com/watch?v=yru7-8U5il4)
+- [Onnam Vattam Kandappol Video Song | Chandralekha | Mohanlal | Pooja Batra | KS Chithra |MG Sreekumar](https://www.youtube.com/watch?v=ni4FbxQ-ID8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
