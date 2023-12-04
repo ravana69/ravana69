@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ahimsa &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176610-ahimsa-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357307)
+- [Killers Of The Flower Moon &lpar;2023&rpar; English TRUE WEB-DL - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 22GB - 13GB - 2.7GB - 1.2GB &amp; 400MB] - MSub](https://www.1tamilmv.phd/index.php?/forums/topic/176611-killers-of-the-flower-moon-2023-english-true-web-dl-4k-1080p-720p-x264-dd51-atmos-768kbps-22gb-13gb-27gb-12gb-400mb-msub/&do=findComment&comment=357306)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP93 DAY 92 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 545MB &amp; 237MB | 04-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176613-bigg-boss-telugu-s07-ep93-day-92-true-web-dl-1080p-720p-480p-avc-untouched-11gb-545mb-237mb-04-12-2023/&do=findComment&comment=357305)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP65 DAY 64 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 619MB &amp; 247MB | 04-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176612-bigg-boss-tamil-s07-ep65-day-64-true-web-dl-1080p-720p-480p-avc-untouched-11gb-619mb-247mb-04-12-2023/&do=findComment&comment=357304)
 - [Killers Of The Flower Moon &lpar;2023&rpar; English TRUE WEB-DL - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 22GB - 13GB - 2.7GB - 1.2GB &amp; 400MB] - MSub](https://www.1tamilmv.phd/index.php?/forums/topic/176611-killers-of-the-flower-moon-2023-english-true-web-dl-4k-1080p-720p-x264-dd51-atmos-768kbps-22gb-13gb-27gb-12gb-400mb-msub/&do=findComment&comment=357303)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [4-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176607-movies-collection-all-languages-4k-1080p-720p-576p-480p-4-12-2023/&do=findComment&comment=357302)
-- [Nuvvostanante Nenoddantana &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.9GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176609-nuvvostanante-nenoddantana-2005-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-69gb-esub/&do=findComment&comment=357301)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
