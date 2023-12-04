@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [സാറെ പറ . കേരളം അറിയട്ടെ  Naradan Movie Scene| Aashiq Abu | Tovino Thomas | Anna Ben | Indrans |](https://www.youtube.com/watch?v=auPVhztXqKM)
-- [വക്കിൽ നോട്ടീസ് ഇത് ആദ്യമായിട്ട് ഒന്നുമല്ലലോ. Naradan Movie Scene | Aashiq Abu | Tovino Thomas |](https://www.youtube.com/watch?v=Q10gaNs3-Ak)
-- [മിനിസ്റ്റർ ഇതുവരെ റീയാക്ട് ചെയ്തിട്ടില്ല Naradan Movie scene | Aashiq Abu | Tovino Thomas | Anna Ben](https://www.youtube.com/watch?v=o4Q7gSdKXgc)
-- [നിന്റെ കൈയിൽ ഐറ്റമുണ്ടെന്ന് അയാൾക്ക് അറിയാം Naradan Movie Scene | Aashiq Abu | Tovino Thomas |](https://www.youtube.com/watch?v=Bb976ah6U64)
-- [ഞങ്ങളാണ് പ്രചാരകർ | Naradan Movie scene | Aashiq Abu | Tovino Thomas | Anna Ben](https://www.youtube.com/watch?v=qQct-OUd74Y)
-- [നിങ്ങളുടെ  സൈലെൻസല്ല എനിക്ക് വേണ്ട ഉത്തരം Naradan Movie Scene | Aashiq Abu | Tovino Thomas |](https://www.youtube.com/watch?v=b9-Jc_7GRLg)
+- [NONA | OFFICIAL TRAILER | RAJESH IRULAM | JACOB UTHUP | MYSTICALROSE PRODUCTIONS](https://www.youtube.com/watch?v=WyLv-ClJrwA)
+- [മഞ്ഞുകാലത്തെ പ്രഭാതം പോൽ മനസ്സിൽ കുളിർമ്മയേകും സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ  | SUPERHIT GANANGAL MALAYALAM](https://www.youtube.com/watch?v=LOZe_yeW1Cc)
+- [Kannil Nin meyyil Audio Song Innale Malayalam Movie Song KS Chithra Kaithapram](https://www.youtube.com/watch?v=sbAHUDm7U-g)
+- [Ezhu Chirakulla Theru Video Song | Anarkali | Vayalar | P Susheela | Evergreen Hits](https://www.youtube.com/watch?v=0hgcqku7mfg)
+- [Ponnitta Pettakam Video Song { Female } | Pranayanilaavu | Rahna | Evergreen Malayalam Songs](https://www.youtube.com/watch?v=iWBwfaF72TE)
+- [Ente Peru Vilikkayaano | Varnakkaazhchakal | K J Yesudas | KS Chithra | Mohan Sithara | Dileep](https://www.youtube.com/watch?v=H9_LRYMYvMQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
