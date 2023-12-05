@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Succession &lpar;2019&rpar; Complete S02 EP &lpar;01-10&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada + Eng] - 7.6GB - 4.2GB &amp; 1.7GB] [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176614-succession-2019-complete-s02-ep-01-10-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-76gb-42gb-17gb-google-drive/&do=findComment&comment=357308)
 - [Ahimsa &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176610-ahimsa-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357307)
 - [Killers Of The Flower Moon &lpar;2023&rpar; English TRUE WEB-DL - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 22GB - 13GB - 2.7GB - 1.2GB &amp; 400MB] - MSub](https://www.1tamilmv.phd/index.php?/forums/topic/176611-killers-of-the-flower-moon-2023-english-true-web-dl-4k-1080p-720p-x264-dd51-atmos-768kbps-22gb-13gb-27gb-12gb-400mb-msub/&do=findComment&comment=357306)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP93 DAY 92 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 545MB &amp; 237MB | 04-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176613-bigg-boss-telugu-s07-ep93-day-92-true-web-dl-1080p-720p-480p-avc-untouched-11gb-545mb-237mb-04-12-2023/&do=findComment&comment=357305)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP65 DAY 64 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 619MB &amp; 247MB | 04-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176612-bigg-boss-tamil-s07-ep65-day-64-true-web-dl-1080p-720p-480p-avc-untouched-11gb-619mb-247mb-04-12-2023/&do=findComment&comment=357304)
-- [Killers Of The Flower Moon &lpar;2023&rpar; English TRUE WEB-DL - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 22GB - 13GB - 2.7GB - 1.2GB &amp; 400MB] - MSub](https://www.1tamilmv.phd/index.php?/forums/topic/176611-killers-of-the-flower-moon-2023-english-true-web-dl-4k-1080p-720p-x264-dd51-atmos-768kbps-22gb-13gb-27gb-12gb-400mb-msub/&do=findComment&comment=357303)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
