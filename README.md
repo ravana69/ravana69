@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Killers Of The Flower Moon &lpar;2023&rpar; English TRUE WEB-DL - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 22GB - 13GB - 2.7GB - 1.2GB &amp; 400MB] - MSub](https://www.1tamilmv.phd/index.php?/forums/topic/176611-killers-of-the-flower-moon-2023-english-true-web-dl-4k-1080p-720p-x264-dd51-atmos-768kbps-22gb-13gb-27gb-12gb-400mb-msub/&do=findComment&comment=357320)
+- [Aalavandhan &lpar;2001&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 4.6GB - 2.8GB &amp; 1.5GB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176619-aalavandhan-2001-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-46gb-28gb-15gb-x264-750mb-450mb-esub/&do=findComment&comment=357319)
 - [Dunki Drop 4 | Shah Rukh Khan | Rajkumar Hirani | Taapsee | Vicky | Boman | 21st Dec 2023](https://www.1tamilmv.phd/index.php?/forums/topic/176621-dunki-drop-4-shah-rukh-khan-rajkumar-hirani-taapsee-vicky-boman-21st-dec-2023/&do=findComment&comment=357318)
 - [Aalavandhan &lpar;2001&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 4.6GB - 2.8GB &amp; 1.5GB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176619-aalavandhan-2001-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-46gb-28gb-15gb-x264-750mb-450mb-esub/&do=findComment&comment=357317)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [5-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176620-movies-collection-all-languages-4k-1080p-720p-576p-480p-5-12-2023/&do=findComment&comment=357316)
-- [Aalavandhan &lpar;2001&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 4.6GB - 2.8GB &amp; 1.5GB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176619-aalavandhan-2001-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-46gb-28gb-15gb-x264-750mb-450mb-esub/&do=findComment&comment=357315)
-- [Killers of the Flower Moon &lpar;2023&rpar; AMZN WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p | 720p - 35.8 GB | 13.5 GB | 5.5 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176617-killers-of-the-flower-moon-2023-amzn-web-dl-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-720p-358-gb-135-gb-55-gb/&do=findComment&comment=357314)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
