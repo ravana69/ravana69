@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Madhuvidhu raavukale | Aadyathe Kanmani  | KJ Yesudas |  KS Chithra | #shorts](https://www.youtube.com/watch?v=6Gz9gQ0rwv0)
+- [കൊക്കര കൊക്കര | Kokkara Kokkara | MYLAANCHI Movie Song | Vilayil Valsala, VM Kutty | A T Ummer](https://www.youtube.com/watch?v=PLPH5OMrBvc)
+- [Chiriyil Aliyam Video Song | A Ranjith Cinema | Asif Ali | Anson Paul | Hanna Reji | Nishanth Sattu](https://www.youtube.com/watch?v=_lZrnrMor6g)
 - [Machakathammaye | #devotionalhits |  #sabarimala |  #Shorts #malayalam](https://www.youtube.com/watch?v=bzgtKFbAouc)
 - [മലയാളികൾക്ക് ഒത്തിരി നല്ല ഗാനങ്ങൾ സമ്മാനിച്ച സംഗീതജോഡി ബേർണി ഇഗ്നേഷ്യസ് ടീമിന്റെ ജനപ്രിയ ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=kTzyW52tKVI)
 - [Ente Priyan #shorts](https://www.youtube.com/watch?v=5zHfbUuDJHw)
-- [moments of love 💖🌹 #MunnilRandChembarathi #BhagavanDasanteRamarajyam #shorts #ytshorts](https://www.youtube.com/watch?v=9_D18h6z0c8)
-- [ഗോപികാവസന്തം തേടി വനമാലീ... | Evergreen Malayalam Film Song | #mohanlal | #gauthami | #youtubeshorts](https://www.youtube.com/watch?v=bH0JJxjZ2Oo)
-- [ഏറ്റവും നല്ല ഗാനങ്ങളിൽ നിന്ന് വീണ്ടും തെരഞ്ഞെടുത്ത് മനസിൽ സൂക്ഷിക്കുന്ന സൂപ്പർഹിറ്റ് സിനിമാഗാനങ്ങൾ](https://www.youtube.com/watch?v=PKqiRROtwlk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
