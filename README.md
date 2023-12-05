@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 6th December 23](https://www.youtube.com/watch?v=I9AG1YnppHU)
+- [ആ രാത്രി മാഞ്ഞുപോയീ..| Selected Hits | കെ ജെ യേശുദാസ് | ചിത്ര | Selected Remastered Movie songs](https://www.youtube.com/watch?v=KoAyVc-HQgU)
 - [5 December 2023](https://www.youtube.com/watch?v=6CgPDUKmZPE)
 - [Manjil Kulikkum Video Song | Veruthe Oru Bharya | Jayaram | Gopika | Vayalar Sarathchandra Varma](https://www.youtube.com/watch?v=8fuLvJ8tsWY)
 - [Kalippattamaayi | Kalippattam | Mohanlal | Urvashi | Raveendran | KJ Yesudas | KS Chithra](https://www.youtube.com/watch?v=mhWK1PaSQXM)
 - [THILA THILANGUM THAARANGAL| CHRISTMAS CAROL SONG | ROY PUTHUR |  #chrismas2023  #christmascarols](https://www.youtube.com/watch?v=mMhVZdoDCdg)
-- [വിശ്വസിച്ചാൽ ദൈവത്തിന്റെ മഹത്വം കാണുമെന്ന് ക്രിസ്തു പറയുന്നുRev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=nRCDeE040lM)
-- [Nilamalare | Diamond Necklace | Nivas | Vidyasagar | Rafeeq Ahammed](https://www.youtube.com/watch?v=pBorcZKD4HM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
