@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Madhuvidhu raavukale | Aadyathe Kanmani  | KJ Yesudas |  KS Chithra | #shorts](https://www.youtube.com/watch?v=6Gz9gQ0rwv0)
-- [കൊക്കര കൊക്കര | Kokkara Kokkara | MYLAANCHI Movie Song | Vilayil Valsala, VM Kutty | A T Ummer](https://www.youtube.com/watch?v=PLPH5OMrBvc)
-- [Chiriyil Aliyam Video Song | A Ranjith Cinema | Asif Ali | Anson Paul | Hanna Reji | Nishanth Sattu](https://www.youtube.com/watch?v=_lZrnrMor6g)
-- [Machakathammaye | #devotionalhits |  #sabarimala |  #Shorts #malayalam](https://www.youtube.com/watch?v=bzgtKFbAouc)
-- [മലയാളികൾക്ക് ഒത്തിരി നല്ല ഗാനങ്ങൾ സമ്മാനിച്ച സംഗീതജോഡി ബേർണി ഇഗ്നേഷ്യസ് ടീമിന്റെ ജനപ്രിയ ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=kTzyW52tKVI)
-- [Ente Priyan #shorts](https://www.youtube.com/watch?v=5zHfbUuDJHw)
+- [വിശ്വസിച്ചാൽ ദൈവത്തിന്റെ മഹത്വം കാണുമെന്ന് ക്രിസ്തു പറയുന്നുRev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=nRCDeE040lM)
+- [Nilamalare | Diamond Necklace | Nivas | Vidyasagar | Rafeeq Ahammed](https://www.youtube.com/watch?v=pBorcZKD4HM)
+- [ഏവർക്കും അലീനിയമോൾടെ ക്രിസ്മസ് സമ്മാനം | Christmas Songs Malayalam | Alenia | Joji Johns](https://www.youtube.com/watch?v=Xc609z5VWXg)
+- [Sunu Mithuvare Video Song | Phantom | K.J.Yesudas | Gireesh Puthenchery | Mammootty](https://www.youtube.com/watch?v=VIbIkRu5WaU)
+- [Maayatha Maarivillitha | Ulladakkam | Ouseppachan | M G Sreekumar | K S Chithra #SongOfTheDay](https://www.youtube.com/watch?v=bwe6gvJnt50)
+- [മലയാളത്തിന്റെ സ്വന്തം കാവ്യ ഗാനങ്ങൾ!!!|Malayalam Super Hit Songs| Kavya Madhavan Hits |Video Jukebox](https://www.youtube.com/watch?v=sgxmizMHiJI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
