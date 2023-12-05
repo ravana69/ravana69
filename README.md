@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manjil Kulikkum Video Song | Veruthe Oru Bharya | Jayaram | Gopika | Vayalar Sarathchandra Varma](https://www.youtube.com/watch?v=8fuLvJ8tsWY)
+- [Kalippattamaayi | Kalippattam | Mohanlal | Urvashi | Raveendran | KJ Yesudas | KS Chithra](https://www.youtube.com/watch?v=mhWK1PaSQXM)
 - [THILA THILANGUM THAARANGAL| CHRISTMAS CAROL SONG | ROY PUTHUR |  #chrismas2023  #christmascarols](https://www.youtube.com/watch?v=mMhVZdoDCdg)
 - [വിശ്വസിച്ചാൽ ദൈവത്തിന്റെ മഹത്വം കാണുമെന്ന് ക്രിസ്തു പറയുന്നുRev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=nRCDeE040lM)
 - [Nilamalare | Diamond Necklace | Nivas | Vidyasagar | Rafeeq Ahammed](https://www.youtube.com/watch?v=pBorcZKD4HM)
 - [ഏവർക്കും അലീനിയമോൾടെ ക്രിസ്മസ് സമ്മാനം | Christmas Songs Malayalam | Alenia | Joji Johns](https://www.youtube.com/watch?v=Xc609z5VWXg)
-- [Sunu Mithuvare Video Song | Phantom | K.J.Yesudas | Gireesh Puthenchery | Mammootty](https://www.youtube.com/watch?v=VIbIkRu5WaU)
-- [Maayatha Maarivillitha | Ulladakkam | Ouseppachan | M G Sreekumar | K S Chithra #SongOfTheDay](https://www.youtube.com/watch?v=bwe6gvJnt50)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
