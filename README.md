@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Abrar’s Entry Jamal Kudu &lpar;From &#39;&#39;ANIMAL&#39;&#39;&rpar; - Single Track - [24Bit &amp; 16Bit] - Harshavardhan Rameshwar Musical](https://www.1tamilmv.phd/index.php?/forums/topic/176635-abrar%E2%80%99s-entry-jamal-kudu-from-animal-single-track-24bit-16bit-harshavardhan-rameshwar-musical/&do=findComment&comment=357378)
+- [Chamak &lpar;2023&rpar; S01 EP&lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p &amp; 360p - AVC - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 7GB - 2.5GB &amp; 850MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176634-chamak-2023-s01-ep01-06-true-web-dl-1080p-720p-360p-avc-aac-20-tamil-telugu-hindi-malayalam-kannada-7gb-25gb-850mb-esub/&do=findComment&comment=357377)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP67 DAY 66 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 531MB &amp; 221MB | 06-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176637-bigg-boss-tamil-s07-ep67-day-66-true-web-dl-1080p-720p-480p-avc-untouched-1gb-531mb-221mb-06-12-2023/&do=findComment&comment=357376)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP95 DAY 94 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 500MB &amp; 212MB | 06-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176636-bigg-boss-telugu-s07-ep95-day-94-true-web-dl-1080p-720p-480p-avc-untouched-1gb-500mb-212mb-06-12-2023/&do=findComment&comment=357375)
 - [Bramma &lpar;1991&rpar; 480p AMZN H.264 DDP2.0 - 2.2 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176633-bramma-1991-480p-amzn-h264-ddp20-22-gb/&do=findComment&comment=357374)
-- [A1 [Accused No.1] &lpar;2019&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 6.7GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176626-a1-accused-no1-2019-tamil-true-web-dl-1080p-hq-avc-untouched-aac20-67gb-esub-gdflix/&do=findComment&comment=357373)
-- [Enakku 20 Unakku 18 &lpar;2003&rpar; Tamil HD DVD9 - REMUXED - &lpar;DD.5.1&rpar; - 6.6GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176630-enakku-20-unakku-18-2003-tamil-hd-dvd9-remuxed-dd51-66gb-gdflix/&do=findComment&comment=357372)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
