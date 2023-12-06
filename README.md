@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [David &lpar;2013&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.8GB - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176629-david-2013-tamil-true-web-dl-1080p-720p-avc-dd51-640kbps-68gb-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=357352)
-- [Enakku 20 Unakku 18 &lpar;2003&rpar; Tamil HD DVD9 - REMUXED - &lpar;DD.5.1&rpar; - 6.6GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176630-enakku-20-unakku-18-2003-tamil-hd-dvd9-remuxed-dd51-66gb-gdflix/&do=findComment&comment=357351)
-- [INDRA &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176632-indra-2002-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=357350)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [6-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176631-movies-collection-all-languages-4k-1080p-720p-576p-480p-6-12-2023/&do=findComment&comment=357349)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [6-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176631-movies-collection-all-languages-4k-1080p-720p-576p-480p-6-12-2023/&do=findComment&comment=357348)
+- [Unveiling the Time Travel Enigma: Ai&#39;s Vision of Temporal Possibilities in Modern Science](https://www.1tamilmv.phd/index.php?/forums/topic/163133-unveiling-the-time-travel-enigma-ais-vision-of-temporal-possibilities-in-modern-science/&do=findComment&comment=357358)
+- [Unraveling the UFO Enigma: An Ai&#39;s Fascinating Perspective on Extraterrestrial Visitors](https://www.1tamilmv.phd/index.php?/forums/topic/163134-unraveling-the-ufo-enigma-an-ais-fascinating-perspective-on-extraterrestrial-visitors/&do=findComment&comment=357357)
+- [The Future of Humanity: Uploading Your Mind to a Computer Demands These 3 Crucial Elements](https://www.1tamilmv.phd/index.php?/forums/topic/150726-the-future-of-humanity-uploading-your-mind-to-a-computer-demands-these-3-crucial-elements/&do=findComment&comment=357356)
+- [Dive into the Depths of the Cosmos: Are We Sitting in a Massive &#39;Supervoid&#39; in Space?](https://www.1tamilmv.phd/index.php?/forums/topic/150731-dive-into-the-depths-of-the-cosmos-are-we-sitting-in-a-massive-supervoid-in-space/&do=findComment&comment=357355)
+- [Bramma &lpar;1991&rpar; 480p AMZN H.264 DDP2.0 - 2.2 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176633-bramma-1991-480p-amzn-h264-ddp20-22-gb/&do=findComment&comment=357354)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
