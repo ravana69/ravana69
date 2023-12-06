@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Kooki Paayum | Dance Party | Shorts  #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=v18LnQloFTw)
-- [Choodarum | CheenaTrophy | Shorts  #manoramamusic](https://www.youtube.com/watch?v=UEQ1Zb83OF8)
-- [Ellam Ange | Fr. Severios Thomas | Shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=SGpCj99HWEE)
-- [Pulkudilil | Christmas Video Song | James Kalapurakkal | Rithuraj | Joji Johns | Christmas Song](https://www.youtube.com/watch?v=Qy8VlH54r9E)
-- [ഈ ലുത്തിനിയ കേൾക്കാതെ പോകരുതെ # അതിമനോഹരം എത്ര കേട്ടാലും മതി വരില്ല #kripasanam mother mary](https://www.youtube.com/watch?v=b9iT9N4BqGk)
-- [Japamala 6th of December 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 6th of December 2023](https://www.youtube.com/watch?v=1ckMwz8NyD4)
+- [READY FOR TAKE   SILENCE  SOUND ROLLING. Halal Love Story | Movie scene | Indrajith Sukumaran](https://www.youtube.com/watch?v=arofqYnBIFI)
+- [അഭിനയം   നമ്മുടെ തന്നെ സ്വന്തത്തോടുള്ള ഒരു കലാപമാണ്. Halal Love Story | Movie Scene |](https://www.youtube.com/watch?v=f-ZVPMMs2XY)
+- [ഇങ്ങളെ പേര് ഷെരീഫാണ് ന്ന് വെച്ചിട്ട് ഇങ്ങള് പറയുന്നത് എപ്പോളും ശരിയാവണം ന്ന് ഇല്ല്യ Halal Love Story](https://www.youtube.com/watch?v=gQySE3zm-LY)
+- [ചിക്കൻ പൊരി ദൂരത്തായി പോയിലെ  ബിരിയാണി മാത്രം മതിയായിരുന്നു. Halal Love Story | Movie scene |](https://www.youtube.com/watch?v=unUUiCPQi7A)
+- [ഞാൻ മാന്യനാടോ    മാന്യൻ. Halal Love Story| Movie Scene | Indrajith Sukumaran|  Joju George](https://www.youtube.com/watch?v=zl3AEHZ9muU)
+- [ഞാനൊരു നന്മ ചെയ്തു അത് തിന്മയായോ എന്നൊരു സംശയം. Halal Love Story | Movie scene Indrajith Sukumaran](https://www.youtube.com/watch?v=o6UD8R1mzvg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
