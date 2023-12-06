@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [6-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176631-movies-collection-all-languages-4k-1080p-720p-576p-480p-6-12-2023/&do=findComment&comment=357368)
+- [Abrar’s Entry Jamal Kudu &lpar;From &#39;&#39;ANIMAL&#39;&#39;&rpar; - Single Track - [24Bit &amp; 16Bit] - Harshavardhan Rameshwar Musical](https://www.1tamilmv.phd/index.php?/forums/topic/176635-abrar%E2%80%99s-entry-jamal-kudu-from-animal-single-track-24bit-16bit-harshavardhan-rameshwar-musical/&do=findComment&comment=357367)
+- [Abrar’s Entry Jamal Kudu &lpar;From &#39;&#39;ANIMAL&#39;&#39;&rpar; - Single Track - [24Bit &amp; 16Bit] - Harshavardhan Rameshwar Musical](https://www.1tamilmv.phd/index.php?/forums/topic/176635-abrar%E2%80%99s-entry-jamal-kudu-from-animal-single-track-24bit-16bit-harshavardhan-rameshwar-musical/&do=findComment&comment=357366)
 - [Chamak &lpar;2023&rpar; S01 EP&lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p &amp; 360p - AVC - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 7GB - 2.5GB &amp; 850MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176634-chamak-2023-s01-ep01-06-true-web-dl-1080p-720p-360p-avc-aac-20-tamil-telugu-hindi-malayalam-kannada-7gb-25gb-850mb-esub/&do=findComment&comment=357365)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [5-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176620-movies-collection-all-languages-4k-1080p-720p-576p-480p-5-12-2023/&do=findComment&comment=357364)
-- [David &lpar;2013&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.8GB - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176629-david-2013-tamil-true-web-dl-1080p-720p-avc-dd51-640kbps-68gb-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=357363)
-- [Enakku 20 Unakku 18 &lpar;2003&rpar; Tamil HD DVD9 - REMUXED - &lpar;DD.5.1&rpar; - 6.6GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176630-enakku-20-unakku-18-2003-tamil-hd-dvd9-remuxed-dd51-66gb-gdflix/&do=findComment&comment=357362)
-- [Chamak &lpar;2023&rpar; S01 EP&lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p &amp; 360p - AVC - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 7GB - 2.5GB &amp; 850MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176634-chamak-2023-s01-ep01-06-true-web-dl-1080p-720p-360p-avc-aac-20-tamil-telugu-hindi-malayalam-kannada-7gb-25gb-850mb-esub/&do=findComment&comment=357361)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
