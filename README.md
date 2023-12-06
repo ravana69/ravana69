@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Choodarum | CheenaTrophy | Shorts  #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=r-vAR3fCqCE)
+- [ഈറൻ ഉടുത്തുകൊണ്ടു... | ​K S Chithra | Paadiyum Paranjum | Malayala Manorama](https://www.youtube.com/watch?v=0c7Z5oBuUHU)
+- [Subhanalla | Ustad Hotel | Naveen Iyyer | Gopi Sunder | Rafeeq Ahamad](https://www.youtube.com/watch?v=8eXwtQy3ETE)
+- [Thaimavin Thanalil Video Song | Oru Yathramozhi |  KS Chithra |  MG Sreekumar  | Mohanlal | Ranjitha](https://www.youtube.com/watch?v=a2P5sC1USXE)
+- [Aadhyanuraagam Nee - Video Song| Khadhikan| Ketaki Narayan| Vijay Yesudas| Sanjoy Chowdhury| Jayaraj](https://www.youtube.com/watch?v=bCuwiLQFcSI)
 - [Ammathinkal Painkili - Lyrical Video | Mad Dad | Shweta Mohan | Evergreen Malayalam Songs](https://www.youtube.com/watch?v=_Scfu4F20Sw)
-- [Kallukolambile | Nona | Shorts  #manoramamusic](https://www.youtube.com/watch?v=Mxy80GdqbE8)
-- [Sneham Thenalla Video Song | Mayavi | Mammootty | Manoj K Jayan| MG Sreekumar|G Venugopal |Alex Paul](https://www.youtube.com/watch?v=VM7FgClL6Qo)
-- [മനസ്സിൽ പ്രണയത്തിന്റെ കുളിരും മെലഡിയുടെ ആനന്ദവും പകരും സൂപ്പർഹിറ്റ് സിനിമാഗാനങ്ങൾ | EVERGREEN SONGS](https://www.youtube.com/watch?v=McAXJWs_hPY)
-- [മനസ്സിൽ ഇപ്പോഴും പ്രണയം സൂക്ഷിക്കുന്നവർക്കായി തെരഞ്ഞെടുത്ത പ്രണയഗാനങ്ങൾ | EVERGREEN LOVE SONGS](https://www.youtube.com/watch?v=oMv3shZAjL0)
-- [Tiger Nageswara Rao (Malayalam) - Full Album | Ravi Teja | Nupur Sanon | Vamsee | GV Prakash Kumar](https://www.youtube.com/watch?v=XCnKbzR5o0k)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
