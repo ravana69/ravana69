@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kooki Paayum | Dance Party | Shorts  #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=v18LnQloFTw)
+- [Choodarum | CheenaTrophy | Shorts  #manoramamusic](https://www.youtube.com/watch?v=UEQ1Zb83OF8)
 - [Ellam Ange | Fr. Severios Thomas | Shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=SGpCj99HWEE)
 - [Pulkudilil | Christmas Video Song | James Kalapurakkal | Rithuraj | Joji Johns | Christmas Song](https://www.youtube.com/watch?v=Qy8VlH54r9E)
 - [ഈ ലുത്തിനിയ കേൾക്കാതെ പോകരുതെ # അതിമനോഹരം എത്ര കേട്ടാലും മതി വരില്ല #kripasanam mother mary](https://www.youtube.com/watch?v=b9iT9N4BqGk)
 - [Japamala 6th of December 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 6th of December 2023](https://www.youtube.com/watch?v=1ckMwz8NyD4)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=DxxR3zGeBlI)
-- [പ്രഭാത പ്രാര്‍ത്ഥന December 6 # Athiravile Prarthana 6th of December 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=YJ4b3M3vdxc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
