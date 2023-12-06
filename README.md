@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP67 DAY 66 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 531MB &amp; 221MB | 06-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176637-bigg-boss-tamil-s07-ep67-day-66-true-web-dl-1080p-720p-480p-avc-untouched-1gb-531mb-221mb-06-12-2023/&do=findComment&comment=357376)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP95 DAY 94 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 500MB &amp; 212MB | 06-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176636-bigg-boss-telugu-s07-ep95-day-94-true-web-dl-1080p-720p-480p-avc-untouched-1gb-500mb-212mb-06-12-2023/&do=findComment&comment=357375)
+- [Bramma &lpar;1991&rpar; 480p AMZN H.264 DDP2.0 - 2.2 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176633-bramma-1991-480p-amzn-h264-ddp20-22-gb/&do=findComment&comment=357374)
+- [A1 [Accused No.1] &lpar;2019&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 6.7GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176626-a1-accused-no1-2019-tamil-true-web-dl-1080p-hq-avc-untouched-aac20-67gb-esub-gdflix/&do=findComment&comment=357373)
 - [Enakku 20 Unakku 18 &lpar;2003&rpar; Tamil HD DVD9 - REMUXED - &lpar;DD.5.1&rpar; - 6.6GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176630-enakku-20-unakku-18-2003-tamil-hd-dvd9-remuxed-dd51-66gb-gdflix/&do=findComment&comment=357372)
-- [Chamak &lpar;2023&rpar; S01 EP&lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p &amp; 360p - AVC - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 7GB - 2.5GB &amp; 850MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176634-chamak-2023-s01-ep01-06-true-web-dl-1080p-720p-360p-avc-aac-20-tamil-telugu-hindi-malayalam-kannada-7gb-25gb-850mb-esub/&do=findComment&comment=357371)
-- [Chamak &lpar;2023&rpar; S01 EP&lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p &amp; 360p - AVC - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 7GB - 2.5GB &amp; 850MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176634-chamak-2023-s01-ep01-06-true-web-dl-1080p-720p-360p-avc-aac-20-tamil-telugu-hindi-malayalam-kannada-7gb-25gb-850mb-esub/&do=findComment&comment=357370)
-- [David &lpar;2013&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.8GB - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176629-david-2013-tamil-true-web-dl-1080p-720p-avc-dd51-640kbps-68gb-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=357369)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [6-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176631-movies-collection-all-languages-4k-1080p-720p-576p-480p-6-12-2023/&do=findComment&comment=357368)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
