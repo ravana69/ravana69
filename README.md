@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Tiger Nageswara Rao (Malayalam) - Full Album | Ravi Teja | Nupur Sanon | Vamsee | GV Prakash Kumar](https://www.youtube.com/watch?v=XCnKbzR5o0k)
 - [Manjerunne | Cheenatrophy | Dhyan Sreenivasan | Sooraj Santhosh - Varkey | Anil Lal | Jaffer Idukki](https://www.youtube.com/watch?v=h0_4WkOkrmM)
 - [Puthumazhayil | Karaoke Video | Ithramathram | K S Chithra | Rafeeque Ahammed | Jaison J Nair](https://www.youtube.com/watch?v=NpU3naun3CI)
 - [Vineeth Old Malayalam Movie Songs | Manathe Vellitheru Movie Song | Remastered Malayalam Songs](https://www.youtube.com/watch?v=lbkstjSz_I4)
 - [Doctor Saare | ഡോക്ടര്‍ സാറേ | Sandarbham | Mammootty, Yesudas #oldmalayalammoviesongs](https://www.youtube.com/watch?v=-ETjNHR5zj8)
 - [O Priye Priye | Aniyathipravu | Kunchacko Boban | Shalini | Fazil | Ouseppachan | Yesudas](https://www.youtube.com/watch?v=q6CNu23BPcM)
-- [Ayisha Ayisha - Audio | Ayisha | Manju Warrier | Shreya Ghoshal | M Jayachandran | Aamir Pallikkal](https://www.youtube.com/watch?v=giEmH_FO6q8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
