@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Choodarum | CheenaTrophy | Shorts  #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=r-vAR3fCqCE)
-- [ഈറൻ ഉടുത്തുകൊണ്ടു... | ​K S Chithra | Paadiyum Paranjum | Malayala Manorama](https://www.youtube.com/watch?v=0c7Z5oBuUHU)
-- [Subhanalla | Ustad Hotel | Naveen Iyyer | Gopi Sunder | Rafeeq Ahamad](https://www.youtube.com/watch?v=8eXwtQy3ETE)
-- [Thaimavin Thanalil Video Song | Oru Yathramozhi |  KS Chithra |  MG Sreekumar  | Mohanlal | Ranjitha](https://www.youtube.com/watch?v=a2P5sC1USXE)
-- [Aadhyanuraagam Nee - Video Song| Khadhikan| Ketaki Narayan| Vijay Yesudas| Sanjoy Chowdhury| Jayaraj](https://www.youtube.com/watch?v=bCuwiLQFcSI)
-- [Ammathinkal Painkili - Lyrical Video | Mad Dad | Shweta Mohan | Evergreen Malayalam Songs](https://www.youtube.com/watch?v=_Scfu4F20Sw)
+- [ക്രിസ്തു ജനനം നമുക്ക് നൽകുന്ന പ്രധാന സന്ദേശം | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=q_liWjgm0kM)
+- [Enthe Nee Vaiki Vannoo |Yeshudevante Divyasnehathe Vazhthunna Kristheeya Bhakthigaanangal](https://www.youtube.com/watch?v=jrQv8wAPtD8)
+- [Azhake | Kasthoorimaan | Ouseppachan | P Jayachandran | Sujatha Mohan | Kaithapram #SongOfTheDay](https://www.youtube.com/watch?v=W-dOCSUKQ_Y)
+- [Yavanasundaree Video Song | Pearl View | KJ Yesudas | B Vasantha | Vayalar](https://www.youtube.com/watch?v=_Xl8jPXqSMQ)
+- [Malayalam Film Songs | Rajashilpi | Sukhamodevi | Yesudas | Raveendran | Audio Jukebox](https://www.youtube.com/watch?v=8MKz5dzTE18)
+- [Practicing Dance #KanchanaKannezhuthi #NjanumPinnoruNjanum #shorts #ytshorts](https://www.youtube.com/watch?v=6mzWW9AYkEs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
