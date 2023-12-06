@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kallukolambile | Nona | Shorts  #manoramamusic](https://www.youtube.com/watch?v=Mxy80GdqbE8)
+- [Sneham Thenalla Video Song | Mayavi | Mammootty | Manoj K Jayan| MG Sreekumar|G Venugopal |Alex Paul](https://www.youtube.com/watch?v=VM7FgClL6Qo)
 - [മനസ്സിൽ പ്രണയത്തിന്റെ കുളിരും മെലഡിയുടെ ആനന്ദവും പകരും സൂപ്പർഹിറ്റ് സിനിമാഗാനങ്ങൾ | EVERGREEN SONGS](https://www.youtube.com/watch?v=McAXJWs_hPY)
 - [മനസ്സിൽ ഇപ്പോഴും പ്രണയം സൂക്ഷിക്കുന്നവർക്കായി തെരഞ്ഞെടുത്ത പ്രണയഗാനങ്ങൾ | EVERGREEN LOVE SONGS](https://www.youtube.com/watch?v=oMv3shZAjL0)
 - [Tiger Nageswara Rao (Malayalam) - Full Album | Ravi Teja | Nupur Sanon | Vamsee | GV Prakash Kumar](https://www.youtube.com/watch?v=XCnKbzR5o0k)
 - [Manjerunne | Cheenatrophy | Dhyan Sreenivasan | Sooraj Santhosh - Varkey | Anil Lal | Jaffer Idukki](https://www.youtube.com/watch?v=h0_4WkOkrmM)
-- [Puthumazhayil | Karaoke Video | Ithramathram | K S Chithra | Rafeeque Ahammed | Jaison J Nair](https://www.youtube.com/watch?v=NpU3naun3CI)
-- [Vineeth Old Malayalam Movie Songs | Manathe Vellitheru Movie Song | Remastered Malayalam Songs](https://www.youtube.com/watch?v=lbkstjSz_I4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
