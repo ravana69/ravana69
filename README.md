@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vineeth Old Malayalam Movie Songs | Manathe Vellitheru Movie Song | Remastered Malayalam Songs](https://www.youtube.com/watch?v=lbkstjSz_I4)
+- [Doctor Saare | ഡോക്ടര്‍ സാറേ | Sandarbham | Mammootty, Yesudas #oldmalayalammoviesongs](https://www.youtube.com/watch?v=-ETjNHR5zj8)
+- [O Priye Priye | Aniyathipravu | Kunchacko Boban | Shalini | Fazil | Ouseppachan | Yesudas](https://www.youtube.com/watch?v=q6CNu23BPcM)
+- [Ayisha Ayisha - Audio | Ayisha | Manju Warrier | Shreya Ghoshal | M Jayachandran | Aamir Pallikkal](https://www.youtube.com/watch?v=giEmH_FO6q8)
 - [READY FOR TAKE   SILENCE  SOUND ROLLING. Halal Love Story | Movie scene | Indrajith Sukumaran](https://www.youtube.com/watch?v=arofqYnBIFI)
 - [അഭിനയം   നമ്മുടെ തന്നെ സ്വന്തത്തോടുള്ള ഒരു കലാപമാണ്. Halal Love Story | Movie Scene |](https://www.youtube.com/watch?v=f-ZVPMMs2XY)
-- [ഇങ്ങളെ പേര് ഷെരീഫാണ് ന്ന് വെച്ചിട്ട് ഇങ്ങള് പറയുന്നത് എപ്പോളും ശരിയാവണം ന്ന് ഇല്ല്യ Halal Love Story](https://www.youtube.com/watch?v=gQySE3zm-LY)
-- [ചിക്കൻ പൊരി ദൂരത്തായി പോയിലെ  ബിരിയാണി മാത്രം മതിയായിരുന്നു. Halal Love Story | Movie scene |](https://www.youtube.com/watch?v=unUUiCPQi7A)
-- [ഞാൻ മാന്യനാടോ    മാന്യൻ. Halal Love Story| Movie Scene | Indrajith Sukumaran|  Joju George](https://www.youtube.com/watch?v=zl3AEHZ9muU)
-- [ഞാനൊരു നന്മ ചെയ്തു അത് തിന്മയായോ എന്നൊരു സംശയം. Halal Love Story | Movie scene Indrajith Sukumaran](https://www.youtube.com/watch?v=o6UD8R1mzvg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
