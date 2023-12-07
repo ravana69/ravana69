@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mamma Mary Punchiriche | Carol 2023 | Releasing Soon #shortsvideo #ytshorts](https://www.youtube.com/watch?v=qL4ZYzcayjA)
 - [Kooki Paayum | Dance Party | Shorts  #manoramamusic](https://www.youtube.com/watch?v=U6sDVppUDwE)
 - [Kallukolambile | Nona | Shorts  #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=16dVDRQ5HLs)
 - [Ente Priyan #shorts](https://www.youtube.com/watch?v=e0yXsdmxPYM)
 - [Pralayajalathinmel | Short Video | Pranavam | Yesudas | Devotional Shorts | Youtubeshorts](https://www.youtube.com/watch?v=uajTz2amhs0)
 - [തൂമഞ്ഞിൽ കുളിർമയുള്ള സൂപ്പർഹിറ്റ് കരോൾ ഗാനങ്ങൾ  | Christian Devotional Songs Malayalam | Carol Songs](https://www.youtube.com/watch?v=JoGxkt-dVBo)
-- [Japamala 7th of December 23 # Mathavinte Japamala Prakashathinte Rahasyangal 7th of December 23](https://www.youtube.com/watch?v=kAwc-louxTU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
