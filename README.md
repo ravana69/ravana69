@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Akebi&#39;s Sailor Uniform S01 EP02 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 300MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176644-akebis-sailor-uniform-s01-ep02-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-300mb-200mb-esub-google-drive/&do=findComment&comment=357391)
 - [Akebi&#39;s Sailor Uniform S01 EP01 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 250MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176643-akebis-sailor-uniform-s01-ep01-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-250mb-200mb-esub-google-drive/&do=findComment&comment=357390)
 - [Leo &lpar;2023&rpar; Tamil 1080p DOLBY VISION &amp; HDR10 DDP Atmos 5.1 H.265 ESub - 3GB](https://www.1tamilmv.phd/index.php?/forums/topic/176628-leo-2023-tamil-1080p-dolby-vision-hdr10-ddp-atmos-51-h265-esub-3gb/&do=findComment&comment=357389)
 - [Uriyadi &lpar;2016&rpar; AMZN WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 6.3 GB | 3.4 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176640-uriyadi-2016-amzn-web-dl-ddp51-esubs-x264-1080p-720p-63-gb-34-gb/&do=findComment&comment=357388)
 - [Uriyadi &lpar;2016&rpar; AMZN WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 6.3 GB | 3.4 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176640-uriyadi-2016-amzn-web-dl-ddp51-esubs-x264-1080p-720p-63-gb-34-gb/&do=findComment&comment=357387)
-- [[4K] Leo &lpar;2023&rpar; 2160p NF WEB-DL DDP5.1 Atmos Esubs x265 HEVC - HDR10-DoVi - 22 GB | 14.3 GB | 12.2 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176627-4k-leo-2023-2160p-nf-web-dl-ddp51-atmos-esubs-x265-hevc-hdr10-dovi-22-gb-143-gb-122-gb/&do=findComment&comment=357386)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
