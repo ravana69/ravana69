@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മുതലാളിത്തം എന്ന പറഞ്ഞാ അമേരിക്കാ  മുതലാളി എന്ന പറഞ്ഞാ അബുക്കാ. Halal Love Story |Movie scene](https://www.youtube.com/watch?v=83x6ijPIlKc)
+- [7 December 2023](https://www.youtube.com/watch?v=iLyjMme5MhY)
+- [Kattuvalli | Vinayapoorvam Vidhyadharan | Jagathi | KJ Yesudas | Sukanya | Jagadeesh](https://www.youtube.com/watch?v=gxc531u4pgc)
 - [Niramulla Kanavukalundivide | Shikari | Vijay Yesudas | Vijay Prakash | V Harikrishna  | Kaithapram](https://www.youtube.com/watch?v=C8XBgyvkPq8)
 - [Khadhikan - Official Trailer | Unni Mukundan, Mukesh, Ketaki Narayan |  Jayaraj | Sanjoy Chowdhury](https://www.youtube.com/watch?v=5WpIhH0RSi0)
 - [KAANATHIRUNNENKIL | NONA FILM SONG | HEMANTHKUMAR | REJI GOPINATH | VIDYADHARAN MASTER |ROSHNI MENON](https://www.youtube.com/watch?v=S9lY6tDgF5U)
-- [ദൈവം മനുഷ്യനാകുന്ന സുന്ദര നിമിഷമാണ് ക്രിസ്മസ്.  | Rev. Aneesh P Joseph #shortvideo #shorts](https://www.youtube.com/watch?v=H-2Ka3kAalg)
-- [Thankamanassu | Raappakal | Mohan Sithara | P Jayachandran | Kaithapram #SongOfTheDay](https://www.youtube.com/watch?v=7b5BT-4Q4ic)
-- [Udayam Vaalkkannezhuthi Video Song | Njangal Santhushtaraanu | KJ Yesudas |](https://www.youtube.com/watch?v=6NYWn1JBhIs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
