@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [[4K] Leo &lpar;2023&rpar; 2160p NF WEB-DL DDP5.1 Atmos Esubs x265 HEVC - HDR10-DoVi - 22 GB | 14.3 GB | 12.2 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176627-4k-leo-2023-2160p-nf-web-dl-ddp51-atmos-esubs-x265-hevc-hdr10-dovi-22-gb-143-gb-122-gb/&do=findComment&comment=357386)
 - [Uriyadi &lpar;2016&rpar; AMZN WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 6.3 GB | 3.4 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176640-uriyadi-2016-amzn-web-dl-ddp51-esubs-x264-1080p-720p-63-gb-34-gb/&do=findComment&comment=357385)
 - [Amman &lpar;1996&rpar; Tamil TRUE WEB-DL - 576p HQ - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 5.3GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176642-amman-1996-tamil-true-web-dl-576p-hq-avc-untouched-aac20-53gb-gdflix/&do=findComment&comment=357384)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [7-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176641-movies-collection-all-languages-4k-1080p-720p-576p-480p-7-12-2023/&do=findComment&comment=357383)
 - [Uriyadi &lpar;2016&rpar; AMZN WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 6.3 GB | 3.4 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176640-uriyadi-2016-amzn-web-dl-ddp51-esubs-x264-1080p-720p-63-gb-34-gb/&do=findComment&comment=357382)
-- [A Couple of Cuckoos S01 EP06 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 400MB - 250MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176639-a-couple-of-cuckoos-s01-ep06-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-400mb-250mb-esub-google-drive/&do=findComment&comment=357381)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
