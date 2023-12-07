@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Hi Nanna &lpar;2023&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176647-hi-nanna-2023-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357416)
+- [Hi Nanna &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176648-hi-nanna-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357415)
 - [Hi Nanna &lpar;2023&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176647-hi-nanna-2023-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357414)
 - [Thanga Magan &lpar;1983&rpar;.Tamil.1080p264.AAC2.0 - 3.6GB - GOFILE &lpar;LINK UPDATED JULY 2021&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/107209-thanga-magan-1983tamil1080p264aac20-36gb-gofile-link-updated-july-2021/&do=findComment&comment=357413)
 - [Hi Nanna &lpar;2023&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176647-hi-nanna-2023-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357412)
-- [The Archies &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 9.3GB - 2.9GB &amp; 1.6GB] - [x264 - 800MB &amp; 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176646-the-archies-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-hindi-malayalam-kannada-93gb-29gb-16gb-x264-800mb-450mb-esub/&do=findComment&comment=357411)
-- [Unraveling the Tapestry of Humanity: Exploring the Untold Mystery of What It Means to be Human](https://www.1tamilmv.phd/index.php?/forums/topic/150724-unraveling-the-tapestry-of-humanity-exploring-the-untold-mystery-of-what-it-means-to-be-human/&do=findComment&comment=357409)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
