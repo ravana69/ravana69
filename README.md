@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Mast Mein Rehne Ka &lpar;2023&rpar; TRUE WEB-DL - [4K,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 10GB - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176654-mast-mein-rehne-ka-2023-true-web-dl-4k1080p-720p-avc-hevc-dd51-640kbps-10gb-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357421)
+- [Gentleman &lpar;1993&rpar;.Tamil.1080p.Web-dl.HEVC.AAC2.0 - 2.3GB](https://www.1tamilmv.phd/index.php?/forums/topic/176653-gentleman-1993tamil1080pweb-dlhevcaac20-23gb/&do=findComment&comment=357420)
 - [Detective Knight Redemption &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.1GB &amp; 1.1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176652-detective-knight-redemption-2022-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-21gb-11gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=357419)
 - [The Archies &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 9.3GB - 2.9GB &amp; 1.6GB] - [x264 - 800MB &amp; 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176646-the-archies-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-hindi-malayalam-kannada-93gb-29gb-16gb-x264-800mb-450mb-esub/&do=findComment&comment=357418)
 - [Somante Krithavu &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 3GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176651-somante-krithavu-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-3gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=357417)
-- [Hi Nanna &lpar;2023&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176647-hi-nanna-2023-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357416)
-- [Hi Nanna &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176648-hi-nanna-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357415)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
