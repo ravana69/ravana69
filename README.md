@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Joe &lpar;2023&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176429-joe-2023-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357380)
 - [Maa Oori Polimera 2 &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.7GB - 1.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176638-maa-oori-polimera-2-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-27gb-19gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357379)
 - [Abrar’s Entry Jamal Kudu &lpar;From &#39;&#39;ANIMAL&#39;&#39;&rpar; - Single Track - [24Bit &amp; 16Bit] - Harshavardhan Rameshwar Musical](https://www.1tamilmv.phd/index.php?/forums/topic/176635-abrar%E2%80%99s-entry-jamal-kudu-from-animal-single-track-24bit-16bit-harshavardhan-rameshwar-musical/&do=findComment&comment=357378)
 - [Chamak &lpar;2023&rpar; S01 EP&lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p &amp; 360p - AVC - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 7GB - 2.5GB &amp; 850MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176634-chamak-2023-s01-ep01-06-true-web-dl-1080p-720p-360p-avc-aac-20-tamil-telugu-hindi-malayalam-kannada-7gb-25gb-850mb-esub/&do=findComment&comment=357377)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP67 DAY 66 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 531MB &amp; 221MB | 06-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176637-bigg-boss-tamil-s07-ep67-day-66-true-web-dl-1080p-720p-480p-avc-untouched-1gb-531mb-221mb-06-12-2023/&do=findComment&comment=357376)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 EP95 DAY 94 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 500MB &amp; 212MB | 06-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176636-bigg-boss-telugu-s07-ep95-day-94-true-web-dl-1080p-720p-480p-avc-untouched-1gb-500mb-212mb-06-12-2023/&do=findComment&comment=357375)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
