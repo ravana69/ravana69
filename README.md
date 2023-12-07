@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [തൈമാവിന്‍ തണലില്‍ | Oru Yathramozhi |  KS Chithra |  MG Sreekumar  | Mohanlal |#shorts](https://www.youtube.com/watch?v=ZjQ1dIV7t-0)
+- [മറിയം പറഞ്ഞു ഇതാ കര്‍ത്താവിന്റെ ദാസി നിന്റെ വാക്ക് എന്നില്‍ നിറവേറട്ടെ #luthiniya 2023  #kripasanam](https://www.youtube.com/watch?v=WmyYFI3NGnE)
 - [Yesudas Hit Songs | യേശുദാസ് പാടിയ മനോഹരമായ ഹിറ്റ് ഗാനങ്ങൾ | Evergreen Malayalam Non Stop Hit Songs](https://www.youtube.com/watch?v=YlRCKwAt3ag)
 - [Mamma Mary Punchiriche | Fr. Shinto Edassery CST | St. Teresa's School, Ernakulam | Carol 2023](https://www.youtube.com/watch?v=dAgkpMONkjM)
 - [Unarumee Gaanam Video Song | Monnam | Moonnam Pakkam | Thilkan | Jayaram | Ilayaraja | G Venugopal](https://www.youtube.com/watch?v=l52Wo7FEutg)
 - [Thelusa Manasa | Criminal | M.M.Keeravani | S.P.B & K.S.Chithra | Hi-Res Audio](https://www.youtube.com/watch?v=8YfeMHa1sBY)
-- [ഏതൊരു മലയാളിയും കേൾക്കാൻ എന്നും ആഗ്രഹിച്ചു നടക്കുന്ന സൂപ്പർഹിറ്റ് സിനിമ ഗാനങ്ങൾ | Evergreen Songs](https://www.youtube.com/watch?v=4trPe6jnCYM)
-- [Nenjile Murivil - Studio Version  | Chaappakuthu | K S Chithra | Shibu Kallar](https://www.youtube.com/watch?v=Pcy11Nsff_E)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
