@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ariyaatha Pushpavum  Video Song  | Thirakal Ezhuthiya Kavitha | P Jayachandran](https://www.youtube.com/watch?v=2fgmrieKfOw)
 - [Mamma Mary Carol | Shorts  #manoramamusic #ytshorts](https://www.youtube.com/watch?v=KbWCtl3Bn8o)
 - [Mamma Mary Carol | Shorts  #manoramamusic #ytshorts](https://www.youtube.com/watch?v=1XZUusSRe7M)
 - [മമ്മാ മേരി | Mamma Mary Carol | Shorts  #manoramamusic #ytshorts](https://www.youtube.com/watch?v=c4x8lkFcr1c)
 - [ഝീൽ കിനാരേ... | JHEEL KINARE |  Thadakam Super Hit Movie Song | Seema | Sumalatha | S Janaki](https://www.youtube.com/watch?v=bXHPK4gt4Vo)
 - [Mammootty Radhika Sarath Kumar Sad Song Vidhi Theerkum Veedhiyil | Makan Ente Makan | Yesudas | Song](https://www.youtube.com/watch?v=bKdCAc_PP90)
-- [Chithra Super Hit Song Thamara Kannan Urangenam #oldmalayalammelodysongs #chithra_songs](https://www.youtube.com/watch?v=KhL_hd-02QA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
