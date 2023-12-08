@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chithra Super Hit Song Thamara Kannan Urangenam #oldmalayalammelodysongs #chithra_songs](https://www.youtube.com/watch?v=KhL_hd-02QA)
+- [Moonnaam Thrikkannil | Varnakkaazhchakal | K S Chithra | Mohan Sithara | Yusufali Kechery](https://www.youtube.com/watch?v=4By1slLAUag)
+- [മലയാളികളുടെയിടയിൽ ഏറെ പ്രചാരമുള്ള ജനീപ്രീതിയാര്ജിച്ച സിനിമ ഗാനങ്ങൾ | EVERGREEN FILM SONGS MALAYALAM](https://www.youtube.com/watch?v=a95czKcPImM)
+- [Vinnile Gandharva | Raajaavinte Makan | S P Venkitesh | Unni Menon #songoftheday](https://www.youtube.com/watch?v=bD1M4CYDVwc)
+- [Feelings of love 💕 #NeelaNilave #RDX #shorts #ytshorts](https://www.youtube.com/watch?v=rMGpoZdXayc)
 - [Mele Vanin | Niranj Suresh | Brimbal Simon | Biju David Johns | Albin Simon | Christmas Carol 2023](https://www.youtube.com/watch?v=syQa7NURfI0)
-- [Thala'al - Badru Alaina - Audio Song | Ayisha | Manju Warrier | M Jayachandran | Aamir](https://www.youtube.com/watch?v=RjtqLYE6eDM)
-- [Enthe Mulle Pookkathu | Panchaloham | Manoj K Jayan | Vani Vishwanath | Yesudas | Raveendran](https://www.youtube.com/watch?v=zna30MseAZs)
-- [Feel the song ❤ #Chellakuruvikku #Antony #shorts #ytshorts](https://www.youtube.com/watch?v=PlJ_DhgBu1I)
-- [Christmas Carol Song Manju Peyum](https://www.youtube.com/watch?v=gbsfX06UYJQ)
-- [Manju Peyyunnoru Raavil | Christmas Songs |Fr.Paul Manayampilly | Sudheesh US |Christian Folk Songs](https://www.youtube.com/watch?v=ssuMtwOHLK0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
