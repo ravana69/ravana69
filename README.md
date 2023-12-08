@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Iddaru &lpar;1997&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.6GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176685-iddaru-1997-telugu-dvd9-untouched-480p-dd51-448kbps-66gb-esub/&do=findComment&comment=357498)
-- [The Moon &lpar;2023&rpar; &lpar;HD+ Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Kor&rpar; - 3.5GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176684-the-moon-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-kor-35gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=357497)
-- [Yaarum Kaanadha &lpar;From &quot;Fight Club&quot;&rpar; &lpar;2023&rpar; Tamil [24&amp;16Bit FLAC] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - Govind Vasantha Musical](https://www.1tamilmv.phd/index.php?/forums/topic/176683-yaarum-kaanadha-from-fight-club-2023-tamil-2416bit-flac-itunes-hq-mp3-320kbps-128kbps-govind-vasantha-musical/&do=findComment&comment=357496)
-- [G.I. Joe Duology &lpar;2009 to 2013&rpar;[720p - BDRip&#39;s - [Tamil + Telugu + Hindi + Eng]](https://www.1tamilmv.phd/index.php?/forums/topic/128140-gi-joe-duology-2009-to-2013720p-bdrips-tamil-telugu-hindi-eng/&do=findComment&comment=357495)
-- [Ai Unmasking Kamasutra: Decoding the Ancient Art of Lovemaking](https://www.1tamilmv.phd/index.php?/forums/topic/160337-ai-unmasking-kamasutra-decoding-the-ancient-art-of-lovemaking/&do=findComment&comment=357494)
+- [Iddaru &lpar;1997&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.6GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176685-iddaru-1997-telugu-dvd9-untouched-480p-dd51-448kbps-66gb-esub/&do=findComment&comment=357508)
+- [Jigarthanda.DoubleX.Hindi.2023.1080p.,720p NF.WEB-DL.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176690-jigarthandadoublexhindi20231080p720p-nfweb-dlddp51-direct-download/&do=findComment&comment=357507)
+- [Raid.2023.1080p.AMZN.WEB-DL.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176689-raid20231080pamznweb-dlddp51-direct-download/&do=findComment&comment=357506)
+- [Somante.Krithavu.2023.1080p,720p .AMZN.WEB-DL.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176688-somantekrithavu20231080p720p-amznweb-dlddp51-direct-download/&do=findComment&comment=357505)
+- [Merry.Little.Batman.2023.2160p,1080p,720p.AMZN.WEB-DL.MULTI.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176687-merrylittlebatman20232160p1080p720pamznweb-dlmultiddp51-direct-download/&do=findComment&comment=357504)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
