@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Extra Ordinary Man &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176677-extra-ordinary-man-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357472)
 - [Fighter - Teaser | Hrithik Roshan | Deepika Padukone | Anil Kapoor | Siddharth Anand | 25 Jan 2024](https://www.1tamilmv.phd/index.php?/forums/topic/176676-fighter-teaser-hrithik-roshan-deepika-padukone-anil-kapoor-siddharth-anand-25-jan-2024/&do=findComment&comment=357471)
 - [Jigarthanda Double X &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 16GB - 6.8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176660-jigarthanda-double-x-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-16gb-68gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357470)
 - [Vadhuvu &lpar;2023&rpar; S01 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 4.2GB - 1.5GB &amp; 650MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176667-vadhuvu-2023-s01-ep-01-07-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-42gb-15gb-650mb-esub/&do=findComment&comment=357469)
 - [Raid &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 10GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176661-raid-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-10gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357468)
-- [Merry Little Batman &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [4K ,1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Malayalam + Kannada + Eng&rpar; - 12GB - 4GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176670-merry-little-batman-2023-hd-original-audios-4k-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-malayalam-kannada-eng-12gb-4gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=357467)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
