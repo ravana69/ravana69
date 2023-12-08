@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Christmas Carol Song Manju Peyum](https://www.youtube.com/watch?v=gbsfX06UYJQ)
 - [Manju Peyyunnoru Raavil | Christmas Songs |Fr.Paul Manayampilly | Sudheesh US |Christian Folk Songs](https://www.youtube.com/watch?v=ssuMtwOHLK0)
 - [Japamala 8th of December 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 8th of December 23](https://www.youtube.com/watch?v=nNCT1wA2hGQ)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #december  8th mother #mary   songs #kripasanam](https://www.youtube.com/watch?v=QNYR9VUgJaQ)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=fhGiz1aUlWM)
 - [പ്രഭാത പ്രാര്‍ത്ഥന December 8 # Athiravile Prarthana 8th of December 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=qT_NA8x_IVs)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=KgWH9E9MDNY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
