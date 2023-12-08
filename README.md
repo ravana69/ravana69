@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Alivozhukum - Video Song | Antony | Joju George ,Kalyani Priyadarshan | K.S. Chithra | Jakes Bejoy](https://www.youtube.com/watch?v=HQtWY7jgiC4)
+- [Panchavarna Kulire Video Song | HD | Sooryaputhran Movie Song | Jayram | Divya Unni | Jayaram](https://www.youtube.com/watch?v=0TwjYkNxJC8)
 - [Nenjinullil | Diamond Necklace | Sanjeev Thomas | Vidyasagar | Rafeeq Ahammed](https://www.youtube.com/watch?v=hhqni9gcHOQ)
 - [ഇടം നഷ്ട്ടപെട്ടവന്റെ സുദിനമാണ് ക്രിസ്മസ്. | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=4HLbrsgM-vg)
 - [Navami Mahaanavami Video Song | Oru Sundariyude Kadha | P. Susheela | Classic Malayalam Songs](https://www.youtube.com/watch?v=On7Xw6idAoE)
 - [Cinderella Cinderella | Natturajavu | Alex, Jyostna | Mohanlal, Meena, Nayanthara](https://www.youtube.com/watch?v=Z0cjUKx-IUM)
-- [Kanne Urangu - Music Video | Manjari | Shine Mathew | Dr. Mubarak B | Dr. Jebin Abraham](https://www.youtube.com/watch?v=WUUHjV8G9RQ)
-- [Rathinkal Poothali Video Song | Ee Puzhayum Kadannu | Biju Menon | Mohini | KJ Yesudas | Johnson](https://www.youtube.com/watch?v=kidtlkJIdeE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
