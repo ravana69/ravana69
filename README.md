@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kaiva &lpar;2023&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176679-kaiva-2023-kannada-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357513)
+- [Kaiva &lpar;2023&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176679-kaiva-2023-kannada-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357512)
+- [Pendulum &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 1GB - 650MB &amp; 350MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176692-pendulum-2023-malayalam-true-web-dl-1080p-720p-avc-1gb-650mb-350mb-esub/&do=findComment&comment=357511)
 - [Kaiva &lpar;2023&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176679-kaiva-2023-kannada-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357510)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [8-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176691-movies-collection-all-languages-4k-1080p-720p-576p-480p-8-12-2023/&do=findComment&comment=357509)
-- [Iddaru &lpar;1997&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.6GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176685-iddaru-1997-telugu-dvd9-untouched-480p-dd51-448kbps-66gb-esub/&do=findComment&comment=357508)
-- [Jigarthanda.DoubleX.Hindi.2023.1080p.,720p NF.WEB-DL.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176690-jigarthandadoublexhindi20231080p720p-nfweb-dlddp51-direct-download/&do=findComment&comment=357507)
-- [Raid.2023.1080p.AMZN.WEB-DL.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176689-raid20231080pamznweb-dlddp51-direct-download/&do=findComment&comment=357506)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
