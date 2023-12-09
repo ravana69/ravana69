@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kaiva &lpar;2023&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176679-kaiva-2023-kannada-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357542)
+- [A Ranjith Cinema &lpar;2023&rpar; Malayalam HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176680-a-ranjith-cinema-2023-malayalam-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357541)
+- [Akebi&#39;s Sailor Uniform S01 EP04 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 250MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176703-akebis-sailor-uniform-s01-ep04-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-250mb-200mb-esub-google-drive/&do=findComment&comment=357540)
+- [[DoVi] Jigarthanda DoubleX &lpar;2023&rpar; WEB-DL DDP5.1 Esubs - 2160p [DoVi] | 1080p | 720p - 12.7 GB | 8.8 GB | 6.7 GB | 3.5 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176668-dovi-jigarthanda-doublex-2023-web-dl-ddp51-esubs-2160p-dovi-1080p-720p-127-gb-88-gb-67-gb-35-gb/&do=findComment&comment=357539)
 - [Chamak &lpar;2023&rpar; Complete S01 EP&lpar;01-06&rpar; Merged TRUE WEB-DL - [1080p - 720p &amp; 360p - AVC - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 7GB - 2.5GB &amp; 850MB] - ESub [Google  Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176702-chamak-2023-complete-s01-ep01-06-merged-true-web-dl-1080p-720p-360p-avc-aac-20-tamil-telugu-hindi-malayalam-kannada-7gb-25gb-850mb-esub-google-drive/&do=findComment&comment=357538)
-- [Jigarthanda Double X &lpar;2023&rpar; Tamil DTS-MA 5.1 &lpar;Fanmade&rpar; Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176701-jigarthanda-double-x-2023-tamil-dts-ma-51-fanmade-direct-download/&do=findComment&comment=357537)
-- [Napoleon &lpar;2023&rpar; English HQ HDCAM - [1080p &amp; 720p - x264 - 1.8GB &amp; 900MB | x264 - 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/175824-napoleon-2023-english-hq-hdcam-1080p-720p-x264-18gb-900mb-x264-400mb/&do=findComment&comment=357536)
-- [Label S01E07 DSNP WEB-DL DDP5.1 Esubs - 2160p | 1080p - 2.6 GB | 0.7 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176700-label-s01e07-dsnp-web-dl-ddp51-esubs-2160p-1080p-26-gb-07-gb/&do=findComment&comment=357535)
-- [Label S01E07 DSNP WEB-DL DDP5.1 Esubs - 2160p | 1080p - 2.6 GB | 0.7 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176700-label-s01e07-dsnp-web-dl-ddp51-esubs-2160p-1080p-26-gb-07-gb/&do=findComment&comment=357534)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
