@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഏത് തരം മലയാളികൾക്കും ഒരേ ഇഷ്ടവും ഒരേ ആഗ്രഹവും ഉള്ള മലയാളത്തിലെ തകർപ്പൻ ഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=9-VrNK6L85o)
+- [സ്റ്റേജ് പ്രോഗ്രാമുകളിലും ഗാനസന്ധ്യകളിലും എവിടെയും എപ്പോഴും മുഴങ്ങി കേൾക്കുന്ന  ഗാനങ്ങൾ ! SUPERHITS](https://www.youtube.com/watch?v=wkEQEQ9Zaoc)
+- [വശ്യതയാർന്ന ഗാനങ്ങളാൽ മലയാളികളുടെ ഹൃദയം കവർന്ന എക്കാലത്തെയും മികച്ച ഗാനങ്ങൾ ! EVERGREEN FILM SONGS](https://www.youtube.com/watch?v=e4E5Ogh0g-A)
+- [Paadi Thodiyiletho | Aaraam Thamburaan | Raveendran | Gireesh Puthenchery | KS Chithra #songoftheday](https://www.youtube.com/watch?v=Fd49us8y3iY)
+- [Admiring her cuteness  #NeelaNilave #RDX #shorts #ytshorts](https://www.youtube.com/watch?v=9jOSDFRQAoY)
 - [Chenthamara Theno | Lyrical Video | 916 | Asif Ali | Haricharan  | M Jayachandran | Rafeeque Ahammed](https://www.youtube.com/watch?v=9rNyBpmMQac)
-- [K.S.Chithra Magic | Kshamichu Ennoru Vakku #oldmelody #ytshorts #oldmalayalammelody](https://www.youtube.com/watch?v=UBlP14CV8Rg)
-- [Feel the Happiness #Chellakuruvikku #Antony #shorts #ytshorts](https://www.youtube.com/watch?v=NNl7lQunckk)
-- [Annoru Ravil | Masmaram | Sureshgopi | Aparna Rao | Sujatha | S P Venkitesh](https://www.youtube.com/watch?v=8y-etsgOit0)
-- [Mandarappoove - Audio Song | Kumari | Jakes Bejoy | Aishwarya Lekshmi | Nirmal Sahadev](https://www.youtube.com/watch?v=5MfS_BWEomI)
-- [Christmas Video Songs | Madhu Balakrishnan | Carol Songs Malayalam | Joji Johns | Christmas Songs](https://www.youtube.com/watch?v=kEd_qeyCr1g)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
