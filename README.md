@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Chamak &lpar;2023&rpar; Complete S01 EP&lpar;01-06&rpar; Merged TRUE WEB-DL - [1080p - 720p &amp; 360p - AVC - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 7GB - 2.5GB &amp; 850MB] - ESub [Google  Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176702-chamak-2023-complete-s01-ep01-06-merged-true-web-dl-1080p-720p-360p-avc-aac-20-tamil-telugu-hindi-malayalam-kannada-7gb-25gb-850mb-esub-google-drive/&do=findComment&comment=357538)
 - [Jigarthanda Double X &lpar;2023&rpar; Tamil DTS-MA 5.1 &lpar;Fanmade&rpar; Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176701-jigarthanda-double-x-2023-tamil-dts-ma-51-fanmade-direct-download/&do=findComment&comment=357537)
 - [Napoleon &lpar;2023&rpar; English HQ HDCAM - [1080p &amp; 720p - x264 - 1.8GB &amp; 900MB | x264 - 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/175824-napoleon-2023-english-hq-hdcam-1080p-720p-x264-18gb-900mb-x264-400mb/&do=findComment&comment=357536)
 - [Label S01E07 DSNP WEB-DL DDP5.1 Esubs - 2160p | 1080p - 2.6 GB | 0.7 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176700-label-s01e07-dsnp-web-dl-ddp51-esubs-2160p-1080p-26-gb-07-gb/&do=findComment&comment=357535)
 - [Label S01E07 DSNP WEB-DL DDP5.1 Esubs - 2160p | 1080p - 2.6 GB | 0.7 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176700-label-s01e07-dsnp-web-dl-ddp51-esubs-2160p-1080p-26-gb-07-gb/&do=findComment&comment=357534)
-- [TAGORE &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.5GB](https://www.1tamilmv.phd/index.php?/forums/topic/176699-tagore-2003-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-75gb/&do=findComment&comment=357533)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
