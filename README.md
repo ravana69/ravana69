@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pendulum &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 1GB - 650MB &amp; 350MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176692-pendulum-2023-malayalam-true-web-dl-1080p-720p-avc-1gb-650mb-350mb-esub/&do=findComment&comment=357551)
+- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [9-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176704-movies-collection-all-languages-4k-1080p-720p-576p-480p-9-12-2023/&do=findComment&comment=357550)
 - [Unlocking the Cosmic Portal: Ai Revealing the Secrets of the Other Side of a Black Hole](https://www.1tamilmv.phd/index.php?/forums/topic/163135-unlocking-the-cosmic-portal-ai-revealing-the-secrets-of-the-other-side-of-a-black-hole/&do=findComment&comment=357549)
 - [Ai&#39;s Vision and Impact in Nuclear Physics Unleashing the Power of Artificial Intelligence](https://www.1tamilmv.phd/index.php?/forums/topic/163136-ais-vision-and-impact-in-nuclear-physics-unleashing-the-power-of-artificial-intelligence/&do=findComment&comment=357548)
 - [Exploring the Frontier AI&#39;s View and Use of Atomic Physics](https://www.1tamilmv.phd/index.php?/forums/topic/163139-exploring-the-frontier-ais-view-and-use-of-atomic-physics/&do=findComment&comment=357547)
-- [The Future of Healthcare: Ai Doctors Providing Treatment](https://www.1tamilmv.phd/index.php?/forums/topic/163137-the-future-of-healthcare-ai-doctors-providing-treatment/&do=findComment&comment=357546)
-- [Buzz Kill: The Shocking Link Between Insecticides and Male Fertility Drop Over 50 Years! 🚫🐜👶 3](https://www.1tamilmv.phd/index.php?/forums/topic/159486-buzz-kill-the-shocking-link-between-insecticides-and-male-fertility-drop-over-50-years-%F0%9F%9A%AB%F0%9F%90%9C%F0%9F%91%B6-3/&do=findComment&comment=357545)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
