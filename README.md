@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Pendulum &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 1GB - 650MB &amp; 350MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176692-pendulum-2023-malayalam-true-web-dl-1080p-720p-avc-1gb-650mb-350mb-esub/&do=findComment&comment=357551)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [9-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176704-movies-collection-all-languages-4k-1080p-720p-576p-480p-9-12-2023/&do=findComment&comment=357550)
-- [Unlocking the Cosmic Portal: Ai Revealing the Secrets of the Other Side of a Black Hole](https://www.1tamilmv.phd/index.php?/forums/topic/163135-unlocking-the-cosmic-portal-ai-revealing-the-secrets-of-the-other-side-of-a-black-hole/&do=findComment&comment=357549)
-- [Ai&#39;s Vision and Impact in Nuclear Physics Unleashing the Power of Artificial Intelligence](https://www.1tamilmv.phd/index.php?/forums/topic/163136-ais-vision-and-impact-in-nuclear-physics-unleashing-the-power-of-artificial-intelligence/&do=findComment&comment=357548)
-- [Exploring the Frontier AI&#39;s View and Use of Atomic Physics](https://www.1tamilmv.phd/index.php?/forums/topic/163139-exploring-the-frontier-ais-view-and-use-of-atomic-physics/&do=findComment&comment=357547)
+- [TAGORE &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.5GB](https://www.1tamilmv.phd/index.php?/forums/topic/176699-tagore-2003-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-75gb/&do=findComment&comment=357557)
+- [Conjuring Kannappan &lpar;2023&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176678-conjuring-kannappan-2023-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357556)
+- [A Ranjith Cinema &lpar;2023&rpar; Malayalam HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176680-a-ranjith-cinema-2023-malayalam-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357555)
+- [Ninaithadhai Mudippavan &lpar;1975&rpar;.Tamil.480p.Amzn.Web-dl.x264.AAC2.0 - 1.7GB](https://www.1tamilmv.phd/index.php?/forums/topic/176705-ninaithadhai-mudippavan-1975tamil480pamznweb-dlx264aac20-17gb/&do=findComment&comment=357554)
+- [Label S01E07 DSNP WEB-DL DDP5.1 Esubs - 2160p | 1080p - 2.6 GB | 0.7 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176700-label-s01e07-dsnp-web-dl-ddp51-esubs-2160p-1080p-26-gb-07-gb/&do=findComment&comment=357553)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
