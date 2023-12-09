@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [#chithra_songs pathirakottarangalil |Urvashi&Jagadishduo| #oldmalayalammelodysongs #malayalamsongs](https://www.youtube.com/watch?v=EM7vd2G7NiU)
+- [വേളിക്കു വെളുപ്പാന്‍ കാലം | Kaliyattam | Kaithapram | Suresh Gopi | Manju Warrier | #shorts](https://www.youtube.com/watch?v=hMSoNyBus6k)
+- [Chella Paapa - Lyrical Video | Mad Dad | KS Chithra, P Jayachandran | Alex Paul | Evergreen Song](https://www.youtube.com/watch?v=u3v6ygZ8VQY)
 - [ലലേട്ടൻ തകർത്ത് അഭിനയിച്ച രാജശില്പിയിലെ ഗാനങ്ങൾ | Rajashilpi Malayalam Movie Jukebox | Mohanlal](https://www.youtube.com/watch?v=I-8df7jJ3ko)
 - [Hosaina Hosaina × Saturday Night | Nivin Pauly | Sujatha Mohan | Afsal | Saina Music Mixpod!](https://www.youtube.com/watch?v=qYIEPxnNVMc)
 - [ഏത് തരം മലയാളികൾക്കും ഒരേ ഇഷ്ടവും ഒരേ ആഗ്രഹവും ഉള്ള മലയാളത്തിലെ തകർപ്പൻ ഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=9-VrNK6L85o)
-- [സ്റ്റേജ് പ്രോഗ്രാമുകളിലും ഗാനസന്ധ്യകളിലും എവിടെയും എപ്പോഴും മുഴങ്ങി കേൾക്കുന്ന  ഗാനങ്ങൾ ! SUPERHITS](https://www.youtube.com/watch?v=wkEQEQ9Zaoc)
-- [വശ്യതയാർന്ന ഗാനങ്ങളാൽ മലയാളികളുടെ ഹൃദയം കവർന്ന എക്കാലത്തെയും മികച്ച ഗാനങ്ങൾ ! EVERGREEN FILM SONGS](https://www.youtube.com/watch?v=e4E5Ogh0g-A)
-- [Paadi Thodiyiletho | Aaraam Thamburaan | Raveendran | Gireesh Puthenchery | KS Chithra #songoftheday](https://www.youtube.com/watch?v=Fd49us8y3iY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
