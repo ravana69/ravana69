@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Conjuring Kannappan &lpar;2023&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176678-conjuring-kannappan-2023-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357525)
 - [Leave the World Behind &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.2GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176671-leave-the-world-behind-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-32gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=357524)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP68 DAY 67 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 575MB &amp; 225MB | 07-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176656-bigg-boss-tamil-s07-ep68-day-67-true-web-dl-1080p-720p-480p-avc-untouched-11gb-575mb-225mb-07-12-2023/&do=findComment&comment=357523)
 - [Raid &lpar;2023&rpar; Tamil HQ HDRip - 720p - HEVC - x265 - AAC - 650MB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176696-raid-2023-tamil-hq-hdrip-720p-hevc-x265-aac-650mb-esub/&do=findComment&comment=357522)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP97 DAY 96 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 484MB &amp; 206MB | 08-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176695-bigg-boss-telugu-s07-ep97-day-96-true-web-dl-1080p-720p-480p-avc-untouched-1gb-484mb-206mb-08-12-2023/&do=findComment&comment=357521)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP69 DAY 68 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 586MB &amp; 243MB | 08-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176694-bigg-boss-tamil-s07-ep69-day-68-true-web-dl-1080p-720p-480p-avc-untouched-11gb-586mb-243mb-08-12-2023/&do=findComment&comment=357520)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
