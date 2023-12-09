@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [K.S.Chithra Magic | Kshamichu Ennoru Vakku #oldmelody #ytshorts #oldmalayalammelody](https://www.youtube.com/watch?v=UBlP14CV8Rg)
+- [Feel the Happiness #Chellakuruvikku #Antony #shorts #ytshorts](https://www.youtube.com/watch?v=NNl7lQunckk)
+- [Annoru Ravil | Masmaram | Sureshgopi | Aparna Rao | Sujatha | S P Venkitesh](https://www.youtube.com/watch?v=8y-etsgOit0)
+- [Mandarappoove - Audio Song | Kumari | Jakes Bejoy | Aishwarya Lekshmi | Nirmal Sahadev](https://www.youtube.com/watch?v=5MfS_BWEomI)
 - [Christmas Video Songs | Madhu Balakrishnan | Carol Songs Malayalam | Joji Johns | Christmas Songs](https://www.youtube.com/watch?v=kEd_qeyCr1g)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kripasanam mother mary songs for December 9th 2023](https://www.youtube.com/watch?v=Ysek1tmBxIM)
-- [Japamala 9th of December 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 9th of December 23](https://www.youtube.com/watch?v=_8cV8WPoPmI)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=4jZ1MwAPllc)
-- [രാവിലെ പ്രാര്‍ത്ഥന December 9 # Athiravile Prarthana 9th of December 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=fQVVozzNPtk)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=mDhVJgpb6bc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
