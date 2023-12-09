@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [TAGORE &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.5GB](https://www.1tamilmv.phd/index.php?/forums/topic/176699-tagore-2003-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-75gb/&do=findComment&comment=357533)
+- [50 Tamil Movies - TK/JC/AMZN/SUN NXT/SS - WEB DL - H264/H265 - DDP5.1/AAC2.0 - Esub - [1080p &amp; 720p - 350GB] [GDRIVE]](https://www.1tamilmv.phd/index.php?/forums/topic/139531-50-tamil-movies-tkjcamznsun-nxtss-web-dl-h264h265-ddp51aac20-esub-1080p-720p-350gb-gdrive/&do=findComment&comment=357532)
 - [Pendulum &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 1GB - 650MB &amp; 350MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176692-pendulum-2023-malayalam-true-web-dl-1080p-720p-avc-1gb-650mb-350mb-esub/&do=findComment&comment=357531)
 - [The Moon &lpar;2023&rpar; &lpar;HD+ Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Kor&rpar; - 3.5GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176684-the-moon-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-kor-35gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=357530)
 - [Little Miss Rawther &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176686-little-miss-rawther-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=357529)
-- [Leave the World Behind &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.2GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176671-leave-the-world-behind-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-32gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=357528)
-- [[HDR10-DoVi] Mast Mein Rehne Ka &lpar;2023&rpar; AMZN WEB-DL Multi DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p | 720p - 15.8 GB | 11 GB | 6.1 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176698-hdr10-dovi-mast-mein-rehne-ka-2023-amzn-web-dl-multi-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-720p-158-gb-11-gb-61-gb/&do=findComment&comment=357527)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
