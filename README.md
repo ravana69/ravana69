@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കടലിന്റെ നടുവില്‍ കനകംപൂത്തിറങ്ങി കരയായിക്കിടക്കുന്നതേതൊരുമാന്‍ | Aavesham,S Janaki  #malayalamsongs](https://www.youtube.com/watch?v=Y3zTqNZmt1o)
 - [Pokoo Nee Raave Video Song | Phoenix | Anoop Menon | Vishnu Bharathan | Vaikom Vijayalakshmi](https://www.youtube.com/watch?v=Zbk45lm7aVg)
 - [We Don't Give | Bachelor Party | Rahul Raj | Rafeeq Ahammed](https://www.youtube.com/watch?v=C7kScpIzlNk)
 - [സ്നേഹത്തിന്റെ ഉദാത്തമായ ഭാവമാണ് ക്രിസ്മസ്  | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=29MUYWb0XOY)
 - [Iru Meyyum Video Song | Njangal Santhushtaaranu | KJ Yesudas | KS Chithra | Ouseppachan](https://www.youtube.com/watch?v=UfCISaklbOE)
 - [NISHAYUDE KULIRIL | SANJAY V ISON | BIJU BETHLEHEM | JINO KUNNUMPURATH | NEW CHRISTMAS SONG | REEL 1](https://www.youtube.com/watch?v=FJLPrO_hE1s)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 9th of December 2023](https://www.youtube.com/watch?v=oWC8dAUGqoU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
