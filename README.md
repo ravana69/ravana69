@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Kaiva &lpar;2023&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176679-kaiva-2023-kannada-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357542)
-- [A Ranjith Cinema &lpar;2023&rpar; Malayalam HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176680-a-ranjith-cinema-2023-malayalam-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357541)
-- [Akebi&#39;s Sailor Uniform S01 EP04 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 250MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176703-akebis-sailor-uniform-s01-ep04-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-250mb-200mb-esub-google-drive/&do=findComment&comment=357540)
-- [[DoVi] Jigarthanda DoubleX &lpar;2023&rpar; WEB-DL DDP5.1 Esubs - 2160p [DoVi] | 1080p | 720p - 12.7 GB | 8.8 GB | 6.7 GB | 3.5 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176668-dovi-jigarthanda-doublex-2023-web-dl-ddp51-esubs-2160p-dovi-1080p-720p-127-gb-88-gb-67-gb-35-gb/&do=findComment&comment=357539)
-- [Chamak &lpar;2023&rpar; Complete S01 EP&lpar;01-06&rpar; Merged TRUE WEB-DL - [1080p - 720p &amp; 360p - AVC - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 7GB - 2.5GB &amp; 850MB] - ESub [Google  Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176702-chamak-2023-complete-s01-ep01-06-merged-true-web-dl-1080p-720p-360p-avc-aac-20-tamil-telugu-hindi-malayalam-kannada-7gb-25gb-850mb-esub-google-drive/&do=findComment&comment=357538)
+- [Unlocking the Cosmic Portal: Ai Revealing the Secrets of the Other Side of a Black Hole](https://www.1tamilmv.phd/index.php?/forums/topic/163135-unlocking-the-cosmic-portal-ai-revealing-the-secrets-of-the-other-side-of-a-black-hole/&do=findComment&comment=357549)
+- [Ai&#39;s Vision and Impact in Nuclear Physics Unleashing the Power of Artificial Intelligence](https://www.1tamilmv.phd/index.php?/forums/topic/163136-ais-vision-and-impact-in-nuclear-physics-unleashing-the-power-of-artificial-intelligence/&do=findComment&comment=357548)
+- [Exploring the Frontier AI&#39;s View and Use of Atomic Physics](https://www.1tamilmv.phd/index.php?/forums/topic/163139-exploring-the-frontier-ais-view-and-use-of-atomic-physics/&do=findComment&comment=357547)
+- [The Future of Healthcare: Ai Doctors Providing Treatment](https://www.1tamilmv.phd/index.php?/forums/topic/163137-the-future-of-healthcare-ai-doctors-providing-treatment/&do=findComment&comment=357546)
+- [Buzz Kill: The Shocking Link Between Insecticides and Male Fertility Drop Over 50 Years! 🚫🐜👶 3](https://www.1tamilmv.phd/index.php?/forums/topic/159486-buzz-kill-the-shocking-link-between-insecticides-and-male-fertility-drop-over-50-years-%F0%9F%9A%AB%F0%9F%90%9C%F0%9F%91%B6-3/&do=findComment&comment=357545)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
