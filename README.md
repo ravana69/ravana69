@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [#chithra_songs pathirakottarangalil |Urvashi&Jagadishduo| #oldmalayalammelodysongs #malayalamsongs](https://www.youtube.com/watch?v=EM7vd2G7NiU)
-- [വേളിക്കു വെളുപ്പാന്‍ കാലം | Kaliyattam | Kaithapram | Suresh Gopi | Manju Warrier | #shorts](https://www.youtube.com/watch?v=hMSoNyBus6k)
-- [Chella Paapa - Lyrical Video | Mad Dad | KS Chithra, P Jayachandran | Alex Paul | Evergreen Song](https://www.youtube.com/watch?v=u3v6ygZ8VQY)
-- [ലലേട്ടൻ തകർത്ത് അഭിനയിച്ച രാജശില്പിയിലെ ഗാനങ്ങൾ | Rajashilpi Malayalam Movie Jukebox | Mohanlal](https://www.youtube.com/watch?v=I-8df7jJ3ko)
-- [Hosaina Hosaina × Saturday Night | Nivin Pauly | Sujatha Mohan | Afsal | Saina Music Mixpod!](https://www.youtube.com/watch?v=qYIEPxnNVMc)
-- [ഏത് തരം മലയാളികൾക്കും ഒരേ ഇഷ്ടവും ഒരേ ആഗ്രഹവും ഉള്ള മലയാളത്തിലെ തകർപ്പൻ ഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=9-VrNK6L85o)
+- [Pokoo Nee Raave Video Song | Phoenix | Anoop Menon | Vishnu Bharathan | Vaikom Vijayalakshmi](https://www.youtube.com/watch?v=Zbk45lm7aVg)
+- [We Don't Give | Bachelor Party | Rahul Raj | Rafeeq Ahammed](https://www.youtube.com/watch?v=C7kScpIzlNk)
+- [സ്നേഹത്തിന്റെ ഉദാത്തമായ ഭാവമാണ് ക്രിസ്മസ്  | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=29MUYWb0XOY)
+- [Iru Meyyum Video Song | Njangal Santhushtaaranu | KJ Yesudas | KS Chithra | Ouseppachan](https://www.youtube.com/watch?v=UfCISaklbOE)
+- [NISHAYUDE KULIRIL | SANJAY V ISON | BIJU BETHLEHEM | JINO KUNNUMPURATH | NEW CHRISTMAS SONG | REEL 1](https://www.youtube.com/watch?v=FJLPrO_hE1s)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 9th of December 2023](https://www.youtube.com/watch?v=oWC8dAUGqoU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
