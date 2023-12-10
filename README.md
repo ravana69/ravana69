@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP70 DAY 69 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.4GB - 696MB &amp; 308MB | 09-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176707-bigg-boss-tamil-s07-ep70-day-69-true-web-dl-1080p-720p-480p-avc-untouched-14gb-696mb-308mb-09-12-2023/&do=findComment&comment=357566)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [10-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176708-movies-collection-all-languages-4k-1080p-720p-576p-480p-10-12-2023/&do=findComment&comment=357565)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [9-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176704-movies-collection-all-languages-4k-1080p-720p-576p-480p-9-12-2023/&do=findComment&comment=357564)
 - [Jigarthanda Double X &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 16GB - 6.8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176660-jigarthanda-double-x-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-16gb-68gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357563)
 - [Garudan &lpar;2023&rpar; Malayalam TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4.3GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176544-garudan-2023-malayalam-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-43gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357562)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [9-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176704-movies-collection-all-languages-4k-1080p-720p-576p-480p-9-12-2023/&do=findComment&comment=357561)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
