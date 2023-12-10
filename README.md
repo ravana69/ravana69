@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈ ഗാനങ്ങൾ കേട്ടാൽ അത്ഭുതങ്ങൾ സംഭവിക്കും തീർച്ച |](https://www.youtube.com/watch?v=UqTprLSn4CE)
+- [Japamala 10th of December 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 10th of December 2023](https://www.youtube.com/watch?v=GUEyQfHVrCo)
+- [ഈ ഗാനങ്ങൾ കേൾക്കാതെ പോകരുതേ#ഏറ്റവും  നല്ല ഗാനങ്ങൾ മാത്രംഉൾപ്പെടുത്തി ഇരിക്കുന്നു#morningprayersongs](https://www.youtube.com/watch?v=1BJ4Lh7WCeU)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=QA_GlTfJZSw)
 - [S. Janaki super hit song | Sundarippoovinu Naanam #oldmalayalammelodysongs #suhasini #ytshorts](https://www.youtube.com/watch?v=i0Q-868TvnU)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=MjQLqpOy3PA)
-- [പ്രഭാത പ്രാര്‍ത്ഥന December 10 # Athiravile Prarthana 10th of December 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=9Y8ll-wY1WU)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 10th December 23](https://www.youtube.com/watch?v=zTJuMOom4wk)
-- [9 December 2023](https://www.youtube.com/watch?v=uUj0OqeGx2E)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
