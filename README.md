@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pandem Kodi &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.5GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176713-pandem-kodi-2005-telugu-dvd9-untouched-480p-dd51-448kbps-65gb-esub/&do=findComment&comment=357577)
+- [Jigarthanda DoubleX - 10000 Pax - 1080P &amp; 1440P - DD5.1 + DTSHD5.1 + PCM5.1 + FLAC &lpar;Upmixed&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176712-jigarthanda-doublex-10000-pax-1080p-1440p-dd51-dtshd51-pcm51-flac-upmixed/&do=findComment&comment=357576)
 - [Creepy Crawly [The One Hundred] &lpar;2023&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Thai&rpar; - 2.1GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176710-creepy-crawly-the-one-hundred-2023-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-thai-21gb-11gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=357575)
 - [Jigarthanda DoubleX - 10000 Pax - 1080P &amp; 1440P - DD5.1 + DTSHD5.1 + PCM5.1 + FLAC &lpar;Upmixed&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176712-jigarthanda-doublex-10000-pax-1080p-1440p-dd51-dtshd51-pcm51-flac-upmixed/&do=findComment&comment=357574)
 - [Mandhira Punnagai &lpar;2010&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 2GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176711-mandhira-punnagai-2010-tamil-true-web-dl-1080p-avc-untouched-aac20-2gb-gdflix/&do=findComment&comment=357573)
-- [The Marvels &lpar;2023&rpar; HD - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Eng&rpar; - 2GB &amp; 1GB | x264 - 400MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176067-the-marvels-2023-hd-1080p-720p-x264-tamil-telugu-eng-2gb-1gb-x264-400mb-hq-clean-audio/&do=findComment&comment=357572)
-- [Creepy Crawly [The One Hundred] &lpar;2023&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Thai&rpar; - 2.1GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176710-creepy-crawly-the-one-hundred-2023-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-thai-21gb-11gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=357571)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
