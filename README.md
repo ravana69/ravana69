@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Thimiru Pudichavan &lpar;2018&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 8.8GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176675-thimiru-pudichavan-2018-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-88gb-esub-gdflix/&do=findComment&comment=357586)
+- [Yaarum Kaanadha &lpar;From &quot;Fight Club&quot;&rpar; &lpar;2023&rpar; Tamil [24&amp;16Bit FLAC] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - Govind Vasantha Musical](https://www.1tamilmv.phd/index.php?/forums/topic/176683-yaarum-kaanadha-from-fight-club-2023-tamil-2416bit-flac-itunes-hq-mp3-320kbps-128kbps-govind-vasantha-musical/&do=findComment&comment=357585)
+- [Yaarum Kaanadha &lpar;From &quot;Fight Club&quot;&rpar; &lpar;2023&rpar; Tamil [24&amp;16Bit FLAC] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - Govind Vasantha Musical](https://www.1tamilmv.phd/index.php?/forums/topic/176683-yaarum-kaanadha-from-fight-club-2023-tamil-2416bit-flac-itunes-hq-mp3-320kbps-128kbps-govind-vasantha-musical/&do=findComment&comment=357584)
+- [Bombay &lpar;1996&rpar; Telugu &amp; Tamil - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176714-bombay-1996-telugu-tamil-dvd9-untouched-480p-dd51-448kbps-6gb-esub/&do=findComment&comment=357583)
 - [F9 - The Fast Saga &lpar;2021&rpar; &lpar;BluRay + Original Audios&rpar; - [4K - 1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.5GB &amp; 1.5GB | x264 - &lpar;Tam + Tel&rpar; - 450MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/173373-f9-the-fast-saga-2021-bluray-original-audios-4k-1080p-720p-x264-tamil-telugu-hindi-eng-35gb-15gb-x264-tam-tel-450mb-esub-google-drive/&do=findComment&comment=357582)
-- [Thimiru Pudichavan &lpar;2018&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 8.8GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176675-thimiru-pudichavan-2018-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-88gb-esub-gdflix/&do=findComment&comment=357581)
-- [And Just Like That &lpar;2023&rpar; S02 EP&lpar;01-11&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada + Eng] - 5.5GB - 3.5GB &amp; 1.3GB]](https://www.1tamilmv.phd/index.php?/forums/topic/176650-and-just-like-that-2023-s02-ep01-11-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-55gb-35gb-13gb/&do=findComment&comment=357580)
-- [Thimiru Pudichavan &lpar;2018&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 8.8GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176675-thimiru-pudichavan-2018-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-88gb-esub-gdflix/&do=findComment&comment=357579)
-- [Unlocking the Future: Google&#39;s Gemini Era - The Most Powerful AI Model Revealed!](https://www.1tamilmv.phd/index.php?/forums/topic/150721-unlocking-the-future-googles-gemini-era-the-most-powerful-ai-model-revealed/&do=findComment&comment=357578)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
