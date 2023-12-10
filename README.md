@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [And Just Like That &lpar;2023&rpar; S02 EP&lpar;01-11&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada + Eng] - 5.5GB - 3.5GB &amp; 1.3GB]](https://www.1tamilmv.phd/index.php?/forums/topic/176650-and-just-like-that-2023-s02-ep01-11-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-55gb-35gb-13gb/&do=findComment&comment=357570)
+- [And Just Like That &lpar;2023&rpar; S02 EP&lpar;01-11&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada + Eng] - 5.5GB - 3.5GB &amp; 1.3GB]](https://www.1tamilmv.phd/index.php?/forums/topic/176650-and-just-like-that-2023-s02-ep01-11-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-55gb-35gb-13gb/&do=findComment&comment=357569)
 - [Aquaman &lpar;2018&rpar; - 2160p - 4K UHD  IMAX - AVC/HEVC - [English - TrueHD Atmos 7.1][Tamil+Telugu+Hindi - DD 5.1] - 18GB, 3.6GB, 1.5GB [Google Drive Links]](https://www.1tamilmv.phd/index.php?/forums/topic/152775-aquaman-2018-2160p-4k-uhd-imax-avchevc-english-truehd-atmos-71tamilteluguhindi-dd-51-18gb-36gb-15gb-google-drive-links/&do=findComment&comment=357568)
 - [Souryam &lpar;2008&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 4.1GB](https://www.1tamilmv.phd/index.php?/forums/topic/176709-souryam-2008-telugu-dvd5-untouched-480p-dd51-448kbps-41gb/&do=findComment&comment=357567)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP70 DAY 69 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.4GB - 696MB &amp; 308MB | 09-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176707-bigg-boss-tamil-s07-ep70-day-69-true-web-dl-1080p-720p-480p-avc-untouched-14gb-696mb-308mb-09-12-2023/&do=findComment&comment=357566)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [10-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176708-movies-collection-all-languages-4k-1080p-720p-576p-480p-10-12-2023/&do=findComment&comment=357565)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [9-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176704-movies-collection-all-languages-4k-1080p-720p-576p-480p-9-12-2023/&do=findComment&comment=357564)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
