@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 11th December 23](https://www.youtube.com/watch?v=zAE4nmN5Gz8)
 - [10 December 2023](https://www.youtube.com/watch?v=pijJKeE1UQM)
 - [Omana Thinkal Thelle | Rakkilippattu | Jyothika | Vidyasagar | K S Chithra | Sujatha Mohan](https://www.youtube.com/watch?v=aHfhJpkTArs)
 - [പറഞ്ഞുതീരാത്ത ദൈവീക വരദാനങ്ങളുടെ പ്രകാശനമാണ് ക്രിസ്മസ്. | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=GgiVL0nSjjw)
 - [Ezhazhakumay Poovanikalil | Super Hit Movie Song | Kakkakkum Poochakkum Kalyanam - Raveendran Hits](https://www.youtube.com/watch?v=3NcH7ml30do)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 10th of December 2023](https://www.youtube.com/watch?v=ylTKEsCe6Mk)
-- [Vadaka Veedanu Lokam | Christian Video Song | Fr.John Pichapilly | Vinu Chacko | Joji Johns](https://www.youtube.com/watch?v=Lp9j-M9IwW0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
