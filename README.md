@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thanka Thazhika Kudamalla Video Song | Pearl View | K J Yesudas | Vayalar Rama Varma | Prem Nazir](https://www.youtube.com/watch?v=wq5DLtDJAHM)
+- [Vaanam - Video Song | Pathonpatham Noottandu | Elyaraja, Sithara | Siju Wilson | M Jayachandran](https://www.youtube.com/watch?v=edidpoYflQA)
+- [Pattu Chutti Pottum Thottu | Varnakkaazhchakal | K J Yesudas | Mohan Sithara | Yusufali Kechery](https://www.youtube.com/watch?v=Zz7QQb8fmpU)
+- [നിന്റെ പ്രസാദം പങ്കിടുവാൻ... #everlastingmalayalammelodysongs #mohanlalhits #VARNAPKITU](https://www.youtube.com/watch?v=866LtLX8Cpc)
 - [Dancing with joy #NeelaNilave #RDX #shorts #ytshorts](https://www.youtube.com/watch?v=VYpjjAzpBn0)
 - [പാട്ടുപെട്ടി | Paattupetti Vol 36 | Malayalam Film Songs](https://www.youtube.com/watch?v=wtMbIcOvV_g)
-- [Madhavettanennum| Oru Marubhoomi Kadha  #shortsfeed #shorts #mohanlal #mgsreekumar #lyricalvideo](https://www.youtube.com/watch?v=jRA5W0qQb9A)
-- [Shilakal - Audio Song | Kumari | Jakes Bejoy | Aishwarya Lekshmi | Nirmal Sahadev](https://www.youtube.com/watch?v=gYdhOGAuev8)
-- [Dancing together 💕 #Chellakuruvikku #Antony #shorts #ytshorts](https://www.youtube.com/watch?v=mHruYLlWxX4)
-- [kikkiliyudae Muthe | Koodanayum Kattu | Rahman | Rohini | Yesudas | Shyam](https://www.youtube.com/watch?v=YV0zljzzSUo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
