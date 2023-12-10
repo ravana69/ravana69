@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 11th December 23](https://www.youtube.com/watch?v=zAE4nmN5Gz8)
-- [10 December 2023](https://www.youtube.com/watch?v=pijJKeE1UQM)
-- [Omana Thinkal Thelle | Rakkilippattu | Jyothika | Vidyasagar | K S Chithra | Sujatha Mohan](https://www.youtube.com/watch?v=aHfhJpkTArs)
-- [പറഞ്ഞുതീരാത്ത ദൈവീക വരദാനങ്ങളുടെ പ്രകാശനമാണ് ക്രിസ്മസ്. | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=GgiVL0nSjjw)
-- [Ezhazhakumay Poovanikalil | Super Hit Movie Song | Kakkakkum Poochakkum Kalyanam - Raveendran Hits](https://www.youtube.com/watch?v=3NcH7ml30do)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 10th of December 2023](https://www.youtube.com/watch?v=ylTKEsCe6Mk)
+- [പ്രഭാത പ്രാര്‍ത്ഥന December 11 # Athiravile Prarthana 11th of December 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=ZL8e1rgxRhA)
+- [Johnson, K.J. Yesudas - Thaane Poliyum (Version, 1) (Lyric Video)](https://www.youtube.com/watch?v=fAsbneucDSQ)
+- [Johnson, K.S. Chithra - Thaane Poliyum (Version, 2) (Lyric Video)](https://www.youtube.com/watch?v=U8jvPJwMvN8)
+- [Rajamani, K.S. Chithra - Japamaai Vedhasaadhakamaai (Version, 2) (Lyric Video)](https://www.youtube.com/watch?v=COpP3HOCcoA)
+- [Rajamani, K.J. Yesudas - Japamaai Vedhasaadhakamaai (Version, 1) (Lyric Video)](https://www.youtube.com/watch?v=ULVYhcZwYNw)
+- [Jitin Shyam, M.G. Sreekumar, K.S. Chithra - Aaromal Poove (Version, 1) (Lyric Video)](https://www.youtube.com/watch?v=d_FUA1qNDA8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
