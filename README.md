@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Hamsadwani Rasavaahini | Varnakkaazhchakal | K J Yesudas | KS Chithra|Mohan Sithara|Yusufali Kechery](https://www.youtube.com/watch?v=zPnZt6-mf8Q)
+- [Sreelalolayam  | Ee Puzhayum Kadannu | Evergreen Malayalam Film Songs | hits of K S Chithra](https://www.youtube.com/watch?v=DLPwnclcuuQ)
+- [ജനഹൃദയങ്ങൾ കീഴടക്കിയ ശ്രവ്യമനോഹര ഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=6PZj4ks1cCc)
 - [Thankathoni | Mazhavilkkaavadi | Johnson | K S Chithra | Kaithapram | Urvashi #SongOfTheDay](https://www.youtube.com/watch?v=PqyFwBPi85E)
 - [Haadhi Dhoorahidhe | Digital Village | Sudheesh Maruthalam | Hari S R | Yulin Productions |Film Song](https://www.youtube.com/watch?v=luL6O_h5AQg)
 - [jealousy moment 😜 #NeelaNilave #RDX #shorts #ytshorts](https://www.youtube.com/watch?v=zZBpqfP4hP0)
-- [Christmas Carol Song Manju Peyum pathiravil🎄🎄🎄🎄🎄🎄🎄🎄🎄🎄🎄🎄](https://www.youtube.com/watch?v=ULLzg755G8g)
-- [Mammootty Super Hit Romantic Song | Pandoru Kaattiloraansimham #oldmalayalammelodysongs #psusheela](https://www.youtube.com/watch?v=QRKzgZl-rtE)
-- [Nenjil Video Song - Blockbuster Days | Abhilash Prabhasurendran | Ansil Sha | Sreejith J B](https://www.youtube.com/watch?v=Z2QS9GtjUUw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
