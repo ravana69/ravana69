@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Priyuralu Pilichindi &lpar;2000&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD2.0 - 192Kbps&rpar; - 4GB - KAD DVD](https://www.1tamilmv.phd/index.php?/forums/topic/176730-priyuralu-pilichindi-2000-telugu-dvd5-untouched-480p-dd20-192kbps-4gb-kad-dvd/&do=findComment&comment=357635)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP100 DAY 99 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 872MB - 448MB &amp; 209MB | 11-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176732-bigg-boss-telugu-s07-ep100-day-99-true-web-dl-1080p-720p-480p-avc-untouched-872mb-448mb-209mb-11-12-2023/&do=findComment&comment=357634)
 - [Falcon Rising &lpar;2014&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264- &lpar;Tamil + Hindi + Eng&rpar; - 2GB &amp; 950MB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176722-falcon-rising-2014-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-2gb-950mb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=357633)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP72 DAY 71 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 995MB - 524MB &amp; 213MB | 11-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176731-bigg-boss-tamil-s07-ep72-day-71-true-web-dl-1080p-720p-480p-avc-untouched-995mb-524mb-213mb-11-12-2023/&do=findComment&comment=357632)
 - [Priyuralu Pilichindi &lpar;2000&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD2.0 - 192Kbps&rpar; - 4GB - KAD DVD](https://www.1tamilmv.phd/index.php?/forums/topic/176730-priyuralu-pilichindi-2000-telugu-dvd5-untouched-480p-dd20-192kbps-4gb-kad-dvd/&do=findComment&comment=357631)
-- [Japan &lpar;2023&rpar; Tamil TRUE WEB-DL HQ - HEVC - AAC - [1080p - 1.4GB |720p - 700MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176729-japan-2023-tamil-true-web-dl-hq-hevc-aac-1080p-14gb-720p-700mb-esub/&do=findComment&comment=357630)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
