@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Cute reactions for ❤ #Chellakuruvikku #Antony #shorts #ytshorts](https://www.youtube.com/watch?v=sbkLvoAUNMs)
+- [NISHAYUDE KULIRIL | SANJAY V ISON | BIJU BETHLEHEM | JINO KUNNUMPURATH | NEW CHRISTMAS SONG | REEL 2](https://www.youtube.com/watch?v=BCyQRBLzBXs)
+- [Nizhalaadum - Audio Song | Kumari | Aishwarya Lekshmi | Nirmal Sahadev | Manikandan Ayyappa](https://www.youtube.com/watch?v=4Igh1NqKJJw)
+- [Kuppivala Kilukile | Mohanlal | Nandhini | M G Sreekumar | Sujatha | Raveendran | Kamal](https://www.youtube.com/watch?v=6SPtuP9gnOc)
 - [Ente Priyan | Shorts](https://www.youtube.com/watch?v=71vtIOtmEk0)
 - [കൃപാസനം മാതാവിന്റെ  പ്രാർത്ഥനയും ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kripasanam  mother mary](https://www.youtube.com/watch?v=QK31_der8mo)
-- [Japamala 11th of December 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 11th of December 23](https://www.youtube.com/watch?v=6pkLafG_-io)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=TDK-C25eRYs)
-- [പ്രഭാത പ്രാര്‍ത്ഥന December 11 # Athiravile Prarthana 11th of December 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=ZL8e1rgxRhA)
-- [Johnson, K.J. Yesudas - Thaane Poliyum (Version, 1) (Lyric Video)](https://www.youtube.com/watch?v=fAsbneucDSQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
