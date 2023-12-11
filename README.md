@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [YUVA &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.8GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176733-yuva-2004-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-68gb-esub/&do=findComment&comment=357636)
 - [Priyuralu Pilichindi &lpar;2000&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD2.0 - 192Kbps&rpar; - 4GB - KAD DVD](https://www.1tamilmv.phd/index.php?/forums/topic/176730-priyuralu-pilichindi-2000-telugu-dvd5-untouched-480p-dd20-192kbps-4gb-kad-dvd/&do=findComment&comment=357635)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP100 DAY 99 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 872MB - 448MB &amp; 209MB | 11-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176732-bigg-boss-telugu-s07-ep100-day-99-true-web-dl-1080p-720p-480p-avc-untouched-872mb-448mb-209mb-11-12-2023/&do=findComment&comment=357634)
 - [Falcon Rising &lpar;2014&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264- &lpar;Tamil + Hindi + Eng&rpar; - 2GB &amp; 950MB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176722-falcon-rising-2014-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-2gb-950mb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=357633)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP72 DAY 71 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 995MB - 524MB &amp; 213MB | 11-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176731-bigg-boss-tamil-s07-ep72-day-71-true-web-dl-1080p-720p-480p-avc-untouched-995mb-524mb-213mb-11-12-2023/&do=findComment&comment=357632)
-- [Priyuralu Pilichindi &lpar;2000&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD2.0 - 192Kbps&rpar; - 4GB - KAD DVD](https://www.1tamilmv.phd/index.php?/forums/topic/176730-priyuralu-pilichindi-2000-telugu-dvd5-untouched-480p-dd20-192kbps-4gb-kad-dvd/&do=findComment&comment=357631)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
