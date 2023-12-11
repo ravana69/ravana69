@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Bhagavane Sree Sabareesa | Ayyappa Devotional Song | Jayan (Jaya Vijaya ) | Sabarmala Devotional](https://www.youtube.com/watch?v=VFtCuo1n_Wk)
+- [ലാസ്യഭംഗിയുള്ള പാട്ടുപാടുമ്പോൾ ചിത്രച്ചേച്ചിക്ക് നാണമാണോ | Paadiyum Paranjum | Malayala Manorama](https://www.youtube.com/watch?v=Xfpre3VS2ZY)
+- [Nataraajamandapam | Aagneyam | KJ Yesudas | Jayaram | Gautami | #shorts](https://www.youtube.com/watch?v=-kM2yrlp2H0)
 - [Hamsadwani Rasavaahini | Varnakkaazhchakal | K J Yesudas | KS Chithra|Mohan Sithara|Yusufali Kechery](https://www.youtube.com/watch?v=zPnZt6-mf8Q)
 - [Sreelalolayam  | Ee Puzhayum Kadannu | Evergreen Malayalam Film Songs | hits of K S Chithra](https://www.youtube.com/watch?v=DLPwnclcuuQ)
 - [ജനഹൃദയങ്ങൾ കീഴടക്കിയ ശ്രവ്യമനോഹര ഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=6PZj4ks1cCc)
-- [Thankathoni | Mazhavilkkaavadi | Johnson | K S Chithra | Kaithapram | Urvashi #SongOfTheDay](https://www.youtube.com/watch?v=PqyFwBPi85E)
-- [Haadhi Dhoorahidhe | Digital Village | Sudheesh Maruthalam | Hari S R | Yulin Productions |Film Song](https://www.youtube.com/watch?v=luL6O_h5AQg)
-- [jealousy moment 😜 #NeelaNilave #RDX #shorts #ytshorts](https://www.youtube.com/watch?v=zZBpqfP4hP0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
