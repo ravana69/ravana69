@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Japan &lpar;2023&rpar; Tamil TRUE WEB-DL HQ - HEVC - AAC - [1080p - 1.4GB |720p - 700MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176729-japan-2023-tamil-true-web-dl-hq-hevc-aac-1080p-14gb-720p-700mb-esub/&do=findComment&comment=357630)
 - [Jigarthanda Double X &lpar;2023&rpar; Tamil DTS-MA 5.1 &lpar;Fanmade&rpar; Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176701-jigarthanda-double-x-2023-tamil-dts-ma-51-fanmade-direct-download/&do=findComment&comment=357628)
 - [And Just Like That &lpar;2023&rpar; S02 EP&lpar;01-11&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada + Eng] - 5.5GB - 3.5GB &amp; 1.3GB]](https://www.1tamilmv.phd/index.php?/forums/topic/176650-and-just-like-that-2023-s02-ep01-11-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-55gb-35gb-13gb/&do=findComment&comment=357627)
 - [Creepy Crawly [The One Hundred] &lpar;2023&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Thai&rpar; - 2.1GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176710-creepy-crawly-the-one-hundred-2023-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-thai-21gb-11gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=357626)
 - [Falcon Rising &lpar;2014&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264- &lpar;Tamil + Hindi + Eng&rpar; - 2GB &amp; 950MB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176722-falcon-rising-2014-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-2gb-950mb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=357625)
-- [Spark L.I.F.E &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176717-spark-life-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-68gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357624)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
