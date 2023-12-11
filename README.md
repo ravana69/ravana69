@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Bhagavane Sree Sabareesa | Ayyappa Devotional Song | Jayan (Jaya Vijaya ) | Sabarmala Devotional](https://www.youtube.com/watch?v=VFtCuo1n_Wk)
-- [ലാസ്യഭംഗിയുള്ള പാട്ടുപാടുമ്പോൾ ചിത്രച്ചേച്ചിക്ക് നാണമാണോ | Paadiyum Paranjum | Malayala Manorama](https://www.youtube.com/watch?v=Xfpre3VS2ZY)
-- [Nataraajamandapam | Aagneyam | KJ Yesudas | Jayaram | Gautami | #shorts](https://www.youtube.com/watch?v=-kM2yrlp2H0)
-- [Hamsadwani Rasavaahini | Varnakkaazhchakal | K J Yesudas | KS Chithra|Mohan Sithara|Yusufali Kechery](https://www.youtube.com/watch?v=zPnZt6-mf8Q)
-- [Sreelalolayam  | Ee Puzhayum Kadannu | Evergreen Malayalam Film Songs | hits of K S Chithra](https://www.youtube.com/watch?v=DLPwnclcuuQ)
-- [ജനഹൃദയങ്ങൾ കീഴടക്കിയ ശ്രവ്യമനോഹര ഗാനങ്ങൾ | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=6PZj4ks1cCc)
+- [ദൈവം നമ്മോട് കൂടെ...  |  Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=jvbq86F_fTs)
+- [Kulire Kanave | Point Range | Sarath Appani | Dayyana Hameed | Sainu Chavakkadan | Shiji Mohammed](https://www.youtube.com/watch?v=nGVmzDnBdzU)
+- [Thankakkolussil Video Song | Puthukottayile Puthumanavalan | Sujatha Mohan | Biju Narayanan](https://www.youtube.com/watch?v=evIrfJZTfkg)
+- [Hey I Am | Diamond Necklace | Sanjeev Thomas | Vidyasagar | Prem K Vishwanath](https://www.youtube.com/watch?v=k5UNXyla0Gs)
+- [Mammootty Super Hit old Movie Song #yesudas #kschithrahits #oldmalayalammelodysongs #malayalamsongs](https://www.youtube.com/watch?v=vCwsyY5vPnE)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 11th of December 2023](https://www.youtube.com/watch?v=ctJDUeUR2UQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
