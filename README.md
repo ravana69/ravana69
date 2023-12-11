@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [[HDR10-DoVi] Japan &lpar;2023&rpar; NF WEB-DL DDP5.1 Esubs - 1080p [HDR10-DoVi] | 720p - 6.1 GB | 2.5 GB | 2.2 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176719-hdr10-dovi-japan-2023-nf-web-dl-ddp51-esubs-1080p-hdr10-dovi-720p-61-gb-25-gb-22-gb/&do=findComment&comment=357596)
+- [Japan 2023 Tamil NF WEB DL - H264/H265 - DDP5.1&lpar;640kbps&rpar; - [1080p &amp; 720p - 6GB - 2.5GB - 2.1GB - 700MB] [GDRIVE]](https://www.1tamilmv.phd/index.php?/forums/topic/167509-japan-2023-tamil-nf-web-dl-h264h265-ddp51640kbps-1080p-720p-6gb-25gb-21gb-700mb-gdrive/&do=findComment&comment=357595)
 - [Japan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.2GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176718-japan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-62gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357594)
 - [Japan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.2GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176718-japan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-62gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357593)
 - [Japan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.2GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176718-japan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-62gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357592)
-- [Bombay &lpar;1996&rpar; Telugu &amp; Tamil - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176714-bombay-1996-telugu-tamil-dvd9-untouched-480p-dd51-448kbps-6gb-esub/&do=findComment&comment=357590)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP71 DAY 70 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.4GB - 717MB &amp; 319MB | 10-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176716-bigg-boss-tamil-s07-ep71-day-70-true-web-dl-1080p-720p-480p-avc-untouched-14gb-717mb-319mb-10-12-2023/&do=findComment&comment=357589)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
