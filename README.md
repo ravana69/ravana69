@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Masterpiece &lpar;2015&rpar; Kannada - WEB-DL - DD5.1 - 1080p - AVC  - 5GB - 4.3GB - 3.5GB &amp; 2.4GB - 720p - HDRip - x264 - AAC - 1.9GB - 1.5GB &amp; 1.1GB  - 800MB &amp; 500MB](https://www.1tamilmv.phd/index.php?/forums/topic/112727-masterpiece-2015-kannada-web-dl-dd51-1080p-avc-5gb-43gb-35gb-24gb-720p-hdrip-x264-aac-19gb-15gb-11gb-800mb-500mb/&do=findComment&comment=357616)
+- [Spark L.I.F.E &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176717-spark-life-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-68gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357615)
+- [Falcon Rising &lpar;2014&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264- &lpar;Tamil + Hindi + Eng&rpar; - 2GB &amp; 950MB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176722-falcon-rising-2014-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-2gb-950mb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=357614)
 - [A Couple of Cuckoos S01 EP07 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 400MB - 250MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176725-a-couple-of-cuckoos-s01-ep07-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-400mb-250mb-esub-google-drive/&do=findComment&comment=357613)
 - [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;49-51&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176608-vera-maari-office-2023-s01-ep-49-51-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=357612)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [11-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176724-movies-collection-all-languages-4k-1080p-720p-576p-480p-11-12-2023/&do=findComment&comment=357611)
-- [[HDR10-DoVi] Japan &lpar;2023&rpar; NF WEB-DL DDP5.1 Esubs - 1080p [HDR10-DoVi] | 720p - 6.1 GB | 2.5 GB | 2.2 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176719-hdr10-dovi-japan-2023-nf-web-dl-ddp51-esubs-1080p-hdr10-dovi-720p-61-gb-25-gb-22-gb/&do=findComment&comment=357610)
-- [Prema Lekha &lpar;1996&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD2.0 - 384Kbps&rpar; - 3.6GB - KAD DVD](https://www.1tamilmv.phd/index.php?/forums/topic/176723-prema-lekha-1996-telugu-dvd5-untouched-480p-dd20-384kbps-36gb-kad-dvd/&do=findComment&comment=357609)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
