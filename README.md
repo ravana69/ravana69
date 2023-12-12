@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Japan &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.2GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176747-japan-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-62gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357686)
 - [Japan &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Hindi + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.9GB - 1.6GB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176749-japan-2023-true-web-dl-1080p-720p-avc-hindi-malayalam-kannada-dd51-192kbps-29gb-16gb-x264-750mb-450mb-esub/&do=findComment&comment=357685)
 - [Asuran - Blood Bath Lyric Video - DD5.1 + DTSHD5.1 + PCM5.1 &lpar;Lossless FLAC Upmix&rpar; + Untouched FLAC - Ultimate Sound Quality Edition](https://www.1tamilmv.phd/index.php?/forums/topic/176748-asuran-blood-bath-lyric-video-dd51-dtshd51-pcm51-lossless-flac-upmix-untouched-flac-ultimate-sound-quality-edition/&do=findComment&comment=357684)
 - [Japan &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.2GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176747-japan-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-62gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357683)
 - [Japan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.2GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176718-japan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-62gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357682)
-- [Lanja Bhoomi &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 2.8GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176741-lanja-bhoomi-2023-tamil-true-web-dl-1080p-720p-avc-hevc-28gb-14gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=357681)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
