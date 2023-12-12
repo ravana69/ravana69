@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Chandanalepa sugandham Audio Song Oru Vadakkan Veeragadha Song KJ Yesudas K Jayakumar Bombay Ravi](https://www.youtube.com/watch?v=NACHK_9yuPk)
-- [Dhu Dhu Dhurudhoo Video Song | Sharjah to Sharjah | MG Sreekumar | Smitha | Gireesh Puthenchery](https://www.youtube.com/watch?v=MGv2wDErByI)
-- [Manassin Madiyile | Manathe Vellitheru 1994 | Chithra, Vani Jairam | Malayalam Movie Song](https://www.youtube.com/watch?v=44e5xq83GCc)
-- [Maangayachaar Anjaneya | HanuMan(Malayalam | #malayalamsongs #hanuman #tipsmalayalam](https://www.youtube.com/watch?v=aV4JTQX1N6A)
-- [Happy Birthday Superstar Rajinikanth #thalaivaa  #malayalamsongs](https://www.youtube.com/watch?v=WDqZbhcDw8c)
-- [നവവർഷത്തിൻ രജനി  | Nava Varshathin Rajani | Ithu Njangalude Katha Movie Song | K.J.Yesudas, Johnson](https://www.youtube.com/watch?v=9M8pREm0Jk4)
+- [യാത്ര ലക്ഷ്യത്തിലേക്കുള്ളതാണ്. |  Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=0rCrsj4E7Po)
+- [Aruthe Aruthe Video Song | Anarkali | LR Eeswari | MS Baburaj | Vayalar](https://www.youtube.com/watch?v=kmpHG-mFS50)
+- [Daivathin Rajyam Varunnu | Kristheeya Bhakthigaanangal | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=Y803AP7S8DI)
+- [Cheena Trophy | Teaser | Dhyan Sreenivasan |  Kendy Zirdo | Jaffer Idukki  | Anil Lal](https://www.youtube.com/watch?v=dDu03uNeIQQ)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 12th of December 2023](https://www.youtube.com/watch?v=4GUc-tOgXhM)
+- [ക്രിസ്മസ് ദിനത്തിൽ പാടുന്ന ദിവ്യകാരുണ്യഗീതങ്ങൾ | Christmas Songs | Wilson | Divyakarunya Geethangal](https://www.youtube.com/watch?v=-xYNoaYdxGk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
