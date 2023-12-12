@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നവവർഷത്തിൻ രജനി  | Nava Varshathin Rajani | Ithu Njangalude Katha Movie Song | K.J.Yesudas, Johnson](https://www.youtube.com/watch?v=9M8pREm0Jk4)
+- [മലയാളികളുടെ മാനസപുത്രൻ എല്ലാവരുടെയും ലാലേട്ടൻ അഭിനയിച്ച ചിത്രങ്ങളിലെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | MOHANLAL](https://www.youtube.com/watch?v=75_oa0pWBmg)
+- [സർവ്വ മലയാളികളും ഒരേ മനസോടെ അംഗീകരിച്ച അഭിനേത്രി മഞ്ജു വാരിയർ അഭിനയിച്ച നിത്യമനോഹര ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=K-92F9NBdPk)
+- [Aayiram Padhasarangal  |  Nadhi(1969) | K.J Yesudas | Vayalar Ramavarma | G Devarajan | Old Is Gold](https://www.youtube.com/watch?v=5Y_CqDxvovc)
+- [Appukutta Thoppikkara | Chandralekha | Berny Ignatius | M G Sreekumar | K S Chithra #SongOfTheDay](https://www.youtube.com/watch?v=FLQA3zIGK_4)
 - [Dreamy dance steps #NeelaNilave #RDX #shorts #ytshorts](https://www.youtube.com/watch?v=u-THMtqwdv0)
-- [Allilyilum poovo, ilaiyaraaja Super HIt Song  #oldmalayalammelodysongs  #malayalamsongs](https://www.youtube.com/watch?v=LmLZb2xZcVY)
-- [Neela Nilave - Lyrical Video | RDX | Kapil Kapilan | Sam CS | Shane Nigam | Mahima Nambiar](https://www.youtube.com/watch?v=3r_ZNfAl7yY)
-- [Little dance movements with #Chellakuruvikku #Antony #shorts #ytshorts](https://www.youtube.com/watch?v=gtDI2kuXURY)
-- [Kannanaraaro Unni | Gamanam | Thilakan | Vijayakumar | Yesudas | Ouseppachan](https://www.youtube.com/watch?v=K8swa2-ztX0)
-- [Pattuduthu Vannathum - Audio Song | Kumari | Jakes ft. Arivu | Athul | Aishwarya Lekshmi | Nirmal](https://www.youtube.com/watch?v=65IkVqwfp24)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
