@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Lanja Bhoomi &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 2.8GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176741-lanja-bhoomi-2023-tamil-true-web-dl-1080p-720p-avc-hevc-28gb-14gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=357660)
+- [Vaarikkuzhiyile Kolapathakam &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil + Malayalam] - 2.6GB - 1.4GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176740-vaarikkuzhiyile-kolapathakam-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-malayalam-26gb-14gb-900mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357659)
+- [Lanja Bhoomi &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 2.8GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176741-lanja-bhoomi-2023-tamil-true-web-dl-1080p-720p-avc-hevc-28gb-14gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=357658)
 - [Leo &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB - 1.4GB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176738-leo-2023-english-true-web-dl-1080p-720p-avc-dd51-640kbps-29gb-14gb-400mb-esub/&do=findComment&comment=357657)
 - [Vaarikkuzhiyile Kolapathakam &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil + Malayalam] - 2.6GB - 1.4GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176740-vaarikkuzhiyile-kolapathakam-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-malayalam-26gb-14gb-900mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357656)
-- [Vaarikkuzhiyile Kolapathakam &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil + Malayalam] - 2.6GB - 1.4GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176740-vaarikkuzhiyile-kolapathakam-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-malayalam-26gb-14gb-900mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357655)
-- [Leo &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB - 1.4GB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176738-leo-2023-english-true-web-dl-1080p-720p-avc-dd51-640kbps-29gb-14gb-400mb-esub/&do=findComment&comment=357654)
-- [Muthu &lpar;1995&rpar; Tamil BluRay - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 4.9GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176720-muthu-1995-tamil-bluray-1080p-hq-avc-untouched-ddp20-49gb-gdflix/&do=findComment&comment=357653)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
