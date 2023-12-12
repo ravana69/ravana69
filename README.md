@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മോഹൻലാൽ ശോഭന ജോഡിയുടെ പാട്ടുകൾ |വൈശാഖസന്ധ്യേ..| കെ ജെ യേശുദാസ് | K S Chitra | Remastered movie songs](https://www.youtube.com/watch?v=cUTjzlpcW-c)
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 13th December 23](https://www.youtube.com/watch?v=_wCCvXdXs48)
 - [Walking In The Moonlight | Sathyam Sivam Sundaram | Kunchakko Boban | Vidyasagar | Vijayalakshmi](https://www.youtube.com/watch?v=HYVu02aHz3c)
 - [Vidhi Kaattum Leela Kandu Video Song | Thirakal Ezhuthiya Kavitha | Vaani Jayaram](https://www.youtube.com/watch?v=M0BOsZ82VyY)
 - [12 December 2023](https://www.youtube.com/watch?v=qvwcsiqtOR0)
 - [യാത്ര ലക്ഷ്യത്തിലേക്കുള്ളതാണ്. |  Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=0rCrsj4E7Po)
-- [Aruthe Aruthe Video Song | Anarkali | LR Eeswari | MS Baburaj | Vayalar](https://www.youtube.com/watch?v=kmpHG-mFS50)
-- [Daivathin Rajyam Varunnu | Kristheeya Bhakthigaanangal | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=Y803AP7S8DI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
