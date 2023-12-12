@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Uriyadi 2 &lpar;2019&rpar; NF WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 4.1 GB | 2.5 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176736-uriyadi-2-2019-nf-web-dl-ddp51-esubs-x264-1080p-720p-41-gb-25-gb/&do=findComment&comment=357645)
-- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;49-51&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176608-vera-maari-office-2023-s01-ep-49-51-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=357644)
-- [Kabali &lpar;2016&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 4.2GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176737-kabali-2016-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-42gb-esub-gdflix/&do=findComment&comment=357643)
-- [YUVA &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.8GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176733-yuva-2004-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-68gb-esub/&do=findComment&comment=357642)
-- [Uriyadi 2 &lpar;2019&rpar; NF WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 4.1 GB | 2.5 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176736-uriyadi-2-2019-nf-web-dl-ddp51-esubs-x264-1080p-720p-41-gb-25-gb/&do=findComment&comment=357641)
+- [Kabali &lpar;2016&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 4.2GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176737-kabali-2016-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-42gb-esub-gdflix/&do=findComment&comment=357651)
+- [Kabali &lpar;2016&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 4.2GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176737-kabali-2016-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-42gb-esub-gdflix/&do=findComment&comment=357650)
+- [Vaarikkuzhiyile Kolapathakam &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil + Malayalam] - 2.6GB - 1.4GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176740-vaarikkuzhiyile-kolapathakam-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-malayalam-26gb-14gb-900mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357649)
+- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [12-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176739-movies-collection-all-languages-4k-1080p-720p-576p-480p-12-12-2023/&do=findComment&comment=357648)
+- [Leo &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB - 1.4GB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176738-leo-2023-english-true-web-dl-1080p-720p-avc-dd51-640kbps-29gb-14gb-400mb-esub/&do=findComment&comment=357647)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
