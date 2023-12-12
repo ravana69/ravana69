@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Dhu Dhu Dhurudhoo Video Song | Sharjah to Sharjah | MG Sreekumar | Smitha | Gireesh Puthenchery](https://www.youtube.com/watch?v=MGv2wDErByI)
+- [Manassin Madiyile | Manathe Vellitheru 1994 | Chithra, Vani Jairam | Malayalam Movie Song](https://www.youtube.com/watch?v=44e5xq83GCc)
 - [Maangayachaar Anjaneya | HanuMan(Malayalam | #malayalamsongs #hanuman #tipsmalayalam](https://www.youtube.com/watch?v=aV4JTQX1N6A)
 - [Happy Birthday Superstar Rajinikanth #thalaivaa  #malayalamsongs](https://www.youtube.com/watch?v=WDqZbhcDw8c)
 - [നവവർഷത്തിൻ രജനി  | Nava Varshathin Rajani | Ithu Njangalude Katha Movie Song | K.J.Yesudas, Johnson](https://www.youtube.com/watch?v=9M8pREm0Jk4)
 - [മലയാളികളുടെ മാനസപുത്രൻ എല്ലാവരുടെയും ലാലേട്ടൻ അഭിനയിച്ച ചിത്രങ്ങളിലെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | MOHANLAL](https://www.youtube.com/watch?v=75_oa0pWBmg)
-- [സർവ്വ മലയാളികളും ഒരേ മനസോടെ അംഗീകരിച്ച അഭിനേത്രി മഞ്ജു വാരിയർ അഭിനയിച്ച നിത്യമനോഹര ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=K-92F9NBdPk)
-- [Aayiram Padhasarangal  |  Nadhi(1969) | K.J Yesudas | Vayalar Ramavarma | G Devarajan | Old Is Gold](https://www.youtube.com/watch?v=5Y_CqDxvovc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
