@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;49-51&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176608-vera-maari-office-2023-s01-ep-49-51-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=357644)
+- [Kabali &lpar;2016&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 4.2GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176737-kabali-2016-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-42gb-esub-gdflix/&do=findComment&comment=357643)
 - [YUVA &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.8GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176733-yuva-2004-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-68gb-esub/&do=findComment&comment=357642)
 - [Uriyadi 2 &lpar;2019&rpar; NF WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 4.1 GB | 2.5 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176736-uriyadi-2-2019-nf-web-dl-ddp51-esubs-x264-1080p-720p-41-gb-25-gb/&do=findComment&comment=357641)
 - [Spark L.I.F.E &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176717-spark-life-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-68gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357640)
-- [Darling in the Franxx S01 E02 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 350MB - 250MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176735-darling-in-the-franxx-s01-e02-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-350mb-250mb-esub-google-drive/&do=findComment&comment=357639)
-- [Darling in the Franxx S01 E01 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 300MB - 250MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176734-darling-in-the-franxx-s01-e01-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-300mb-250mb-esub-google-drive/&do=findComment&comment=357638)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
