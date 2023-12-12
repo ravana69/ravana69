@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Lanja Bhoomi &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 2.8GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176741-lanja-bhoomi-2023-tamil-true-web-dl-1080p-720p-avc-hevc-28gb-14gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=357681)
+- [Thalaivar 170 Title Teaser | Rajinikanth | T.J. Gnanavel | Anirudh | Subaskaran](https://www.1tamilmv.phd/index.php?/forums/topic/175784-thalaivar-170-title-teaser-rajinikanth-tj-gnanavel-anirudh-subaskaran/&do=findComment&comment=357680)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP101 DAY 100 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 859MB - 421MB &amp; 216MB | 12-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176746-bigg-boss-telugu-s07-ep101-day-100-true-web-dl-1080p-720p-480p-avc-untouched-859mb-421mb-216mb-12-12-2023/&do=findComment&comment=357679)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP73 DAY 72 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 535MB &amp; 216MB | 12-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176745-bigg-boss-tamil-s07-ep73-day-72-true-web-dl-1080p-720p-480p-avc-untouched-1gb-535mb-216mb-12-12-2023/&do=findComment&comment=357678)
 - [Spark L.I.F.E &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176717-spark-life-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-68gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357677)
-- [Chithha - Kangal Edho Video Song - 1080P &amp; 4K - DD5.1 + DTSHD5.1 + PCM5.1 &lpar;Lossless FLAC Upmix&rpar; + Untouched FLAC - Ultimate Sound Quality Edition](https://www.1tamilmv.phd/index.php?/forums/topic/176744-chithha-kangal-edho-video-song-1080p-4k-dd51-dtshd51-pcm51-lossless-flac-upmix-untouched-flac-ultimate-sound-quality-edition/&do=findComment&comment=357676)
-- [Game Of Thrones &lpar;2019&rpar; Complete S08 EP&lpar;01-06&rpar; Merged Bluray - [1080p - 720p - HEVC - [Telugu &lpar;Org JIO AAC 2.0 - 192Kbps&rpar;] - 5.6GB &amp; 3GB - 1GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176743-game-of-thrones-2019-complete-s08-ep01-06-merged-bluray-1080p-720p-hevc-telugu-org-jio-aac-20-192kbps-56gb-3gb-1gb-esub-google-drive/&do=findComment&comment=357675)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
