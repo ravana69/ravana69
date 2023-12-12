@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Chithha - Kangal Edho Video Song - 1080P &amp; 4K - DD5.1 + DTSHD5.1 + PCM5.1 &lpar;Lossless FLAC Upmix&rpar; + Untouched FLAC - Ultimate Sound Quality Edition](https://www.1tamilmv.phd/index.php?/forums/topic/176744-chithha-kangal-edho-video-song-1080p-4k-dd51-dtshd51-pcm51-lossless-flac-upmix-untouched-flac-ultimate-sound-quality-edition/&do=findComment&comment=357676)
+- [Game Of Thrones &lpar;2019&rpar; Complete S08 EP&lpar;01-06&rpar; Merged Bluray - [1080p - 720p - HEVC - [Telugu &lpar;Org JIO AAC 2.0 - 192Kbps&rpar;] - 5.6GB &amp; 3GB - 1GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176743-game-of-thrones-2019-complete-s08-ep01-06-merged-bluray-1080p-720p-hevc-telugu-org-jio-aac-20-192kbps-56gb-3gb-1gb-esub-google-drive/&do=findComment&comment=357675)
 - [Vaarikkuzhiyile Kolapathakam &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil + Malayalam] - 2.6GB - 1.4GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176740-vaarikkuzhiyile-kolapathakam-2023-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-malayalam-26gb-14gb-900mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357674)
 - [Uriyadi 2 &lpar;2019&rpar; NF WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 4.1 GB | 2.5 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176736-uriyadi-2-2019-nf-web-dl-ddp51-esubs-x264-1080p-720p-41-gb-25-gb/&do=findComment&comment=357673)
 - [Uriyadi 2 &lpar;2019&rpar; NF WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 4.1 GB | 2.5 GB](https://www.1tamilmv.phd/index.php?/forums/topic/176736-uriyadi-2-2019-nf-web-dl-ddp51-esubs-x264-1080p-720p-41-gb-25-gb/&do=findComment&comment=357672)
-- [Thalaivar 170 Title Teaser | Rajinikanth | T.J. Gnanavel | Anirudh | Subaskaran](https://www.1tamilmv.phd/index.php?/forums/topic/175784-thalaivar-170-title-teaser-rajinikanth-tj-gnanavel-anirudh-subaskaran/&do=findComment&comment=357671)
-- [Leo &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB - 1.4GB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176738-leo-2023-english-true-web-dl-1080p-720p-avc-dd51-640kbps-29gb-14gb-400mb-esub/&do=findComment&comment=357670)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
