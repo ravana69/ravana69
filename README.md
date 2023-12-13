@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള സംരക്ഷണ പ്രാർത്ഥന #December 14th daily protection songs and prayer Malayalam](https://www.youtube.com/watch?v=9OejAahAvAE)
 - [സത്രത്തിൽ പോലും യേശുവിന് ഇടം കിട്ടിയില്ല. |  Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=bcg0d6xZCsY)
 - [Feliz Navidad Lyrical Video | Usha Uthup | Christmas Carol Lyrics Video | Evergreen Carols](https://www.youtube.com/watch?v=_k9xZyPXiQQ)
+- [Chellakuruvikku - Video Song | Antony | Joju George,Kalyani P | Joshiy | Jakes Bejoy | Kapil Kapilan](https://www.youtube.com/watch?v=ZVGZOV_lp_M)
 - [Madhuram Chorunna Neram | Nona | Sibi Ambalappuram | Reji Gopinath | Sachin Balu](https://www.youtube.com/watch?v=VnRKt3Y3gkg)
 - [Maattupponkal Maasam Video Song | Phantom | KS Chithra | SP Balasubrahmanyam](https://www.youtube.com/watch?v=9IXTOba4J3M)
-- [Naadangalaayi Nee Varu | Super Hit Movie Song | Ninnishtam Ennishtam | Priya - Chithra Hits](https://www.youtube.com/watch?v=yMVVwrL-z74)
-- [Sadhaa - Lyrical Video | Philip's | Hesham Abdul Wahab | Zeba Tommy | Mukesh | Alfred Kurian](https://www.youtube.com/watch?v=wGlCGudNwqM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
