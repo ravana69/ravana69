@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kanakam mannil  | Doctor Pashupathi | MG Sreekumar | Sujatha Mohan | #shorts](https://www.youtube.com/watch?v=XWna1eEm_SY)
 - [Ennu Varum Nee Video Song | Kannaki | Nandita Das | Lal | Kaithapram Viswanath | KS Chithra](https://www.youtube.com/watch?v=_blTjIcxfEw)
 - [PONNU MOORU KUNTHIRIKKAM | പൊന്നു മൂര് കുന്തിരിക്കം | CHRISTMAS SONG | TEAM ROY PUTHUR #christmas](https://www.youtube.com/watch?v=Q9GVT732TBw)
 - [Muthumanithooval | Kauravar | S P Venkitesh | K J Yesudas | Kaithapram #SongOfTheDay](https://www.youtube.com/watch?v=BTK91wr9_Rk)
 - [ഡിസംബർ മാസത്തിൽ കേൾക്കുമ്പോൾ മനസിന് എന്തെന്നില്ലാത്ത കുളിർമ്മയേകുന്ന തണുപ്പുള്ള ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=_osN56Qvmd0)
 - [സൈന്യം സിനിമയിലെ കിടിലൻ പാട്ടുകൾ | Sainyam Video Jukebox | Mammootty Hit Movie Songs | Mammootty](https://www.youtube.com/watch?v=MxxidI4uu6g)
-- [Christmas Carol Song | manju Peyum Pathiravil | Kings & Queens band | Fr. Justin kaliayaniyil CMI](https://www.youtube.com/watch?v=tYIAQMHwkQ8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
