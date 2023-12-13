@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Christmas Carol Song | manju Peyum Pathiravil | Kings & Queens band | Fr. Justin kaliayaniyil CMI](https://www.youtube.com/watch?v=tYIAQMHwkQ8)
+- [Admiring his retro steps 🙌✌ #NeelaNilave #RDX #shorts #ytshorts](https://www.youtube.com/watch?v=RKsCNsYaUSo)
 - [Ayyathara | Cheenatrophy | Promo Song | Anil Lal | Varkey - Sooraj Santhosh | Malayalam Film Songs](https://www.youtube.com/watch?v=F1aLokeGP8k)
 - [Hits of Chithra | Malayalam Film Songs | Kaithapram | Johnson | Soun of Arts](https://www.youtube.com/watch?v=uXCQ4AbDn_8)
 - [Pranayamayi Radha | Karaoke Video | Aami | Shreya Ghoshal | Vijay Yesudas | M Jayachandran](https://www.youtube.com/watch?v=NJRMAWcSuqI)
 - [Jayaram Old Movie Song | Malayali Mamanu Vanakkam | M. G. Sreekumar, Manu, Reshma](https://www.youtube.com/watch?v=rNkzgZXFbZw)
-- [Tharattu - Audio Song | Kumari | Aishwarya Lekshmi | Nirmal Sahadev | Manikandan Ayyappa](https://www.youtube.com/watch?v=dGuUnPanwXE)
-- [Aakaashaganga thaedi  | Malayalakkara Residency |  Vijay Karun | Pradeep Palluruthy | Jagathy](https://www.youtube.com/watch?v=hyi9zQDd0eY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
