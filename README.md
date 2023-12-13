@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Japan &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.2GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176747-japan-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-62gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357694)
+- [Chiththa &lpar;2023&rpar; Original Motion Picture Soundtrack 16bit - FLAC - Dhibu Ninan Thomas Musical - 100 MB](https://www.1tamilmv.phd/index.php?/forums/topic/176750-chiththa-2023-original-motion-picture-soundtrack-16bit-flac-dhibu-ninan-thomas-musical-100-mb/&do=findComment&comment=357693)
 - [Chiththa &lpar;2023&rpar; Original Motion Picture Soundtrack 16bit - FLAC - Dhibu Ninan Thomas Musical - 100 MB](https://www.1tamilmv.phd/index.php?/forums/topic/176750-chiththa-2023-original-motion-picture-soundtrack-16bit-flac-dhibu-ninan-thomas-musical-100-mb/&do=findComment&comment=357692)
 - [Chiththa &lpar;2023&rpar; Original Motion Picture Soundtrack 16bit - FLAC - Dhibu Ninan Thomas Musical - 100 MB](https://www.1tamilmv.phd/index.php?/forums/topic/176750-chiththa-2023-original-motion-picture-soundtrack-16bit-flac-dhibu-ninan-thomas-musical-100-mb/&do=findComment&comment=357691)
 - [Thalaivar 170 Title Teaser | Rajinikanth | T.J. Gnanavel | Anirudh | Subaskaran](https://www.1tamilmv.phd/index.php?/forums/topic/175784-thalaivar-170-title-teaser-rajinikanth-tj-gnanavel-anirudh-subaskaran/&do=findComment&comment=357690)
-- [Japan &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Hindi + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.9GB - 1.6GB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176749-japan-2023-true-web-dl-1080p-720p-avc-hindi-malayalam-kannada-dd51-192kbps-29gb-16gb-x264-750mb-450mb-esub/&do=findComment&comment=357689)
-- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;49-51&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176608-vera-maari-office-2023-s01-ep-49-51-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=357688)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
