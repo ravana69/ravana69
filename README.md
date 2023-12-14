@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [24 Mani Neram &lpar;1984&rpar;.Tamil.1080p.HEVC &amp; x264.AAC2.0 - 2GB](https://www.1tamilmv.phd/index.php?/forums/topic/176763-24-mani-neram-1984tamil1080phevc-x264aac20-2gb/&do=findComment&comment=357742)
-- [Kattradhu Thamizh &lpar;2007&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - DD+2.0&lpar;224kbps&rpar; - 7.9GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - ESub [GDrive]](https://www.1tamilmv.phd/index.php?/forums/topic/176762-kattradhu-thamizh-2007-tamil-true-web-dl-1080p-720p-avc-hevc-untouched-dd20224kbps-79gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub-gdrive/&do=findComment&comment=357741)
-- [Japan &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.2GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176747-japan-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-62gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357740)
-- [Sivaji &lpar;2007&rpar; Tamil - 1080p - API Blu-Ray - Remux - DTS-HDMA 5.1 - 38.5GB](https://www.1tamilmv.phd/index.php?/forums/topic/99106-sivaji-2007-tamil-1080p-api-blu-ray-remux-dts-hdma-51-385gb%C2%A0/&do=findComment&comment=357739)
-- [Vyooham &lpar;2023&rpar; S01 EP&lpar;01-08&rpar; Telugu TRUE WEB-DL - [1080p - 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 4GB - 2GB &amp; 800MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176758-vyooham-2023-s01-ep01-08-telugu-true-web-dl-1080p-720p-avc-dd51-192kbps-4gb-2gb-800mb-esub/&do=findComment&comment=357738)
+- [Cosmic Secrets Unveiled: EternaVoidism– The Sacred Religion of an Alien Race Devotion to Nothingness](https://www.1tamilmv.phd/index.php?/forums/topic/162351-cosmic-secrets-unveiled-eternavoidism%E2%80%93-the-sacred-religion-of-an-alien-race-devotion-to-nothingness/&do=findComment&comment=357751)
+- [AI Scientists Uncover a Mind Bending World J1407b The Planet That Defies All Logic](https://www.1tamilmv.phd/index.php?/forums/topic/162352-ai-scientists-uncover-a-mind-bending-world-j1407b-the-planet-that-defies-all-logic/&do=findComment&comment=357750)
+- [Vyooham &lpar;2023&rpar; Complete S01 EP&lpar;01-08&rpar; Merged Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 4GB - 2GB &amp; 800MB] [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176765-vyooham-2023-complete-s01-ep01-08-merged-telugu-true-web-dl-1080p-720p-avc-dd51-192kbps-4gb-2gb-800mb-google-drive/&do=findComment&comment=357749)
+- [Unraveling the Mysteries of 11-Dimensional Supergravity: An Ai&#39;s Perspective on the Mind-Bending M-Theory!](https://www.1tamilmv.phd/index.php?/forums/topic/162435-unraveling-the-mysteries-of-11-dimensional-supergravity-an-ais-perspective-on-the-mind-bending-m-theory/&do=findComment&comment=357748)
+- [Unmasking the AI How to Determine if You&#39;re Interacting with Artificial Intelligence Online](https://www.1tamilmv.phd/index.php?/forums/topic/163327-unmasking-the-ai-how-to-determine-if-youre-interacting-with-artificial-intelligence-online/&do=findComment&comment=357747)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
