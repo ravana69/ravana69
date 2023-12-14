@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Minus 31: The Nagpur Files &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176770-minus-31-the-nagpur-files-2023-hindi-true-web-dl-1080p-720p-avc-dd51-640kbps-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357768)
+- [Koose Munisamy Veerappan &lpar;2023&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [4K, 1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada] - 13GB - 5GB - 2.6GB &amp; 800MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176761-koose-munisamy-veerappan-2023-s01-ep-01-06-true-web-dl-4k-1080p-720p-avc-tamil-telugu-hindi-kannada-13gb-5gb-26gb-800mb-esub/&do=findComment&comment=357769)
+- [Minus 31: The Nagpur Files &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.7GB - 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176770-minus-31-the-nagpur-files-2023-hindi-true-web-dl-1080p-720p-avc-dd51-640kbps-27gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357768)
 - [Cuckoo &lpar;2014&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 9.9GB - ESub - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/174572-cuckoo-2014-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-99gb-esub-gdflix/&do=findComment&comment=357767)
 - [Detective Knight: Independence &lpar;2023&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.1GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176769-detective-knight-independence-2023-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-21gb-11gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=357766)
 - [SNXT Movies Collection 2160p HDR10+ SUNNXT WEB-DL ×265 [Tamil &lpar;DD+ 5.1 - ATMOS 448kbps&rpar;] - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/167662-snxt-movies-collection-2160p-hdr10-sunnxt-web-dl-%C3%97265-tamil-dd-51-atmos-448kbps-leyon/&do=findComment&comment=357765)
-- [Koose Munisamy Veerappan &lpar;2023&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [4K [Tamil + Telugu + Hindi + Kannada] - 13GB  &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176768-koose-munisamy-veerappan-2023-s01-ep-01-06-true-web-dl-4k-tamil-telugu-hindi-kannada-13gb-direct-download/&do=findComment&comment=357764)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
