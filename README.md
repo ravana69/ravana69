@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Cosmic Secrets Unveiled: EternaVoidism– The Sacred Religion of an Alien Race Devotion to Nothingness](https://www.1tamilmv.phd/index.php?/forums/topic/162351-cosmic-secrets-unveiled-eternavoidism%E2%80%93-the-sacred-religion-of-an-alien-race-devotion-to-nothingness/&do=findComment&comment=357751)
-- [AI Scientists Uncover a Mind Bending World J1407b The Planet That Defies All Logic](https://www.1tamilmv.phd/index.php?/forums/topic/162352-ai-scientists-uncover-a-mind-bending-world-j1407b-the-planet-that-defies-all-logic/&do=findComment&comment=357750)
-- [Vyooham &lpar;2023&rpar; Complete S01 EP&lpar;01-08&rpar; Merged Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 4GB - 2GB &amp; 800MB] [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176765-vyooham-2023-complete-s01-ep01-08-merged-telugu-true-web-dl-1080p-720p-avc-dd51-192kbps-4gb-2gb-800mb-google-drive/&do=findComment&comment=357749)
-- [Unraveling the Mysteries of 11-Dimensional Supergravity: An Ai&#39;s Perspective on the Mind-Bending M-Theory!](https://www.1tamilmv.phd/index.php?/forums/topic/162435-unraveling-the-mysteries-of-11-dimensional-supergravity-an-ais-perspective-on-the-mind-bending-m-theory/&do=findComment&comment=357748)
-- [Unmasking the AI How to Determine if You&#39;re Interacting with Artificial Intelligence Online](https://www.1tamilmv.phd/index.php?/forums/topic/163327-unmasking-the-ai-how-to-determine-if-youre-interacting-with-artificial-intelligence-online/&do=findComment&comment=357747)
+- [50 Tamil Movies - AMZN/SS/SUN NXT - H264/H265 - DDP5.1/DD5.1 - ESub - [1080p &amp; 720p - 375GB] [Gdrive]](https://www.1tamilmv.phd/index.php?/forums/topic/168497-50-tamil-movies-amznsssun-nxt-h264h265-ddp51dd51-esub-1080p-720p-375gb-gdrive/&do=findComment&comment=357759)
+- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;49-51&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176608-vera-maari-office-2023-s01-ep-49-51-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=357758)
+- [SNXT Movies Collection 2160p HDR10+ SUNNXT WEB-DL ×265 [Tamil &lpar;DD+ 5.1 - ATMOS 448kbps&rpar;] - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/167662-snxt-movies-collection-2160p-hdr10-sunnxt-web-dl-%C3%97265-tamil-dd-51-atmos-448kbps-leyon/&do=findComment&comment=357757)
+- [SNXT Movies Collection 2160p HDR10+ SUNNXT WEB-DL ×265 [Tamil &lpar;DD+ 5.1 - ATMOS 448kbps&rpar;] - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/167662-snxt-movies-collection-2160p-hdr10-sunnxt-web-dl-%C3%97265-tamil-dd-51-atmos-448kbps-leyon/&do=findComment&comment=357756)
+- [Koose Munisamy Veerappan &lpar;2023&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [4K, 1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada] - 13GB - 5GB - 2.6GB &amp; 800MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176761-koose-munisamy-veerappan-2023-s01-ep-01-06-true-web-dl-4k-1080p-720p-avc-tamil-telugu-hindi-kannada-13gb-5gb-26gb-800mb-esub/&do=findComment&comment=357755)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
