@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [24 Mani Neram &lpar;1984&rpar;.Tamil.1080p.HEVC &amp; x264.AAC2.0 - 2GB](https://www.1tamilmv.phd/index.php?/forums/topic/176763-24-mani-neram-1984tamil1080phevc-x264aac20-2gb/&do=findComment&comment=357742)
+- [Kattradhu Thamizh &lpar;2007&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - DD+2.0&lpar;224kbps&rpar; - 7.9GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - ESub [GDrive]](https://www.1tamilmv.phd/index.php?/forums/topic/176762-kattradhu-thamizh-2007-tamil-true-web-dl-1080p-720p-avc-hevc-untouched-dd20224kbps-79gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub-gdrive/&do=findComment&comment=357741)
+- [Japan &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.2GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176747-japan-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-62gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357740)
+- [Sivaji &lpar;2007&rpar; Tamil - 1080p - API Blu-Ray - Remux - DTS-HDMA 5.1 - 38.5GB](https://www.1tamilmv.phd/index.php?/forums/topic/99106-sivaji-2007-tamil-1080p-api-blu-ray-remux-dts-hdma-51-385gb%C2%A0/&do=findComment&comment=357739)
 - [Vyooham &lpar;2023&rpar; S01 EP&lpar;01-08&rpar; Telugu TRUE WEB-DL - [1080p - 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 4GB - 2GB &amp; 800MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176758-vyooham-2023-s01-ep01-08-telugu-true-web-dl-1080p-720p-avc-dd51-192kbps-4gb-2gb-800mb-esub/&do=findComment&comment=357738)
-- [Punnagai Desam &lpar;2002&rpar; Tamil TRUE WEB-DL - 480p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 1.5GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176759-punnagai-desam-2002-tamil-true-web-dl-480p-avc-untouched-aac20-15gb-gdflix/&do=findComment&comment=357736)
-- [Punnagai Desam &lpar;2002&rpar; Tamil TRUE WEB-DL - 480p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 1.5GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176759-punnagai-desam-2002-tamil-true-web-dl-480p-avc-untouched-aac20-15gb-gdflix/&do=findComment&comment=357735)
-- [Japan &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.2GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176747-japan-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-62gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357734)
-- [Japan &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.2GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176747-japan-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-62gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357733)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
