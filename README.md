@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രേക്ഷഹൃദയങ്ങൾ  ആവോളം മനസ്സറിഞ്ഞാസ്വദിച്ച മലയാസിനിമയിലെ ഒരുപിടി നല്ല ഗാനങ്ങൾ ! EVERGREEN SONG](https://www.youtube.com/watch?v=G3rMG4czIPk)
+- [ഒരിക്കൽ കൂടി കേട്ടിരുന്നെങ്കിലോയെന്ന് ഒരുപാട് ആശിച്ചുപോയ മലയാളചലച്ചിത്ര ഗാനങ്ങൾ | EVERGREEN MELODIES](https://www.youtube.com/watch?v=RzLPo5QBZUk)
+- [Kalabham Tharaam | Vadakkumnathan | Raveendran | Gireesh Puthenchery | K S Chithra  #SongOfTheDay](https://www.youtube.com/watch?v=WDrWIuWOZOc)
 - [നേരാണു നേരാണു നേരാണെടീ | Enthino Pookkunna Pookkal Malayalam Film Video Song | Mohanlal](https://www.youtube.com/watch?v=D8i2Cn376Dk)
 - [മാന്‍ മാന്‍ മാന്‍ നല്ല കലമാന്‍ കാട്ടിലെമാന്‍ പിന്നെ കടമാന്‍ #evergeeenmalayalamhits #sheela #ummar](https://www.youtube.com/watch?v=gXFUcoixWpc)
 - [Dancing to the heartbeat of live vocals #KanchanaKannezhuthi #NjanumPinnoruNjanum #shorts #ytshorts](https://www.youtube.com/watch?v=XY8WPwX4HCM)
-- [Pacha Theeyanu Nee |  Bahubali  #shortsfeed #shorts #prabhas #keeravani  #lyricalvideo](https://www.youtube.com/watch?v=ImHGXQ_bT70)
-- [Paathira Kaalam - Slap House Mix | Kurup | Sushin Shyam | Tribemama Marykali | The Independeners](https://www.youtube.com/watch?v=WzdJKdoqQpQ)
-- [Premamadhu Thedum | Snehithan | Kunchacko Boban | Preethi | Yesudas | Mohan Sithara | Jose Thomas](https://www.youtube.com/watch?v=P2gnZyFHTOM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
