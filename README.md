@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [50 Tamil Movies - AMZN/SS/SUN NXT - H264/H265 - DDP5.1/DD5.1 - ESub - [1080p &amp; 720p - 375GB] [Gdrive]](https://www.1tamilmv.phd/index.php?/forums/topic/168497-50-tamil-movies-amznsssun-nxt-h264h265-ddp51dd51-esub-1080p-720p-375gb-gdrive/&do=findComment&comment=357759)
-- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;49-51&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176608-vera-maari-office-2023-s01-ep-49-51-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=357758)
-- [SNXT Movies Collection 2160p HDR10+ SUNNXT WEB-DL ×265 [Tamil &lpar;DD+ 5.1 - ATMOS 448kbps&rpar;] - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/167662-snxt-movies-collection-2160p-hdr10-sunnxt-web-dl-%C3%97265-tamil-dd-51-atmos-448kbps-leyon/&do=findComment&comment=357757)
-- [SNXT Movies Collection 2160p HDR10+ SUNNXT WEB-DL ×265 [Tamil &lpar;DD+ 5.1 - ATMOS 448kbps&rpar;] - Leyon](https://www.1tamilmv.phd/index.php?/forums/topic/167662-snxt-movies-collection-2160p-hdr10-sunnxt-web-dl-%C3%97265-tamil-dd-51-atmos-448kbps-leyon/&do=findComment&comment=357756)
-- [Koose Munisamy Veerappan &lpar;2023&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [4K, 1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada] - 13GB - 5GB - 2.6GB &amp; 800MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176761-koose-munisamy-veerappan-2023-s01-ep-01-06-true-web-dl-4k-1080p-720p-avc-tamil-telugu-hindi-kannada-13gb-5gb-26gb-800mb-esub/&do=findComment&comment=357755)
+- [Koose Munisamy Veerappan &lpar;2023&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [4K [Tamil + Telugu + Hindi + Kannada] - 13GB  &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176768-koose-munisamy-veerappan-2023-s01-ep-01-06-true-web-dl-4k-tamil-telugu-hindi-kannada-13gb-direct-download/&do=findComment&comment=357764)
+- [Yu.Yu.Hakusho.S01.1080p.NF.WEB-DL.MULTI.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176767-yuyuhakushos011080pnfweb-dlmultiddp51-direct-download/&do=findComment&comment=357763)
+- [Los.Farad.S01.2160p.AMZN.WEB-DL.MULTI.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176766-losfarads012160pamznweb-dlmultiddp51-direct-download/&do=findComment&comment=357762)
+- [Koose Munisamy Veerappan &lpar;2023&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [4K, 1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada] - 13GB - 5GB - 2.6GB &amp; 800MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176761-koose-munisamy-veerappan-2023-s01-ep-01-06-true-web-dl-4k-1080p-720p-avc-tamil-telugu-hindi-kannada-13gb-5gb-26gb-800mb-esub/&do=findComment&comment=357761)
+- [Koose Munisamy Veerappan &lpar;2023&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [4K, 1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada] - 13GB - 5GB - 2.6GB &amp; 800MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176761-koose-munisamy-veerappan-2023-s01-ep-01-06-true-web-dl-4k-1080p-720p-avc-tamil-telugu-hindi-kannada-13gb-5gb-26gb-800mb-esub/&do=findComment&comment=357760)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
