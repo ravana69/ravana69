@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Lanja Bhoomi &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 2.8GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176741-lanja-bhoomi-2023-tamil-true-web-dl-1080p-720p-avc-hevc-28gb-14gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=357732)
+- [Vyooham &lpar;2023&rpar; S01 EP&lpar;01-08&rpar; Telugu TRUE WEB-DL - [1080p - 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 4GB - 2GB &amp; 800MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176758-vyooham-2023-s01-ep01-08-telugu-true-web-dl-1080p-720p-avc-dd51-192kbps-4gb-2gb-800mb-esub/&do=findComment&comment=357731)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [14-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176760-movies-collection-all-languages-4k-1080p-720p-576p-480p-14-12-2023/&do=findComment&comment=357730)
 - [Punnagai Desam &lpar;2002&rpar; Tamil TRUE WEB-DL - 480p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 1.5GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176759-punnagai-desam-2002-tamil-true-web-dl-480p-avc-untouched-aac20-15gb-gdflix/&do=findComment&comment=357729)
 - [Fight Club &lpar;2023&rpar; Tamil [24&amp;16Bit FLAC] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - Govind Vasantha Musical](https://www.1tamilmv.phd/index.php?/forums/topic/176756-fight-club-2023-tamil-2416bit-flac-itunes-hq-mp3-320kbps-128kbps-govind-vasantha-musical/&do=findComment&comment=357728)
-- [Vyooham &lpar;2023&rpar; S01 EP&lpar;01-08&rpar; Telugu TRUE WEB-DL - [1080p - 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 4GB - 2GB &amp; 800MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176758-vyooham-2023-s01-ep01-08-telugu-true-web-dl-1080p-720p-avc-dd51-192kbps-4gb-2gb-800mb-esub/&do=findComment&comment=357727)
-- [Akebi&#39;s Sailor Uniform S01 EP05 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 250MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176757-akebis-sailor-uniform-s01-ep05-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-250mb-200mb-esub-google-drive/&do=findComment&comment=357726)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
