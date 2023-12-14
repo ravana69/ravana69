@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [KARAOKE Mamma Mary | Carol Minus Track | Christmas Carol Karaoke |  Fr. Shinto Edassery CST](https://www.youtube.com/watch?v=bXt3e1PhZXQ)
+- [Ente Priyan #Shorts](https://www.youtube.com/watch?v=7x2dBhfrexY)
 - [Etho Kilinaadamen Karalil | Mahassar | Yesudas | Raveendran | Shortvideo | Youtube Shorts](https://www.youtube.com/watch?v=P7hJh2JTWk0)
 - [കണ്ണുനീരും കഷ്ടതയും ദൂരെയകലും ഈ ഗാനങ്ങൾ കേൾക്കുമ്പോൾ | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=BG7pPSameBQ)
 - [Japamala 14th of December 23 # Mathavinte Japamala Prakashathinte Rahasyangal 14th of December 23](https://www.youtube.com/watch?v=pP5eGXaYDh8)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kripasanam mother mary daily songs non stop for 14](https://www.youtube.com/watch?v=xnd7-F4ziWo)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=5TDb7aFbR9k)
-- [രാവിലെ പ്രാര്‍ത്ഥന December 14 # Athiravile Prarthana 14th of December 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=jEEHjyX56nk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
