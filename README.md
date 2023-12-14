@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Manassil kulirukorum Video Song | Aadyathe Kanmani | KS Chithra | Biju Narayanan](https://www.youtube.com/watch?v=F2NADXtkNo0)
-- [Leo - I'm Scared Video | Thalapathy Vijay | Anirudh Ravichander](https://www.youtube.com/watch?v=0VRuesp4UYk)
-- [ഇനിയും പ്രണയിച്ചു കൊതി തീരാത്തവർക്കായ് മനം കുളിർക്കും പ്രണയഗാനങ്ങൾ | EVERGREEN LOVE SONGS](https://www.youtube.com/watch?v=_3F8h23K4hU)
-- [പ്രേക്ഷഹൃദയങ്ങൾ  ആവോളം മനസ്സറിഞ്ഞാസ്വദിച്ച മലയാസിനിമയിലെ ഒരുപിടി നല്ല ഗാനങ്ങൾ ! EVERGREEN SONG](https://www.youtube.com/watch?v=G3rMG4czIPk)
-- [ഒരിക്കൽ കൂടി കേട്ടിരുന്നെങ്കിലോയെന്ന് ഒരുപാട് ആശിച്ചുപോയ മലയാളചലച്ചിത്ര ഗാനങ്ങൾ | EVERGREEN MELODIES](https://www.youtube.com/watch?v=RzLPo5QBZUk)
-- [Kalabham Tharaam | Vadakkumnathan | Raveendran | Gireesh Puthenchery | K S Chithra  #SongOfTheDay](https://www.youtube.com/watch?v=WDrWIuWOZOc)
+- [ഹൃദയവീട്ടിലൊരു പുൽകൂടൊരുക്കാം നമുക്ക്. |  Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=yUqdjcb7pLo)
+- [Nonstop Kalabhavan Mani Songs | Film Songs Jukebox | Malayalam Film Songs | Malayalanm Movie Songs](https://www.youtube.com/watch?v=bQ4XQaiI5mU)
+- [Vishudhanaaya Video Song | Pearl View | KJ Yesudas | B Vasantha | Malayalam Devotional Song](https://www.youtube.com/watch?v=445mIoDJdZM)
+- [Pournami Raavil - Video Song [Malayalam] | Madhu Balakrishnan | Rajamani | Jinshad Guruvayoor](https://www.youtube.com/watch?v=0kK81u3mrMk)
+- [Ponnaninja Rathriyilai Unnipirannu | Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=jWWSWOtFLqs)
+- [അടുത്തകാലത്തിറങ്ങിയ ഏറ്റവും നല്ല ക്രിസ്മസ് ഗാനങ്ങൾ | Christmas Songs | Joji Johns | Carol Songs](https://www.youtube.com/watch?v=SmtELU4_3AQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
