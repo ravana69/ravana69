@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thumbi Penne | Dhruvam | S P Venkitesh | K J Yesudas | Sujatha Mohan #SongOfTheDay](https://www.youtube.com/watch?v=e-OJoW0h29o)
+- [Christmas Carol Song | manju Peyum Pathiravil | Kings & Queens band | Fr. Justin kaliayaniyil CMI](https://www.youtube.com/watch?v=e0dHhVjZRGA)
+- [When the vocals are live, so is the dance#KanchanaKannezhuthi #NjanumPinnoruNjanum #shorts #ytshorts](https://www.youtube.com/watch?v=buDY7HZNH_A)
 - [Nandhakumaranu | Jayaram | Jomol | Chithrasalabham | Jayaraj | Biju Menon](https://www.youtube.com/watch?v=B0GtlPsW6BA)
 - [Expressions that steal hearts 💓  #Chellakuruvikku #Antony #shorts #ytshorts](https://www.youtube.com/watch?v=3Smj1a_bjbg)
 - [chithra hit song #oldmalayalammelodysongs #malayalamsongs #videoshort #malayalamoldsongs](https://www.youtube.com/watch?v=nd3mxR0cC20)
-- [Suhasini Super Hit Old Song Thalirilayil Thaalam Thulli | Pranamam #chithra_songs](https://www.youtube.com/watch?v=enpVsRhYQhk)
-- [NonStop Beautiful Carols | Malayalam Christmas Songs | Super Hit Carols | Shweta Mohan | Jassie Gift](https://www.youtube.com/watch?v=077yhccUhZI)
-- [Bethlahem Pulkoodin | Richukuttan | Kuriakose Mathew | Carol | Shorts](https://www.youtube.com/watch?v=RTVpjYTSWmQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
