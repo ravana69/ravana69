@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [NonStop Beautiful Carols | Malayalam Christmas Songs | Super Hit Carols | Shweta Mohan | Jassie Gift](https://www.youtube.com/watch?v=077yhccUhZI)
+- [Bethlahem Pulkoodin | Richukuttan | Kuriakose Mathew | Carol | Shorts](https://www.youtube.com/watch?v=RTVpjYTSWmQ)
 - [Kanninum Karalinum | New Christmas Video Song | Sebu George | Br.Anil Malappuram | Joji Johns](https://www.youtube.com/watch?v=w0S3qZVVHtA)
 - [രാവിലെ കേൾക്കാൻ ഏറ്റവും നല്ല ഗാനങ്ങൾ daily worship songs | christian devotional songs malayalam](https://www.youtube.com/watch?v=GbXf9D0JtP8)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kripasanam mother mary daily songs for December 15](https://www.youtube.com/watch?v=m6HD6tvOwQw)
 - [Japamala 15th of December 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 15th of December 23](https://www.youtube.com/watch?v=7GfUYgo2XKI)
-- [മാതാവിനോടുള്ള സംരക്ഷണ പ്രാർത്ഥന കേട്ടു ഇന്ന് ഉണരാം #mother mary daily protection prayer for 15th Dec](https://www.youtube.com/watch?v=73FreoZnmOM)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=mjN3kk1MyX8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
