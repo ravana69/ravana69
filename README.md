@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Enjoy &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176804-enjoy-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357847)
 - [Spark L.I.F.E &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Malayalam + Kannada] - 8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176803-spark-life-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps%C2%A0tamil-malayalam-kannada-8gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357846)
 - [Salaar Cease Fire &lpar;2023&rpar; First Single Track - [24Bit-48kHz &amp; 16Bit-44.1kHz] - &lpar;Tamil + Telugu + Hindi + Kannada + Malayalam&rpar; - [38MB &amp; 19MB] - Ravi Basrur Musical](https://www.1tamilmv.phd/index.php?/forums/topic/176802-salaar-cease-fire-2023-first-single-track-24bit-48khz-16bit-441khz-tamil-telugu-hindi-kannada-malayalam-38mb-19mb-ravi-basrur-musical/&do=findComment&comment=357845)
 - [Kannagi &lpar;2023&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176795-kannagi-2023-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357844)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 EP104 DAY 103 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 932MB - 437MB &amp; 205MB | 15-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176801-bigg-boss-telugu-s07-ep104-day-103-true-web-dl-1080p-720p-480p-avc-untouched-932mb-437mb-205mb-15-12-2023/&do=findComment&comment=357843)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP76 DAY 75 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 533MB &amp; 217MB | 15-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176800-bigg-boss-tamil-s07-ep76-day-75-true-web-dl-1080p-720p-480p-avc-untouched-1gb-533mb-217mb-15-12-2023/&do=findComment&comment=357842)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
