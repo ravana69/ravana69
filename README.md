@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഒരു മധുരസ്വരത്താൽ | ORU MADHURA SWARATHAL | CHRISTMAS SONG | ROY PUTHUR | #christmascarols](https://www.youtube.com/watch?v=siaTEIM-Glg)
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 16th December 23](https://www.youtube.com/watch?v=M7vMd-p2QXQ)
+- [രാത്രിമഴപോലെ മനോഹരങ്ങളായ ഗാനങ്ങൾ |ദേവരാജൻ മാസ്റ്റർ ഹിറ്റ്‌സ് |കെ ജെ യേശുദാസ്| മലയാളചലച്ചിത്രഗാനങ്ങൾ](https://www.youtube.com/watch?v=IE_tfAVcBrI)
 - [Ambotti Chemboth | Kottaram Veetile Appoottan | Jayaram | MG Sreekumar | Kalabhavan Mani](https://www.youtube.com/watch?v=Xs_RhvS0XSM)
 - [Ninte Kannil Virunnu Vannu Video Song | Dileep | Jomol |KJ Yesudas | Mohan Sithara |Yusufali Kecheri](https://www.youtube.com/watch?v=h2vwYYu2er0)
 - [Daveedhin Pattanathil | Kester | B K Harinarayanan | P K Bhash | Latest Christmas Carol](https://www.youtube.com/watch?v=n1MGJEy9MB0)
-- [Aakasha Veedhikalil | Shweta Mohan | Aalaap Raju | Christmas Songs #shorts](https://www.youtube.com/watch?v=G85q_5Ai70Y)
-- [15 December 2023](https://www.youtube.com/watch?v=psE9FTgQFVc)
-- [O Mayo Oo Mayo | Simhasanam | Vidhu Prathap | Ronnie Raphael | Chittoor Gopi](https://www.youtube.com/watch?v=itpVoCUMLTw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
