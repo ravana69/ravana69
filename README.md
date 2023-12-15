@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Gopeehridayam nirayunnu  | Kankettu | KJ Yesudas | Sujatha Mohan | #shorts](https://www.youtube.com/watch?v=kci2cQfyC78)
+- [Leo (Telugu) - Badass Video | Thalapathy Vijay | Anirudh Ravichander](https://www.youtube.com/watch?v=wWa8uVruk2w)
+- [Leo (Kannada) - Badass Video | Thalapathy Vijay | Anirudh Ravichander](https://www.youtube.com/watch?v=HIyAJJ91e74)
+- [Leo - Badass Video | Thalapathy Vijay | Anirudh Ravichander](https://www.youtube.com/watch?v=ZdMZ40GSVmc)
+- [Leo (Malayalam) - Badass Video | Thalapathy Vijay | Anirudh Ravichander](https://www.youtube.com/watch?v=Brg5mKIRyDw)
 - [പെണ്ണേ നിൻ പ്രേമത്തിൻ | Penne Nin | Soundaryapinakkam Malayalam Movie Song | Shankar | Mala](https://www.youtube.com/watch?v=UqIKBl9QAWo)
-- [Kannatha Doore Marutheeram | Thazhvaram | Kaithapram | Bharathan | KJ Yesudas | Mohanlal | Anju](https://www.youtube.com/watch?v=kjD9wxrOX94)
-- [Janmaragamanu nee | Kilukkampeti | Bichu Thirumala | MG Sreekumar | KS Chithra | Jayaram](https://www.youtube.com/watch?v=PeWQ4Rhc-_A)
-- [തനിച്ചിരിക്കുമ്പോൾ ആശ്വാസം പകരുന്ന മലയാളസിനിമയിലെ മനസ്സിണങ്ങിയ സുന്ദരഗാനങ്ങൾ | EVERGREEN SONGS](https://www.youtube.com/watch?v=hGETOzx3Am0)
-- [Thumbi Penne | Dhruvam | S P Venkitesh | K J Yesudas | Sujatha Mohan #SongOfTheDay](https://www.youtube.com/watch?v=e-OJoW0h29o)
-- [Christmas Carol Song | manju Peyum Pathiravil | Kings & Queens band | Fr. Justin kaliayaniyil CMI](https://www.youtube.com/watch?v=e0dHhVjZRGA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
