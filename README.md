@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Kanakam mannil Video Song | Doctor Pashupathi | MG Sreekumar | Sujatha Mohan](https://www.youtube.com/watch?v=rFp7AOKqv2A)
-- [Kamaladalam Movie Video Jukebox | ലാലേട്ടൻ തകർത്ത് അഭിനയിച്ച കമലദളത്തിലെ കിടിലൻ പാട്ടുകൾ | Mohanlal](https://www.youtube.com/watch?v=pFjAkvTPASw)
-- [Padakali Video Song | Yoddha | AR Rahman | Mohanlal | Jagathy Sreekumar | KJ Yesudas | MG Sreekumar](https://www.youtube.com/watch?v=amASe5vheRo)
-- [മലയാളി പ്രേക്ഷകർ കുടുംബത്തിലെ ഒരംഗത്തെപോലെ കരുതുന്ന സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | EVERGREEN HITS](https://www.youtube.com/watch?v=1opKgjcQg-o)
-- [സിനിമയുടെ വിജയത്തിന് സഹായകമായി തീർന്ന മലയാളസിനിമയിലെ എക്കാലത്തെയും മികച്ച ഗാനങ്ങൾ  ! SUPERHITS](https://www.youtube.com/watch?v=Gp6or1_Izfk)
-- [chith](https://www.youtube.com/watch?v=176QGPW0cc8)
+- [ക്രിസ്തുമസ് കാലം സമാഗതമായി |  Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=ZAqr0PQAzks)
+- [Innente Muttathe | Simhasanam | Sudeep Kumar | Ronnie Raphael | Chittoor Gopi](https://www.youtube.com/watch?v=IeiWig0oc4E)
+- [Kukkurukukku Kurukkan | Animation Video | Film Song Animation Video for Kids](https://www.youtube.com/watch?v=aOajP_3W_Ow)
+- [Pranaya Gaanam Video Song | Anarkali | P Susheela | MS Baburaj | Vayalar](https://www.youtube.com/watch?v=_ejFpT1j_tY)
+- [Manjin Thanuppulla | New Christmas Video Song | Sudeesh | Dhanusha | Sheeja Fernandez | Joji Johns](https://www.youtube.com/watch?v=mxWzCM6H2qA)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 16th of December 2023](https://www.youtube.com/watch?v=y7NQJONGOSo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
