@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP77 DAY 76 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.6GB - 858MB &amp; 363MB | 16-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176818-bigg-boss-tamil-s07-ep77-day-76-true-web-dl-1080p-720p-480p-avc-untouched-16gb-858mb-363mb-16-12-2023/&do=findComment&comment=357889)
+- [Sangathamizhan &lpar;2019&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 8.4GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176817-sangathamizhan-2019-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-84gb-gdflix/&do=findComment&comment=357888)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP105 DAY 104 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.6GB - 769MB &amp; 318MB | 16-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176816-bigg-boss-telugu-s07-ep105-day-104-true-web-dl-1080p-720p-480p-avc-untouched-16gb-769mb-318mb-16-12-2023/&do=findComment&comment=357887)
 - [Pindam &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176794-pindam-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357886)
 - [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;49-51&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176608-vera-maari-office-2023-s01-ep-49-51-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=357885)
-- [Arundhati &lpar;2009&rpar;1080p Blu-Ray BD25[Tamil  Telugu  Hindi] - x264 - DD 5.1 ESubs] [Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/160626-arundhati-20091080p-blu-ray-bd25tamil-telugu-hindi-x264-dd-51-esubs-drive/&do=findComment&comment=357884)
-- [Chintakayala Ravi &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.9GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176814-chintakayala-ravi-2008-telugu-dvd9-untouched-480p-dd51-448kbps-69gb-esub/&do=findComment&comment=357883)
-- [Chintakayala Ravi &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.9GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176814-chintakayala-ravi-2008-telugu-dvd9-untouched-480p-dd51-448kbps-69gb-esub/&do=findComment&comment=357882)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
