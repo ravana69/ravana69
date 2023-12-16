@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Katru Veliyidai Kannanna | Thanmathra | Lyrical Video | Mohanlal | Blessy | Mohan Sithara](https://www.youtube.com/watch?v=sanmb5kwNVU)
 - [Othupidichaal | Maram | Prem Nazeer | Yesudas | P.Susheela | Devarajan | Title Song](https://www.youtube.com/watch?v=S717yPUyDCQ)
 - [Group flow, united vibes  #Chellakuruvikku #Antony #shorts #ytshorts](https://www.youtube.com/watch?v=RYwSxsC-fuA)
 - [Ormappeeli Koodozhinju Poyee | Mafia 1993 | K. J. Yesudas, K. S. Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=wj2Z_MosBC4)
 - [Bethlahem Pulkoodin | Richukuttan | Kuriakose Mathew | Carol | Shorts #ytshorts #carol2023](https://www.youtube.com/watch?v=ZMqKu4dka4E)
 - [Christmas Video Songs | Wilson  Piravom | Santhosh Panditt | Carol Songs Malayalam | Carol Songs](https://www.youtube.com/watch?v=xHJqGvEIfJw)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kripasanam mother mary daily songs  for 16 Dec 23](https://www.youtube.com/watch?v=mP37PUZ8x2s)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
