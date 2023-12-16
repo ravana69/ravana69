@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kamaladalam Movie Video Jukebox | ലാലേട്ടൻ തകർത്ത് അഭിനയിച്ച കമലദളത്തിലെ കിടിലൻ പാട്ടുകൾ | Mohanlal](https://www.youtube.com/watch?v=pFjAkvTPASw)
+- [Padakali Video Song | Yoddha | AR Rahman | Mohanlal | Jagathy Sreekumar | KJ Yesudas | MG Sreekumar](https://www.youtube.com/watch?v=amASe5vheRo)
 - [മലയാളി പ്രേക്ഷകർ കുടുംബത്തിലെ ഒരംഗത്തെപോലെ കരുതുന്ന സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | EVERGREEN HITS](https://www.youtube.com/watch?v=1opKgjcQg-o)
 - [സിനിമയുടെ വിജയത്തിന് സഹായകമായി തീർന്ന മലയാളസിനിമയിലെ എക്കാലത്തെയും മികച്ച ഗാനങ്ങൾ  ! SUPERHITS](https://www.youtube.com/watch?v=Gp6or1_Izfk)
 - [chith](https://www.youtube.com/watch?v=176QGPW0cc8)
 - [ബാഗീ ജീൻസും ഷൂസുമണിഞ്ഞ് ടൗണിൽ ചെത്തി നടക്കാം #mammootty #sainyam #evergeeenmalayalamhits #vikram](https://www.youtube.com/watch?v=Dr4XjjiXtF4)
-- [Manju Pole | Dosth | Vidyasagar | Sreenivas | S Ramesan Nair | Kunchacko Boban | Kavya #SongOfTheDay](https://www.youtube.com/watch?v=pOvaWnNlSK4)
-- [Dancing for the beats 🥁 #KanchanaKannezhuthi #NjanumPinnoruNjanum #shorts #ytshorts](https://www.youtube.com/watch?v=L-5o76oXo_Y)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
