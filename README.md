@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Anumanaspadam &lpar;2007&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176807-anumanaspadam-2007-telugu-dvd9-untouched-480p-dd51-448kbps-6gb-esub/&do=findComment&comment=357860)
-- [Salaar Cease Fire &lpar;2023&rpar; First Single Track - [24Bit-48kHz &amp; 16Bit-44.1kHz] - &lpar;Tamil + Telugu + Hindi + Kannada + Malayalam&rpar; - [38MB &amp; 19MB] - Ravi Basrur Musical](https://www.1tamilmv.phd/index.php?/forums/topic/176802-salaar-cease-fire-2023-first-single-track-24bit-48khz-16bit-441khz-tamil-telugu-hindi-kannada-malayalam-38mb-19mb-ravi-basrur-musical/&do=findComment&comment=357859)
-- [Kannagi &lpar;2023&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176795-kannagi-2023-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357858)
-- [Spark L.I.F.E &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Malayalam + Kannada] - 8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176803-spark-life-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps%C2%A0tamil-malayalam-kannada-8gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357857)
-- [Spark L.I.F.E &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Malayalam + Kannada] - 8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176803-spark-life-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps%C2%A0tamil-malayalam-kannada-8gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357856)
+- [Oru Kadathu Nadan Kadha &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.5GB - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176812-oru-kadathu-nadan-kadha-2023-malayalam-true-web-dl-1080p-720p-avc-15gb-700mb-400mb-esub/&do=findComment&comment=357866)
+- [The.Freelancer.S01.2160p., 1080p, 720p DSNP.WEB-DL.Multi.DD+5.1.Atmos.HDR.HEVC &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176811-thefreelancers012160p-1080p-720p-dsnpweb-dlmultidd51atmoshdrhevc-direct-download/&do=findComment&comment=357865)
+- [Wintertide.2023.1080p.AMZN.WEB-DL.MULTI.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176810-wintertide20231080pamznweb-dlmultiddp51-direct-download/&do=findComment&comment=357864)
+- [Reacher.S02 1080p.AMZN.WEB-DL.MULTI.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/176809-reachers02-1080pamznweb-dlmultiddp51-direct-download/&do=findComment&comment=357863)
+- [Anumanaspadam &lpar;2007&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176807-anumanaspadam-2007-telugu-dvd9-untouched-480p-dd51-448kbps-6gb-esub/&do=findComment&comment=357862)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
