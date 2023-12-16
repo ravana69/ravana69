@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Christmas Video Songs | Wilson  Piravom | Santhosh Panditt | Carol Songs Malayalam | Carol Songs](https://www.youtube.com/watch?v=xHJqGvEIfJw)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kripasanam mother mary daily songs  for 16 Dec 23](https://www.youtube.com/watch?v=mP37PUZ8x2s)
+- [Japamala 16th of December 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 16th of December 23](https://www.youtube.com/watch?v=i5fx3IcKbCo)
 - [മാതാവിനോടുള്ള സംരക്ഷണ പ്രാർത്ഥന കേട്ടു ഇന്ന് ഉണരാം #mother mary daily protection prayer for 16th Dec](https://www.youtube.com/watch?v=jHQrkS0jIdg)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=ztR1T3cB_j8)
 - [രാവിലെ പ്രാര്‍ത്ഥന December 16 # Athiravile Prarthana 16th of December 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=a8teaKA7liU)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=E7prytZ7xlw)
-- [ഒരു മധുരസ്വരത്താൽ | ORU MADHURA SWARATHAL | CHRISTMAS SONG | ROY PUTHUR | #christmascarols](https://www.youtube.com/watch?v=siaTEIM-Glg)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 16th December 23](https://www.youtube.com/watch?v=M7vMd-p2QXQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
