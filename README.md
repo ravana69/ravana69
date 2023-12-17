@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [CHAKRAM &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176820-chakram-2005-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=357903)
-- [Enjoy &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176804-enjoy-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357902)
-- [CHAKRAM &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176820-chakram-2005-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=357901)
-- [CHAKRAM &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176820-chakram-2005-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=357900)
-- [Viral Sebi &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1GB - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176821-viral-sebi-2023-malayalam-true-web-dl-1080p-720p-avc-25gb-1gb-700mb-400mb/&do=findComment&comment=357899)
+- [Godzilla Minus One &lpar;2023&rpar; English HDCAM - [1080p &amp; 720p - x264 - 2.2GB &amp; 1GB | x264 - 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176798-godzilla-minus-one-2023-english-hdcam-1080p-720p-x264-22gb-1gb-x264-400mb/&do=findComment&comment=357912)
+- [Viral Sebi &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1GB - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176821-viral-sebi-2023-malayalam-true-web-dl-1080p-720p-avc-25gb-1gb-700mb-400mb/&do=findComment&comment=357911)
+- [Godzilla Minus One &lpar;2023&rpar; English HDCAM - [1080p &amp; 720p - x264 - 2.2GB &amp; 1GB | x264 - 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176798-godzilla-minus-one-2023-english-hdcam-1080p-720p-x264-22gb-1gb-x264-400mb/&do=findComment&comment=357910)
+- [New Editions of Voyager&#39;s Golden Records Update: Unveiling Humanity&#39;s Darker Side in Space](https://www.1tamilmv.phd/index.php?/forums/topic/150720-new-editions-of-voyagers-golden-records-update-unveiling-humanitys-darker-side-in-space/&do=findComment&comment=357909)
+- [Unlocking the Future: Google&#39;s Gemini Era - The Most Powerful AI Model Revealed!](https://www.1tamilmv.phd/index.php?/forums/topic/150721-unlocking-the-future-googles-gemini-era-the-most-powerful-ai-model-revealed/&do=findComment&comment=357908)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
