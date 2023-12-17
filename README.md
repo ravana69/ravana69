@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;52-54&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176819-vera-maari-office-2023-s01-ep-52-54-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=357896)
+- [Pokemon Season 1 - 15 Ultimate Collection 1080p JioCinema WEB-DL x264 &lpar;AAC 2.0 - 128Kbps [Tel + Tam + Hin + Eng]&rpar;](https://www.1tamilmv.phd/index.php?/forums/topic/160917-pokemon-season-1-15-ultimate-collection-1080p-jiocinema-web-dl-x264-aac-20-128kbps-tel-tam-hin-eng/&do=findComment&comment=357895)
 - [CHAKRAM &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176820-chakram-2005-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=357894)
 - [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;52-54&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176819-vera-maari-office-2023-s01-ep-52-54-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=357893)
 - [Sangathamizhan &lpar;2019&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 8.4GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176817-sangathamizhan-2019-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-84gb-gdflix/&do=findComment&comment=357892)
-- [Pindam &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176794-pindam-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357891)
-- [Oru Kadathu Nadan Kadha &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.5GB - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176812-oru-kadathu-nadan-kadha-2023-malayalam-true-web-dl-1080p-720p-avc-15gb-700mb-400mb/&do=findComment&comment=357890)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
