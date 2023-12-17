@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 EP105 DAY 104 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.6GB - 769MB &amp; 318MB | 16-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176816-bigg-boss-telugu-s07-ep105-day-104-true-web-dl-1080p-720p-480p-avc-untouched-16gb-769mb-318mb-16-12-2023/&do=findComment&comment=357915)
 - [Reacher &lpar;2022&rpar; Complete S01 EP &lpar;01-08&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 6.5GB - 2.9GB &amp; 1GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176359-reacher-2022-complete-s01-ep-01-08-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-eng-dd51-192kbps-65gb-29gb-1gb-esub-google-drive/&do=findComment&comment=357914)
 - [Oru Kadathu Nadan Kadha &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.5GB - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176812-oru-kadathu-nadan-kadha-2023-malayalam-true-web-dl-1080p-720p-avc-15gb-700mb-400mb/&do=findComment&comment=357913)
 - [Godzilla Minus One &lpar;2023&rpar; Japanese HDCAM - [1080p &amp; 720p - x264 - 2.2GB &amp; 1GB | x264 - 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176798-godzilla-minus-one-2023-japanese-hdcam-1080p-720p-x264-22gb-1gb-x264-400mb-esub/&do=findComment&comment=357912)
 - [Viral Sebi &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1GB - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176821-viral-sebi-2023-malayalam-true-web-dl-1080p-720p-avc-25gb-1gb-700mb-400mb/&do=findComment&comment=357911)
-- [Godzilla Minus One &lpar;2023&rpar; Japanese HDCAM - [1080p &amp; 720p - x264 - 2.2GB &amp; 1GB | x264 - 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176798-godzilla-minus-one-2023-japanese-hdcam-1080p-720p-x264-22gb-1gb-x264-400mb-esub/&do=findComment&comment=357910)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
