@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Godzilla Minus One &lpar;2023&rpar; English HDCAM - [1080p &amp; 720p - x264 - 2.2GB &amp; 1GB | x264 - 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176798-godzilla-minus-one-2023-english-hdcam-1080p-720p-x264-22gb-1gb-x264-400mb/&do=findComment&comment=357912)
+- [Reacher &lpar;2022&rpar; Complete S01 EP &lpar;01-08&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 6.5GB - 2.9GB &amp; 1GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176359-reacher-2022-complete-s01-ep-01-08-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-eng-dd51-192kbps-65gb-29gb-1gb-esub-google-drive/&do=findComment&comment=357914)
+- [Oru Kadathu Nadan Kadha &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.5GB - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176812-oru-kadathu-nadan-kadha-2023-malayalam-true-web-dl-1080p-720p-avc-15gb-700mb-400mb/&do=findComment&comment=357913)
+- [Godzilla Minus One &lpar;2023&rpar; Japanese HDCAM - [1080p &amp; 720p - x264 - 2.2GB &amp; 1GB | x264 - 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176798-godzilla-minus-one-2023-japanese-hdcam-1080p-720p-x264-22gb-1gb-x264-400mb-esub/&do=findComment&comment=357912)
 - [Viral Sebi &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1GB - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176821-viral-sebi-2023-malayalam-true-web-dl-1080p-720p-avc-25gb-1gb-700mb-400mb/&do=findComment&comment=357911)
-- [Godzilla Minus One &lpar;2023&rpar; English HDCAM - [1080p &amp; 720p - x264 - 2.2GB &amp; 1GB | x264 - 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176798-godzilla-minus-one-2023-english-hdcam-1080p-720p-x264-22gb-1gb-x264-400mb/&do=findComment&comment=357910)
-- [New Editions of Voyager&#39;s Golden Records Update: Unveiling Humanity&#39;s Darker Side in Space](https://www.1tamilmv.phd/index.php?/forums/topic/150720-new-editions-of-voyagers-golden-records-update-unveiling-humanitys-darker-side-in-space/&do=findComment&comment=357909)
-- [Unlocking the Future: Google&#39;s Gemini Era - The Most Powerful AI Model Revealed!](https://www.1tamilmv.phd/index.php?/forums/topic/150721-unlocking-the-future-googles-gemini-era-the-most-powerful-ai-model-revealed/&do=findComment&comment=357908)
+- [Godzilla Minus One &lpar;2023&rpar; Japanese HDCAM - [1080p &amp; 720p - x264 - 2.2GB &amp; 1GB | x264 - 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176798-godzilla-minus-one-2023-japanese-hdcam-1080p-720p-x264-22gb-1gb-x264-400mb-esub/&do=findComment&comment=357910)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
