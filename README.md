@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Telugu&rpar; S07 GRAND FINALE EP106 DAY 105 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 4.4GB - 2.2GB &amp; 841MB | 17-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176824-bigg-boss-telugu-s07-grand-finale-ep106-day-105-true-web-dl-1080p-720p-480p-avc-untouched-44gb-22gb-841mb-17-12-2023/&do=findComment&comment=357928)
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP78 DAY 77 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.4GB - 698MB &amp; 311MB | 17-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176825-bigg-boss-tamil-s07-ep78-day-77-true-web-dl-1080p-720p-480p-avc-untouched-14gb-698mb-311mb-17-12-2023/&do=findComment&comment=357927)
+- [BIGG BOSS &lpar;Telugu&rpar; S07 GRAND FINALE EP106 DAY 105 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 4.4GB - 2.2GB &amp; 841MB | 17-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176824-bigg-boss-telugu-s07-grand-finale-ep106-day-105-true-web-dl-1080p-720p-480p-avc-untouched-44gb-22gb-841mb-17-12-2023/&do=findComment&comment=357926)
 - [Ranvijay&#39;s Entry Medley &lpar;From &#39;&#39;ANIMAL&#39;&#39;&rpar; - Single Track - [24Bit &amp; 16Bit] - Harshavardhan Rameshwar Musical](https://www.1tamilmv.phd/index.php?/forums/topic/176823-ranvijays-entry-medley-from-animal-single-track-24bit-16bit-harshavardhan-rameshwar-musical/&do=findComment&comment=357923)
 - [Kotha Bangaru Lokam &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.1GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176822-kotha-bangaru-lokam-2008-telugu-dvd9-untouched-480p-dd51-448kbps-61gb-esub/&do=findComment&comment=357922)
-- [Oru Kadathu Nadan Kadha &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.5GB - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176812-oru-kadathu-nadan-kadha-2023-malayalam-true-web-dl-1080p-720p-avc-15gb-700mb-400mb/&do=findComment&comment=357921)
-- [Godzilla Minus One &lpar;2023&rpar; Japanese HDCAM - [1080p &amp; 720p - x264 - 2.2GB &amp; 1GB | x264 - 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176798-godzilla-minus-one-2023-japanese-hdcam-1080p-720p-x264-22gb-1gb-x264-400mb-esub/&do=findComment&comment=357920)
-- [Pindam &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176794-pindam-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357919)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
