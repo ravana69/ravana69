@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [CHAKRAM &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176820-chakram-2005-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=357903)
+- [Enjoy &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176804-enjoy-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357902)
+- [CHAKRAM &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176820-chakram-2005-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=357901)
 - [CHAKRAM &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176820-chakram-2005-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-72gb-esub/&do=findComment&comment=357900)
 - [Viral Sebi &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1GB - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176821-viral-sebi-2023-malayalam-true-web-dl-1080p-720p-avc-25gb-1gb-700mb-400mb/&do=findComment&comment=357899)
-- [Sangathamizhan &lpar;2019&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 8.4GB - GDFlix](https://www.1tamilmv.phd/index.php?/forums/topic/176817-sangathamizhan-2019-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-84gb-gdflix/&do=findComment&comment=357898)
-- [Viral Sebi &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1GB - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176821-viral-sebi-2023-malayalam-true-web-dl-1080p-720p-avc-25gb-1gb-700mb-400mb/&do=findComment&comment=357897)
-- [Vera Maari Office &lpar;2023&rpar; S01 EP &lpar;52-54&rpar; - Tamil TRUE WEB-DL - [1080p - 720p - AVC - 400MB &amp; 200MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176819-vera-maari-office-2023-s01-ep-52-54-tamil-true-web-dl-1080p-720p-avc-400mb-200mb-esub/&do=findComment&comment=357896)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
