@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Falimy &lpar;2023&rpar; TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC - [Telugu + Hindi + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.9GB - 1.6GB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176828-falimy-2023-true-web-dl-4k-1080p-720p-avc-telugu-hindi-kannada-dd51-192kbps-29gb-16gb-x264-750mb-450mb-esub/&do=findComment&comment=357931)
 - [Falimy &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 4GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176827-falimy-2023-malayalam-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-4gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357930)
 - [Falimy &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 4GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176826-falimy-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-4gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=357929)
 - [BIGG BOSS &lpar;Telugu&rpar; S07 GRAND FINALE EP106 DAY 105 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 4.4GB - 2.2GB &amp; 841MB | 17-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176824-bigg-boss-telugu-s07-grand-finale-ep106-day-105-true-web-dl-1080p-720p-480p-avc-untouched-44gb-22gb-841mb-17-12-2023/&do=findComment&comment=357928)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP78 DAY 77 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.4GB - 698MB &amp; 311MB | 17-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176825-bigg-boss-tamil-s07-ep78-day-77-true-web-dl-1080p-720p-480p-avc-untouched-14gb-698mb-311mb-17-12-2023/&do=findComment&comment=357927)
-- [BIGG BOSS &lpar;Telugu&rpar; S07 GRAND FINALE EP106 DAY 105 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 4.4GB - 2.2GB &amp; 841MB | 17-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176824-bigg-boss-telugu-s07-grand-finale-ep106-day-105-true-web-dl-1080p-720p-480p-avc-untouched-44gb-22gb-841mb-17-12-2023/&do=findComment&comment=357926)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
