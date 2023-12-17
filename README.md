@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [BIGG BOSS &lpar;Telugu&rpar; S07 EP105 DAY 104 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.6GB - 769MB &amp; 318MB | 16-12-2023]](https://www.1tamilmv.phd/index.php?/forums/topic/176816-bigg-boss-telugu-s07-ep105-day-104-true-web-dl-1080p-720p-480p-avc-untouched-16gb-769mb-318mb-16-12-2023/&do=findComment&comment=357915)
-- [Reacher &lpar;2022&rpar; Complete S01 EP &lpar;01-08&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 6.5GB - 2.9GB &amp; 1GB] - ESub [Google Drive]](https://www.1tamilmv.phd/index.php?/forums/topic/176359-reacher-2022-complete-s01-ep-01-08-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-eng-dd51-192kbps-65gb-29gb-1gb-esub-google-drive/&do=findComment&comment=357914)
-- [Oru Kadathu Nadan Kadha &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.5GB - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176812-oru-kadathu-nadan-kadha-2023-malayalam-true-web-dl-1080p-720p-avc-15gb-700mb-400mb/&do=findComment&comment=357913)
-- [Godzilla Minus One &lpar;2023&rpar; Japanese HDCAM - [1080p &amp; 720p - x264 - 2.2GB &amp; 1GB | x264 - 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176798-godzilla-minus-one-2023-japanese-hdcam-1080p-720p-x264-22gb-1gb-x264-400mb-esub/&do=findComment&comment=357912)
-- [Viral Sebi &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1GB - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176821-viral-sebi-2023-malayalam-true-web-dl-1080p-720p-avc-25gb-1gb-700mb-400mb/&do=findComment&comment=357911)
+- [Kotha Bangaru Lokam &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.1GB - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176822-kotha-bangaru-lokam-2008-telugu-dvd9-untouched-480p-dd51-448kbps-61gb-esub/&do=findComment&comment=357922)
+- [Oru Kadathu Nadan Kadha &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 1.5GB - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176812-oru-kadathu-nadan-kadha-2023-malayalam-true-web-dl-1080p-720p-avc-15gb-700mb-400mb/&do=findComment&comment=357921)
+- [Godzilla Minus One &lpar;2023&rpar; Japanese HDCAM - [1080p &amp; 720p - x264 - 2.2GB &amp; 1GB | x264 - 400MB] - ESub](https://www.1tamilmv.phd/index.php?/forums/topic/176798-godzilla-minus-one-2023-japanese-hdcam-1080p-720p-x264-22gb-1gb-x264-400mb-esub/&do=findComment&comment=357920)
+- [Pindam &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.phd/index.php?/forums/topic/176794-pindam-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=357919)
+- [Viral Sebi &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.5GB &amp; 1GB - 700MB &amp; 400MB]](https://www.1tamilmv.phd/index.php?/forums/topic/176821-viral-sebi-2023-malayalam-true-web-dl-1080p-720p-avc-25gb-1gb-700mb-400mb/&do=findComment&comment=357918)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
