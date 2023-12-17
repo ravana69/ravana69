@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vidhi Kaattum Leela Kandu | Thirakal Ezhuthiya Kavitha | Vaani Jayaram | #short](https://www.youtube.com/watch?v=zZs-UuQYPf0)
 - [Mudippookkal Vaadiyal | Ponnona Tharangini | Yesudas | Raveendran | Sound of Arts](https://www.youtube.com/watch?v=XcuDm4gtLZg)
 - [OnnamVattam Kandappo Video Song | Chandralekha |MG Sreekumar | KS Chithra |Evergreen Malayalam Songs](https://www.youtube.com/watch?v=sxEQA50cz54)
 - [Aakasha Veedhikalil | Shweta Mohan | Aalaap Raju | Christmas Songs #shorts #ytshorts #carol2023](https://www.youtube.com/watch?v=-mKoynAgT3A)
 - [Ozhinja Veedin - Vaadakakoru Hridhayam(1978) | K J Yesudas | Kavalam Narayana Panicker | G Devarajan](https://www.youtube.com/watch?v=myTzr2iTrMU)
 - [Shyamambaram  | Artham | Johnson | Kaithapram | KJ Yesudas | Mammooty | Saranya](https://www.youtube.com/watch?v=_AA6IOouZIQ)
-- [Expressions that speak volume #KanchanaKannezhuthi #NjanumPinnoruNjanum #shorts #ytshorts](https://www.youtube.com/watch?v=fZZpOXyzKOs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
