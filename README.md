@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Aattidayakkoottam | RituRaj | Shorts  #christmas](https://www.youtube.com/watch?v=UJ2pCFL-QZc)
-- [Oru Kunjupoovinte- Chandranudikkunna Dikkil | Vidyasagar | K J Yesudas | S Ramesan Nair#songoftheday](https://www.youtube.com/watch?v=EhHvMWklyCo)
-- [കാലിത്തൊഴുത്തിൽ പിറന്ന ഉണ്ണിയേശുവിന് .. ഈ ഉണ്ണികളുടെ മനോഹര വരവേൽപ്പ് | x mas shorts](https://www.youtube.com/watch?v=yYKF2Vl4LxA)
-- [𝐎𝐡 𝐏𝐫𝐢𝐲𝐞 𝐏𝐫𝐢𝐲𝐞 𝐍𝐢𝐧𝐚𝐤𝐤𝐨𝐫𝐮 𝐆𝐚𝐚𝐧𝐚𝐦 #aniyathipravu #kunchakoboban #shalini #yesudas](https://www.youtube.com/watch?v=4LdBbRVe2mw)
-- [മനസ്സിൽ പ്രണയത്തിന് വിത്ത് പാകിയ മലയാളത്തിലെ പ്രശസ്തമായാ പ്രണയ ഗാനങ്ങൾ | Evergreen Malayalam  Songs](https://www.youtube.com/watch?v=eJmjvZwT1a8)
-- [മലയാളത്തിലെ ജനപ്രിയ താരങ്ങൾ ഒന്നിക്കുന്ന മനസ്സിൽ ഒളി വിതറും സിനിമ ഗാനങ്ങൾ |Evergreen Malayalam Songs](https://www.youtube.com/watch?v=DM0Ui-iPtKA)
+- [സായന്തനം ചന്ദ്രികാ ലോലമായ്..നാലമ്പലം നലമെഴും സ്വർഗ്ഗമായ് #mohanlal #yesudas #parvathy](https://www.youtube.com/watch?v=zNmC6-svcu0)
+- [Leo (Kannada) - Naa Ready Video | Thalapathy Vijay | Anirudh Ravichander](https://www.youtube.com/watch?v=OwigUwengG0)
+- [Leo (Telugu) - Ney Ready Video | Thalapathy Vijay | Anirudh Ravichander](https://www.youtube.com/watch?v=VLC0N6nNim8)
+- [Leo (Malayalam) - Njan Ready Video | Thalapathy Vijay | Anirudh Ravichander](https://www.youtube.com/watch?v=sqazwaUAJto)
+- [Manavaatti Penninte Video Song | Kaliyoonjal | Dileep | Shalini |MG Sreekumar | Ilayaraja-Kaithapram](https://www.youtube.com/watch?v=mHnjtvt6nH4)
+- [Chakkaramuthe Video Song | Aadyathe Kanmani | P Jayachandran | Biju Narayanan](https://www.youtube.com/watch?v=1QJuTdMCvC0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
