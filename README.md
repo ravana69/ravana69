@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [എന്റെ കര്‍ത്താവിന്റെ അമ്മ എന്റെ അടുത്തു വരാനുള്ള ഈ ഭാഗ്യം എനിക്ക് എവിടെ നിന്ന്? (ലൂക്കാ 1:43)](https://www.youtube.com/watch?v=im_Miw74gpA)
+- [Japamala 18th of December 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 18th of December 23](https://www.youtube.com/watch?v=SBHRfxDOAbo)
 - [നിരണം പള്ളി](https://www.youtube.com/watch?v=UWN9xSzGwGw)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=pStdlwHSJMc)
 - [രാവിലെ പ്രാര്‍ത്ഥന December 18 # Athiravile Prarthana 18th of December 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=Zc0YGsB_Qj8)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=SrmMirrG5d4)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 18th December 23](https://www.youtube.com/watch?v=FrBCmr9MKuw)
-- [17 December 2023](https://www.youtube.com/watch?v=6Bv7PGnf6ME)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
