@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [സായന്തനം ചന്ദ്രികാ ലോലമായ്..നാലമ്പലം നലമെഴും സ്വർഗ്ഗമായ് #mohanlal #yesudas #parvathy](https://www.youtube.com/watch?v=zNmC6-svcu0)
-- [Leo (Kannada) - Naa Ready Video | Thalapathy Vijay | Anirudh Ravichander](https://www.youtube.com/watch?v=OwigUwengG0)
-- [Leo (Telugu) - Ney Ready Video | Thalapathy Vijay | Anirudh Ravichander](https://www.youtube.com/watch?v=VLC0N6nNim8)
-- [Leo (Malayalam) - Njan Ready Video | Thalapathy Vijay | Anirudh Ravichander](https://www.youtube.com/watch?v=sqazwaUAJto)
-- [Manavaatti Penninte Video Song | Kaliyoonjal | Dileep | Shalini |MG Sreekumar | Ilayaraja-Kaithapram](https://www.youtube.com/watch?v=mHnjtvt6nH4)
-- [Chakkaramuthe Video Song | Aadyathe Kanmani | P Jayachandran | Biju Narayanan](https://www.youtube.com/watch?v=1QJuTdMCvC0)
+- [പുൽകൂട്ടിലേക്ക് നയിക്കുന്ന നക്ഷത്രം എനിക്കായും  ഉദിക്കുന്നുണ്ട് | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=EyE8E0ADjFA)
+- [Antony - Sneak Peek 3 | Joju George, Kalyani Priyadarshan, Nyla Usha | Joshiy | Jakes Bejoy](https://www.youtube.com/watch?v=G1OuDj_G9sk)
+- [Sapthaswarasudhaa Video Song | Anarkali | MS Baburaj | Vayalar | PB Sreenivas | M Balamuralikrishna](https://www.youtube.com/watch?v=rZulI0568hk)
+- [Jillam Pada Pada | Simhasanam | MG Sreekumar | Ronnie Raphael | Chittoor Gopi](https://www.youtube.com/watch?v=fSQWjDyw3cI)
+- [Salabhamay | Kalimannu | Shreya Ghoshal #manoramamusic](https://www.youtube.com/watch?v=TFiz_mhOZa0)
+- [Kannipenne | Hareendran oru Nishkalankan | Shorts  #manoramamusic](https://www.youtube.com/watch?v=zdUzxYWFWPk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
