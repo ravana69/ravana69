@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Prakrutheeshwari Ninte|Vasanthiyum lekshmiyum pinne njanum|Kalabhavan Mani|](https://www.youtube.com/watch?v=0mmmPLcvnbY)
 - [Mazhakondu Maathram | Spirit | Gayathri | Shahabas Aman | Rafeeq Ahamad](https://www.youtube.com/watch?v=HLX0ZZScJQQ)
 - [പുൽകൂട്ടിലേക്ക് നയിക്കുന്ന നക്ഷത്രം എനിക്കായും  ഉദിക്കുന്നുണ്ട് | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=EyE8E0ADjFA)
 - [Antony - Sneak Peek 3 | Joju George, Kalyani Priyadarshan, Nyla Usha | Joshiy | Jakes Bejoy](https://www.youtube.com/watch?v=G1OuDj_G9sk)
 - [Sapthaswarasudhaa Video Song | Anarkali | MS Baburaj | Vayalar | PB Sreenivas | M Balamuralikrishna](https://www.youtube.com/watch?v=rZulI0568hk)
 - [Jillam Pada Pada | Simhasanam | MG Sreekumar | Ronnie Raphael | Chittoor Gopi](https://www.youtube.com/watch?v=fSQWjDyw3cI)
-- [Salabhamay | Kalimannu | Shreya Ghoshal #manoramamusic](https://www.youtube.com/watch?v=TFiz_mhOZa0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
