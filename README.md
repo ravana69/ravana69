@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Dhruva Nakshathram &lpar;2023&rpar; Telugu Full Album - [FLAC -24Bit-48kHz &amp; 16Bit-44.1kHz - 223MB &amp; 116MB] - Harris Jayaraj Musical](https://www.1tamilmv.im/index.php?/forums/topic/176477-dhruva-nakshathram-2023-telugu-full-album-flac-24bit-48khz-16bit-441khz-223mb-116mb-harris-jayaraj-musical/&do=findComment&comment=357972)
 - [Tagarupalya &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176835-tagarupalya-2023-kannada-true-web-dl-1080p-720p-avc-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=357971)
 - [The Body &lpar;2001&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264- &lpar;Tamil + Hindi + Eng&rpar; - 2GB &amp; 1.1GB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176832-the-body-2001-hd-original-audios-1080p-720p-x264-tamil-hindi-eng-2gb-11gb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=357970)
 - [Leila&#39;s Brothers &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Per&rpar; - 3GB &amp; 1.5GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 500MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176773-leilas-brothers-2022-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-per-3gb-15gb-x264-tam-tel-hin-500mb-esub/&do=findComment&comment=357969)
 - [Naa Autograph Sweet Memories &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.7GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176847-naa-autograph-sweet-memories-2004-telugu-dvd9-untouched-480p-dd51-448kbps-67gb-esub/&do=findComment&comment=357968)
-- [Pulikkuthi.Pandi.2021.1080p,720p .AMZN.WEB-DL.MULTI.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.im/index.php?/forums/topic/176846-pulikkuthipandi20211080p720p-amznweb-dlmultiddp51-direct-download/&do=findComment&comment=357967)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
