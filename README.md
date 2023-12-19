@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP80 DAY 79 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 597MB &amp; 229MB | 19-12-2023]](https://www.1tamilmv.im/index.php?/forums/topic/176862-bigg-boss-tamil-s07-ep80-day-79-true-web-dl-1080p-720p-480p-avc-untouched-11gb-597mb-229mb-19-12-2023/&do=findComment&comment=358014)
+- [📌 ATHARINTIKI DAAREDI &lpar;2013&rpar; &lpar;Music Video Album&rpar; - 1080P - BLU-RAY - UNTOUCHED BDREUMX - AVC - DTS-HD® MA 5.1 @ 2929 Kbps - ESubs - 6.5GB](https://www.1tamilmv.im/index.php?/forums/topic/173194-%F0%9F%93%8C-atharintiki-daaredi-2013-music-video-album-1080p-blu-ray-untouched-bdreumx-avc-dts-hd%C2%AE-ma-51-2929-kbps-esubs-65gb/&do=findComment&comment=358013)
+- [📌 DAVID &lpar;2013&rpar; &lpar;Tam + Tel&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - HQ 1080P - WEBDL - H264 - DDP 5.1 @ 640 Kbps - ESUBS - 2GB](https://www.1tamilmv.im/index.php?/forums/topic/176861-%F0%9F%93%8C-david-2013-tam-tel-music-video-album-hq-1080p-webdl-h264-ddp-51-640-kbps-esubs-2gb/&do=findComment&comment=358012)
 - [ANIMAL: Evarevaro &lpar;Full Video&rpar; - Ranbir Kapoor,Tripti Dimri | Sandeep V | Vishal M | Bhushan K](https://www.1tamilmv.im/index.php?/forums/topic/176860-animal-evarevaro-full-video-ranbir-kapoortripti-dimri-sandeep-v-vishal-m-bhushan-k/&do=findComment&comment=358011)
 - [Aquaman &lpar;2018&rpar; &lpar;BluRay + Original Audios&rpar; - [4K ,1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 4.7GB - 2.8GB &amp; 1.8GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 500MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/82835-aquaman-2018-bluray-original-audios-4k-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-47gb-28gb-18gb-x264-tamil-telugu-hindi-500mb-esub/&do=findComment&comment=358010)
-- [Godzilla Minus One &lpar;2023&rpar; Japanese HDTS - [1080p &amp; 720p - x264 - 2.2GB &amp; 1GB | x264 - 400MB]](https://www.1tamilmv.im/index.php?/forums/topic/176798-godzilla-minus-one-2023-japanese-hdts-1080p-720p-x264-22gb-1gb-x264-400mb/&do=findComment&comment=358009)
-- [Ullam Ketkumae &lpar;2005&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 1.6GB - GDFlix](https://www.1tamilmv.im/index.php?/forums/topic/176857-ullam-ketkumae-2005-tamil-true-web-dl-1080p-avc-untouched-aac20-16gb-gdflix/&do=findComment&comment=358008)
-- [The Hunger Games: The Ballad of Songbirds &amp; Snakes &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 2.8GB &amp; 1.2GB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176854-the-hunger-games-the-ballad-of-songbirds-snakes-2023-english-true-web-dl-1080p-720p-x264-dd51-atmos-768kbps-28gb-12gb-esub/&do=findComment&comment=358007)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
