@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Mamta Mohandas, Suresh Gopi Super Hit Song #oldmalayalammelodysongs #malayalamsongs #videoshort](https://www.youtube.com/watch?v=8ENSEITF1Rs)
-- [Portraying the art of tradition #KanchanaKannezhuthi #NjanumPinnoruNjanum #shorts #ytshorts](https://www.youtube.com/watch?v=cUrDxP6tUOo)
-- [Manjukanangal Pozhiyum Rathri | Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=MWjGa3gETbg)
-- [K.S.Chithra Super Hit Song Rapadi Pakshikootam |Ente Sooryaputhrikku|Remastered Malayalam Movie Song](https://www.youtube.com/watch?v=Gj6swmK8gmc)
-- [Kalyanakacheri Pakkala | Mayajalam | Mukesh | Vineetha | Yesudas | S P Venkitesh](https://www.youtube.com/watch?v=X6Uy0-19lWg)
-- [Capturing the essence of adorable reactions 📸#Chellakuruvikku #Antony #shorts #ytshorts](https://www.youtube.com/watch?v=UJYuEU-Xp5Q)
+- [മലയാളികളുടെ  പ്രിയ സംഗീത സംവിധായകൻ  എം ജി  രാധാകൃഷ്ണന്റെ അനശ്വര ഗാനങ്ങൾ | Re Mastered Video Songs](https://www.youtube.com/watch?v=jjZUY5s_1W8)
+- [Chandramukhi 2 (Telugu) - Nee Kaanave Video | Raghava Lawrence | M.M. Keeravaani](https://www.youtube.com/watch?v=wm6I_coxggY)
+- [Chandramukhi 2 (Telugu) - Aattanaayagi Video | Kangana Ranaut | M.M. Keeravaani](https://www.youtube.com/watch?v=fiGckpqWqUc)
+- [Chandramukhi 2 (Telugu) - Thori Bori Video | Raghava Lawrence | M.M. Keeravaani](https://www.youtube.com/watch?v=uI4JSgL4fC8)
+- [Chandramukhi 2 (Telugu) - Moruniye Video | Raghava Lawrence | M.M. Keeravaani](https://www.youtube.com/watch?v=xGwZvvyYWZM)
+- [Chandramukhi 2 (Telugu) - Paadham Paadham Video | Raghava Lawrence | M.M. Keeravaani](https://www.youtube.com/watch?v=PCaGv2xivCI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
