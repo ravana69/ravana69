@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Navigating the beautiful chaos of parenthood #KanneUrangu #MusicVideo #shorts #ytshorts](https://www.youtube.com/watch?v=rvD8enzfnjk)
+- [നിയമങ്ങൾ ഒരു ഭാഗം | Niyamangal Oru Bhagam | Mortuary Super Hit Old Movie Song | Prem Nazir | Madhu](https://www.youtube.com/watch?v=I27_xC8evNs)
+- [Chaanthu Kudanjoru | Chaanthu Pottu | Vidyasagar | Shahabaz Aman | Sujatha Mohan #SongOfTheDay](https://www.youtube.com/watch?v=zh5aEIX8E00)
+- [Indhu Lekha Kanthurannu Oru Vadakkan Veeragadha KJ Yesudas Kaithapram Bombay Ravi](https://www.youtube.com/watch?v=iLm_75-9bgs)
 - [മലയാളികളുടെ  പ്രിയ സംഗീത സംവിധായകൻ  എം ജി  രാധാകൃഷ്ണന്റെ അനശ്വര ഗാനങ്ങൾ | Re Mastered Video Songs](https://www.youtube.com/watch?v=jjZUY5s_1W8)
 - [Chandramukhi 2 (Telugu) - Nee Kaanave Video | Raghava Lawrence | M.M. Keeravaani](https://www.youtube.com/watch?v=wm6I_coxggY)
-- [Chandramukhi 2 (Telugu) - Aattanaayagi Video | Kangana Ranaut | M.M. Keeravaani](https://www.youtube.com/watch?v=fiGckpqWqUc)
-- [Chandramukhi 2 (Telugu) - Thori Bori Video | Raghava Lawrence | M.M. Keeravaani](https://www.youtube.com/watch?v=uI4JSgL4fC8)
-- [Chandramukhi 2 (Telugu) - Moruniye Video | Raghava Lawrence | M.M. Keeravaani](https://www.youtube.com/watch?v=xGwZvvyYWZM)
-- [Chandramukhi 2 (Telugu) - Paadham Paadham Video | Raghava Lawrence | M.M. Keeravaani](https://www.youtube.com/watch?v=PCaGv2xivCI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
