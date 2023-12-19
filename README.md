@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാതപ്രാർത്ഥന#കൃപാസന മാതാവിൻറെപ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#kripasanam](https://www.youtube.com/watch?v=vG0gxqDTU2E)
+- [Vaanil Tharakajalakangal | New Christmas Video Song | Sojan Parakkal | Fr.Vipin | Fr.Vinil](https://www.youtube.com/watch?v=BVMsDPN5k9w)
+- [എന്റെ കര്‍ത്താവിന്റെ അമ്മ എന്റെ അടുത്തു വരാനുള്ള ഈ ഭാഗ്യം എനിക്ക് എവിടെ നിന്ന്? #kripasanam mother](https://www.youtube.com/watch?v=SOLM0RUaqew)
+- [Japamala 19th of December 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 19th of December 23](https://www.youtube.com/watch?v=3D8Pv9jJVvQ)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=7uxMjETnR9I)
 - [പ്രഭാത പ്രാര്‍ത്ഥന December 19 # Athiravile Prarthana 19th of December 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=iR6TZp7MGqM)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=xtTGxG6i4ZM)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 19th December 23](https://www.youtube.com/watch?v=m-q3-uHjlps)
-- [Konchum Maine | Thekkekkara Superfast | Mukesh | Jagathy | Ousepapchan | Rajesh H](https://www.youtube.com/watch?v=RD0vV6LztPc)
-- [Vinnil Udhichoru Tharakam | Carol | Shorts  #christmas #shorts](https://www.youtube.com/watch?v=JiHQ4xhXgIk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
