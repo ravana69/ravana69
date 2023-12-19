@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP77 DAY 76 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.6GB - 858MB &amp; 363MB | 16-12-2023]](https://www.1tamilmv.im/index.php?/forums/topic/176818-bigg-boss-tamil-s07-ep77-day-76-true-web-dl-1080p-720p-480p-avc-untouched-16gb-858mb-363mb-16-12-2023/&do=findComment&comment=358020)
+- [40 Telugu Movies - 1080p WEB DL H264 - DD5.1/AAC - ESub 125GB [GDrive]](https://www.1tamilmv.im/index.php?/forums/topic/165707-40-telugu-movies-1080p-web-dl-h264-dd51aac-esub-125gb-gdrive/&do=findComment&comment=358019)
+- [100 Telugu Movies - BluRay/AMZN/SUN NXT/ZEE5/HS WEB DL - H264 - DD5.1/AAC2.0 - ESub [GDRIVE]](https://www.1tamilmv.im/index.php?/forums/topic/166971-100-telugu-movies-blurayamznsun-nxtzee5hs-web-dl-h264-dd51aac20-esub-gdrive/&do=findComment&comment=358018)
 - [Leila&#39;s Brothers &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Per&rpar; - 3GB &amp; 1.5GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 500MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176773-leilas-brothers-2022-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-per-3gb-15gb-x264-tam-tel-hin-500mb-esub/&do=findComment&comment=358017)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP80 DAY 79 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 597MB &amp; 229MB | 19-12-2023]](https://www.1tamilmv.im/index.php?/forums/topic/176862-bigg-boss-tamil-s07-ep80-day-79-true-web-dl-1080p-720p-480p-avc-untouched-11gb-597mb-229mb-19-12-2023/&do=findComment&comment=358016)
-- [Falimy &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 4GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176826-falimy-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-4gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358015)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP80 DAY 79 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 597MB &amp; 229MB | 19-12-2023]](https://www.1tamilmv.im/index.php?/forums/topic/176862-bigg-boss-tamil-s07-ep80-day-79-true-web-dl-1080p-720p-480p-avc-untouched-11gb-597mb-229mb-19-12-2023/&do=findComment&comment=358014)
-- [📌 ATHARINTIKI DAAREDI &lpar;2013&rpar; &lpar;Music Video Album&rpar; - 1080P - BLU-RAY - UNTOUCHED BDREUMX - AVC - DTS-HD® MA 5.1 @ 2929 Kbps - ESubs - 6.5GB](https://www.1tamilmv.im/index.php?/forums/topic/173194-%F0%9F%93%8C-atharintiki-daaredi-2013-music-video-album-1080p-blu-ray-untouched-bdreumx-avc-dts-hd%C2%AE-ma-51-2929-kbps-esubs-65gb/&do=findComment&comment=358013)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
