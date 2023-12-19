@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manjukanangal Pozhiyum Rathri | Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=MWjGa3gETbg)
+- [K.S.Chithra Super Hit Song Rapadi Pakshikootam |Ente Sooryaputhrikku|Remastered Malayalam Movie Song](https://www.youtube.com/watch?v=Gj6swmK8gmc)
 - [Kalyanakacheri Pakkala | Mayajalam | Mukesh | Vineetha | Yesudas | S P Venkitesh](https://www.youtube.com/watch?v=X6Uy0-19lWg)
 - [Capturing the essence of adorable reactions 📸#Chellakuruvikku #Antony #shorts #ytshorts](https://www.youtube.com/watch?v=UJYuEU-Xp5Q)
 - [Elamalakaadinullil - Lofi | Pathaam Valavu | Ranjin Raj | Haricharan | AJX](https://www.youtube.com/watch?v=8m8LGzrxcME)
 - [Thoomanju Peythidunna | Aparna Rajeev | Shorts | Carol](https://www.youtube.com/watch?v=NHfJoRfTRoM)
-- [Thoomanju Peythidunna Neelaravil | Aparna Rajeev | Shorts | Carol](https://www.youtube.com/watch?v=NnsLod_W-1Q)
-- [Vinnil Udhichoru Tharakam | Carol | Shorts  #christmas #shorts](https://www.youtube.com/watch?v=C_YDbcCoQ0A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
