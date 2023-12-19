@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thoomanju Peythidunna Neelaravil | Aparna Rajeev | Shorts | Carol](https://www.youtube.com/watch?v=NnsLod_W-1Q)
 - [Vinnil Udhichoru Tharakam | Carol | Shorts  #christmas #shorts](https://www.youtube.com/watch?v=C_YDbcCoQ0A)
 - [പ്രഭാതപ്രാർത്ഥന#കൃപാസന മാതാവിൻറെപ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#kripasanam](https://www.youtube.com/watch?v=vG0gxqDTU2E)
 - [Vaanil Tharakajalakangal | New Christmas Video Song | Sojan Parakkal | Fr.Vipin | Fr.Vinil](https://www.youtube.com/watch?v=BVMsDPN5k9w)
 - [എന്റെ കര്‍ത്താവിന്റെ അമ്മ എന്റെ അടുത്തു വരാനുള്ള ഈ ഭാഗ്യം എനിക്ക് എവിടെ നിന്ന്? #kripasanam mother](https://www.youtube.com/watch?v=SOLM0RUaqew)
 - [Japamala 19th of December 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 19th of December 23](https://www.youtube.com/watch?v=3D8Pv9jJVvQ)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=7uxMjETnR9I)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
