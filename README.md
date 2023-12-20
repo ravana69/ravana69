@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Fast Vengeance &lpar;2021&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 2.4GB &amp; 1.2GB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176863-fast-vengeance-2021-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-24gb-12gb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=358064)
+- [100 Telugu Movies - BluRay/AMZN/SUN NXT/ZEE5/HS WEB DL - H264 - DD5.1/AAC2.0 - ESub [GDRIVE]](https://www.1tamilmv.im/index.php?/forums/topic/166971-100-telugu-movies-blurayamznsun-nxtzee5hs-web-dl-h264-dd51aac20-esub-gdrive/&do=findComment&comment=358063)
+- [EAGLE Trailer | Ravi Teja | Anupama | Kavya Thapar | Karthik Gattamneni | People Media Factory](https://www.1tamilmv.im/index.php?/forums/topic/176873-eagle-trailer-ravi-teja-anupama-kavya-thapar-karthik-gattamneni-people-media-factory/&do=findComment&comment=358062)
 - [Thanksgiving &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - 2.3GB &amp; 1GB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176852-thanksgiving-2023-english-true-web-dl-1080p-720p-x264-dd51-640kbps-23gb-1gb-esub/&do=findComment&comment=358061)
 - [Magadheera [Maaveeran] &lpar;2009&rpar; UNCUT Bluray - 1080p HQ - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; [ Tamil + Telugu + Hindi ] - 6.8GB - ESub - GDFlix](https://www.1tamilmv.im/index.php?/forums/topic/176872-magadheera-maaveeran-2009-uncut-bluray-1080p-hq-avc-untouched-dd51-tamil-telugu-hindi-68gb-esub-gdflix/&do=findComment&comment=358060)
-- [Leila&#39;s Brothers &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Per&rpar; - 3GB &amp; 1.5GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 500MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176773-leilas-brothers-2022-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-per-3gb-15gb-x264-tam-tel-hin-500mb-esub/&do=findComment&comment=358059)
-- [Nanban &lpar;2012&rpar; Original Motion Picture Soundtrack 24bit - ALAC - Harris Jayaraj Musical - 180 MB](https://www.1tamilmv.im/index.php?/forums/topic/176864-nanban-2012-original-motion-picture-soundtrack-24bit-alac-harris-jayaraj-musical-180-mb/&do=findComment&comment=358058)
-- [Bheemili Kabaddi Jattu &lpar;2010&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176870-bheemili-kabaddi-jattu-2010-telugu-dvd9-untouched-480p-dd51-448kbps-71gb-esub/&do=findComment&comment=358057)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
