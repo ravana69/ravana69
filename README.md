@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manjuthulli Pole Peythuni - Video Song | Mr. Hacker | Harris | Reshma Rajan | Sumesh Koottickal](https://www.youtube.com/watch?v=-yjyXzDa55M)
+- [സദ് വാർത്തയുടെ വാഹകരാകാം നമുക്ക്. | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=s4K4by9TT0g)
 - [Maathalapoove Video Song | Anarkali | P Susheela | MS Baburaj | Vayalar](https://www.youtube.com/watch?v=cMC_k53LhQI)
 - [Kiliye Kiliye | Evergreen Movie Song | Nokketha Doorathu Kannum Nattu | Nadia Moidu - Jerry Amaldev](https://www.youtube.com/watch?v=IaGPvyWXWgw)
 - [Neythu Poometha Njan Ninne Sweekarikkan | Unneeshoyude Varavariyikkunna Kristheeya Bhakthiganangal](https://www.youtube.com/watch?v=2fCD8x0wTc8)
 - [Manjin Thanupulla | New Christmas Vido Song | Santhosh Panditt | Shymol Alex | Christmas Carol Songs](https://www.youtube.com/watch?v=qu_bvlnw7mU)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 20th of December 2023](https://www.youtube.com/watch?v=EyGJafNRCRw)
-- [Sindhoora Sandhye | Deepasthambam Mahascharyam | K J Yesudas | Mohan Sithara | Yusufali Kechery](https://www.youtube.com/watch?v=73qdv2cEdHc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
