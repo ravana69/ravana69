@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aniyathipraavinu Malayalam Movie Songs #whatsappstatus #evergreen #shortsvideo #chithra](https://www.youtube.com/watch?v=B3X6MkeP65M)
+- [Karayathe Kannurangu | Sagaram Sakshi | Mammootty | Sukanya | Sharreth | Yesudas](https://www.youtube.com/watch?v=ZCDKIeVPW6w)
+- [Dancing together, heartbeats aligned #Chellakuruvikku #Antony #shorts #ytshorts](https://www.youtube.com/watch?v=hULOD7bwSY0)
+- [Kiliye Kiliye - EDM Mix | Vamanan | Nithin George | Arun Babu | Alvin Bruno](https://www.youtube.com/watch?v=MIT7JzQd9e4)
 - [Kalabhavan Mani, Indraja Super HIt Song Devike Devike Vala Kilungi | Thalamelam | Malayalam Song](https://www.youtube.com/watch?v=7VU7RukTgQY)
 - [Christmas Songs Malayalam | Madhu Balakrishnan | Carol Songs | Joji Johns | Christmas Songs 2023](https://www.youtube.com/watch?v=-9FsAJELmbw)
-- [പ്രഭാത പ്രാർത്ഥന#കൃപാസനം  രാവിലെ പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#kripasanam](https://www.youtube.com/watch?v=kZxxarviQhA)
-- [Japamala 20th of December 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 20th of December 2023](https://www.youtube.com/watch?v=Xdel7qldpQg)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=El1KtWi0cHU)
-- [രാവിലെ പ്രാര്‍ത്ഥന December 20 # Athiravile Prarthana 20th of December 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=FAKL-PA4u0U)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
