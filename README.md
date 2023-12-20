@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [റാംജിറാവ് സ്പീക്കിങ്ങിലെ കിടിലൻ പാട്ടുകൾ | Ramjirao Speaking Video Jukebox| Mukesh,Innocent,Saikumar](https://www.youtube.com/watch?v=NJ1No4MutPk)
+- [Karthave Nee Kalpichappol Video Song | Christian Brothers | Dileep | Kavya Madhavan | Deepak Dev](https://www.youtube.com/watch?v=FHPnJTFhZUY)
+- [Nilave Maayumo Video Song | Minnaram | M G Sreekumar | S P Venkitesh | Gireesh Puthanchery](https://www.youtube.com/watch?v=Jc-D-rWH-9Q)
+- [Indra Neelam Choodi | Varnakkaazhchakal |  KJ Yesudas | Mohan Sithara | Yusufali Kechery](https://www.youtube.com/watch?v=D1pTvvuj5EU)
 - [Aattidayakkoottam | RituRaj | Shorts  #christmas](https://www.youtube.com/watch?v=HwGFknuo--Y)
 - [Chandramukhi 2 - Nee Kosame Video | Raghava Lawrence | M.M. Keeravaani](https://www.youtube.com/watch?v=sv4oS2QzRsg)
-- [Chandramukhi 2 - Podhum Podhum Video | Raghava Lawrence | M.M. Keeravaani](https://www.youtube.com/watch?v=oFaYguVk3pA)
-- [Chandramukhi 2 - Swagathaanjali Video | Kangana Ranaut | M.M. Keeravaani](https://www.youtube.com/watch?v=WVS49G3cuhs)
-- [Leo (Kannada) - Preethiya Aayudha Video | Thalapathy Vijay | Anirudh Ravichander](https://www.youtube.com/watch?v=OQaZ9oae2ZE)
-- [Leo (Telugu) - Prema Oh Ayudham Video | Thalapathy Vijay | Anirudh Ravichander](https://www.youtube.com/watch?v=RwTqLfOIXmE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
