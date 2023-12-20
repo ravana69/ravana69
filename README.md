@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Christmas Songs Malayalam | Madhu Balakrishnan | Carol Songs | Joji Johns | Christmas Songs 2023](https://www.youtube.com/watch?v=-9FsAJELmbw)
+- [പ്രഭാത പ്രാർത്ഥന#കൃപാസനം  രാവിലെ പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#kripasanam](https://www.youtube.com/watch?v=kZxxarviQhA)
+- [Japamala 20th of December 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 20th of December 2023](https://www.youtube.com/watch?v=Xdel7qldpQg)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=El1KtWi0cHU)
 - [രാവിലെ പ്രാര്‍ത്ഥന December 20 # Athiravile Prarthana 20th of December 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=FAKL-PA4u0U)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=bf270WiCdkY)
-- [Sundaran Neeyum.. Sundari Nyaanum Cherndhirunthal Thiruvonam #kamalhaasan #urvashi #janaki](https://www.youtube.com/watch?v=xWXNMGmZv7g)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 20th December 23](https://www.youtube.com/watch?v=5gPIPElh6rA)
-- [മനസ്വിനീ നിൻ മലരങ്കണത്തിൽ..| Selected Hits | കെ ജെ യേശുദാസ് | Selected Remastered Movie songs](https://www.youtube.com/watch?v=bkGMAorNSko)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
