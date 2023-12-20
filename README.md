@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Trapped in a Dating Sim: The World of Otome Games is Tough for Mobs S01 EP01 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 250MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.im/index.php?/forums/topic/176871-trapped-in-a-dating-sim-the-world-of-otome-games-is-tough-for-mobs-s01-ep01-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-250mb-200mb-esub-google-drive/&do=findComment&comment=358055)
+- [Bheemili Kabaddi Jattu &lpar;2010&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176870-bheemili-kabaddi-jattu-2010-telugu-dvd9-untouched-480p-dd51-448kbps-71gb-esub/&do=findComment&comment=358054)
+- [Nostradamus Predictions: &#39;2024&#39; The Beginning of World War III](https://www.1tamilmv.im/index.php?/forums/topic/150717-nostradamus-predictions-2024-the-beginning-of-world-war-iii/&do=findComment&comment=358053)
 - [Fast Vengeance &lpar;2021&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 2.4GB &amp; 1.2GB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176863-fast-vengeance-2021-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-24gb-12gb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=358052)
 - [Fast Vengeance &lpar;2021&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 2.4GB &amp; 1.2GB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176863-fast-vengeance-2021-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-24gb-12gb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=358051)
-- [Salaar Team Special Interview with SS Rajamouli | Prabhas | Prithviraj | Prashanth Neel](https://www.1tamilmv.im/index.php?/forums/topic/176869-salaar-team-special-interview-with-ss-rajamouli-prabhas-prithviraj-prashanth-neel/&do=findComment&comment=358050)
-- [Nanban &lpar;2012&rpar; Original Motion Picture Soundtrack 24bit - ALAC - Harris Jayaraj Musical - 180 MB](https://www.1tamilmv.im/index.php?/forums/topic/176864-nanban-2012-original-motion-picture-soundtrack-24bit-alac-harris-jayaraj-musical-180-mb/&do=findComment&comment=358049)
-- [Fast Vengeance &lpar;2021&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 2.4GB &amp; 1.2GB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176863-fast-vengeance-2021-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-24gb-12gb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=358042)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
