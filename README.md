@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Thoomanju Peythidunna Neelaravil | Aparna Rajeev #Shorts #Carol](https://www.youtube.com/watch?v=mAUs3Yvn5_o)
-- [Vintage souls, modern hearts 💕 #PunnaraKattilePoovanatthil #MalaikottaiVaaliban #shorts #ytshorts](https://www.youtube.com/watch?v=DrqYxJOZw0w)
-- [Eeran Marum | Karaoke Video | Uncle | Mammootty | Shreya Ghoshal | Bijibal | Rafeeque Ahammed](https://www.youtube.com/watch?v=G9hrTf3EEt8)
-- [Aniyathipraavinu Malayalam Movie Songs #whatsappstatus #evergreen #shortsvideo #chithra](https://www.youtube.com/watch?v=B3X6MkeP65M)
-- [Karayathe Kannurangu | Sagaram Sakshi | Mammootty | Sukanya | Sharreth | Yesudas](https://www.youtube.com/watch?v=ZCDKIeVPW6w)
-- [Dancing together, heartbeats aligned #Chellakuruvikku #Antony #shorts #ytshorts](https://www.youtube.com/watch?v=hULOD7bwSY0)
+- [Chandramukhi 2 - Nee Kosame Video | Raghava Lawrence | M.M. Keeravaani](https://www.youtube.com/watch?v=sv4oS2QzRsg)
+- [Chandramukhi 2 - Podhum Podhum Video | Raghava Lawrence | M.M. Keeravaani](https://www.youtube.com/watch?v=oFaYguVk3pA)
+- [Chandramukhi 2 - Swagathaanjali Video | Kangana Ranaut | M.M. Keeravaani](https://www.youtube.com/watch?v=WVS49G3cuhs)
+- [Leo (Kannada) - Preethiya Aayudha Video | Thalapathy Vijay | Anirudh Ravichander](https://www.youtube.com/watch?v=OQaZ9oae2ZE)
+- [Leo (Telugu) - Prema Oh Ayudham Video | Thalapathy Vijay | Anirudh Ravichander](https://www.youtube.com/watch?v=RwTqLfOIXmE)
+- [Chandramukhi 2 - Raa Raa (Angry) Video | Raghava Lawrence, Kangana Ranaut](https://www.youtube.com/watch?v=2UfxJO_VYSE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
