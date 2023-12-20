@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BUNNY &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB - ESub - Sri Rama Video](https://www.1tamilmv.im/index.php?/forums/topic/176875-bunny-2005-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-7gb-esub-sri-rama-video/&do=findComment&comment=358070)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP81 DAY 80 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.2GB - 633MB &amp; 247MB | 20-12-2023]](https://www.1tamilmv.im/index.php?/forums/topic/176874-bigg-boss-tamil-s07-ep81-day-80-true-web-dl-1080p-720p-480p-avc-untouched-12gb-633mb-247mb-20-12-2023/&do=findComment&comment=358069)
 - [Aquaman &lpar;2018&rpar; &lpar;BluRay + Original Audios&rpar; - [4K ,1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 4.7GB - 2.8GB &amp; 1.8GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 500MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/82835-aquaman-2018-bluray-original-audios-4k-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-47gb-28gb-18gb-x264-tamil-telugu-hindi-500mb-esub/&do=findComment&comment=358068)
 - [Fast Vengeance &lpar;2021&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 2.4GB &amp; 1.2GB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176863-fast-vengeance-2021-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-24gb-12gb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=358067)
 - [Magadheera [Maaveeran] &lpar;2009&rpar; UNCUT Bluray - 1080p HQ - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; [ Tamil + Telugu + Hindi ] - 6.8GB - ESub - GDFlix](https://www.1tamilmv.im/index.php?/forums/topic/176872-magadheera-maaveeran-2009-uncut-bluray-1080p-hq-avc-untouched-dd51-tamil-telugu-hindi-68gb-esub-gdflix/&do=findComment&comment=358066)
-- [Ayan &lpar;2009&rpar; Tamil - BluRay - 1080p &amp; 720p - TRUE HD - AVC / HEVC - DTS-HDMA 5.1&lpar;2497kbps&rpar; - 10.5GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - ESub [GDrive]](https://www.1tamilmv.im/index.php?/forums/topic/175576-ayan-2009-tamil-bluray-1080p-720p-true-hd-avc-hevc-dts-hdma-512497kbps-105gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub-gdrive/&do=findComment&comment=358065)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
