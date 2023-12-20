@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Magadheera [Maaveeran] &lpar;2009&rpar; UNCUT Bluray - 1080p HQ - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; [ Tamil + Telugu + Hindi ] - 6.8GB - ESub - GDFlix](https://www.1tamilmv.im/index.php?/forums/topic/176872-magadheera-maaveeran-2009-uncut-bluray-1080p-hq-avc-untouched-dd51-tamil-telugu-hindi-68gb-esub-gdflix/&do=findComment&comment=358066)
+- [Ayan &lpar;2009&rpar; Tamil - BluRay - 1080p &amp; 720p - TRUE HD - AVC / HEVC - DTS-HDMA 5.1&lpar;2497kbps&rpar; - 10.5GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - ESub [GDrive]](https://www.1tamilmv.im/index.php?/forums/topic/175576-ayan-2009-tamil-bluray-1080p-720p-true-hd-avc-hevc-dts-hdma-512497kbps-105gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub-gdrive/&do=findComment&comment=358065)
 - [Fast Vengeance &lpar;2021&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 2.4GB &amp; 1.2GB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176863-fast-vengeance-2021-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-24gb-12gb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=358064)
 - [100 Telugu Movies - BluRay/AMZN/SUN NXT/ZEE5/HS WEB DL - H264 - DD5.1/AAC2.0 - ESub [GDRIVE]](https://www.1tamilmv.im/index.php?/forums/topic/166971-100-telugu-movies-blurayamznsun-nxtzee5hs-web-dl-h264-dd51aac20-esub-gdrive/&do=findComment&comment=358063)
 - [EAGLE Trailer | Ravi Teja | Anupama | Kavya Thapar | Karthik Gattamneni | People Media Factory](https://www.1tamilmv.im/index.php?/forums/topic/176873-eagle-trailer-ravi-teja-anupama-kavya-thapar-karthik-gattamneni-people-media-factory/&do=findComment&comment=358062)
-- [Thanksgiving &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - 2.3GB &amp; 1GB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176852-thanksgiving-2023-english-true-web-dl-1080p-720p-x264-dd51-640kbps-23gb-1gb-esub/&do=findComment&comment=358061)
-- [Magadheera [Maaveeran] &lpar;2009&rpar; UNCUT Bluray - 1080p HQ - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; [ Tamil + Telugu + Hindi ] - 6.8GB - ESub - GDFlix](https://www.1tamilmv.im/index.php?/forums/topic/176872-magadheera-maaveeran-2009-uncut-bluray-1080p-hq-avc-untouched-dd51-tamil-telugu-hindi-68gb-esub-gdflix/&do=findComment&comment=358060)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
