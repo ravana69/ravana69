@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Hey Sexy Lady#kalabhavanmani #oldmalayalammelodysongs #malayalamsongs #videoshort](https://www.youtube.com/watch?v=-gzaJYGk9AQ)
+- [Nee Vin Pooppol | Innale | Jayaram | Yesudas | Kaithapram | Padmarajan | Sounnd of Arts](https://www.youtube.com/watch?v=wcp11PiOBxc)
+- [Oru Rajamalli #aniyathipravu #kunchakoboban #evergeeenmalayalamhits #mgsreekumarsongs](https://www.youtube.com/watch?v=_9oNKcZ0FiQ)
 - [Ears in love, heart in rhythm 🎧💓 #LoveYouMuthe #Padmini #shorts #ytshorts](https://www.youtube.com/watch?v=kmyVH-iXoKA)
 - [Aadharanjali - Slap House Mix | Romancham | Sushin Shyam | Madhuvanthi Narayan | The Independeners](https://www.youtube.com/watch?v=icuMCGmFQBY)
 - [മമ്മാ മേരി | Mamma Mary Carol | Shorts  #manoramamusic #ytshorts](https://www.youtube.com/watch?v=Ly2uCfmYXfw)
-- [Mamazhayile | Mayilattam | Jayaram | Rambha | Sujatha | M.Jayachandran | Gireesh Puthanchery](https://www.youtube.com/watch?v=RLEskSq62fE)
-- [Prem Nazir, Ambika Super Hit Song Puthumulla Poove | Aadyathe Anuraagam | Yesudas | Malayalam Song](https://www.youtube.com/watch?v=p-cYnmUUNiE)
-- [Neelapponmaane | Ringtone #shorts #ringtones](https://www.youtube.com/watch?v=mOKVVL39R6A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
