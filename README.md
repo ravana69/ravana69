@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Whispers of love #PunnaraKattilePoovanatthil #MalaikottaiVaaliban #shorts #ytshorts](https://www.youtube.com/watch?v=Y6SBIdwE0R4)
+- [Christmas Karol Song Niranjoru Neelaravum](https://www.youtube.com/watch?v=VW-NhZ_cJo8)
 - [Hey Sexy Lady#kalabhavanmani #oldmalayalammelodysongs #malayalamsongs #videoshort](https://www.youtube.com/watch?v=-gzaJYGk9AQ)
 - [Nee Vin Pooppol | Innale | Jayaram | Yesudas | Kaithapram | Padmarajan | Sounnd of Arts](https://www.youtube.com/watch?v=wcp11PiOBxc)
 - [Oru Rajamalli #aniyathipravu #kunchakoboban #evergeeenmalayalamhits #mgsreekumarsongs](https://www.youtube.com/watch?v=_9oNKcZ0FiQ)
 - [Ears in love, heart in rhythm 🎧💓 #LoveYouMuthe #Padmini #shorts #ytshorts](https://www.youtube.com/watch?v=kmyVH-iXoKA)
-- [Aadharanjali - Slap House Mix | Romancham | Sushin Shyam | Madhuvanthi Narayan | The Independeners](https://www.youtube.com/watch?v=icuMCGmFQBY)
-- [മമ്മാ മേരി | Mamma Mary Carol | Shorts  #manoramamusic #ytshorts](https://www.youtube.com/watch?v=Ly2uCfmYXfw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
