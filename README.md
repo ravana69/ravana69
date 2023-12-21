@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mamma Mary Lyrical Video | Fr. Shinto Edassery CST | Malayalam Christmas Carol Lyrics Video](https://www.youtube.com/watch?v=2ItqrxrObpE)
 - [എത്ര മനോഹരമായ ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Christian Melody Songs](https://www.youtube.com/watch?v=pdvUMH8Lh4o)
 - [പ്രഭാത പ്രാർത്ഥന#രാവിലെ  പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#kripasanam  for 21](https://www.youtube.com/watch?v=K2xd8yJZc8A)
 - [Japamala 21st of December 23 # Mathavinte Japamala Prakashathinte Rahasyangal 21st of December 23](https://www.youtube.com/watch?v=COCj0oiQ8SU)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mother  mary daily songs and prayer for December](https://www.youtube.com/watch?v=t-BKFnNUug8)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=rgjhhw99LQ0)
-- [രാവിലെ പ്രാര്‍ത്ഥന December 21 # Athiravile Prarthana 21st of December 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=u6kz_G-A3N4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
