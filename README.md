@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Happy Birthday Mini | Mahima Nambiar | #NeelaNilave | #RDX  | #shorts #ytshorts](https://www.youtube.com/watch?v=MK9RfkVBiQY)
-- [Anirudh Ravichander, Revanth, Roll Rida, Ritesh G Rao - Ready Chal (From "Leo (Hindi)")](https://www.youtube.com/watch?v=dE-7bbqNSTU)
-- [Anirudh Ravichander, Raqueeb Alam, Hanuman - Badass (From "Leo (Hindi)")](https://www.youtube.com/watch?v=d59TyP4189U)
-- [Tera Hi Jaadu Hai (From "Leo (Hindi)")](https://www.youtube.com/watch?v=uFR185h9W3g)
-- [Leo - Ordinary Person Video | Thalapathy Vijay | Anirudh Ravichander](https://www.youtube.com/watch?v=q6e_b0NERCA)
-- [അകലെയകലെ നീലാകാശം...| Aadyathe Kanmani | Jayaram | K J Yesudas | S Janaki | #shortvideo](https://www.youtube.com/watch?v=5tkiAqpL56Q)
+- [ക്രിസ്മസ് കാലം ദൈവകൃപയാൽ നിറയപ്പെടുന്ന ദിനങ്ങളാകട്ടെ. | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=ke1e8oSSgfk)
+- [21 December 2023](https://www.youtube.com/watch?v=r1fRYmk3ueQ)
+- [Kaakkothi Ammakku Video Song | Kakkothikavile Appoppanthadikal | Vasudevan | Janamma | Ouseppachan](https://www.youtube.com/watch?v=L2MlCr_Abdg)
+- [Azhake Nee Paadum | Joker | K J Yesudas | Mohan Sithara | Lohithadas](https://www.youtube.com/watch?v=NFICfXsfFyE)
+- [Christmas Carol | Ponnaninja Ponpulari #frshajithumpechirayil #shortsvideo](https://www.youtube.com/watch?v=HIcfDPajOdI)
+- [Pulkkoottil Pirannu Rakshakan | ക്രിസ്തുമസ് ഗാനങ്ങൾ | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=4hMBV1KdemA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
