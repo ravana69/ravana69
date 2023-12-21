@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [PONNANINJA PONPULARI #shorts #frshajithumpechirayil #christms](https://www.youtube.com/watch?v=Nr-hlZ4FLm0)
 - [Muttathethum | Chandrolsavam  | Vidyasagar | K J Yesudas | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=Kz_BbUuwVDo)
 - [കൊതിയോടെ ഇപ്പോഴും കേൾക്കുന്ന മാന്ത്രികസ്പര്ശമുള്ള ജോൺസൺ മാഷിന്റെ ഹിറ്റ് ഗാനങ്ങൾ ! JOHNSON HITS](https://www.youtube.com/watch?v=TFyTSA8cHZI)
 - [തൊണ്ണൂറുകളിൽ മലയാളികൾ മതിമറന്നാസ്വദിച്ച സൂപ്പർഹിറ്റ് മലയാളചലച്ചിത്രഗാനങ്ങൾ | 90s HITS Malayalam](https://www.youtube.com/watch?v=RhA-3suIsIg)
 - [Mele Vanin Karoke with Lyrics | Brimbel Simon | Biju David Johns | Shalu S. Babu | Carol Karoke](https://www.youtube.com/watch?v=bovHOCIvRpw)
 - [Whispers of love #PunnaraKattilePoovanatthil #MalaikottaiVaaliban #shorts #ytshorts](https://www.youtube.com/watch?v=Y6SBIdwE0R4)
-- [Christmas Karol Song Niranjoru Neelaravum](https://www.youtube.com/watch?v=VW-NhZ_cJo8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
