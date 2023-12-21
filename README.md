@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [PONNANINJA PONPULARI #shorts #frshajithumpechirayil #christms](https://www.youtube.com/watch?v=Nr-hlZ4FLm0)
-- [Muttathethum | Chandrolsavam  | Vidyasagar | K J Yesudas | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=Kz_BbUuwVDo)
-- [കൊതിയോടെ ഇപ്പോഴും കേൾക്കുന്ന മാന്ത്രികസ്പര്ശമുള്ള ജോൺസൺ മാഷിന്റെ ഹിറ്റ് ഗാനങ്ങൾ ! JOHNSON HITS](https://www.youtube.com/watch?v=TFyTSA8cHZI)
-- [തൊണ്ണൂറുകളിൽ മലയാളികൾ മതിമറന്നാസ്വദിച്ച സൂപ്പർഹിറ്റ് മലയാളചലച്ചിത്രഗാനങ്ങൾ | 90s HITS Malayalam](https://www.youtube.com/watch?v=RhA-3suIsIg)
-- [Mele Vanin Karoke with Lyrics | Brimbel Simon | Biju David Johns | Shalu S. Babu | Carol Karoke](https://www.youtube.com/watch?v=bovHOCIvRpw)
-- [Whispers of love #PunnaraKattilePoovanatthil #MalaikottaiVaaliban #shorts #ytshorts](https://www.youtube.com/watch?v=Y6SBIdwE0R4)
+- [Happy Birthday Mini | Mahima Nambiar | #NeelaNilave | #RDX  | #shorts #ytshorts](https://www.youtube.com/watch?v=MK9RfkVBiQY)
+- [Anirudh Ravichander, Revanth, Roll Rida, Ritesh G Rao - Ready Chal (From "Leo (Hindi)")](https://www.youtube.com/watch?v=dE-7bbqNSTU)
+- [Anirudh Ravichander, Raqueeb Alam, Hanuman - Badass (From "Leo (Hindi)")](https://www.youtube.com/watch?v=d59TyP4189U)
+- [Tera Hi Jaadu Hai (From "Leo (Hindi)")](https://www.youtube.com/watch?v=uFR185h9W3g)
+- [Leo - Ordinary Person Video | Thalapathy Vijay | Anirudh Ravichander](https://www.youtube.com/watch?v=q6e_b0NERCA)
+- [അകലെയകലെ നീലാകാശം...| Aadyathe Kanmani | Jayaram | K J Yesudas | S Janaki | #shortvideo](https://www.youtube.com/watch?v=5tkiAqpL56Q)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
