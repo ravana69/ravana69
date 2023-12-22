@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Mandarappoove - Song Making | Kumari | Jakes Bejoy | Aishwarya Lekshmi | Nirmal Sahadev](https://www.youtube.com/watch?v=_dhk_fWkoos)
-- [Kalari Vilakku Thelinjathaano Oru Vadakkan Veeragadha Mammootty KS Chithra K Jayakumar B](https://www.youtube.com/watch?v=iEhZpoSemF0)
-- [EESOW NIN MUNNIL | KESTER | REV. DR. RAPHY PARIYATHUSSERY | JERSON ANTONY](https://www.youtube.com/watch?v=j4pQE1PHOUE)
-- [Ee Nisheediniyil | Carol #shortsvideo #christmas](https://www.youtube.com/watch?v=uLO0EHkRRlI)
-- [Rudraksham - Ellolam Lyric | Sharreth | Suresh Gopi, Annie, Geetha, Maathu, Devan](https://www.youtube.com/watch?v=uNk9BsDwrNo)
-- [Varoo Shyaama Hare Lyric | Jithin Shyam | Mukesh, Ranjitha, Chippy](https://www.youtube.com/watch?v=xv4__bIGXMM)
+- [Darling Darling Neeyenikku | Darling Darling | Hariharan | Ouseppachan | S Ramesan Nair](https://www.youtube.com/watch?v=fGgIMO7HC6c)
+- [ക്രിസ്മസ് നമുക്ക് സമ്മാനിക്കുന്നത് പദവികൾ മാത്രമല്ല.  | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=wG_hcehir88)
+- [Nadhikalil Sundari Yamuna Video Song | Anarkali | KJ Yesudas | B Vasantha | MS Baburaj | Vayalar](https://www.youtube.com/watch?v=HuLQ7UeevEE)
+- [ORU GREESHMA RATHRIYIL | #Shorts #christianshorts  #christmas2023 #trending](https://www.youtube.com/watch?v=gjjEuRPFtm0)
+- [Mannilum Vinnilum |New Christmas Video Song | Fr.John Puthuva | Joji Johns | Gincy Bony | Carol Song](https://www.youtube.com/watch?v=_Fqfl8pNW5U)
+- [Katte Nee Veesaruthippol | Kattu Vannu Vilichappol | KS Chithra | M G Radhakrishnan](https://www.youtube.com/watch?v=T-Hka0qIh20)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
