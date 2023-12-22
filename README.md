@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [K. J. Yesudas Old Malayalam Movie Songs |   Chevalier Michael Movie Song | Remastered Malayalam Song](https://www.youtube.com/watch?v=KM1zP1UJA_0)
-- [കരോൾ സംഘത്തിന്റെ ഇഷ്ട ക്രിസ്മസ് ഗാനങ്ങൾ | Christmas Carol Songs | Christmas Songs | Joji Johns](https://www.youtube.com/watch?v=Q0SMBpUh444)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kripasanam mother mary songs and prayer for Dec 22](https://www.youtube.com/watch?v=VotmvEWhNp0)
-- [Japamala 22nd of December 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 22nd of December 23](https://www.youtube.com/watch?v=KRzA8bjDMtE)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=q5jiq2US2c4)
-- [പ്രഭാത പ്രാര്‍ത്ഥന December 22 # Athiravile Prarthana 22nd of December 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=Z-9s0yOyNWw)
+- [മമ്മാ മേരി | Mamma Mary Carol | Shorts  #manoramamusic #ytshorts](https://www.youtube.com/watch?v=_9kcIFfKPiI)
+- [Best of 2023 | Top Malayalam Songs | Saregama Hits | Neela Nilave | Thalatherichavar | Rakka Rakka](https://www.youtube.com/watch?v=u9tYgAK-V_c)
+- [Aattidayakkoottam | RituRaj | Shorts  #christmas](https://www.youtube.com/watch?v=8V1rcUeuCFg)
+- [Let the music of love play on 🎶❤️ #LoveYouMuthe #Padmini #shorts #ytshorts](https://www.youtube.com/watch?v=S7LQDa2hIUk)
+- [Kadalinakkare Ponore - Slowed And Reverbed | Sanah Moidutty | Jeruson](https://www.youtube.com/watch?v=5wNu6eqIhxo)
+- [Ariyathe Ariyathe | Oru Kadha Oru Nunakadha | Mammootty | Madhavi | Johnson | Chithra](https://www.youtube.com/watch?v=1ZRkDzYfsgs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
