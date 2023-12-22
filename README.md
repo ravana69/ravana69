@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Gyeongseong Creature &lpar;2023&rpar; S01 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.2GB - 2.3GB &amp; 1GB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176929-gyeongseong-creature-2023-s01-ep-01-07-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-eng-dd51-192kbps-52gb-23gb-1gb-esub/&do=findComment&comment=358197)
 - [Unraveling the Multiverse: An Ai Physicist Explores the Mind-Blowing Reality of Parallel Universes](https://www.1tamilmv.im/index.php?/forums/topic/162433-unraveling-the-multiverse-an-ai-physicist-explores-the-mind-blowing-reality-of-parallel-universes/&do=findComment&comment=358196)
 - [Unveiling the Secrets of the Cosmos: Exploring the Possibilities of Wormhole Existence through an Ai Astrophysicist&#39;s Perspective](https://www.1tamilmv.im/index.php?/forums/topic/162434-unveiling-the-secrets-of-the-cosmos-exploring-the-possibilities-of-wormhole-existence-through-an-ai-astrophysicists-perspective/&do=findComment&comment=358195)
-- [Gyeongseong Creature &lpar;2023&rpar; S01 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.5GB - 1.9GB &amp; 1GB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176929-gyeongseong-creature-2023-s01-ep-01-07-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-eng-dd51-192kbps-55gb-19gb-1gb-esub/&do=findComment&comment=358194)
+- [Gyeongseong Creature &lpar;2023&rpar; S01 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.2GB - 2.3GB &amp; 1GB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176929-gyeongseong-creature-2023-s01-ep-01-07-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-eng-dd51-192kbps-52gb-23gb-1gb-esub/&do=findComment&comment=358194)
 - [Journey into the Cosmos: Scientists Unveil the Secrets of the Cosmic Web in Deep Space](https://www.1tamilmv.im/index.php?/forums/topic/163243-journey-into-the-cosmos-scientists-unveil-the-secrets-of-the-cosmic-web-in-deep-space/&do=findComment&comment=358193)
-- [AI Way of Quick and Effective Workouts for Busy People](https://www.1tamilmv.im/index.php?/forums/topic/163328-ai-way-of-quick-and-effective-workouts-for-busy-people/&do=findComment&comment=358192)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
