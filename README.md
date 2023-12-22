@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mandarappoove - Song Making | Kumari | Jakes Bejoy | Aishwarya Lekshmi | Nirmal Sahadev](https://www.youtube.com/watch?v=_dhk_fWkoos)
+- [Kalari Vilakku Thelinjathaano Oru Vadakkan Veeragadha Mammootty KS Chithra K Jayakumar B](https://www.youtube.com/watch?v=iEhZpoSemF0)
+- [EESOW NIN MUNNIL | KESTER | REV. DR. RAPHY PARIYATHUSSERY | JERSON ANTONY](https://www.youtube.com/watch?v=j4pQE1PHOUE)
 - [Ee Nisheediniyil | Carol #shortsvideo #christmas](https://www.youtube.com/watch?v=uLO0EHkRRlI)
 - [Rudraksham - Ellolam Lyric | Sharreth | Suresh Gopi, Annie, Geetha, Maathu, Devan](https://www.youtube.com/watch?v=uNk9BsDwrNo)
 - [Varoo Shyaama Hare Lyric | Jithin Shyam | Mukesh, Ranjitha, Chippy](https://www.youtube.com/watch?v=xv4__bIGXMM)
-- [Kudukkinte Koottil Lyric | Jithin Shyam | Mukesh, Ranjitha, Chippy](https://www.youtube.com/watch?v=Ih-BR4LwFnM)
-- [Leo - Ratata Video | Thalapathy Vijay | Anirudh Ravichander](https://www.youtube.com/watch?v=QhWyXj2bQFc)
-- [Rudraksham - Chillu Jaalakathinappuram Lyric | Sharreth | Suresh Gopi, Annie](https://www.youtube.com/watch?v=BcHow7pLLog)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
