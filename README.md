@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Phoenix &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.1GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176903-phoenix-2023-malayalam-true-web-dl-1080p-720p-avc-dd51-640kbps-21gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=358156)
-- [Kuiko &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176888-kuiko-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-4gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358155)
-- [80s Buildup &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176902-80s-buildup-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-8gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358154)
-- [Neru &lpar;2023&rpar; Malayalam HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.im/index.php?/forums/topic/176885-neru-2023-malayalam-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=358153)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [22-12-2023]](https://www.1tamilmv.im/index.php?/forums/topic/176907-movies-collection-all-languages-4k-1080p-720p-576p-480p-22-12-2023/&do=findComment&comment=358152)
+- [80s Buildup &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; [Telugu + Malayalam + Kannada] - 8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 800MB &amp; 450MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176905-80s-buildup-2023-true-web-dl-1080p-720p-avc-dd51-640kbps-telugu-malayalam-kannada-8gb-29gb-14gb-850mb-x264-800mb-450mb-esub/&do=findComment&comment=358161)
+- [Dark.Spell.2023.1080p.AMZN.WEB-DL.DUAL.DDP2.0 &lpar;Direct Download&rpar;](https://www.1tamilmv.im/index.php?/forums/topic/176911-darkspell20231080pamznweb-dldualddp20-direct-download/&do=findComment&comment=358160)
+- [Phoenix.2023.1080p,720p .AMZN.WEB-DL.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.im/index.php?/forums/topic/176910-phoenix20231080p720p-amznweb-dlddp51-direct-download/&do=findComment&comment=358159)
+- [Kuiko.2023.1080p,720p .NF.WEB-DL.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.im/index.php?/forums/topic/176909-kuiko20231080p720p-nfweb-dlddp51-direct-download/&do=findComment&comment=358158)
+- [Aadi.Keshava.2023.1080p,720p .NF.WEB-DL.MULTI.DDP5.1. &lpar;Direct Download&rpar;](https://www.1tamilmv.im/index.php?/forums/topic/176908-aadikeshava20231080p720p-nfweb-dlmultiddp51-direct-download/&do=findComment&comment=358157)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
