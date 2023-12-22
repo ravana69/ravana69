@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Gopaala Gokulapaala | Crazy Gopalan | Dileep | Radha Varma | Rahul Raj](https://www.youtube.com/watch?v=VZ2tg-wa5ok)
 - [Angu Doore Mamalayil | New Christmas Video Song | Shijo Sebastian | Sanoop Hrudayanath | Sivapriya](https://www.youtube.com/watch?v=_tXu0-IjNhI)
 - [Darling Darling Neeyenikku | Darling Darling | Hariharan | Ouseppachan | S Ramesan Nair](https://www.youtube.com/watch?v=fGgIMO7HC6c)
 - [ക്രിസ്മസ് നമുക്ക് സമ്മാനിക്കുന്നത് പദവികൾ മാത്രമല്ല.  | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=wG_hcehir88)
 - [Nadhikalil Sundari Yamuna Video Song | Anarkali | KJ Yesudas | B Vasantha | MS Baburaj | Vayalar](https://www.youtube.com/watch?v=HuLQ7UeevEE)
 - [ORU GREESHMA RATHRIYIL | #Shorts #christianshorts  #christmas2023 #trending](https://www.youtube.com/watch?v=gjjEuRPFtm0)
-- [Mannilum Vinnilum |New Christmas Video Song | Fr.John Puthuva | Joji Johns | Gincy Bony | Carol Song](https://www.youtube.com/watch?v=_Fqfl8pNW5U)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
