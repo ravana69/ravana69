@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ala Ninnu Cheri &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 3.5GB - 2.5GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176934-ala-ninnu-cheri-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-35gb-25gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358220)
 - [Gyeongseong Creature &lpar;2023&rpar; S01 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.2GB - 2.3GB &amp; 1GB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176929-gyeongseong-creature-2023-s01-ep-01-07-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-eng-dd51-192kbps-52gb-23gb-1gb-esub/&do=findComment&comment=358219)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP83 DAY 82 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 999MB - 520MB &amp; 204MB | 22-12-2023]](https://www.1tamilmv.im/index.php?/forums/topic/176933-bigg-boss-tamil-s07-ep83-day-82-true-web-dl-1080p-720p-480p-avc-untouched-999mb-520mb-204mb-22-12-2023/&do=findComment&comment=358218)
 - [Kuiko &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176888-kuiko-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-4gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358217)
 - [Aadikeshava &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176892-aadikeshava%C2%A02023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-4gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358216)
-- [80s Buildup &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176902-80s-buildup-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-8gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358215)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
