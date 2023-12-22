@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കരോൾ സംഘത്തിന്റെ ഇഷ്ട ക്രിസ്മസ് ഗാനങ്ങൾ | Christmas Carol Songs | Christmas Songs | Joji Johns](https://www.youtube.com/watch?v=Q0SMBpUh444)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kripasanam mother mary songs and prayer for Dec 22](https://www.youtube.com/watch?v=VotmvEWhNp0)
+- [Japamala 22nd of December 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 22nd of December 23](https://www.youtube.com/watch?v=KRzA8bjDMtE)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=q5jiq2US2c4)
 - [പ്രഭാത പ്രാര്‍ത്ഥന December 22 # Athiravile Prarthana 22nd of December 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=Z-9s0yOyNWw)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=4r728Z3-jyQ)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 22nd December 23](https://www.youtube.com/watch?v=X7CA4ypkMPA)
-- [ദാസേട്ടനും ചിത്രചേച്ചിയും പാടി മനോഹരങ്ങളാക്കിയ ഗാനങ്ങൾ | കെ ജെ യേശുദാസ് | കെ എസ് ചിത്ര | Duets](https://www.youtube.com/watch?v=eIK_kHrl9J4)
-- [Pokathe Kariyilakatte | Rappakal | Mammootty | Nayanthara | Kamal | Mohan Sithara | Sarada](https://www.youtube.com/watch?v=dkYeWtrGbc0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
