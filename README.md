@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [K.J.Yesudas, Old Malayalam Movie Songs | Mangalam Nerunnu Remastered Malayalam Songs](https://www.youtube.com/watch?v=jmJKLnYJyxk)
+- [Meene Chembulli Meene | Lyrical Video | Thottappan |Nikhil Mathew| PS Rafeeque | Leela Girish Kuttan](https://www.youtube.com/watch?v=GhAMGd3AwmI)
 - [Vinnil Udhichoru Tharakam | Carol | Shorts  #christmas #shorts](https://www.youtube.com/watch?v=pzmn9bRklnw)
 - [Tuning into the frequency of love 📻💖#LoveYouMuthe #Padmini #shorts #ytshorts](https://www.youtube.com/watch?v=RI_b05LG8Pw)
 - [Manassinorayiram | Bhoomika | Sureshgopi | Urvashi | Yesudas | Raveendran | I V Sasi](https://www.youtube.com/watch?v=EAhJ9d-5JyA)
 - [Mamta Mohandas, Suresh Gopi Super Hit Song #oldmalayalammelodysongs #malayalamsongs #videoshorts](https://www.youtube.com/watch?v=qqMYw-_IvT8)
-- [Salabhamay | Kalimannu | Shreya Ghoshal #manoramamusic](https://www.youtube.com/watch?v=yOs33QvSDqE)
-- [കൃപാസനം പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kripasanam  daily prayer and songs](https://www.youtube.com/watch?v=-cBuCtPeUX0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
