@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [VINNILE THARAKAM #frshajithumpechirayil #christmas #carol #twinklestar](https://www.youtube.com/watch?v=qEcDY1VuEaQ)
+- [Mahathwathin Rajave | Fr. Severios Thomas #Carol](https://www.youtube.com/watch?v=WCYcPg2Jpj4)
 - [പ്രേക്ഷക മനസ്സിൽ കുളിരു കോരിയിടും മനസുകൊതിക്കും സിനിമ ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=VVjmb0wl_RE)
 - [Unneeshoye Neevarane | ക്രിസ്തുമസ് ഗാനങ്ങൾ | X-Mas Songs | Audio Jukebox](https://www.youtube.com/watch?v=zpXOZG-MMp4)
 - [O Priye | Aniyathipraavu | Ouseppachan | K J Yesudas | S Ramesan Nair #SongOfTheDay](https://www.youtube.com/watch?v=P8PSTRZYPIQ)
 - [മനസിനെ ഏതോ മായ ലോകത്തേക്ക് കൂട്ടികൊണ്ടുപോകും  മാന്ത്രിക ഗാനങ്ങൾ  | Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=Nbfv0mzKTtk)
-- [Malagavrindhangal Paadi |Christmas Songs Malayalam | Wilson Piravom | Joji Johns | Divyakarunya Song](https://www.youtube.com/watch?v=7SWsKS0Be9g)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=ifpWTJv4fvA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
