@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Andala Rakshasi &lpar;2012&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176936-andala-rakshasi-2012-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-7gb-esub/&do=findComment&comment=358239)
 - [ELITE &lpar;2022&rpar; Complete S05 EP&lpar;01-08&rpar; Merged TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + English&rpar; - 7GB &amp; 2.4GB | x264 - 950MB] - ESub [Google Drive]](https://www.1tamilmv.im/index.php?/forums/topic/174933-elite-2022-complete-s05-ep01-08-merged-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-english-7gb-24gb-x264-950mb-esub-google-drive/&do=findComment&comment=358238)
 - [What If S02E02 DSNP WEB-DL DDP5.1 Esubs - 2160p | 1080p | 720p - 2.6 GB | 1.4 GB | 750 MB](https://www.1tamilmv.im/index.php?/forums/topic/176942-what-if-s02e02-dsnp-web-dl-ddp51-esubs-2160p-1080p-720p-26-gb-14-gb-750-mb/&do=findComment&comment=358237)
 - [What If.? &lpar;2023&rpar; S01 EP&lpar;01-02&rpar; English TRUE WEB-DL - [1080p - 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 700MB &amp; 200MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176941-what-if-2023-s01-ep01-02-english-true-web-dl-1080p-720p-avc-dd51-192kbps-700mb-200mb-esub/&do=findComment&comment=358236)
 - [Unstoppable Limited Edition &lpar;2023&rpar; S03 EP03 Telugu TRUE WEB-DL - [1080p - 720p - AVC - &lpar;AAC 2.0&rpar; - 1.2GB - 700MB &amp; 350MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176940-unstoppable-limited-edition-2023-s03-ep03-telugu-true-web-dl-1080p-720p-avc-aac-20-12gb-700mb-350mb-esub/&do=findComment&comment=358235)
-- [Andala Rakshasi &lpar;2012&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176936-andala-rakshasi-2012-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-7gb-esub/&do=findComment&comment=358234)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
