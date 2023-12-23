@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Jam Jam Jambuvante - Lyrical Video | Mad Dad | Kalpana, Sreeranjini Manoj | Alex Paul](https://www.youtube.com/watch?v=W0SBRussWr8)
+- [KOKO Video Song - Arun Muraleetharan | Kapil Kapilan | Rahul M R & Meenakshi Unnikrishnan](https://www.youtube.com/watch?v=953GMDgj7Og)
+- [SATHRAM ADANJU #frshajithumpechirayil #christmas #carol #twinklestar](https://www.youtube.com/watch?v=r-xlB5mTXK8)
+- [13 ചിത്രയുടെ ഒളിമങ്ങാത്ത ചിരിയുടെ രഹസ്യം എന്താണ് | Paadiyum Paranjum | Malayala Manorama](https://www.youtube.com/watch?v=T1q0L6uyD9g)
+- [പൊന്‍ ചെണ്ടയുണ്ടേ കൈ ചേങ്കിലയും| Oru Yathramozhi |  KS Chithra | MG Sreekumar | Mohanlal | #shorts](https://www.youtube.com/watch?v=AbxcLxAFYNk)
 - [PON POOVITHALIL #sajinthomas #christmas #shorts #twinklestar](https://www.youtube.com/watch?v=XQSZJ7uqJRE)
-- [VINNILE THARAKAM #frshajithumpechirayil #christmas #carol #twinklestar](https://www.youtube.com/watch?v=qEcDY1VuEaQ)
-- [Mahathwathin Rajave | Fr. Severios Thomas #Carol](https://www.youtube.com/watch?v=WCYcPg2Jpj4)
-- [പ്രേക്ഷക മനസ്സിൽ കുളിരു കോരിയിടും മനസുകൊതിക്കും സിനിമ ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=VVjmb0wl_RE)
-- [Unneeshoye Neevarane | ക്രിസ്തുമസ് ഗാനങ്ങൾ | X-Mas Songs | Audio Jukebox](https://www.youtube.com/watch?v=zpXOZG-MMp4)
-- [O Priye | Aniyathipraavu | Ouseppachan | K J Yesudas | S Ramesan Nair #SongOfTheDay](https://www.youtube.com/watch?v=P8PSTRZYPIQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
