@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Aquaman and the Lost Kingdom &lpar;2023&rpar; Tamil HQ HDTS - [1080p &amp; 720p - x264 - 2.3GB - 1.2GB | x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.im/index.php?/forums/topic/176921-aquaman-and-the-lost-kingdom-2023-tamil-hq-hdts-1080p-720p-x264-23gb-12gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=358271)
-- [Baba Vangas&#39;s Predictions: &#39;2024&#39; The End of Putin&#39;s Era?](https://www.1tamilmv.im/index.php?/forums/topic/150716-baba-vangass-predictions-2024-the-end-of-putins-era/&do=findComment&comment=358270)
-- [Nostradamus Predictions: &#39;2024&#39; The Beginning of World War III](https://www.1tamilmv.im/index.php?/forums/topic/150717-nostradamus-predictions-2024-the-beginning-of-world-war-iii/&do=findComment&comment=358269)
-- [Journey 3 From the Earth to the Moon &lpar;2024&rpar; Official Ai Trailer](https://www.1tamilmv.im/index.php?/forums/topic/150718-journey-3-from-the-earth-to-the-moon-2024-official-ai-trailer/&do=findComment&comment=358268)
-- [Breaking Boundaries: Sociologists Reclassify BDSM as a &#39;Leisure Activity&#39; to Erase Stigma](https://www.1tamilmv.im/index.php?/forums/topic/150712-breaking-boundaries-sociologists-reclassify-bdsm-as-a-leisure-activity-to-erase-stigma/&do=findComment&comment=358267)
+- [Saba Nayagan &lpar;2023&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.im/index.php?/forums/topic/176923-saba-nayagan-2023-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=358276)
+- [Aquaman and the Lost Kingdom &lpar;2023&rpar; Tamil HQ HDTS - [1080p &amp; 720p - x264 - 2.3GB - 1.2GB | x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.im/index.php?/forums/topic/176921-aquaman-and-the-lost-kingdom-2023-tamil-hq-hdts-1080p-720p-x264-23gb-12gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=358275)
+- [Andala Rakshasi &lpar;2012&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176936-andala-rakshasi-2012-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-7gb-esub/&do=findComment&comment=358274)
+- [Andala Rakshasi &lpar;2012&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176936-andala-rakshasi-2012-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-7gb-esub/&do=findComment&comment=358273)
+- [Kushi &lpar;2001&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p, 480p - AVC - &lpar;DD+5.1 - 640Kbps &amp; AAC 2.0&rpar; - 7GB - 3.7GB &amp; 1.4GB] - ESub - Netflix](https://www.1tamilmv.im/index.php?/forums/topic/176531-kushi-2001-telugu-true-web-dl-1080p-720p-480p-avc-dd51-640kbps-aac-20-7gb-37gb-14gb-esub-netflix/&do=findComment&comment=358272)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
