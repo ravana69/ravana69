@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ala Ninnu Cheri &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 3.5GB - 2.5GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176934-ala-ninnu-cheri-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-35gb-25gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358231)
 - [Reacher.S02E04.A.Night.at.the.Symphony.1080p, 720p .AMZN.WEB-DL.MULTI.DDP5. &lpar;Direct Download&rpar;](https://www.1tamilmv.im/index.php?/forums/topic/176939-reachers02e04anightatthesymphony1080p-720p-amznweb-dlmultiddp5-direct-download/&do=findComment&comment=358230)
 - [Fear.the.Night.2023.1080p, 720p .AMZN.WEB-DL.MULTI.DDP2.0 &lpar;Direct Download&rpar;](https://www.1tamilmv.im/index.php?/forums/topic/176938-fearthenight20231080p-720p-amznweb-dlmultiddp20-direct-download/&do=findComment&comment=358229)
 - [Rebel.Moon.Part.One.A.Child.of.Fire.2023.1080p,720p .NF.WEB-DL.MULTI.DDP5.1.Atmos.HDR-DV &lpar;Direct Downlaod&rpar;](https://www.1tamilmv.im/index.php?/forums/topic/176937-rebelmoonpartoneachildoffire20231080p720p-nfweb-dlmultiddp51atmoshdr-dv-direct-downlaod/&do=findComment&comment=358228)
 - [Andala Rakshasi &lpar;2012&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176936-andala-rakshasi-2012-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-7gb-esub/&do=findComment&comment=358227)
-- [Andala Rakshasi &lpar;2012&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176936-andala-rakshasi-2012-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-7gb-esub/&do=findComment&comment=358226)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
