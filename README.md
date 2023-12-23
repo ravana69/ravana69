@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Jam Jam Jambuvante - Lyrical Video | Mad Dad | Kalpana, Sreeranjini Manoj | Alex Paul](https://www.youtube.com/watch?v=W0SBRussWr8)
-- [KOKO Video Song - Arun Muraleetharan | Kapil Kapilan | Rahul M R & Meenakshi Unnikrishnan](https://www.youtube.com/watch?v=953GMDgj7Og)
-- [SATHRAM ADANJU #frshajithumpechirayil #christmas #carol #twinklestar](https://www.youtube.com/watch?v=r-xlB5mTXK8)
-- [13 ചിത്രയുടെ ഒളിമങ്ങാത്ത ചിരിയുടെ രഹസ്യം എന്താണ് | Paadiyum Paranjum | Malayala Manorama](https://www.youtube.com/watch?v=T1q0L6uyD9g)
-- [പൊന്‍ ചെണ്ടയുണ്ടേ കൈ ചേങ്കിലയും| Oru Yathramozhi |  KS Chithra | MG Sreekumar | Mohanlal | #shorts](https://www.youtube.com/watch?v=AbxcLxAFYNk)
-- [PON POOVITHALIL #sajinthomas #christmas #shorts #twinklestar](https://www.youtube.com/watch?v=XQSZJ7uqJRE)
+- [ക്രിസ്മസ് ജീവിതത്തിന് പുതിയ തെളിച്ചവും വെളിച്ചവും നൽകുന്നതാകട്ടെ | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=K30L3allQHg)
+- [Ammoommakkili Vaayaadi Video Song | Chandralekha | KS Chithra | Mohanlal | Malayalam Evergreen Hits](https://www.youtube.com/watch?v=UQE7Q9h14mg)
+- [Ormappeeli Koodozhinju Poyi | Mafia | Video Song | Suresh Gopi | Vikram | Janardhanan - Yesudas Hits](https://www.youtube.com/watch?v=iFVhiu22UY0)
+- [പടച്ചോന്റെ കൃപകൊണ്ട്‌ | Padachonte Kiripakondu | Kayamkulam Kochunni Movie Song | പി ഭാസ്ക്കരൻ](https://www.youtube.com/watch?v=vsZLLCGsY6o)
+- [Rakkilithan Vazhi Marayum Video Song | Perumazhakkalam | Meera Jasmine |M Jayachandran|Rafeeq Ahamed](https://www.youtube.com/watch?v=Nn_8W4Df4-k)
+- [Lokam Niranjavane | New Christian Video Song | Sreya Jayadeep | Arun Das Puthiyavila | Joji Johns](https://www.youtube.com/watch?v=pVWdxpwN2gs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
