@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കൃപാസനം പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kripasanam  daily prayer and songs](https://www.youtube.com/watch?v=-cBuCtPeUX0)
+- [Christmas Video Songs | Sanoop Kumar | Joji Johns | Carol Songs Malayalam | Carol Songs](https://www.youtube.com/watch?v=ZMmw0bNLErE)
+- [ക്രിസ്തുമസ്  ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #christmas songs malayalam 2023 december 23rd](https://www.youtube.com/watch?v=NVNyinrjO-8)
+- [Japamala 23rd of December 23 # Mathavinte Japamala Santhoshathinte Rahasyangal 23rd of December 23](https://www.youtube.com/watch?v=pl8aGiBysQM)
+- [ക്രിസ്തുമസ് ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #christmas  songs malayalam 2023 december 23rd](https://www.youtube.com/watch?v=dH3fJ7YIkqc)
 - [Swargathil santhosham #sreya #jojo #baby john #johnson kk #christmas  songs malayalam for Dec 23](https://www.youtube.com/watch?v=YIWxrL-Yvi4)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=AKccSb6IMtw)
-- [23 December 2023](https://www.youtube.com/watch?v=1eGBFU8VMxs)
-- [രാവിലെ പ്രാര്‍ത്ഥന December 23 # Athiravile Prarthana 23rd of December 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=-RjOz5iK9x4)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=tiIK1guDWpw)
-- [Niranjoru Neelaravum](https://www.youtube.com/watch?v=7hoaw1B7y9c)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
