@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Muthu &lpar;1995&rpar; DDP2.0 Hindi-AAC 5.1 Tamil-AAC 2.0 Telugu 4KRM JP 1080p BluRay x265 Esub [G-Drive] 7GB](https://www.1tamilmv.im/index.php?/forums/topic/176945-muthu-1995-ddp20-hindi-aac-51-tamil-aac-20-telugu-4krm-jp-1080p-bluray-x265-esub-g-drive-7gb/&do=findComment&comment=358263)
-- [50 Tamil Movies - TK/AMZN/SUN NXT/SS - WEB DL H264 - DDP5.1/DD5.1/AAC2.0 - Esub - [1080p &amp; 720p - 400GB] [GDRIVE]](https://www.1tamilmv.im/index.php?/forums/topic/139533-50-tamil-movies-tkamznsun-nxtss-web-dl-h264-ddp51dd51aac20-esub-1080p-720p-400gb-gdrive/&do=findComment&comment=358262)
-- [ELITE &lpar;2022&rpar; Complete S05 EP&lpar;01-08&rpar; Merged TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + English&rpar; - 7GB &amp; 2.4GB | x264 - 950MB] - ESub [Google Drive]](https://www.1tamilmv.im/index.php?/forums/topic/174933-elite-2022-complete-s05-ep01-08-merged-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-english-7gb-24gb-x264-950mb-esub-google-drive/&do=findComment&comment=358261)
-- [ELITE &lpar;2022&rpar; Complete S05 EP&lpar;01-08&rpar; Merged TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + English&rpar; - 7GB &amp; 2.4GB | x264 - 950MB] - ESub [Google Drive]](https://www.1tamilmv.im/index.php?/forums/topic/174933-elite-2022-complete-s05-ep01-08-merged-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-english-7gb-24gb-x264-950mb-esub-google-drive/&do=findComment&comment=358260)
-- [A Couple of Cuckoos S01 EP08 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 400MB - 250MB] - ESub [Google Drive]](https://www.1tamilmv.im/index.php?/forums/topic/176944-a-couple-of-cuckoos-s01-ep08-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-400mb-250mb-esub-google-drive/&do=findComment&comment=358259)
+- [Aquaman and the Lost Kingdom &lpar;2023&rpar; Tamil HQ HDTS - [1080p &amp; 720p - x264 - 2.3GB - 1.2GB | x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.im/index.php?/forums/topic/176921-aquaman-and-the-lost-kingdom-2023-tamil-hq-hdts-1080p-720p-x264-23gb-12gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=358271)
+- [Baba Vangas&#39;s Predictions: &#39;2024&#39; The End of Putin&#39;s Era?](https://www.1tamilmv.im/index.php?/forums/topic/150716-baba-vangass-predictions-2024-the-end-of-putins-era/&do=findComment&comment=358270)
+- [Nostradamus Predictions: &#39;2024&#39; The Beginning of World War III](https://www.1tamilmv.im/index.php?/forums/topic/150717-nostradamus-predictions-2024-the-beginning-of-world-war-iii/&do=findComment&comment=358269)
+- [Journey 3 From the Earth to the Moon &lpar;2024&rpar; Official Ai Trailer](https://www.1tamilmv.im/index.php?/forums/topic/150718-journey-3-from-the-earth-to-the-moon-2024-official-ai-trailer/&do=findComment&comment=358268)
+- [Breaking Boundaries: Sociologists Reclassify BDSM as a &#39;Leisure Activity&#39; to Erase Stigma](https://www.1tamilmv.im/index.php?/forums/topic/150712-breaking-boundaries-sociologists-reclassify-bdsm-as-a-leisure-activity-to-erase-stigma/&do=findComment&comment=358267)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
