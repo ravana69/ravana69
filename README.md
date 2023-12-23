@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രേക്ഷക മനസ്സിൽ കുളിരു കോരിയിടും മനസുകൊതിക്കും സിനിമ ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=VVjmb0wl_RE)
+- [Unneeshoye Neevarane | ക്രിസ്തുമസ് ഗാനങ്ങൾ | X-Mas Songs | Audio Jukebox](https://www.youtube.com/watch?v=zpXOZG-MMp4)
+- [O Priye | Aniyathipraavu | Ouseppachan | K J Yesudas | S Ramesan Nair #SongOfTheDay](https://www.youtube.com/watch?v=P8PSTRZYPIQ)
+- [മനസിനെ ഏതോ മായ ലോകത്തേക്ക് കൂട്ടികൊണ്ടുപോകും  മാന്ത്രിക ഗാനങ്ങൾ  | Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=Nbfv0mzKTtk)
+- [Malagavrindhangal Paadi |Christmas Songs Malayalam | Wilson Piravom | Joji Johns | Divyakarunya Song](https://www.youtube.com/watch?v=7SWsKS0Be9g)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=ifpWTJv4fvA)
-- [Swept away in a classic love story#PunnaraKattilePoovanatthil #MalaikottaiVaaliban #shorts #ytshorts](https://www.youtube.com/watch?v=YqqelJ0DtBw)
-- [K.J.Yesudas, Old Malayalam Movie Songs | Mangalam Nerunnu Remastered Malayalam Songs](https://www.youtube.com/watch?v=jmJKLnYJyxk)
-- [Meene Chembulli Meene | Lyrical Video | Thottappan |Nikhil Mathew| PS Rafeeque | Leela Girish Kuttan](https://www.youtube.com/watch?v=GhAMGd3AwmI)
-- [Vinnil Udhichoru Tharakam | Carol | Shorts  #christmas #shorts](https://www.youtube.com/watch?v=pzmn9bRklnw)
-- [Tuning into the frequency of love 📻💖#LoveYouMuthe #Padmini #shorts #ytshorts](https://www.youtube.com/watch?v=RI_b05LG8Pw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
