@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [GOSHALAYIL PONPAITHALAYI #frshajithumpechirayil #christmas #shorts #twinklestar](https://www.youtube.com/watch?v=lbL0onrYO7o)
 - [Vintage vibes #PunnaraKattilePoovanatthil #MalaikottaiVaaliban #shorts #ytshorts](https://www.youtube.com/watch?v=uOLFYmD9z8A)
 - [നിന്നെ കാണേണം പൊന്നേ.. #christmas #shorts](https://www.youtube.com/watch?v=Wx3fKuOUqRY)
 - [Kanana Kuyile | Mr Brahmachari   #shortsfeed #shorts #mohanlal #mjayachandran #lyricalvideo](https://www.youtube.com/watch?v=KtmcXpIHslg)
 - [Chandhanamani | Praja | Mohanlal | Aishwarya | M G Sreekumar | Joshiy | Biju Menon](https://www.youtube.com/watch?v=kyITtyNccGQ)
 - [Christmas Karol Song Niranjoru Neelaravum](https://www.youtube.com/watch?v=TSKsxs4H8y0)
-- [Love is a symphony of emotions 🎼💓#LoveYouMuthe #Padmini #shorts #ytshorts](https://www.youtube.com/watch?v=_RsdsLNQHL0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
