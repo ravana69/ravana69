@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ദൈവസ്നേഹത്തെ തിരിച്ചറിയാനുള്ള ദിനങ്ങളാണ് ക്രിസ്മസ് | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=7XWW48aOw1E)
+- [Vilikkaathirunnaalum Video Song | Ishtamaanu Pakshe | KJ Yesudas | P Madhuri | P Jayachandran](https://www.youtube.com/watch?v=gO42nlYlaPc)
+- [Manassil Valarnnu Video Song | Sundarakilladi | Nedumudi Venu | Ouseppachan | Bichu Thirumala](https://www.youtube.com/watch?v=cUySXKS4pfY)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 24th of December 2023](https://www.youtube.com/watch?v=jUKRFVOoVzs)
+- [ഈ ക്രിസ്റ്മസിന് കേൾക്കാൻ ഏറ്റവും അനുയോജ്യമായ തിരുപ്പിറവിഗാനങ്ങൾ | Christmas Songs 2023 | Carol Songs](https://www.youtube.com/watch?v=5sJd1Rojw2Y)
 - [We wish you a merry Christmas and Happy new year✨ 🎄🎁❄🎅🎂#christmas #short #trending #xmas2023](https://www.youtube.com/watch?v=jh01uUXEf2Y)
-- [Thudikkukayayi Nenjam Video Song | Azhagan Movie | Mammootty | Bhanupriya](https://www.youtube.com/watch?v=CICbouBMRbM)
-- [മിന്നും താരം ചങ്കിൽ സ്നേഹം തൂകി.. #christmas #carol #shorts](https://www.youtube.com/watch?v=9RSP2Bec3W0)
-- [GOSHALAYIL PONPAITHALAYI #frshajithumpechirayil #christmas #shorts #twinklestar](https://www.youtube.com/watch?v=lbL0onrYO7o)
-- [Vintage vibes #PunnaraKattilePoovanatthil #MalaikottaiVaaliban #shorts #ytshorts](https://www.youtube.com/watch?v=uOLFYmD9z8A)
-- [നിന്നെ കാണേണം പൊന്നേ.. #christmas #shorts](https://www.youtube.com/watch?v=Wx3fKuOUqRY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
