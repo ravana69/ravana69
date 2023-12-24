@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 25th December 23](https://www.youtube.com/watch?v=3YX6IlIznIo)
 - [പുൽക്കൂട്ടിൽനിന്ന് കേട്ട വിസ്മയഗാനങ്ങൾ |Christmas Songs 2023 | Superhit Christmas Songs |Carol Songs](https://www.youtube.com/watch?v=kGoezMSwyeM)
 - [Shantharathri Thirurathri | Thuramukham  | MK Arjunan | Jolly Abraham | Christmas Special Songs](https://www.youtube.com/watch?v=AcfZJtuYeoo)
 - [Shantharathri Thiru Rathri | Thuramukham | MK Arjunan | Jolly Abraham | Christmas Special Songs](https://www.youtube.com/watch?v=2e4sFyK314w)
 - [ദൈവസ്നേഹത്തെ തിരിച്ചറിയാനുള്ള ദിനങ്ങളാണ് ക്രിസ്മസ് | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=7XWW48aOw1E)
 - [Vilikkaathirunnaalum Video Song | Ishtamaanu Pakshe | KJ Yesudas | P Madhuri | P Jayachandran](https://www.youtube.com/watch?v=gO42nlYlaPc)
-- [Manassil Valarnnu Video Song | Sundarakilladi | Nedumudi Venu | Ouseppachan | Bichu Thirumala](https://www.youtube.com/watch?v=cUySXKS4pfY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
