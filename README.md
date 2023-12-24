@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chandhanamani | Praja | Mohanlal | Aishwarya | M G Sreekumar | Joshiy | Biju Menon](https://www.youtube.com/watch?v=kyITtyNccGQ)
+- [Christmas Karol Song Niranjoru Neelaravum](https://www.youtube.com/watch?v=TSKsxs4H8y0)
+- [Love is a symphony of emotions 🎼💓#LoveYouMuthe #Padmini #shorts #ytshorts](https://www.youtube.com/watch?v=_RsdsLNQHL0)
 - [Jagadish Old MalayalamMovie Song| Nagarathil Samsara Vishayam Remastered Malayalam Song | Unni Menon](https://www.youtube.com/watch?v=hKQ0WKPR-aM)
 - [Mammootty Suhasini Super Hit Old Song #oldmalayalammelodysongs #malayalamsongs #videoshort #shorts](https://www.youtube.com/watch?v=OwkYZU5ASjM)
 - [ITHA SUTHAN NISARANAYI #frshajithumpechirayil #christmas #shorts #twinklestar](https://www.youtube.com/watch?v=SlUt7xE6lho)
-- [Mahathwathin Rajave | Fr. Severios Thomas #Carol](https://www.youtube.com/watch?v=kPt1Oea_Ncg)
-- [അനശ്വര ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ  | Christian Devotional Songs Malayalam | Christian Melody Songs](https://www.youtube.com/watch?v=b0lkzVdzyGM)
-- [Malayalam Christmas Carol Songs 2023 # Christmas Songs Malayalam](https://www.youtube.com/watch?v=y6wMK7UWcI0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
