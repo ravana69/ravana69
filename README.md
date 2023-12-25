@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Nuvvu Leka Nenu Lenu &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.2GB](https://www.1tamilmv.im/index.php?/forums/topic/176964-nuvvu-leka-nenu-lenu-2002-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-62gb/&do=findComment&comment=358335)
+- [Nuvvu Leka Nenu Lenu &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.2GB](https://www.1tamilmv.im/index.php?/forums/topic/176964-nuvvu-leka-nenu-lenu-2002-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-62gb/&do=findComment&comment=358334)
 - [The World Of Killing People &lpar;2023&rpar; &lpar;HD + Org Auds&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Kor&rpar; - 2.3GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 400MB] - HC-ESub](https://www.1tamilmv.im/index.php?/forums/topic/176965-the-world-of-killing-people-2023-hd-org-auds-1080p-720p-x264-tamil-telugu-hindi-kor-23gb-1gb-x264-tam-tel-hin-400mb-hc-esub/&do=findComment&comment=358333)
 - [The World Of Killing People &lpar;2023&rpar; &lpar;HD + Org Auds&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Kor&rpar; - 2.3GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 400MB] - HC-ESub](https://www.1tamilmv.im/index.php?/forums/topic/176965-the-world-of-killing-people-2023-hd-org-auds-1080p-720p-x264-tamil-telugu-hindi-kor-23gb-1gb-x264-tam-tel-hin-400mb-hc-esub/&do=findComment&comment=358332)
 - [Nuvvu Leka Nenu Lenu &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.2GB](https://www.1tamilmv.im/index.php?/forums/topic/176964-nuvvu-leka-nenu-lenu-2002-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-62gb/&do=findComment&comment=358331)
-- [The World Of Killing People &lpar;2023&rpar; &lpar;HD + Org Auds&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Kor&rpar; - 2.3GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 400MB] - HC-ESub](https://www.1tamilmv.im/index.php?/forums/topic/176965-the-world-of-killing-people-2023-hd-org-auds-1080p-720p-x264-tamil-telugu-hindi-kor-23gb-1gb-x264-tam-tel-hin-400mb-hc-esub/&do=findComment&comment=358330)
-- [📌 CHENNAI EXPRESS &lpar;2013&rpar; &lpar;MUSIC VIDEO ALUBM&rpar; - 1080P - BDREUMX - AVC - DTS-HD ® MA 5.1 @ 2.5 Mbps / AC3 5.1 @ 448 Kbps - ESUBS - 5GB](https://www.1tamilmv.im/index.php?/forums/topic/176967-%F0%9F%93%8C-chennai-express-2013-music-video-alubm-1080p-bdreumx-avc-dts-hd-%C2%AE-ma-51-25-mbps-ac3-51-448-kbps-esubs-5gb/&do=findComment&comment=358329)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
