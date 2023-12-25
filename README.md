@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Boys just wanna have fun #Thanaro #Kasargold #shorts #ytshorts](https://www.youtube.com/watch?v=UUUXpVMqRjg)
 - [Dhanthagopuram | Bhoomidevi Pushpiniyaayi | Madhu | Devarajan | Susheela | Prem Nazeer](https://www.youtube.com/watch?v=lK3RY7GXBIE)
 - [Love is the music of the soul 🎶💖 #LoveYouMuthe #Padmini #shorts #ytshorts](https://www.youtube.com/watch?v=B2tZqSccs8s)
 - [Pon Kinaakkal | Aalibabayum Aarara Kallanmarum 1998 | M.G. Sreekumar | Malayalam Movie Song](https://www.youtube.com/watch?v=hZU6WKJUZ4s)
 - [K. S. Chithra Super Hit song  Rapadi Pakshikootam #oldmalayalammelodysongs #malayalamsongs](https://www.youtube.com/watch?v=BlDkiTEZZ_4)
 - [Ee Nisheediniyil | Carol #shortsvideo #christmas](https://www.youtube.com/watch?v=mGbFaKlFHvY)
-- [Mamma Mary Carol | Shorts  #manoramamusic #ytshorts](https://www.youtube.com/watch?v=PDdsDyUuKr8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
