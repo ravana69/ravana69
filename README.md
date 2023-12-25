@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Dirty Picture &lpar;2011&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps &amp; DD2.0 - 448Kbps&rpar; - 6GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176970-the-dirty-picture-2011-telugu-dvd9-untouched-480p-dd51-448kbps-dd20-448kbps-6gb-esub/&do=findComment&comment=358348)
+- [My Hero Academia Trilogy &lpar;2018-2021&rpar; &lpar;BluRay + Org Auds&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Malayalam + Kannada + Eng&rpar; - 6.9GB &amp; 3.7GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176968-my-hero-academia-trilogy-2018-2021-bluray-org-auds-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-eng-69gb-37gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=358347)
 - [My Hero Academia Trilogy &lpar;2018-2021&rpar; &lpar;BluRay + Org Auds&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Malayalam + Kannada + Eng&rpar; - 6.9GB &amp; 3.7GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176968-my-hero-academia-trilogy-2018-2021-bluray-org-auds-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-eng-69gb-37gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=358346)
 - [Nuvvu Leka Nenu Lenu &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.2GB](https://www.1tamilmv.im/index.php?/forums/topic/176964-nuvvu-leka-nenu-lenu-2002-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-62gb/&do=findComment&comment=358345)
 - [City Lights and Love Strikes | Taylor Swift Music Video # Shorts](https://www.1tamilmv.im/index.php?/forums/topic/150710-city-lights-and-love-strikes-taylor-swift-music-video-shorts/&do=findComment&comment=358344)
-- [City Lights and Love Strikes | Taylor Swift Music Video](https://www.1tamilmv.im/index.php?/forums/topic/150711-city-lights-and-love-strikes-taylor-swift-music-video/&do=findComment&comment=358343)
-- [Nuvvu Leka Nenu Lenu &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.2GB](https://www.1tamilmv.im/index.php?/forums/topic/176964-nuvvu-leka-nenu-lenu-2002-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-62gb/&do=findComment&comment=358342)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
