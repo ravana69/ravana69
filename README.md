@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ജീവന്റെ അപ്പമായി ദൈവം ഭൂമിക്ക് നൽകിയ രക്ഷയുടെ സമ്മാനം | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=7rtgsle2Ztc)
+- [Kuzhi Madiya Kulamadiya Video Song | Oridathoru Postman | Pradeep Palluruthy | Mohan Sithara](https://www.youtube.com/watch?v=ynTYOMhGJps)
+- [Anupama Sneha Chaithanyame Video Song | Varnapakittu | Mohanlal | KS Chithra | Vidyasagar](https://www.youtube.com/watch?v=iQzM-l7_p5Q)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 25th of December 2023](https://www.youtube.com/watch?v=3T4uYXLDPBc)
 - [നൃത്തമഹോത്സവ യവനികയുയര്‍ന്നു...| Aagneyam | KJ Yesudas | Jayaram | Gautami #shorts](https://www.youtube.com/watch?v=rFLdddRp1iA)
 - [Eden Thottam Poothulanjatho|Vishudhan|Miya George|Kunchacko boban|](https://www.youtube.com/watch?v=skSEaCH03Nw)
-- [ക്രിസ്റ്മസിന്റെ കുളിരിൽ നാടെങ്ങും ആസ്വദിക്കുന്ന മഞ്ഞിൻ തണുപ്പുള്ള ഗാനങ്ങൾ | CHRISTMAS SPECIAL SONGS](https://www.youtube.com/watch?v=yLbTT9WVI_4)
-- [ധനുമാസകാലം തരളിതമാക്കും മലയാളസിനിമയിലെ മനോഹര ഗാനങ്ങൾ  ഗാനങ്ങൾ | EVERGREEN HITS](https://www.youtube.com/watch?v=jTK9PnF8vtc)
-- [Christmas Movie Video Songs | Shantharathri Thirurathri | Christmas Carol Songs | Carol Songs](https://www.youtube.com/watch?v=Wnre27woJZM)
-- [Boys just wanna have fun #Thanaro #Kasargold #shorts #ytshorts](https://www.youtube.com/watch?v=UUUXpVMqRjg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
