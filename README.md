@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [JAYAM &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.3GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176975-jayam-2002-telugu-dvd9-untouched-480p-dd51-448kbps-63gb-esub/&do=findComment&comment=358362)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP86 DAY 85 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 575MB &amp; 245MB | 25-12-2023]](https://www.1tamilmv.im/index.php?/forums/topic/176974-bigg-boss-tamil-s07-ep86-day-85-true-web-dl-1080p-720p-480p-avc-untouched-1gb-575mb-245mb-25-12-2023/&do=findComment&comment=358361)
-- [Imaikkaa Nodigal &lpar;2018&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 11.5GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB [GDrive]](https://www.1tamilmv.im/index.php?/forums/topic/176973-imaikkaa-nodigal-2018-tamil-true-web-dl-1080p-720p-avc-hevc-untouched-dd51640kbps-115gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-gdrive/&do=findComment&comment=358360)
-- [Aadikeshava &lpar;2023&rpar; Multi &lpar;MUSIC VIDEO ALBUM&rpar; YT 4K WEB-DL UNTOUCHED - VP9 - [Tel+Tam+Mal+Kan DD+5.1 &lpar;640Kbps&rpar;] By-Vincenzo](https://www.1tamilmv.im/index.php?/forums/topic/176972-aadikeshava-2023-multi-music-video-album-yt-4k-web-dl-untouched-vp9-teltammalkan-dd51-640kbps-by-vincenzo/&do=findComment&comment=358359)
-- [Aadikeshava &lpar;2023&rpar; Multi &lpar;MUSIC VIDEO ALBUM&rpar; NF 1080p WEB-DL UNTOUCHED - AVC - [Tel+Tam+Mal+Kan DD+5.1 &lpar;640Kbps&rpar;] By-Vincenzo](https://www.1tamilmv.im/index.php?/forums/topic/176971-aadikeshava-2023-multi-music-video-album-nf-1080p-web-dl-untouched-avc-teltammalkan-dd51-640kbps-by-vincenzo/&do=findComment&comment=358358)
+- [MAD MAX 2 1981 AAC 2.0-Tamil-DD2.0 Telugu-Hindi-DD 5.1 English 1080p Blu-Ray Remux Msub 17GB [G-Drive]](https://www.1tamilmv.im/index.php?/forums/topic/176977-mad-max-2-1981-aac-20-tamil-dd20-telugu-hindi-dd-51-english-1080p-blu-ray-remux-msub-17gb-g-drive/&do=findComment&comment=358371)
+- [65 Tamil Movies - SNXT / AMZN / SS / TK / AHA WEB DL - H264/H265 - DDP5.1/AAC2.0 - [2160p ,1080p &amp; 720p - 450GB] [GDRIVE]](https://www.1tamilmv.im/index.php?/forums/topic/110508-65-tamil-movies-snxt-amzn-ss-tk-aha-web-dl-h264h265-ddp51aac20-2160p-1080p-720p-450gb-gdrive/&do=findComment&comment=358370)
+- [MAD MAX 2 1981 AAC 2.0-Tamil-DD2.0 Telugu-Hindi-DD 5.1 English 1080p Blu-Ray Remux Msub 17GB [G-Drive]](https://www.1tamilmv.im/index.php?/forums/topic/176977-mad-max-2-1981-aac-20-tamil-dd20-telugu-hindi-dd-51-english-1080p-blu-ray-remux-msub-17gb-g-drive/&do=findComment&comment=358369)
+- [JAYAM &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.3GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176975-jayam-2002-telugu-dvd9-untouched-480p-dd51-448kbps-63gb-esub/&do=findComment&comment=358368)
+- [50 Tamil Movies - AMZN/SS/TK/JC/SUN NXT WEB DL - H264/H265 - DDP5.1/AAC2.0 - ESub - [1080p &amp; 720p - 350GB] [GDRIVE]](https://www.1tamilmv.im/index.php?/forums/topic/168865-50-tamil-movies-amznsstkjcsun-nxt-web-dl-h264h265-ddp51aac20-esub-1080p-720p-350gb-gdrive/&do=findComment&comment=358367)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
