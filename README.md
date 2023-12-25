@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പൈതലാം യേശുവേ..| കെ ജെ യേശുദാസ് | കെ എസ് ചിത്ര | ക്രിസ്തീയഭക്തിഗാനങ്ങൾ | Remastered Devotional songs](https://www.youtube.com/watch?v=FcXhlRadhak)
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 26th December 23](https://www.youtube.com/watch?v=dCspxG8viDk)
 - [Poove Poove Paalappoove | Devadoothan |  Mohanlal | Vidyasagar | Sibi Malayil | Jayachandran](https://www.youtube.com/watch?v=a46wJbwXqoQ)
 - [25 December 2023](https://www.youtube.com/watch?v=Keb-SEHE1E0)
 - [Medaponnaniyum  | Devasuram | Mohanlal | Gireesh Puthenchery | Revathi | MG Sreekumar & Arundhathi](https://www.youtube.com/watch?v=MdWr2GpgGFc)
 - [ജീവന്റെ അപ്പമായി ദൈവം ഭൂമിക്ക് നൽകിയ രക്ഷയുടെ സമ്മാനം | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=7rtgsle2Ztc)
-- [Kuzhi Madiya Kulamadiya Video Song | Oridathoru Postman | Pradeep Palluruthy | Mohan Sithara](https://www.youtube.com/watch?v=ynTYOMhGJps)
-- [Anupama Sneha Chaithanyame Video Song | Varnapakittu | Mohanlal | KS Chithra | Vidyasagar](https://www.youtube.com/watch?v=iQzM-l7_p5Q)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
