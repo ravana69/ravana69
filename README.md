@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Yamaleela &lpar;1994&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 384Kbps&rpar; - 3.5GB](https://www.1tamilmv.im/index.php?/forums/topic/176981-yamaleela-1994-telugu-dvd5-untouched-480p-dd51-384kbps-35gb/&do=findComment&comment=358393)
+- [Yamaleela &lpar;1994&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 384Kbps&rpar; - 3.5GB](https://www.1tamilmv.im/index.php?/forums/topic/176981-yamaleela-1994-telugu-dvd5-untouched-480p-dd51-384kbps-35gb/&do=findComment&comment=358392)
 - [Chithirai Sevvaanam &lpar;2021&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 64Kbps&rpar; - 2.6GB - 1.2GB] - ESub_TheSUNNY_.[🔰G-DRIVE LINKS🔰]](https://www.1tamilmv.im/index.php?/forums/topic/151636-chithirai-sevvaanam-2021-telugu-true-web-dl-1080p-720p-x264-aac-20-64kbps-26gb-12gb-esub_thesunny_%F0%9F%94%B0g-drive-links%F0%9F%94%B0/&do=findComment&comment=358390)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [26-12-2023]](https://www.1tamilmv.im/index.php?/forums/topic/176982-movies-collection-all-languages-4k-1080p-720p-576p-480p-26-12-2023/&do=findComment&comment=358389)
 - [Yamaleela &lpar;1994&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 384Kbps&rpar; - 3.5GB](https://www.1tamilmv.im/index.php?/forums/topic/176981-yamaleela-1994-telugu-dvd5-untouched-480p-dd51-384kbps-35gb/&do=findComment&comment=358388)
-- [Yamaleela &lpar;1994&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 384Kbps&rpar; - 3.5GB](https://www.1tamilmv.im/index.php?/forums/topic/176981-yamaleela-1994-telugu-dvd5-untouched-480p-dd51-384kbps-35gb/&do=findComment&comment=358387)
-- [JAYAM &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.3GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176975-jayam-2002-telugu-dvd9-untouched-480p-dd51-448kbps-63gb-esub/&do=findComment&comment=358386)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
