@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP87 DAY 86 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 520MB &amp; 206MB | 26-12-2023]](https://www.1tamilmv.im/index.php?/forums/topic/176989-bigg-boss-tamil-s07-ep87-day-86-true-web-dl-1080p-720p-480p-avc-untouched-1gb-520mb-206mb-26-12-2023/&do=findComment&comment=358416)
+- [Inmate Zero &lpar;2020&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176987-inmate-zero-2020-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-24gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=358415)
 - [What If S02E05 DSNP WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10-DV] | 1080p | 720p - 3.3 GB | 1.4 GB | 850 MB](https://www.1tamilmv.im/index.php?/forums/topic/176988-what-if-s02e05-dsnp-web-dl-ddp51-atmos-esubs-2160p-hdr10-dv-1080p-720p-33-gb-14-gb-850-mb/&do=findComment&comment=358414)
 - [Inmate Zero &lpar;2020&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176987-inmate-zero-2020-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-24gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=358413)
 - [Brick Mansions &lpar;2014&rpar; 1080p  10bit Blu-Ray  [DD5.1 Tamil -Org DD 5.1 Hindi + DD 5.1 English] ESub 4GB [G-Drive]](https://www.1tamilmv.im/index.php?/forums/topic/176976-brick-mansions-2014-1080p-10bit-blu-ray-dd51-tamil-org-dd-51-hindi-dd-51-english-esub-4gb-g-drive/&do=findComment&comment=358412)
-- [Sagileti Katha &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.4GB - 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176986-sagileti-katha-2023-telugu-true-web-dl-1080p-720p-avc-24gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=358411)
-- [Chevvaikizhamai &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 10GB - 4GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176979-chevvaikizhamai-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-10gb-4gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358410)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
