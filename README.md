@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oru Shilpagopurathil | Souhrudam | Yesudas | Shyam | Mukesh | Sound of Arts](https://www.youtube.com/watch?v=53BVg8q3OvI)
+- [Suresh Gopi Super Hit Song Then Virunninaay | Parallel College Remastered Malayalam Songs | Chithra](https://www.youtube.com/watch?v=H0V2fwnBK20)
+- [Drowning in the symphony of love 🌊❤️#LoveYouMuthe #Padmini #shorts #ytshorts](https://www.youtube.com/watch?v=kzQkC-kIrTA)
+- [Azhake Ninakkay | Kayapola | Myjohn Britto  #manoramamusic](https://www.youtube.com/watch?v=UwzRA7tCDiQ)
+- [Allimalarkkavile Thirunadayil | Kannappanunni | Sheela | Ummar | Yesudas | Prem Nazeer](https://www.youtube.com/watch?v=Uwc9L3vFqCE)
 - [Christmas Specials - Jukebox | Eswarane Thedi | Manushya Nee Mannakunnu | Nithyanaya Deivathin](https://www.youtube.com/watch?v=C6PjdPkyQZk)
-- [Japamala 26th of December 2023 Mathavinte Japamala # Dhukhathinte Rahasyangal 26th of December 23](https://www.youtube.com/watch?v=QSK-x-Lt638)
-- [മാതാവിൻറെ പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#mother mary daily prayer and song](https://www.youtube.com/watch?v=tS6vpyMlJiw)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=r4Wcu7Cld4I)
-- [പ്രഭാത പ്രാര്‍ത്ഥന December 26 # Athiravile Prarthana 26th of December 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=LBg5onzBPu8)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=osG22g2V0yY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
