@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കലിയുഗവരദൻറെ ഭക്തിഗാനങ്ങൾ | കെ ജെ യേശുദാസ് | ഭക്തിഗാനങ്ങൾ | Remastered Ayyappa Devotional Songs](https://www.youtube.com/watch?v=6ny4RVRiZ84)
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 27th December 23](https://www.youtube.com/watch?v=2quUIgQb9KI)
 - [26 December 2023](https://www.youtube.com/watch?v=gv2KsPSIkiM)
 - [Kalavaani Neeyadyam | Dileep | Rasika | Yesudas | Mohan Sithara | Jagathy Sreekumar](https://www.youtube.com/watch?v=IsPFahwnfMI)
 - [തൊണ്ണൂറുകളിൽ മലയാളക്കരയാകെ മതിമറന്നാസ്വദിച്ചു പോയ നിത്യസുന്ദര സിനിമാഗാനങ്ങൾ ! 90s HITS](https://www.youtube.com/watch?v=F4aJ_2VZ6kA)
 - [Puthan Puthukkaalam | Kabooliwala | KS Chithra | KG Markose | SP Venkitesh | Bichu Thirumala](https://www.youtube.com/watch?v=YkmMppaL0_E)
-- [Aayiram Mathala Pookkal - Anupallavi(1979) | P Jayachandran | Bichu Thirumala | K.J Joy | Film Songs](https://www.youtube.com/watch?v=iPUNpRKcPt4)
-- [മാലീലേ മാലീലേ  | Ma Leele Ma Leele | MYLAANCHI Super Hit Movie Songs | K J Yesudas](https://www.youtube.com/watch?v=Abw1Zy6NG-w)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
