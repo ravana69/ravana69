@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Chevvaikizhamai &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 10GB - 4GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176979-chevvaikizhamai-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-10gb-4gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358378)
 - [Chevvaikizhamai &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 10GB - 4GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176979-chevvaikizhamai-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-10gb-4gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358377)
 - [Chevvaikizhamai &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 10GB - 4GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176979-chevvaikizhamai-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-10gb-4gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358376)
 - [JAYAM &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.3GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176975-jayam-2002-telugu-dvd9-untouched-480p-dd51-448kbps-63gb-esub/&do=findComment&comment=358375)
 - [Mangalavaram &lpar;2023&rpar; TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - [Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 10GB - 2.8GB - 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176980-mangalavaram-2023-true-web-dl-4k-1080p-720p-avc-hevc-malayalam-kannada-dd51-192kbps-10gb-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=358374)
-- [Chevvaikizhamai &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 10GB - 4GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176979-chevvaikizhamai-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-10gb-4gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358373)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
