@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Inmate Zero &lpar;2020&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176987-inmate-zero-2020-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-24gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=358413)
+- [Brick Mansions &lpar;2014&rpar; 1080p  10bit Blu-Ray  [DD5.1 Tamil -Org DD 5.1 Hindi + DD 5.1 English] ESub 4GB [G-Drive]](https://www.1tamilmv.im/index.php?/forums/topic/176976-brick-mansions-2014-1080p-10bit-blu-ray-dd51-tamil-org-dd-51-hindi-dd-51-english-esub-4gb-g-drive/&do=findComment&comment=358412)
 - [Sagileti Katha &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.4GB - 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176986-sagileti-katha-2023-telugu-true-web-dl-1080p-720p-avc-24gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=358411)
 - [Chevvaikizhamai &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 10GB - 4GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176979-chevvaikizhamai-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-10gb-4gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358410)
 - [Kadhal Kan Kattudhe &lpar;2017&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 7.2GB - ESub - GDFlix](https://www.1tamilmv.im/index.php?/forums/topic/173033-kadhal-kan-kattudhe-2017-tamil-true-web-dl-1080p-avc-untouched-ddp51-72gb-esub-gdflix/&do=findComment&comment=358409)
-- [ROBO &lpar;2010&rpar; Telugu Blu-Ray - 1080p - AVC - [DTS-HDMA 5.1] ESub - 42GB](https://www.1tamilmv.im/index.php?/forums/topic/165145-robo-2010-telugu-blu-ray-1080p-avc-dts-hdma-51-esub-42gb/&do=findComment&comment=358408)
-- [What If.? &lpar;2023&rpar; S01 EP&lpar;01-03&rpar; English TRUE WEB-DL - [1080p - 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 700MB &amp; 200MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176941-what-if-2023-s01-ep01-03-english-true-web-dl-1080p-720p-avc-dd51-192kbps-700mb-200mb-esub/&do=findComment&comment=358406)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
