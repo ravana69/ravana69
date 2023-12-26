@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [My Hero Academia Trilogy &lpar;2018-2021&rpar; &lpar;BluRay + Org Auds&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Malayalam + Kannada + Eng&rpar; - 6.9GB &amp; 3.7GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176968-my-hero-academia-trilogy-2018-2021-bluray-org-auds-1080p-720p-x264-tamil-telugu-hindi-malayalam-kannada-eng-69gb-37gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=358385)
+- [Nalaya Manithan &lpar;1989&rpar;.1080p.SUNXT.x264.AAC2.0 - 5.6GB - GOFILE &lpar;LINK UPDATED  - JULY 2021&rpar;](https://www.1tamilmv.im/index.php?/forums/topic/97822-nalaya-manithan-19891080psunxtx264aac20-56gb-gofile-link-updated-july-2021/&do=findComment&comment=358384)
 - [Mangalavaram &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 4.9GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176978-mangalavaram-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-49gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358383)
 - [Mangalavaram &lpar;2023&rpar; TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - [Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 10GB - 2.8GB - 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176980-mangalavaram-2023-true-web-dl-4k-1080p-720p-avc-hevc-malayalam-kannada-dd51-192kbps-10gb-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=358382)
 - [Chevvaikizhamai &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 10GB - 4GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176979-chevvaikizhamai-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-10gb-4gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358381)
-- [What If S02E04 DSNP WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10-DV] | 1080p | 720p - 3.3 GB | 1.7 GB | 980 MB](https://www.1tamilmv.im/index.php?/forums/topic/176969-what-if-s02e04-dsnp-web-dl-ddp51-atmos-esubs-2160p-hdr10-dv-1080p-720p-33-gb-17-gb-980-mb/&do=findComment&comment=358380)
-- [JAYAM &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.3GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176975-jayam-2002-telugu-dvd9-untouched-480p-dd51-448kbps-63gb-esub/&do=findComment&comment=358379)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
