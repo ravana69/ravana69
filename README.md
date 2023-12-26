@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thaimavin Thanalil Song | Oru Yathramozhi |  KS Chithra | MG Sreekumar | Mohanlal | #shorts](https://www.youtube.com/watch?v=soTt4Hvoevw)
 - [മനസിന് കുളിർമയും ആനന്ദവുമേകുന്ന മലയാളത്തിലെ ജനങ്ങളേറ്റെടുത്ത മനോഹര ഗാനങ്ങൾ ! MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=VcjNCTfJUFw)
 - [കുങ്കുമപ്പൂവുകള്‍ പൂത്തു | KUNKUMA POOVUKAL POOTHU | Kayamkulam Kochunni | K S Chithra](https://www.youtube.com/watch?v=dTGcGlPLUko)
 - [Creating vibes that last a lifetime #Thanaro #Kasargold #shorts #ytshorts](https://www.youtube.com/watch?v=-tbU9RVvNLo)
 - [Oru Shilpagopurathil | Souhrudam | Yesudas | Shyam | Mukesh | Sound of Arts](https://www.youtube.com/watch?v=53BVg8q3OvI)
 - [Suresh Gopi Super Hit Song Then Virunninaay | Parallel College Remastered Malayalam Songs | Chithra](https://www.youtube.com/watch?v=H0V2fwnBK20)
-- [Drowning in the symphony of love 🌊❤️#LoveYouMuthe #Padmini #shorts #ytshorts](https://www.youtube.com/watch?v=kzQkC-kIrTA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
