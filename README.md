@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Ezhazhakumay Video Song | Dileep | Devayani | KJ Yesudas | Raveendran | Kaithapram | Malayalam Songs](https://www.youtube.com/watch?v=ZIuCTPU3fw8)
-- [Thaimavin Thanalil Song | Oru Yathramozhi |  KS Chithra | MG Sreekumar | Mohanlal | #shorts](https://www.youtube.com/watch?v=soTt4Hvoevw)
-- [മനസിന് കുളിർമയും ആനന്ദവുമേകുന്ന മലയാളത്തിലെ ജനങ്ങളേറ്റെടുത്ത മനോഹര ഗാനങ്ങൾ ! MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=VcjNCTfJUFw)
-- [കുങ്കുമപ്പൂവുകള്‍ പൂത്തു | KUNKUMA POOVUKAL POOTHU | Kayamkulam Kochunni | K S Chithra](https://www.youtube.com/watch?v=dTGcGlPLUko)
-- [Creating vibes that last a lifetime #Thanaro #Kasargold #shorts #ytshorts](https://www.youtube.com/watch?v=-tbU9RVvNLo)
-- [Oru Shilpagopurathil | Souhrudam | Yesudas | Shyam | Mukesh | Sound of Arts](https://www.youtube.com/watch?v=53BVg8q3OvI)
+- [Puthan Puthukkaalam | Kabooliwala | KS Chithra | KG Markose | SP Venkitesh | Bichu Thirumala](https://www.youtube.com/watch?v=YkmMppaL0_E)
+- [Aayiram Mathala Pookkal - Anupallavi(1979) | P Jayachandran | Bichu Thirumala | K.J Joy | Film Songs](https://www.youtube.com/watch?v=iPUNpRKcPt4)
+- [മാലീലേ മാലീലേ  | Ma Leele Ma Leele | MYLAANCHI Super Hit Movie Songs | K J Yesudas](https://www.youtube.com/watch?v=Abw1Zy6NG-w)
+- [ജീവിതത്തിലെ ഭാരങ്ങളിൽ ഒരിക്കലും നിരാശപ്പെട്ട് പോകരുത് | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=-olw_NXS0Sg)
+- [Roopavathi Ruchiraangi Video Song | Ponnaapuram Kotta | K J Yesudas | G Devarajan | Vayalar](https://www.youtube.com/watch?v=hdsmD3w7j0U)
+- [Neela Nilave - Drill Mix | RDX | Sam C.S. | Kapil Kapilan | The Independeners](https://www.youtube.com/watch?v=eTIVshIAlfA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
