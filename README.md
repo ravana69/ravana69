@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Fire Force S01 EP12 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 200MB - 150MB] - ESub [Google Drive]](https://www.1tamilmv.im/index.php?/forums/topic/176994-fire-force-s01-ep12-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-200mb-150mb-esub-google-drive/&do=findComment&comment=358424)
+- [Fire Force S01 EP11 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 200MB - 150MB] - ESub [Google Drive]](https://www.1tamilmv.im/index.php?/forums/topic/176993-fire-force-s01-ep11-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-200mb-150mb-esub-google-drive/&do=findComment&comment=358423)
 - [A Couple of Cuckoos S01 EP09 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 400MB - 250MB] - ESub [Google Drive]](https://www.1tamilmv.im/index.php?/forums/topic/176992-a-couple-of-cuckoos-s01-ep09-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-400mb-250mb-esub-google-drive/&do=findComment&comment=358422)
 - [Sagileti Katha &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.4GB - 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176986-sagileti-katha-2023-telugu-true-web-dl-1080p-720p-avc-24gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=358421)
 - [Inmate Zero &lpar;2020&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176987-inmate-zero-2020-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-24gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=358420)
-- [Gharshana &lpar;1988&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD5.0 - 448Kbps&rpar; - 6.2GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176991-gharshana-1988-telugu-dvd9-untouched-480p-dd50-448kbps-62gb-esub/&do=findComment&comment=358419)
-- [The Dirty Picture &lpar;2011&rpar; DD5.1 Telugu-Hindi-AAC2.0 Tamil 1080p Blu-ray Remux - AVC - DTS-HD MA 5.1 - E-Sub 35GB [G-Drive]](https://www.1tamilmv.im/index.php?/forums/topic/176990-the-dirty-picture-2011-dd51-telugu-hindi-aac20-tamil-1080p-blu-ray-remux-avc-dts-hd-ma-51-e-sub-35gb-g-drive/&do=findComment&comment=358418)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
