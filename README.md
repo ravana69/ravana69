@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aakashangal | Christian Melody Songs | Kester | Praise and Worship Songs | Superhit Songs](https://www.youtube.com/watch?v=UtU4gThLZhk)
+- [Japamala 27th of December 2023 # Mathavinte Japamala # Mahimayude Rahasyangal 27th of December 2023](https://www.youtube.com/watch?v=GsEkuC0GdeM)
+- [കൃപാസന പ്രാർത്ഥനയും കുറച്ചു മരിയൻ ഗാനങ്ങളും കേട്ടു ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#kripasanam daily prayer](https://www.youtube.com/watch?v=4xlqa9rTdQ4)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=zcfflqgxbPA)
 - [പ്രഭാത പ്രാര്‍ത്ഥന December 27 # Athiravile Prarthana 27th of December 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=S91QNSt2bsg)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=sJnHVf3cr78)
-- [കലിയുഗവരദൻറെ ഭക്തിഗാനങ്ങൾ | കെ ജെ യേശുദാസ് | ഭക്തിഗാനങ്ങൾ | Remastered Ayyappa Devotional Songs](https://www.youtube.com/watch?v=6ny4RVRiZ84)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 27th December 23](https://www.youtube.com/watch?v=2quUIgQb9KI)
-- [26 December 2023](https://www.youtube.com/watch?v=gv2KsPSIkiM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
