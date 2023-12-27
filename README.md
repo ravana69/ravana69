@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Premamadhu Thedum Video Song | Snehithan | Kunchacko Boban | Preetha | KJ Yesudas | Mohan Sithara](https://www.youtube.com/watch?v=Tzu5r8hmcgA)
-- [പാടിയ പാട്ടുകൾ പിന്നീട് കേട്ടിട്ട് പാടേണ്ടിയിരുന്നില്ല എന്ന് തോന്നിയിട്ടുണ്ടോ | K S Chithra](https://www.youtube.com/watch?v=ECC_VdnxM6U)
-- [Pirannoree Mannum | Kabooliwala | Malaysia Vasudevan | SP Venkitesh | Bichu Thirumala](https://www.youtube.com/watch?v=FCev8yuaVKc)
-- [Peelithirumudiyunde Video Song | Achan Kombathu Amma Varampathu | Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=B43QnbHfLeE)
-- [വെള്ളക്കാരനെക്കൊണ്ട് പള്ളിത്തേരെടുപ്പിച്ച ഭള്ളുള്ളില്‍ നിറഞ്ഞമീന്‍ ഏതൊരു മീന്‍ #sjanaki #sheela](https://www.youtube.com/watch?v=TTBzhXR7q-w)
-- [Grampoo Manam Thookum | Kattaruvi (1983) | A.P.Gopalan | G.Devarajan | Malayalam Romantic Song](https://www.youtube.com/watch?v=te0QoSnm-sU)
+- [Niraye - Lyrical Video | Philip's | Hesham Abdul Wahab | Mukesh Madhavan | Alfred Kurian](https://www.youtube.com/watch?v=esoHf4VEanI)
+- [ദൈവത്തിലാശ്രയിക്കുന്ന ദൈവമക്കൾ പതറാതെ ദൈവകൃപയിലാശ്രയിച്ച് ഉറച്ച് നിൽക്കണം | Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=Ox-9mvqrJGo)
+- [Kaavalam Kiliye Video Song | Samoohyapadam | K S Chithra | S P Venkitesh | Dileep](https://www.youtube.com/watch?v=TSijtn9-eyM)
+- [വേനല്‍ കൂടിനുള്ളില്‍  | Venalkkoodinullil |  Newspaper Boy Superhit Movie Song | Mukesh | KJ Yesudas](https://www.youtube.com/watch?v=nxKhL_4kcEg)
+- [Nettimele Pottittaalum | Valyettan | KJ Yesudas | Mohan Sithara | Gireesh Puthenchery](https://www.youtube.com/watch?v=ZszwYPGRfUM)
+- [Ennamilla Nanmakal Lyrical Video | Chithra | Renjith Christy | Malayalam Christian Songs Lyrics](https://www.youtube.com/watch?v=bvdRwJ-qPuE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
