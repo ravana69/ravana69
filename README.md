@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=bkdRFx4g6TY)
 - [രാവിലെ പ്രാര്‍ത്ഥന December 28 # Athiravile Prarthana 28th of December 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=qj9LlEZ6vVA)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=W058qegKw0k)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 28th December 23](https://www.youtube.com/watch?v=Zi0s1SVA46k)
 - [Kaithapoo Manamenthe | Sneham | Jayaram | Perumbavoor G Ravindranath | Yusufali Kecheri | Biju Menon](https://www.youtube.com/watch?v=ervkCdvQNpY)
 - [Daivakarunyam Divyakarunyam | Franklin panoor | Fr. Antony Urulianickal | Christian Devotional Song](https://www.youtube.com/watch?v=bJvixtPMxr8)
-- [Kester Hits vol -2 Christian devotional songs  Music : Joy Cheruvathoor OWN MEDIA MUSIC COLLECTION](https://www.youtube.com/watch?v=EuEose06YeQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
