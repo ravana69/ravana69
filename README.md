@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pogaru &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177011-pogaru-2006-telugu-dvd9-untouched-480p-dd51-448kbps-71gb-esub/&do=findComment&comment=358479)
+- [Ghilli &lpar;2004&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DTS - 754Kbps&rpar; - 7.7GB - 5.8GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.im/index.php?/forums/topic/176996-ghilli-2004-tamil-true-web-dl-1080p-720p-avc-hevc-dts-754kbps-77gb-58gb-28gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=358478)
 - [Pogaru &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177011-pogaru-2006-telugu-dvd9-untouched-480p-dd51-448kbps-71gb-esub/&do=findComment&comment=358477)
 - [65 Tamil Movies - SNXT / AMZN / SS / TK / AHA WEB DL - H264/H265 - DDP5.1/AAC2.0 - [2160p ,1080p &amp; 720p - 450GB] [GDRIVE]](https://www.1tamilmv.im/index.php?/forums/topic/110508-65-tamil-movies-snxt-amzn-ss-tk-aha-web-dl-h264h265-ddp51aac20-2160p-1080p-720p-450gb-gdrive/&do=findComment&comment=358476)
 - [My Dress-Up Darling S01 EP07 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 300MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.im/index.php?/forums/topic/177010-my-dress-up-darling-s01-ep07-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-300mb-200mb-esub-google-drive/&do=findComment&comment=358475)
-- [Kho Gaye Hum Kahan &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Hindi] - 3.4GB &amp; 1.5GB] - [x264 - 800MB &amp; 450MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176984-kho-gaye-hum-kahan-2023-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-hindi-34gb-15gb-x264-800mb-450mb-esub/&do=findComment&comment=358474)
-- [Get Lucky &lpar;2013&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 1.6GB &amp; 1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177000-get-lucky-2013-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-16gb-1gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=358473)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
