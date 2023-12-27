@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 28th December 23](https://www.youtube.com/watch?v=Zi0s1SVA46k)
 - [Kaithapoo Manamenthe | Sneham | Jayaram | Perumbavoor G Ravindranath | Yusufali Kecheri | Biju Menon](https://www.youtube.com/watch?v=ervkCdvQNpY)
 - [Daivakarunyam Divyakarunyam | Franklin panoor | Fr. Antony Urulianickal | Christian Devotional Song](https://www.youtube.com/watch?v=bJvixtPMxr8)
 - [Kester Hits vol -2 Christian devotional songs  Music : Joy Cheruvathoor OWN MEDIA MUSIC COLLECTION](https://www.youtube.com/watch?v=EuEose06YeQ)
 - [Angopangam  | Devasuram | Mohanlal | Revathi | Nedumudi Venu | Innocent - Chithra Hits](https://www.youtube.com/watch?v=qE1Fpmww6Cc)
 - [Niraye - Lyrical Video | Philip's | Hesham Abdul Wahab | Mukesh Madhavan | Alfred Kurian](https://www.youtube.com/watch?v=esoHf4VEanI)
-- [ദൈവത്തിലാശ്രയിക്കുന്ന ദൈവമക്കൾ പതറാതെ ദൈവകൃപയിലാശ്രയിച്ച് ഉറച്ച് നിൽക്കണം | Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=Ox-9mvqrJGo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
