@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ulavacharu Biryani &lpar;2014&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 4.2GB](https://www.1tamilmv.im/index.php?/forums/topic/177005-ulavacharu-biryani-2014-telugu-dvd5-untouched-480p-dd51-448kbps-42gb/&do=findComment&comment=358457)
 - [65 Tamil Movies - SNXT / AMZN / SS / TK / AHA WEB DL - H264/H265 - DDP5.1/AAC2.0 - [2160p ,1080p &amp; 720p - 450GB] [GDRIVE]](https://www.1tamilmv.im/index.php?/forums/topic/110508-65-tamil-movies-snxt-amzn-ss-tk-aha-web-dl-h264h265-ddp51aac20-2160p-1080p-720p-450gb-gdrive/&do=findComment&comment=358456)
 - [Jurassic Park &lpar;1993&rpar; DD5.1 Hindi-AAC2.0 Org Jio Tamil-AAC2.0 Telugu-DD5.1 English 1080p DS4K BluRay10bit HEVC Esub 6GB [G-Drive]](https://www.1tamilmv.im/index.php?/forums/topic/177004-jurassic-park-1993-dd51-hindi-aac20-org-jio-tamil-aac20-telugu-dd51-english-1080p-ds4k-bluray10bit-hevc-esub-6gb-g-drive/&do=findComment&comment=358455)
 - [📌 &lpar;A&rpar; MANGALAVARAM &lpar;2023&rpar; &lpar;Tel + Tam + Mal + Kan&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - 1080P - DSHS - WEBDL - AVC - ATMOS 5.1 @ 768 Kbps - ESUBS - 650MB](https://www.1tamilmv.im/index.php?/forums/topic/177003-%F0%9F%93%8C-a-mangalavaram-2023-tel-tam-mal-kan-music-video-album-1080p-dshs-webdl-avc-atmos-51-768-kbps-esubs-650mb/&do=findComment&comment=358454)
 - [Get Lucky &lpar;2013&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 1.6GB &amp; 1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177000-get-lucky-2013-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-16gb-1gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=358453)
-- [Yevade Subramanyam &lpar;2015&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.7GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176839-yevade-subramanyam-2015-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-67gb-esub/&do=findComment&comment=358452)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
