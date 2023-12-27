@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Premamadhu Thedum Video Song | Snehithan | Kunchacko Boban | Preetha | KJ Yesudas | Mohan Sithara](https://www.youtube.com/watch?v=Tzu5r8hmcgA)
+- [പാടിയ പാട്ടുകൾ പിന്നീട് കേട്ടിട്ട് പാടേണ്ടിയിരുന്നില്ല എന്ന് തോന്നിയിട്ടുണ്ടോ | K S Chithra](https://www.youtube.com/watch?v=ECC_VdnxM6U)
+- [Pirannoree Mannum | Kabooliwala | Malaysia Vasudevan | SP Venkitesh | Bichu Thirumala](https://www.youtube.com/watch?v=FCev8yuaVKc)
+- [Peelithirumudiyunde Video Song | Achan Kombathu Amma Varampathu | Chithra | Malayalam Movie Song](https://www.youtube.com/watch?v=B43QnbHfLeE)
 - [വെള്ളക്കാരനെക്കൊണ്ട് പള്ളിത്തേരെടുപ്പിച്ച ഭള്ളുള്ളില്‍ നിറഞ്ഞമീന്‍ ഏതൊരു മീന്‍ #sjanaki #sheela](https://www.youtube.com/watch?v=TTBzhXR7q-w)
 - [Grampoo Manam Thookum | Kattaruvi (1983) | A.P.Gopalan | G.Devarajan | Malayalam Romantic Song](https://www.youtube.com/watch?v=te0QoSnm-sU)
-- [ഓർമ്മയിൽ എപ്പോഴും സൂക്ഷിക്കുന്ന കേൾക്കാൻ സുഖമുള്ള മലയാളസിനിമയിലെ മനോഹര ഗാനങ്ങൾ ! EVERGREEN SONGS](https://www.youtube.com/watch?v=ZfAoOv_JHKE)
-- [Poovaay Virinju | Adharvam | Ilayaraja | M G Sreekumar | O N V Kurup #SongOfTheDay](https://www.youtube.com/watch?v=RlcgjnmWNTc)
-- [Poovenam Pooppadavenam | Oru Minnaminunginte Nurunguvettom | Yesudas | Shortvideo | Youtubeshorts](https://www.youtube.com/watch?v=RvaRPO9e10U)
-- [Turning up the volume with the squad #Thanaro #Kasargold #shorts #ytshorts](https://www.youtube.com/watch?v=ggm_zvYF1no)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
