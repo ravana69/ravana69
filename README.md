@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Daivame Nin | Nithya Mammen #shorts #christiandevotionalsongs](https://www.youtube.com/watch?v=pHgI7jqMrjo)
-- [Daivame Nin | Nithya Mammen #shorts  #christiandevotionalsongs](https://www.youtube.com/watch?v=2W3skWIUPMU)
-- [Daivame Nin | Nithya Mammen #shorts #christiansongsmalayalam](https://www.youtube.com/watch?v=qH0i_P-nsrg)
-- [Super Hit Malayalam Film Songs | Audio Jukebox | Satyam Audios](https://www.youtube.com/watch?v=LGQf5d2YK_4)
-- [ഉർവശീ നീയൊരു | Urvashi nee oru | Agrajan Superhit Movie Song | KJ Yesudas | Manoj K Jayan](https://www.youtube.com/watch?v=ZIkz4wDvjDQ)
-- [മനസ്സിൽ മായാത്ത മുറിവുകളുടെ  ഓർമ്മകളുണർത്തുന്ന മലയാളസിനിമയിലെ നൊമ്പരഗാനങ്ങൾ ! SAD SONGS MALAYALAM](https://www.youtube.com/watch?v=X7KNRHnAaLg)
+- [Maname | Cicily Abraham #shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=kB9ukS-oqaY)
+- [Maname | Cicily Abraham #shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=xx9yIIDA_Do)
+- [Maname | Cicily Abraham #shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=aSoztOlcNfY)
+- [Maname | Cicily Abraham #shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=XesXoNFssdw)
+- [Vazhthunne En | Elizabeth Raju #ytshorts #malayalamchristiansongs](https://www.youtube.com/watch?v=Gm3yacbSv44)
+- [Vazhthunne En | Elizabeth Raju #ytshorts #malayalamchristiansongs](https://www.youtube.com/watch?v=sWfU5E44Usc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
