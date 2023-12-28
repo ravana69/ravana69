@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pokémon Concierge &lpar;2023&rpar; S01 EP &lpar;01-04&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 1.7GB - 650MB &amp; 200MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177018-pok%C3%A9mon-concierge-2023-s01-ep-01-04-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-eng-dd51-192kbps-17gb-650mb-200mb-esub/&do=findComment&comment=358529)
+- [NUVVE NUVVE &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 5.1GB - ESub - KAD DVD](https://www.1tamilmv.im/index.php?/forums/topic/177024-nuvve-nuvve-2002-telugu-dvd9-untouched-480p-dd51-448kbps-51gb-esub-kad-dvd/&do=findComment&comment=358528)
+- [Mersal &lpar;2017&rpar; Tamil - TRUE WEB-DL - 4K , 1080p &amp; 720p - HEVC / AVC - UNTOUCHED - DTS5.1&lpar;768kbps&rpar; - 9.4GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - ESub [GDrive]](https://www.1tamilmv.im/index.php?/forums/topic/177007-mersal-2017-tamil-true-web-dl-4k-1080p-720p-hevc-avc-untouched-dts51768kbps-94gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub-gdrive/&do=findComment&comment=358524)
 - [Get Lucky &lpar;2013&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 1.6GB &amp; 1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177000-get-lucky-2013-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-16gb-1gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=358523)
 - [NUVVE NUVVE &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 5.1GB - ESub - KAD DVD](https://www.1tamilmv.im/index.php?/forums/topic/177024-nuvve-nuvve-2002-telugu-dvd9-untouched-480p-dd51-448kbps-51gb-esub-kad-dvd/&do=findComment&comment=358522)
-- [NUVVE NUVVE &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 5.1GB - ESub - KAD DVD](https://www.1tamilmv.im/index.php?/forums/topic/177024-nuvve-nuvve-2002-telugu-dvd9-untouched-480p-dd51-448kbps-51gb-esub-kad-dvd/&do=findComment&comment=358521)
-- [Oopiri &lpar;2016&rpar; Telugu JC TRUE WEBDL - [1080p-8.5GB-4.5GB / 560p-2.7GB / 720p-2GB / 360p-750MB]- AVC - DD 5.1&lpar;192kbps&rpar; - [GDriveLinks]](https://www.1tamilmv.im/index.php?/forums/topic/165696-oopiri-2016-telugu-jc-true-webdl-1080p-85gb-45gb-560p-27gb-720p-2gb-360p-750mb-avc-dd-51192kbps-gdrivelinks/&do=findComment&comment=358520)
-- [NUVVE NUVVE &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 5.1GB - ESub - KAD DVD](https://www.1tamilmv.im/index.php?/forums/topic/177024-nuvve-nuvve-2002-telugu-dvd9-untouched-480p-dd51-448kbps-51gb-esub-kad-dvd/&do=findComment&comment=358516)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
