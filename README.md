@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Akhanda &lpar;2021&rpar; TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - &lpar;Tamil + Telugu&rpar; - 11.9GB - 3.2GB - 1.5GB] - ESub_TheSUNNY_.[🔰G-DRIVE LINKS🔰]](https://www.1tamilmv.im/index.php?/forums/topic/154906-akhanda-2021-true-web-dl-4k-1080p-720p-hevc-avc-tamil-telugu-119gb-32gb-15gb-esub_thesunny_%F0%9F%94%B0g-drive-links%F0%9F%94%B0/&do=findComment&comment=358512)
+- [80 Tamil Movies - AMZN/SUN NXT/SS/TK WEB DL - H264/H265 - DD5.1/AAC2.0 - ESub - [1080p &amp; 720p - 600GB] [GDRIVE]](https://www.1tamilmv.im/index.php?/forums/topic/140082-80-tamil-movies-amznsun-nxtsstk-web-dl-h264h265-dd51aac20-esub-1080p-720p-600gb-gdrive/&do=findComment&comment=358511)
+- [📌 &lpar;A&rpar; MANGALAVARAM &lpar;2023&rpar; &lpar;Tel + Tam + Mal + Kan&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - 1080P - DSHS - WEBDL - AVC - ATMOS 5.1 @ 768 Kbps - ESUBS - 650MB](https://www.1tamilmv.im/index.php?/forums/topic/177003-%F0%9F%93%8C-a-mangalavaram-2023-tel-tam-mal-kan-music-video-album-1080p-dshs-webdl-avc-atmos-51-768-kbps-esubs-650mb/&do=findComment&comment=358510)
 - [ROBO &lpar;2010&rpar; Telugu Blu-Ray - 1080p - AVC - [DTS-HDMA 5.1] ESub - 42GB](https://www.1tamilmv.im/index.php?/forums/topic/165145-robo-2010-telugu-blu-ray-1080p-avc-dts-hdma-51-esub-42gb/&do=findComment&comment=358509)
 - [ROBO &lpar;2010&rpar; Telugu Blu-Ray - 1080p - AVC - [DTS-HDMA 5.1] ESub - 42GB](https://www.1tamilmv.im/index.php?/forums/topic/165145-robo-2010-telugu-blu-ray-1080p-avc-dts-hdma-51-esub-42gb/&do=findComment&comment=358508)
-- [What If.? &lpar;2023&rpar; S01 EP&lpar;01-03&rpar; English TRUE WEB-DL - [1080p - 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 700MB &amp; 200MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176941-what-if-2023-s01-ep01-03-english-true-web-dl-1080p-720p-avc-dd51-192kbps-700mb-200mb-esub/&do=findComment&comment=358507)
-- [Chinna Gounder &lpar;1991&rpar; Tamil HDRip - [1080p &amp; 720p - x264 - &lpar;AAC 2.0&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.im/index.php?/forums/topic/176853-chinna-gounder-1991-tamil-hdrip-1080p-720p-x264-aac-20-26gb-14gb-x264-700mb-400mb/&do=findComment&comment=358506)
-- [Chinna Gounder &lpar;1991&rpar; Tamil HDRip - [1080p &amp; 720p - x264 - &lpar;AAC 2.0&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.im/index.php?/forums/topic/176853-chinna-gounder-1991-tamil-hdrip-1080p-720p-x264-aac-20-26gb-14gb-x264-700mb-400mb/&do=findComment&comment=358505)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
