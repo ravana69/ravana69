@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Songs of Worship | Evergreen Malayalam Christian Songs | Traditional Malayalam Christian Songs](https://www.youtube.com/watch?v=j6JVegSkVSo)
 - [28 December 2023](https://www.youtube.com/watch?v=y92_ocNWlh0)
 - [Makara Vilakke - Ayyappan Devotional Hits | Gangayaaru Pirakkunnu | Pambayarin | Makara Vilakke](https://www.youtube.com/watch?v=W1JkvtUzl-Q)
 - [എങ്ങും എവിടെയും മുഴങ്ങി കേൾക്കുന്ന ആരാധനാ ഗീതങ്ങൾ | Christian DEvotional Songs Malayalam](https://www.youtube.com/watch?v=tElXBy44njg)
 - [ഈ മരിയൻ പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kripasanam daily prayer Dec 28th 23](https://www.youtube.com/watch?v=XYgYN1RtDGo)
 - [Japamala 28th of December 23 # Mathavinte Japamala Prakashathinte Rahasyangal 28th of December 23](https://www.youtube.com/watch?v=50IGWnUikos)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=bkdRFx4g6TY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
