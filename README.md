@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [സ്വല്പം റൊമാന്സുമായ് നീ വാ.... | Adayaalam | SP Balasubrahmanyam  |#shorts](https://www.youtube.com/watch?v=u-YOQaIs-oQ)
-- [Paattum Paadi Video Song | Speed Track | Dileep | Arun Kumar | KJ Yesudas | Gireesh Puthenchery](https://www.youtube.com/watch?v=WIdkFwVN21U)
-- [Antha Vaanathai | Chinna Gounder | Ilaiyaraaja | Ilaiyaraaja | Hi-Res Audio](https://www.youtube.com/watch?v=_is9AAQmolY)
-- [കടല്‍ചാടിക്കടന്ന മാന്‍ ഹനുമാന്‍ പെരുമാളായിരുന്ന മാന്‍ ചേരമാന്‍ #sjanaki #sheela](https://www.youtube.com/watch?v=ASUyxGAU9n4)
-- [Maname | Cicily Abraham #shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=kB9ukS-oqaY)
-- [Maname | Cicily Abraham #shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=xx9yIIDA_Do)
+- [PS2 Malayalam  Songs  - Video Jukebox | @ARRahman  |Vikram, Aishwarya Rai |Karthi, Trisha|Jayam Ravi](https://www.youtube.com/watch?v=GLl9pCUGpko)
+- [Massum Mashum - Lyrical Video | Palayam PC | Kottayam Ramesh, Rahul Madhav, Jaffer Idukki | V.M Anil](https://www.youtube.com/watch?v=mT13U6okyH8)
+- [എന്റെ നീതിയുള്ള  വലംകൈകൊണ്ട്  ഞാൻ നിന്നെ താങ്ങും | Rev. Aneesh P Joseph #shorts](https://www.youtube.com/watch?v=BoXgkBIwWWQ)
+- [Melle melle mukhapadam | Oru Minnaaminunginte Nurungu Vettam | ONV Kurup | Johnson | KJ Yesudas](https://www.youtube.com/watch?v=Th9eRKmh4tU)
+- [Chakravarthikumaaraa Video Song | Anarkali (1996) |  LR Eeswari | MS Baburaj | Vayalar](https://www.youtube.com/watch?v=vdZ-_a6sP-o)
+- [She conquered the seas, now she is here to conquer your hearts.](https://www.youtube.com/watch?v=HnI21k1j-54)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
