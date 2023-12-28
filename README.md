@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [NUVVE NUVVE &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 5.1GB - ESub - KAD DVD](https://www.1tamilmv.im/index.php?/forums/topic/177024-nuvve-nuvve-2002-telugu-dvd9-untouched-480p-dd51-448kbps-51gb-esub-kad-dvd/&do=findComment&comment=358516)
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP89 DAY 88 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 845MB - 441MB &amp; 188MB | 28-12-2023]](https://www.1tamilmv.im/index.php?/forums/topic/177021-bigg-boss-tamil-s07-ep89-day-88-true-web-dl-1080p-720p-480p-avc-untouched-845mb-441mb-188mb-28-12-2023/&do=findComment&comment=358513)
 - [Akhanda &lpar;2021&rpar; TRUE WEB-DL - [4K, 1080p &amp; 720p - HEVC / AVC - &lpar;Tamil + Telugu&rpar; - 11.9GB - 3.2GB - 1.5GB] - ESub_TheSUNNY_.[🔰G-DRIVE LINKS🔰]](https://www.1tamilmv.im/index.php?/forums/topic/154906-akhanda-2021-true-web-dl-4k-1080p-720p-hevc-avc-tamil-telugu-119gb-32gb-15gb-esub_thesunny_%F0%9F%94%B0g-drive-links%F0%9F%94%B0/&do=findComment&comment=358512)
 - [80 Tamil Movies - AMZN/SUN NXT/SS/TK WEB DL - H264/H265 - DD5.1/AAC2.0 - ESub - [1080p &amp; 720p - 600GB] [GDRIVE]](https://www.1tamilmv.im/index.php?/forums/topic/140082-80-tamil-movies-amznsun-nxtsstk-web-dl-h264h265-dd51aac20-esub-1080p-720p-600gb-gdrive/&do=findComment&comment=358511)
 - [📌 &lpar;A&rpar; MANGALAVARAM &lpar;2023&rpar; &lpar;Tel + Tam + Mal + Kan&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - 1080P - DSHS - WEBDL - AVC - ATMOS 5.1 @ 768 Kbps - ESUBS - 650MB](https://www.1tamilmv.im/index.php?/forums/topic/177003-%F0%9F%93%8C-a-mangalavaram-2023-tel-tam-mal-kan-music-video-album-1080p-dshs-webdl-avc-atmos-51-768-kbps-esubs-650mb/&do=findComment&comment=358510)
-- [ROBO &lpar;2010&rpar; Telugu Blu-Ray - 1080p - AVC - [DTS-HDMA 5.1] ESub - 42GB](https://www.1tamilmv.im/index.php?/forums/topic/165145-robo-2010-telugu-blu-ray-1080p-avc-dts-hdma-51-esub-42gb/&do=findComment&comment=358509)
-- [ROBO &lpar;2010&rpar; Telugu Blu-Ray - 1080p - AVC - [DTS-HDMA 5.1] ESub - 42GB](https://www.1tamilmv.im/index.php?/forums/topic/165145-robo-2010-telugu-blu-ray-1080p-avc-dts-hdma-51-esub-42gb/&do=findComment&comment=358508)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
