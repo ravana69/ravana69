@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Antha Vaanathai | Chinna Gounder | Ilaiyaraaja | Ilaiyaraaja | Hi-Res Audio](https://www.youtube.com/watch?v=_is9AAQmolY)
+- [കടല്‍ചാടിക്കടന്ന മാന്‍ ഹനുമാന്‍ പെരുമാളായിരുന്ന മാന്‍ ചേരമാന്‍ #sjanaki #sheela](https://www.youtube.com/watch?v=ASUyxGAU9n4)
 - [Maname | Cicily Abraham #shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=kB9ukS-oqaY)
 - [Maname | Cicily Abraham #shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=xx9yIIDA_Do)
 - [Maname | Cicily Abraham #shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=aSoztOlcNfY)
 - [Maname | Cicily Abraham #shorts #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=XesXoNFssdw)
-- [Vazhthunne En | Elizabeth Raju #ytshorts #malayalamchristiansongs](https://www.youtube.com/watch?v=Gm3yacbSv44)
-- [Vazhthunne En | Elizabeth Raju #ytshorts #malayalamchristiansongs](https://www.youtube.com/watch?v=sWfU5E44Usc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
