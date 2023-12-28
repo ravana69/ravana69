@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Annarakanna Vaa |  Bhramaram #shortsfeed #shorts #mohanlal #mohansithara #lyricalvideo](https://www.youtube.com/watch?v=qQYFiWeYOJo)
 - [Kayapola | Myjohn Britto  #manoramamusic](https://www.youtube.com/watch?v=KOuPteYluGQ)
 - [M.G.Sreekumar Old Malayalam MovieSong Veyil Kaayum Kunnin|ChenapparambileAanakkariyam RemasteredSong](https://www.youtube.com/watch?v=SX2vQd3ah6E)
 - [Drowning in the rhythm of love #Chellakuruvikku #Antony #shorts #ytshorts](https://www.youtube.com/watch?v=29YiScJzzTU)
 - [Songs of Worship | Evergreen Malayalam Christian Songs | Traditional Malayalam Christian Songs](https://www.youtube.com/watch?v=j6JVegSkVSo)
 - [28 December 2023](https://www.youtube.com/watch?v=y92_ocNWlh0)
-- [Makara Vilakke - Ayyappan Devotional Hits | Gangayaaru Pirakkunnu | Pambayarin | Makara Vilakke](https://www.youtube.com/watch?v=W1JkvtUzl-Q)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
