@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ammoommakkili Vaayaadi  Chandralekha | Berny Ignatius, Chithra, Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=EmkRRUPHXC4)
 - [Sooryakireedam | Devasuram | Mohanlal | Revathi | Innocent | Nedumudi Venu - MG Radhakrishnan Hits](https://www.youtube.com/watch?v=k19nOxKAmoY)
 - [മലയാളിശ്രോതാക്കൾക്ക് ഒരിക്കലും മടുക്കാത്ത പ്രിയ വാനമ്പാടി കെ എസ് ചിത്ര ആലപിച്ച നിത്യയൗവന ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=d-YZKed0UoQ)
 - [Karpoora Chanthum - Kaattaruvi (1983) | KJ Yesudas | AP Gopalan | G Devarajan | Malayalam Old Songs](https://www.youtube.com/watch?v=G2rC42PM1DY)
 - [Vinnil Ninnoozhiyil Vannavane | Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=hMnZZ8eYAbo)
 - [Squad vibes on another level #Thanaro #Kasargold #shorts #ytshorts](https://www.youtube.com/watch?v=GuV5HprJsac)
-- [Ishal Thenkanam | Ghazal | Yesudas | Chithra | Ravi Bombay | Yosafali Kecheri | Sound of Arts](https://www.youtube.com/watch?v=QH_VT8dpG90)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
