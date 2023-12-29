@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Devil: The British Secret Agent &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.im/index.php?/forums/topic/177042-devil-the-british-secret-agent-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=358602)
+- [Saandrithazh &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 8.8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177063-saandrithazh-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-88gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358600)
 - [Parking &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Telugu + Hindi + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 4GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177062-parking-2023-true-web-dl-1080p-720p-avc-telugu-hindi-malayalam-kannada-dd51-192kbps-4gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358599)
 - [Chinnadana Nee Kosam &lpar;2014&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.2GB - ESub - Bhavani DVD](https://www.1tamilmv.im/index.php?/forums/topic/177060-chinnadana-nee-kosam-2014-telugu-dvd9-untouched-480p-dd51-448kbps-62gb-esub-bhavani-dvd/&do=findComment&comment=358598)
 - [Parking &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 12GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.im/index.php?/forums/topic/177061-parking-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-12gb-29gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=358597)
-- [Chinnadana Nee Kosam &lpar;2014&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.2GB - ESub - Bhavani DVD](https://www.1tamilmv.im/index.php?/forums/topic/177060-chinnadana-nee-kosam-2014-telugu-dvd9-untouched-480p-dd51-448kbps-62gb-esub-bhavani-dvd/&do=findComment&comment=358596)
-- [Chinnadana Nee Kosam &lpar;2014&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.2GB - ESub - Bhavani DVD](https://www.1tamilmv.im/index.php?/forums/topic/177060-chinnadana-nee-kosam-2014-telugu-dvd9-untouched-480p-dd51-448kbps-62gb-esub-bhavani-dvd/&do=findComment&comment=358595)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
