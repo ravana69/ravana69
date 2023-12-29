@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vinnil Ninnoozhiyil Vannavane | Kristheeya Bhakthigaanangal | Audio Jukebox](https://www.youtube.com/watch?v=hMnZZ8eYAbo)
+- [Squad vibes on another level #Thanaro #Kasargold #shorts #ytshorts](https://www.youtube.com/watch?v=GuV5HprJsac)
 - [Ishal Thenkanam | Ghazal | Yesudas | Chithra | Ravi Bombay | Yosafali Kecheri | Sound of Arts](https://www.youtube.com/watch?v=QH_VT8dpG90)
 - [Siddique Old Malayalam Movie Songs Unnippirannalunaraan | Ezhara Ponnana Movie Song, Remastered Song](https://www.youtube.com/watch?v=P_A95GKW1cs)
 - [Melleyen Kannile | Kusruthukuruppu | Jayaram | Meena | Yesudas | Johnson | Venugopan](https://www.youtube.com/watch?v=FBcxDSAsnOQ)
 - [Heartbeats sync up #Chellakuruvikku #Antony #shorts #ytshorts](https://www.youtube.com/watch?v=ToPILPy4AXg)
-- [Apathu Velakalil | Praise and Worship Songs | James | Christian Melody Songs Malayalam](https://www.youtube.com/watch?v=Mi0Uckir_QQ)
-- [TWINKLE STAR 2023 | RAJARAJANESHUNADHAN | #shorts | Fr. Shaji Thumpechirayil](https://www.youtube.com/watch?v=GTjVuooxBCs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
