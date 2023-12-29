@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം തുടങ്ങാം#mothermarysongs prayer for Dec30](https://www.youtube.com/watch?v=5OweoyUFAJA)
 - [രാവിലെ പ്രാര്‍ത്ഥന December 30 # Athiravile Prarthana 30th of December 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=FzkP_hBI4KU)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=3XVjOL5TAoU)
 - [ആരോമലേ നിൻ ആരാമമാകെ | ദാസേട്ടൻറെ ലളിതഗാനങ്ങൾ  | K J YesudasSelected Album songs](https://www.youtube.com/watch?v=pgtJKPs-a4Y)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 30th December 23](https://www.youtube.com/watch?v=Zfoj7neAjUA)
 - [29 December 2023](https://www.youtube.com/watch?v=0EPcOmGts-c)
-- [Kaliyaadi Thalir Choodum | Njan Salperu Ramankutty | Jayaram | Gayathri | Jagathy | Raveendran](https://www.youtube.com/watch?v=KRyztrnJBI4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
