@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kaliyaadi Thalir Choodum | Njan Salperu Ramankutty | Jayaram | Gayathri | Jagathy | Raveendran](https://www.youtube.com/watch?v=KRyztrnJBI4)
 - [Arikil Nee | Flash  #manoramamusic](https://www.youtube.com/watch?v=_M8ynSYbbyQ)
 - [വേൽമുരുകാ ഹരോ ഹര | Velmuruka haro hara | Sharan Appus | Harmonium instrumental song](https://www.youtube.com/watch?v=Xq4vyn5TkhE)
 - [Raakk - Lyrical | Malaikottai Vaaliban | Mohanlal | Lijo Jose Pellissery | Prashant Pillai](https://www.youtube.com/watch?v=0wP4kegeegE)
 - [നിങ്ങളുടെ രക്ഷകൻ വെള്ളത്തിനുമീതെ  നടക്കുന്നുവെന്ന് ഓർമിക്കുക| Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=DoIvgE83t5M)
 - [Kaanumbol Parayaamo | Ishtam | K J Yesudas | Mohan Sithara | Sachithanadan Puzhankara](https://www.youtube.com/watch?v=D9cGTASMx1E)
-- [Pottukuthi Pulariyitha Video Song | Oridathoru Postman | Afsal | Mohan Sithara | Innocent](https://www.youtube.com/watch?v=QUmTjv6IwF4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
