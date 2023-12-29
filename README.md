@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Swathi.Mutthina.Male.Haniye.2023.1080p., 720p AMZN.WEB-DL.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.im/index.php?/forums/topic/177035-swathimutthinamalehaniye20231080p-720p-amznweb-dlddp51-direct-download/&do=findComment&comment=358546)
+- [Marvel Cinematic Universe - BluRay / DSNP WEB DL - H264/H265 - DD5.1/DDP5.1 - ESub - [4K &amp; 1080p - 300GB] [GDRIVE]](https://www.1tamilmv.im/index.php?/forums/topic/140591-marvel-cinematic-universe-bluray-dsnp-web-dl-h264h265-dd51ddp51-esub-4k-1080p-300gb-gdrive/&do=findComment&comment=358545)
+- [Label S01E10 DSNP WEB-DL Multi DDP5.1 Esubs - 2160p | 1080p | 720p - 3.1 GB | 1 GB | 570 MB](https://www.1tamilmv.im/index.php?/forums/topic/177034-label-s01e10-dsnp-web-dl-multi-ddp51-esubs-2160p-1080p-720p-31-gb-1-gb-570-mb/&do=findComment&comment=358544)
 - [Pogaru &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177011-pogaru-2006-telugu-dvd9-untouched-480p-dd51-448kbps-71gb-esub/&do=findComment&comment=358543)
 - [A Ranjith Cinema &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177023-a-ranjith-cinema-2023-malayalam-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-4gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358542)
-- [NUVVE NUVVE &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 5.1GB - ESub - KAD DVD](https://www.1tamilmv.im/index.php?/forums/topic/177024-nuvve-nuvve-2002-telugu-dvd9-untouched-480p-dd51-448kbps-51gb-esub-kad-dvd/&do=findComment&comment=358541)
-- [12th Fail &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 4GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177022-12th-fail-2023-hindi-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-4gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358540)
-- [Safed &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 900MB &amp; 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177032-safed-2023-hindi-true-web-dl-1080p-720p-avc-dd51-384kbps-900mb-400mb-esub/&do=findComment&comment=358539)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
