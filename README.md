@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Chinnadana Nee Kosam &lpar;2014&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.2GB - ESub - Bhavani DVD](https://www.1tamilmv.im/index.php?/forums/topic/177060-chinnadana-nee-kosam-2014-telugu-dvd9-untouched-480p-dd51-448kbps-62gb-esub-bhavani-dvd/&do=findComment&comment=358596)
+- [Chinnadana Nee Kosam &lpar;2014&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.2GB - ESub - Bhavani DVD](https://www.1tamilmv.im/index.php?/forums/topic/177060-chinnadana-nee-kosam-2014-telugu-dvd9-untouched-480p-dd51-448kbps-62gb-esub-bhavani-dvd/&do=findComment&comment=358595)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP90 DAY 89 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 553MB &amp; 227MB | 29-12-2023]](https://www.1tamilmv.im/index.php?/forums/topic/177059-bigg-boss-tamil-s07-ep90-day-89-true-web-dl-1080p-720p-480p-avc-untouched-1gb-553mb-227mb-29-12-2023/&do=findComment&comment=358594)
 - [Kaatera &lpar;2023&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.im/index.php?/forums/topic/177041-kaatera-2023-kannada-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=358593)
 - [Asuran &lpar;2019&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 9.1GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - ESub [GDrive]](https://www.1tamilmv.im/index.php?/forums/topic/177057-asuran-2019-tamil-true-web-dl-1080p-720p-avc-hevc-untouched-dd51640kbps-91gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub-gdrive/&do=findComment&comment=358592)
-- [Kaatera &lpar;2023&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.im/index.php?/forums/topic/177041-kaatera-2023-kannada-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=358591)
-- [Lakshmi Raave Maa Intiki &lpar;2014&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.5GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177058-lakshmi-raave-maa-intiki-2014-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-65gb-esub/&do=findComment&comment=358590)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
