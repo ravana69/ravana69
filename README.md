@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [12th Fail &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 4GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177022-12th-fail-2023-hindi-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-4gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358540)
+- [Safed &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 900MB &amp; 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177032-safed-2023-hindi-true-web-dl-1080p-720p-avc-dd51-384kbps-900mb-400mb-esub/&do=findComment&comment=358539)
 - [Label &lpar;2023&rpar; S01 EP &lpar;01-10&rpar; TRUE WEB-DL - [4K ,1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.7GB - 1.4GB &amp; 500MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176182-label-2023-s01-ep-01-10-true-web-dl-4k-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-27gb-14gb-500mb-esub/&do=findComment&comment=358538)
 - [What If S02E07 DSNP WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10-DV] | 1080p | 720p - 3.0 GB | 1.4 GB | 810 MB](https://www.1tamilmv.im/index.php?/forums/topic/177019-what-if-s02e07-dsnp-web-dl-ddp51-atmos-esubs-2160p-hdr10-dv-1080p-720p-30-gb-14-gb-810-mb/&do=findComment&comment=358537)
 - [License &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.2GB - 2.2GB - 1.2GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177025-license-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-32gb-22gb-12gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358536)
-- [Annapoorani - The Goddess of Food &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.8GB - 2.5GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177028-annapoorani-the-goddess-of-food-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-58gb-25gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358535)
-- [Safed &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 900MB &amp; 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177032-safed-2023-hindi-true-web-dl-1080p-720p-avc-dd51-384kbps-900mb-400mb-esub/&do=findComment&comment=358533)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
