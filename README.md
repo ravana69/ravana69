@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [A Ranjith Cinema &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177023-a-ranjith-cinema-2023-malayalam-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-4gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358554)
 - [My Name Is Shruthi &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177031-my-name-is-shruthi-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=358553)
 - [License &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.2GB - 2.2GB - 1.2GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177025-license-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-32gb-22gb-12gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358552)
 - [Annapoorani - The Goddess of Food &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.8GB - 2.5GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177028-annapoorani-the-goddess-of-food-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-58gb-25gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358551)
 - [12th.Fail.2023.2160p., 1080p , 720p DSNP.WEB-DL.DD+5.1&lpar;Direct Download&rpar;](https://www.1tamilmv.im/index.php?/forums/topic/177038-12thfail20232160p-1080p-720p-dsnpweb-dldd51direct-download/&do=findComment&comment=358550)
-- [📌 &lpar;A&rpar; MANGALAVARAM &lpar;2023&rpar; &lpar;Tel + Tam + Mal + Kan&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - 1080P - DSNP - WEBDL - AVC - ATMOS 5.1 @ 768 Kbps - ESUBS - 650MB](https://www.1tamilmv.im/index.php?/forums/topic/177003-%F0%9F%93%8C-a-mangalavaram-2023-tel-tam-mal-kan-music-video-album-1080p-dsnp-webdl-avc-atmos-51-768-kbps-esubs-650mb/&do=findComment&comment=358549)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
