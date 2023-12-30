@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Parking &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 12GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177061-parking-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-12gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358621)
+- [Bhadra &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177069-bhadra-2005-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-71gb-esub/&do=findComment&comment=358620)
+- [Bhadra &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177069-bhadra-2005-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-71gb-esub/&do=findComment&comment=358619)
 - [Parking &lpar;2023&rpar; Tamil TRUE WEB-DL HQ - HEVC - AAC - [1080p - 1.2GB |720p - 600MB]](https://www.1tamilmv.im/index.php?/forums/topic/177068-parking-2023-tamil-true-web-dl-hq-hevc-aac-1080p-12gb-720p-600mb/&do=findComment&comment=358618)
 - [Saandrithazh &lpar;2023&rpar; Tamil HQ HDRip - 720p - HEVC - x265 - AAC - 700MB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177067-saandrithazh-2023-tamil-hq-hdrip-720p-hevc-x265-aac-700mb-esub/&do=findComment&comment=358617)
-- [Untold Dark Psychology Manipulation Techniques for New Year&#39;s Resolutions Success](https://www.1tamilmv.im/index.php?/forums/topic/150706-untold-dark-psychology-manipulation-techniques-for-new-years-resolutions-success/&do=findComment&comment=358616)
-- [Parking &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 12GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.im/index.php?/forums/topic/177061-parking-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-12gb-29gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=358615)
-- [Parking &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 12GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.im/index.php?/forums/topic/177061-parking-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-12gb-29gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=358614)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
