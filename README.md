@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കേൾക്കുന്ന മാത്രയിൽ തന്നെ അനുരാഗം തോന്നുന്ന മലയാളസിനിമയിലെ പ്രിയങ്കരമാം സിനിമാഗാനങ്ങൾ ! NISARI SONGS](https://www.youtube.com/watch?v=sJ54iFoZUro)
+- [പ്രണയിക്കുന്നവർക്കും  പ്രണയം മനസ്സിൽ കാത്തുസൂക്ഷിക്കുന്നവർക്കും ഏറെ ഇഷ്‌ടമുള്ള പ്രണയഗാനങ്ങൾ !](https://www.youtube.com/watch?v=FIGMmZ4R4Xw)
 - [Epic vibes only when the squad's around #Thanaro #Kasargold #shorts #ytshorts](https://www.youtube.com/watch?v=RhYp6alZGbQ)
 - [Oru Dalam Maathram | Jaalakam Malayalam Movie Song |  KJ Yesudas | ONV Kurup |  MG Radhakrishnan](https://www.youtube.com/watch?v=vixsdnbsIZg)
 - [Anaadhi Yugangallai | Lyrical Video | Lavender | Vijay Yesudas | Deepak Dev | Rafeeque Ahammed](https://www.youtube.com/watch?v=aAZHIau_oZY)
 - [TWINKLE STAR 2023 | ITHA SUTHAN GOSHALAYIL  #shorts | Fr Shaji Thumpechirayil](https://www.youtube.com/watch?v=_3B_fZowakM)
-- [Kolamayil Penkodi | Jayasurya | Yesudas | Sujatha | Ouseppachan | Thaha](https://www.youtube.com/watch?v=OCQICox-Vgc)
-- [Malayalam New Year Party Playlist - 2023 | Halaballoo | Rakka Rakka | Thanaro](https://www.youtube.com/watch?v=83_1UnB7wMU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
