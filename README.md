@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Bhadra &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177069-bhadra-2005-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-71gb-esub/&do=findComment&comment=358628)
 - [Dark Psychology in a Nutshell: 100 Manipulative Tactics Revealed in Bite-sized Insights](https://www.1tamilmv.im/index.php?/forums/topic/150705-dark-psychology-in-a-nutshell-100-manipulative-tactics-revealed-in-bite-sized-insights/&do=findComment&comment=358627)
 - [Mathimaran &lpar;2023&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.im/index.php?/forums/topic/177045-mathimaran-2023-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=358626)
 - [Annapoorani - The Goddess of Food &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.8GB - 2.5GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177028-annapoorani-the-goddess-of-food-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-58gb-25gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358625)
 - [Odavum Mudiyadhu Oliyavum Mudiyadhu &lpar;2023&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.im/index.php?/forums/topic/177044-odavum-mudiyadhu-oliyavum-mudiyadhu-2023-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=358624)
-- [Nandhi Varman &lpar;2023&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.im/index.php?/forums/topic/177046-nandhi-varman-2023-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=358623)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
