@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=D9RlpviwaLg)
 - [31 December 2023](https://www.youtube.com/watch?v=Yb7JCbap-ZM)
 - [രാവിലെ പ്രാര്‍ത്ഥന December 31 # Athiravile Prarthana 31st of December 2023 Morning Prayer & Songs](https://www.youtube.com/watch?v=X8KyvojvXI8)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=igIZ8VjQRJA)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 31st December 23](https://www.youtube.com/watch?v=XzW-SPmTzlg)
 - [നാടെങ്ങും തരംഗം സൃഷ്‌ടിച്ച അടിച്ചുപൊളി പാട്ടുകൾ ! ADIPOLI SONGS MALAYALAM | MOVIEWORLD MUSIC](https://www.youtube.com/watch?v=biPnH804HZg)
-- [Ninakkente | Gramophone | Vidyasagar | Yesudas, Sujatha Mohan | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=he5Vk0UDoSg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
