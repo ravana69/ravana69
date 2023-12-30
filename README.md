@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Makaranilavil Video Song | Snehithan | Kunchacko Boban |KJ Yesudas | Mohan Sithara |Yusufali Kecheri](https://www.youtube.com/watch?v=sxulL79ZgdY)
-- [താരാട്ടിന്‍ കനിവും....| Aadyathe Kanmani  | KS Chithra | #shorts](https://www.youtube.com/watch?v=BdbP-EvtmqA)
-- [കേൾക്കുന്ന മാത്രയിൽ തന്നെ അനുരാഗം തോന്നുന്ന മലയാളസിനിമയിലെ പ്രിയങ്കരമാം സിനിമാഗാനങ്ങൾ ! NISARI SONGS](https://www.youtube.com/watch?v=sJ54iFoZUro)
-- [പ്രണയിക്കുന്നവർക്കും  പ്രണയം മനസ്സിൽ കാത്തുസൂക്ഷിക്കുന്നവർക്കും ഏറെ ഇഷ്‌ടമുള്ള പ്രണയഗാനങ്ങൾ !](https://www.youtube.com/watch?v=FIGMmZ4R4Xw)
-- [Epic vibes only when the squad's around #Thanaro #Kasargold #shorts #ytshorts](https://www.youtube.com/watch?v=RhYp6alZGbQ)
-- [Oru Dalam Maathram | Jaalakam Malayalam Movie Song |  KJ Yesudas | ONV Kurup |  MG Radhakrishnan](https://www.youtube.com/watch?v=vixsdnbsIZg)
+- [പ്രാർത്ഥന ആത്മാവിന്റെ നെടുവീർപ്പുകളാണ്. | Rev. Aneesh P Joseph #shorts #motivation #motivation](https://www.youtube.com/watch?v=QCMtuZHmOoY)
+- [Iniyum Paribhavamaruthe | Kaikudunna Nilavu | KS Chithra | Kaithapram | Gireesh Puthanchery](https://www.youtube.com/watch?v=VvoY1eFUnto)
+- [Shishiraraathri Uruvidunnu Video Song | P Madhuri | Ishtamaanu Pakshe | G Devarajan](https://www.youtube.com/watch?v=WcSxRE75rQw)
+- [Sweet Dreams | Super Hit Malayalam Movie Song | Kalachakram | Ashwathy | Neelam - MG Sreekumar Hits](https://www.youtube.com/watch?v=hRc1I_wY39E)
+- [ULLINNULLIL LILLYPPOOVIN | #shorts |Fr. SHAJI THUMPECHIRAYIL|MARTIN JOMON](https://www.youtube.com/watch?v=NL2frlqIQyc)
+- [Christian Melody Songs | Kester | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=zKmbijXuZMo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
