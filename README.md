@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [എന്റെ വേദനയിൽ ആശ്രയിക്കുവാൻ  ഒരിടം.| Rev. Aneesh P Joseph #shorts #motivation #motivation](https://www.youtube.com/watch?v=jjU7DL46A8g)
+- [Ilamaankidavupol Video Song | Kalari | KJ Yesudas | KS Chithra | Kaithapram](https://www.youtube.com/watch?v=tP0RiryXtCA)
+- [Oh Divyakarunyame | Christian Video Song | Smitha Joshy | Holy Communion Video Song | Christian Song](https://www.youtube.com/watch?v=UumyPlYJS2U)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 31st of December 2023](https://www.youtube.com/watch?v=lZFKZr6b044)
+- [HAPPY NEWYEAR | ULLINNULLIL LILLYPPOOVIN | #shorts |Fr. SHAJI THUMPECHIRAYIL|MARTIN JOMON](https://www.youtube.com/watch?v=Mq28DQ4FsQg)
 - [Thathithom Video Song | Azhagan Movie | Mammootty | Bhanupriya | K Balachander | Maragathamani](https://www.youtube.com/watch?v=n2UeNyi3FGs)
-- [ADHYAMAY ENIKKU THANNA SNEHAME | JOSE SEBASTIAN| SYRIAC KATTAPPURAM |LATEST CHRISTIAN MALAYALAM 2024](https://www.youtube.com/watch?v=s4_LFY220rU)
-- [Pathonpatham Noottandu - Audio Jukebox | Siju Wilson, Deepti Sati, Kayadu Lohar | M. Jayachandran](https://www.youtube.com/watch?v=i9teEV43rlo)
-- [Kurisile Sneham|കുരിശിലെ സ്നേഹം|ROY PUTHUR|MALAYALAM CHRISTIAN DEVOTIONAL #christiandevotionalsongs](https://www.youtube.com/watch?v=jQKL1AbXFjA)
-- [സ്നേഹത്തിൻ മുന്തിരി നീരും ദേഹത്തിൻ ചൂടും നൽകും #evergreenhits #movieworldmusic #chippyrenjith](https://www.youtube.com/watch?v=xzfh126FQfo)
-- [Dhooram Ethra Dhooram | Kattaruvi | G Devarajan | AP Gopalan | Sukumaran  | KJ Yesudas](https://www.youtube.com/watch?v=Tx75tA6l80M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
