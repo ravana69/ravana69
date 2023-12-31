@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Nawab &lpar;2018&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - 3.7GB - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177077-nawab-2018-telugu-true-web-dl-1080p-720p-avc-37gb-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=358658)
-- [INDRA &lpar;2002&rpar; Telugu HDTV-DL - 1080p - AVC - UNTOUCHED - AAC - 2.6GB](https://www.1tamilmv.im/index.php?/forums/topic/177079-indra-2002-telugu-hdtv-dl-1080p-avc-untouched-aac-26gb/&do=findComment&comment=358657)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [31-12-2023]](https://www.1tamilmv.im/index.php?/forums/topic/177078-movies-collection-all-languages-4k-1080p-720p-576p-480p-31-12-2023/&do=findComment&comment=358656)
-- [Bhadra &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177069-bhadra-2005-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-71gb-esub/&do=findComment&comment=358655)
-- [Nawab &lpar;2018&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - 3.7GB - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177077-nawab-2018-telugu-true-web-dl-1080p-720p-avc-37gb-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=358654)
+- [12th Fail &lpar;2023&rpar; HD - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu&rpar; - 2.6GB &amp; 1.4GB| x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.im/index.php?/forums/topic/176059-12th-fail-2023-hd-1080p-720p-x264-tamil-telugu-26gb-14gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=358664)
+- [📌 |4K-DoVi| LEO &lpar;2023&rpar; &lpar;Tam + Tel + Mal + Kan + Hin&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - HQ 2160p &amp; 1080P - NF - WEBDL - DDP ATMOS 5.1 @ 768 Kbps - MSubs - 3.8GB](https://www.1tamilmv.im/index.php?/forums/topic/177083-%F0%9F%93%8C-4k-dovi-leo-2023-tam-tel-mal-kan-hin-music-video-album-hq-2160p-1080p-nf-webdl-ddp-atmos-51-768-kbps-msubs-38gb/&do=findComment&comment=358663)
+- [📌 |4K-DoVi| LEO &lpar;2023&rpar; &lpar;Tam + Tel + Mal + Kan + Hin&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - HQ 2160p &amp; 1080P - NF - WEBDL - DDP ATMOS 5.1 @ 768 Kbps - MSubs - 3.8GB](https://www.1tamilmv.im/index.php?/forums/topic/177083-%F0%9F%93%8C-4k-dovi-leo-2023-tam-tel-mal-kan-hin-music-video-album-hq-2160p-1080p-nf-webdl-ddp-atmos-51-768-kbps-msubs-38gb/&do=findComment&comment=358662)
+- [Thalapathy 68 First Look | Actor Vijay | Venkat Prabhu | Yuvan Shankar Raja|AGS Entertainment](https://www.1tamilmv.im/index.php?/forums/topic/177082-thalapathy-68-first-look-actor-vijay-venkat-prabhu-yuvan-shankar-rajaags-entertainment/&do=findComment&comment=358661)
+- [Independence Day &lpar;1996&rpar; EXTENDED AAC2.0 Tamil-AC-3 2.0 Hindi-DD5.1 English 1080p Blu-Ray x264 ESub 6.4GB [G-Drive]](https://www.1tamilmv.im/index.php?/forums/topic/177081-independence-day-1996-extended-aac20-tamil-ac-3-20-hindi-dd51-english-1080p-blu-ray-x264-esub-64gb-g-drive/&do=findComment&comment=358660)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
