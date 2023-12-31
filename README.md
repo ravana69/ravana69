@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Nene Ambani &lpar;2010&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 4.1GB - ESub - SVV DVD](https://www.1tamilmv.im/index.php?/forums/topic/177072-nene-ambani-2010-telugu-dvd5-untouched-480p-dd51-448kbps-41gb-esub-svv-dvd/&do=findComment&comment=358648)
+- [Nawab &lpar;2018&rpar; Telugu TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - AAC - 1.7GB - 763MB &amp; 486MB]](https://www.1tamilmv.im/index.php?/forums/topic/177075-nawab-2018-telugu-true-web-dl-1080p-720p-480p-avc-untouched-aac-17gb-763mb-486mb/&do=findComment&comment=358647)
+- [Nawab &lpar;2018&rpar; Telugu TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - AAC - 1.7GB - 763MB &amp; 486MB]](https://www.1tamilmv.im/index.php?/forums/topic/177075-nawab-2018-telugu-true-web-dl-1080p-720p-480p-avc-untouched-aac-17gb-763mb-486mb/&do=findComment&comment=358646)
+- [Berlin &lpar;2023&rpar; Complete S01 EP &lpar;01-08&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 6.9GB - 2.3GB &amp; 900MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177074-berlin-2023-complete-s01-ep-01-08-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-69gb-23gb-900mb-esub/&do=findComment&comment=358645)
 - [Ambasamudram Ambani &lpar;2010&rpar; Tamil SUN NXT WEB-DL 1080p H264 DDP5.1 - 5.1GB [GDrive]](https://www.1tamilmv.im/index.php?/forums/topic/168740-ambasamudram-ambani-2010-tamil-sun-nxt-web-dl-1080p-h264-ddp51-51gb-gdrive/&do=findComment&comment=358644)
-- [Ambasamudram Ambani &lpar;2010&rpar; Tamil JC WEB-DL - [1080p-4GB / 720p-1.3GB / 480p-900MB] - AVC - AAC - [GDrive]](https://www.1tamilmv.im/index.php?/forums/topic/164482-ambasamudram-ambani-2010-tamil-jc-web-dl-1080p-4gb-720p-13gb-480p-900mb-avc-aac-gdrive/&do=findComment&comment=358643)
-- [Bhadra &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177069-bhadra-2005-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-71gb-esub/&do=findComment&comment=358642)
-- [Annapoorani - The Goddess of Food &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177071-annapoorani-the-goddess-of-food-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=358641)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP91 DAY 90 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.5GB - 770MB &amp; 336MB | 30-12-2023]](https://www.1tamilmv.im/index.php?/forums/topic/177073-bigg-boss-tamil-s07-ep91-day-90-true-web-dl-1080p-720p-480p-avc-untouched-15gb-770mb-336mb-30-12-2023/&do=findComment&comment=358640)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
