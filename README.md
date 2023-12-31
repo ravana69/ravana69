@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ambasamudram Ambani &lpar;2010&rpar; Tamil SUN NXT WEB-DL 1080p H264 DDP5.1 - 5.1GB [GDrive]](https://www.1tamilmv.im/index.php?/forums/topic/168740-ambasamudram-ambani-2010-tamil-sun-nxt-web-dl-1080p-h264-ddp51-51gb-gdrive/&do=findComment&comment=358644)
+- [Ambasamudram Ambani &lpar;2010&rpar; Tamil JC WEB-DL - [1080p-4GB / 720p-1.3GB / 480p-900MB] - AVC - AAC - [GDrive]](https://www.1tamilmv.im/index.php?/forums/topic/164482-ambasamudram-ambani-2010-tamil-jc-web-dl-1080p-4gb-720p-13gb-480p-900mb-avc-aac-gdrive/&do=findComment&comment=358643)
+- [Bhadra &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177069-bhadra-2005-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-71gb-esub/&do=findComment&comment=358642)
 - [Annapoorani - The Goddess of Food &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177071-annapoorani-the-goddess-of-food-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=358641)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP91 DAY 90 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.5GB - 770MB &amp; 336MB | 30-12-2023]](https://www.1tamilmv.im/index.php?/forums/topic/177073-bigg-boss-tamil-s07-ep91-day-90-true-web-dl-1080p-720p-480p-avc-untouched-15gb-770mb-336mb-30-12-2023/&do=findComment&comment=358640)
-- [Nene Ambani &lpar;2010&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 4.1GB - ESub - SVV DVD](https://www.1tamilmv.im/index.php?/forums/topic/177072-nene-ambani-2010-telugu-dvd5-untouched-480p-dd51-448kbps-41gb-esub-svv-dvd/&do=findComment&comment=358639)
-- [Nene Ambani &lpar;2010&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 4.1GB - ESub - SVV DVD](https://www.1tamilmv.im/index.php?/forums/topic/177072-nene-ambani-2010-telugu-dvd5-untouched-480p-dd51-448kbps-41gb-esub-svv-dvd/&do=findComment&comment=358638)
-- [Annapoorani - The Goddess of Food &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.8GB - 2.5GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177028-annapoorani-the-goddess-of-food-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-58gb-25gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358637)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
