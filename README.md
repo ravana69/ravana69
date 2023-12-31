@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [P2.2007 VCD 2.0 Tamil-Telugu-Hindi-DTS 5.1 English 1080p.BluRay.Remux.VC-1.DTS-HD.MA.5.1 Msub 19GB [G-Drive]](https://www.1tamilmv.im/index.php?/forums/topic/177085-p22007-vcd-20-tamil-telugu-hindi-dts-51-english-1080pblurayremuxvc-1dts-hdma51-msub-19gb-g-drive/&do=findComment&comment=358674)
 - [Berlin &lpar;2023&rpar; Complete S01 EP &lpar;01-08&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 6.9GB - 2.3GB &amp; 900MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177074-berlin-2023-complete-s01-ep-01-08-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-69gb-23gb-900mb-esub/&do=findComment&comment=358673)
 - [📌 |4K-DoVi| LEO &lpar;2023&rpar; &lpar;Tam + Tel + Mal + Kan + Hin&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - HQ 2160p &amp; 1080P - NF - WEBDL - DDP ATMOS 5.1 @ 768 Kbps - MSubs - 3.8GB](https://www.1tamilmv.im/index.php?/forums/topic/177083-%F0%9F%93%8C-4k-dovi-leo-2023-tam-tel-mal-kan-hin-music-video-album-hq-2160p-1080p-nf-webdl-ddp-atmos-51-768-kbps-msubs-38gb/&do=findComment&comment=358672)
 - [Kaadhal Kondein &lpar;2003&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - AAC - 5.1GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB [GDrive]](https://www.1tamilmv.im/index.php?/forums/topic/177084-kaadhal-kondein-2003-tamil-true-web-dl-1080p-720p-avc-hevc-untouched-aac-51gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-gdrive/&do=findComment&comment=358671)
 - [Kaadhal Kondein &lpar;2003&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - AAC - 5.1GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB [GDrive]](https://www.1tamilmv.im/index.php?/forums/topic/177084-kaadhal-kondein-2003-tamil-true-web-dl-1080p-720p-avc-hevc-untouched-aac-51gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-gdrive/&do=findComment&comment=358670)
-- [Dark Psychology in a Nutshell: 100 Manipulative Tactics Revealed in Bite-sized Insights](https://www.1tamilmv.im/index.php?/forums/topic/150705-dark-psychology-in-a-nutshell-100-manipulative-tactics-revealed-in-bite-sized-insights/&do=findComment&comment=358669)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
