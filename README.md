@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [12th Fail &lpar;2023&rpar; HD - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu&rpar; - 2.6GB &amp; 1.4GB| x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.im/index.php?/forums/topic/176059-12th-fail-2023-hd-1080p-720p-x264-tamil-telugu-26gb-14gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=358664)
-- [📌 |4K-DoVi| LEO &lpar;2023&rpar; &lpar;Tam + Tel + Mal + Kan + Hin&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - HQ 2160p &amp; 1080P - NF - WEBDL - DDP ATMOS 5.1 @ 768 Kbps - MSubs - 3.8GB](https://www.1tamilmv.im/index.php?/forums/topic/177083-%F0%9F%93%8C-4k-dovi-leo-2023-tam-tel-mal-kan-hin-music-video-album-hq-2160p-1080p-nf-webdl-ddp-atmos-51-768-kbps-msubs-38gb/&do=findComment&comment=358663)
-- [📌 |4K-DoVi| LEO &lpar;2023&rpar; &lpar;Tam + Tel + Mal + Kan + Hin&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - HQ 2160p &amp; 1080P - NF - WEBDL - DDP ATMOS 5.1 @ 768 Kbps - MSubs - 3.8GB](https://www.1tamilmv.im/index.php?/forums/topic/177083-%F0%9F%93%8C-4k-dovi-leo-2023-tam-tel-mal-kan-hin-music-video-album-hq-2160p-1080p-nf-webdl-ddp-atmos-51-768-kbps-msubs-38gb/&do=findComment&comment=358662)
-- [Thalapathy 68 First Look | Actor Vijay | Venkat Prabhu | Yuvan Shankar Raja|AGS Entertainment](https://www.1tamilmv.im/index.php?/forums/topic/177082-thalapathy-68-first-look-actor-vijay-venkat-prabhu-yuvan-shankar-rajaags-entertainment/&do=findComment&comment=358661)
-- [Independence Day &lpar;1996&rpar; EXTENDED AAC2.0 Tamil-AC-3 2.0 Hindi-DD5.1 English 1080p Blu-Ray x264 ESub 6.4GB [G-Drive]](https://www.1tamilmv.im/index.php?/forums/topic/177081-independence-day-1996-extended-aac20-tamil-ac-3-20-hindi-dd51-english-1080p-blu-ray-x264-esub-64gb-g-drive/&do=findComment&comment=358660)
+- [Dark Psychology in a Nutshell: 100 Manipulative Tactics Revealed in Bite-sized Insights](https://www.1tamilmv.im/index.php?/forums/topic/150705-dark-psychology-in-a-nutshell-100-manipulative-tactics-revealed-in-bite-sized-insights/&do=findComment&comment=358669)
+- [Untold Dark Psychology Manipulation Techniques for New Year&#39;s Resolutions Success](https://www.1tamilmv.im/index.php?/forums/topic/150706-untold-dark-psychology-manipulation-techniques-for-new-years-resolutions-success/&do=findComment&comment=358668)
+- [2024 Unleashed 100 Positive New Year Wishes &amp; Inspirational Quotes to Spark Your Best Year Yet!](https://www.1tamilmv.im/index.php?/forums/topic/150707-2024-unleashed-100-positive-new-year-wishes-inspirational-quotes-to-spark-your-best-year-yet/&do=findComment&comment=358667)
+- [Troy &lpar;2004&rpar; 1080p BluRay Dual Audio [AAC 2.0 Tamil-Hindi DD7.1-English DD5.1] x264 ESubs [Drive]](https://www.1tamilmv.im/index.php?/forums/topic/159998-troy-2004-1080p-bluray-dual-audio-aac-20-tamil-hindi-dd71-english-dd51-x264-esubs-drive/&do=findComment&comment=358666)
+- [Devil: The British Secret Agent &lpar;2023&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.im/index.php?/forums/topic/177042-devil-the-british-secret-agent-2023-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=358665)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
