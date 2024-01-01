@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന January 2 # Athiravile Prarthana 2nd January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=A6uUhMBdkR4)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=-h1jC9ZbLcM)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 2nd January 2024](https://www.youtube.com/watch?v=YIUhtF79DsU)
 - [1 January 2024](https://www.youtube.com/watch?v=54WApXt_iGY)
 - [2024 ൽ ഞാൻ ആദ്യം കേട്ട ഗാനങ്ങൾ #2024  morning Christian devotional songs Malayalam for January 2nd](https://www.youtube.com/watch?v=oHYHEJ9q0I4)
 - [Iru Meyyum Oru Manassum | Njangal Santhushtaraanu | Jayaram | Abhirami | Yesudas | Ouseppachan](https://www.youtube.com/watch?v=dVhQnT0X9EY)
-- [Moham Manassilittu | Arjunan Pillayum Anchu Makkalum | Pradeep Somasundaram | Mohan Sithara](https://www.youtube.com/watch?v=nSsO4vR42lA)
-- [ഇന്ന് ജനുവരി 1  ജപമാല കേട്ട് ഈ വർഷം  ആരംഭിക്കാം #2024  ജപമാല #സന്തോഷത്തിൻറെ  രഹസ്യങ്ങൾ #japamala](https://www.youtube.com/watch?v=tLfB34KPgtU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
