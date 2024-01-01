@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Poovu Chodichu | Mokksha Singing | Chithini Movie |  Mokksha | East Coast Vijayan | Vijay Karun](https://www.youtube.com/watch?v=5AfRhKAzdmg)
 - [2024 ൽ ഞാൻ ആദ്യം കേട്ട മരിയൻ ഗാനങ്ങൾ #mothermarysongs  #2024  best mother mary hits](https://www.youtube.com/watch?v=m66PoP7rACI)
 - [Shyaamameghame Nee | Adhipan | Shyam | K S Chithra | Chunakkara Ramankutty #SongOfTheDay](https://www.youtube.com/watch?v=_dWFz7XU8s4)
 - [Chillattam Parakkume - Nizhalaattam(1970) | P Madhuri | Vayalar Ramavarma | G Devarajan | Film Songs](https://www.youtube.com/watch?v=pxdGYJh8BYs)
 - [You're the drop that makes my heart race #Chellakuruvikku #Antony #shorts #ytshorts](https://www.youtube.com/watch?v=zTzD9BmwqLk)
 - [അനുരാഗദൂതുമായി കാതുകളിൽ നിന്ന് കാതുകളിലേക്ക് പറന്നെത്തിയ ഹംസഗീതങ്ങൾ | EVERGREEN SONGS](https://www.youtube.com/watch?v=mMWoELR56zw)
-- [Manjaninja Mamalakal | Kottayam Kunjachan | Chunakkara Ramankutty | Shyam | Yesudas | Mammootty](https://www.youtube.com/watch?v=0tZiVowFxyc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
