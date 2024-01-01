@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Peelithirumudiyunde| Achan Kombathu Amma Varampathu | Chithra | #shorts](https://www.youtube.com/watch?v=s3lVJ_ZJeT4)
-- [ദാസേട്ടനോടൊപ്പമുള്ള റെക്കോർഡിങ് അനുഭവങ്ങൾ | K S Chithra | Paadiyum Paranjum](https://www.youtube.com/watch?v=KWdFriy3d8E)
-- [Poovu Chodichu | Mokksha Singing | Chithini Movie |  Mokksha | East Coast Vijayan | Vijay Karun](https://www.youtube.com/watch?v=5AfRhKAzdmg)
-- [2024 ൽ ഞാൻ ആദ്യം കേട്ട മരിയൻ ഗാനങ്ങൾ #mothermarysongs  #2024  best mother mary hits](https://www.youtube.com/watch?v=m66PoP7rACI)
-- [Shyaamameghame Nee | Adhipan | Shyam | K S Chithra | Chunakkara Ramankutty #SongOfTheDay](https://www.youtube.com/watch?v=_dWFz7XU8s4)
-- [Chillattam Parakkume - Nizhalaattam(1970) | P Madhuri | Vayalar Ramavarma | G Devarajan | Film Songs](https://www.youtube.com/watch?v=pxdGYJh8BYs)
+- [ദൈവം സംവത്സരത്തെ  തന്റെ നന്മ കൊണ്ട്‌ അലങ്കരിയ്ക്കുന്നു | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=kiUlVIzi6-I)
+- [Ninmizhiyithalo | Najeem Arshad | Anamika | Nigoodam | Ronnie Raphael | Krishnachandran CK](https://www.youtube.com/watch?v=ia6dNWHThpM)
+- [Baashpakudeerame Video Song | Anarkali (1966) | P Susheela | MS Baburaj | Vayalar](https://www.youtube.com/watch?v=2xZUx7Fuq4w)
+- [Puthuvasanthathin | Rashtram | Vineeth Sreenivasan | Deepak Dev | Kaithapram](https://www.youtube.com/watch?v=s0XXU69HfVw)
+- [Mohikkum Neermizhiyode Video Song | Maanthrikam | Mohanlal | KJ Yesudas | KS Chithra | SP Venkitesh](https://www.youtube.com/watch?v=vN_v-h8GpyM)
+- [Christian Melody Songs | Wilson Piravom | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=GhHjwzMbsl0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
