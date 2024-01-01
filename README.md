@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [WELCOME 2024 ✨🌈 | #shorts  #2024 #happynewyear #zionclassics #jinokunnumpurath](https://www.youtube.com/watch?v=jzIRps8FZoE)
-- [Happy & Blessed New Year 2024 wishes to All Subscribers](https://www.youtube.com/watch?v=Z-eVqLuJC5k)
-- [Makaranilavil Madhuram | Snehithan | Kunchacko Boban | Nandhana | Yesudas | Mohan Sithara](https://www.youtube.com/watch?v=_yLvZbopHw0)
-- [Jayaram  Old Malayalam Movie Songs Thakkida Tharikida| Malayali Mamanu Vanakkam Movie Song](https://www.youtube.com/watch?v=ca1IBZ7utks)
-- [Synced hearts, creating the ultimate love playlist 🎧💑#Chellakuruvikku #Antony #shorts #ytshorts](https://www.youtube.com/watch?v=B6ZqXVpy8rs)
-- [Kannil Ninnum Marayalle | Nithya Mammen | Rev. Dr. Vincent Variath | Christian Songs Malayalam](https://www.youtube.com/watch?v=n3DeMVg-Y8s)
+- [2024 ൽ ഞാൻ ആദ്യം കേട്ട മരിയൻ ഗാനങ്ങൾ #mothermarysongs  #2024  best mother mary hits](https://www.youtube.com/watch?v=m66PoP7rACI)
+- [Shyaamameghame Nee | Adhipan | Shyam | K S Chithra | Chunakkara Ramankutty #SongOfTheDay](https://www.youtube.com/watch?v=_dWFz7XU8s4)
+- [Chillattam Parakkume - Nizhalaattam(1970) | P Madhuri | Vayalar Ramavarma | G Devarajan | Film Songs](https://www.youtube.com/watch?v=pxdGYJh8BYs)
+- [You're the drop that makes my heart race #Chellakuruvikku #Antony #shorts #ytshorts](https://www.youtube.com/watch?v=zTzD9BmwqLk)
+- [അനുരാഗദൂതുമായി കാതുകളിൽ നിന്ന് കാതുകളിലേക്ക് പറന്നെത്തിയ ഹംസഗീതങ്ങൾ | EVERGREEN SONGS](https://www.youtube.com/watch?v=mMWoELR56zw)
+- [Manjaninja Mamalakal | Kottayam Kunjachan | Chunakkara Ramankutty | Shyam | Yesudas | Mammootty](https://www.youtube.com/watch?v=0tZiVowFxyc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
