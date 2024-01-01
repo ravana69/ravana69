@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Jayaram  Old Malayalam Movie Songs Thakkida Tharikida| Malayali Mamanu Vanakkam Movie Song](https://www.youtube.com/watch?v=ca1IBZ7utks)
+- [Synced hearts, creating the ultimate love playlist 🎧💑#Chellakuruvikku #Antony #shorts #ytshorts](https://www.youtube.com/watch?v=B6ZqXVpy8rs)
 - [Kannil Ninnum Marayalle | Nithya Mammen | Rev. Dr. Vincent Variath | Christian Songs Malayalam](https://www.youtube.com/watch?v=n3DeMVg-Y8s)
 - [കൃപാസന മാതാവിന്റെ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kripasanam  mother Mary sons Malayalam](https://www.youtube.com/watch?v=kTiNu7PH69c)
 - [Japamala 1st of January 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 1st of January 24](https://www.youtube.com/watch?v=tCPmkC3jPto)
 - [2024 ൽ ഞാൻ ആദ്യം കേട്ട മരിയൻ ഗാനങ്ങൾ #mariyan  christian songs malayalam #2024  MOTHER MARY HITS](https://www.youtube.com/watch?v=zvM8av4FcPU)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=rIjrbJetPWQ)
-- [2024 ൽ ഞാൻ ആദ്യം കേട്ട ഗാനങ്ങൾ #2024  morning christian devotional songs malayalam #best  songs](https://www.youtube.com/watch?v=fm113G3kkoU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
