@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Moham Manassilittu | Arjunan Pillayum Anchu Makkalum | Pradeep Somasundaram | Mohan Sithara](https://www.youtube.com/watch?v=nSsO4vR42lA)
+- [ഇന്ന് ജനുവരി 1  ജപമാല കേട്ട് ഈ വർഷം  ആരംഭിക്കാം #2024  ജപമാല #സന്തോഷത്തിൻറെ  രഹസ്യങ്ങൾ #japamala](https://www.youtube.com/watch?v=tLfB34KPgtU)
 - [ദൈവം സംവത്സരത്തെ  തന്റെ നന്മ കൊണ്ട്‌ അലങ്കരിയ്ക്കുന്നു | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=kiUlVIzi6-I)
 - [Ninmizhiyithalo | Najeem Arshad | Anamika | Nigoodam | Ronnie Raphael | Krishnachandran CK](https://www.youtube.com/watch?v=ia6dNWHThpM)
 - [Baashpakudeerame Video Song | Anarkali (1966) | P Susheela | MS Baburaj | Vayalar](https://www.youtube.com/watch?v=2xZUx7Fuq4w)
 - [Puthuvasanthathin | Rashtram | Vineeth Sreenivasan | Deepak Dev | Kaithapram](https://www.youtube.com/watch?v=s0XXU69HfVw)
-- [Mohikkum Neermizhiyode Video Song | Maanthrikam | Mohanlal | KJ Yesudas | KS Chithra | SP Venkitesh](https://www.youtube.com/watch?v=vN_v-h8GpyM)
-- [Christian Melody Songs | Wilson Piravom | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=GhHjwzMbsl0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
