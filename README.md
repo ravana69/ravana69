@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Calling Sahasra &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.7GB - 1.4GB &amp; 950MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177087-calling-sahasra-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-27gb-14gb-950mb-x264-700mb-400mb-esub/&do=findComment&comment=358678)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP92 DAY 91 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.6GB - 801MB &amp; 338MB | 31-12-2023]](https://www.1tamilmv.im/index.php?/forums/topic/177086-bigg-boss-tamil-s07-ep92-day-91-true-web-dl-1080p-720p-480p-avc-untouched-16gb-801mb-338mb-31-12-2023/&do=findComment&comment=358677)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP92 DAY 91 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.6GB - 801MB &amp; 338MB | 31-12-2023]](https://www.1tamilmv.im/index.php?/forums/topic/177086-bigg-boss-tamil-s07-ep92-day-91-true-web-dl-1080p-720p-480p-avc-untouched-16gb-801mb-338mb-31-12-2023/&do=findComment&comment=358676)
 - [INDRA &lpar;2002&rpar; Telugu HDTV-DL - 1080p - AVC - UNTOUCHED - AAC - 2.6GB](https://www.1tamilmv.im/index.php?/forums/topic/177079-indra-2002-telugu-hdtv-dl-1080p-avc-untouched-aac-26gb/&do=findComment&comment=358675)
 - [P2.2007 VCD 2.0 Tamil-Telugu-Hindi-DTS 5.1 English 1080p.BluRay.Remux.VC-1.DTS-HD.MA.5.1 Msub 19GB [G-Drive]](https://www.1tamilmv.im/index.php?/forums/topic/177085-p22007-vcd-20-tamil-telugu-hindi-dts-51-english-1080pblurayremuxvc-1dts-hdma51-msub-19gb-g-drive/&do=findComment&comment=358674)
-- [Berlin &lpar;2023&rpar; Complete S01 EP &lpar;01-08&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 6.9GB - 2.3GB &amp; 900MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177074-berlin-2023-complete-s01-ep-01-08-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-69gb-23gb-900mb-esub/&do=findComment&comment=358673)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
