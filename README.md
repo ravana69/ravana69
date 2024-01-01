@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കൃപാസന മാതാവിന്റെ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kripasanam  mother Mary sons Malayalam](https://www.youtube.com/watch?v=kTiNu7PH69c)
+- [Japamala 1st of January 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 1st of January 24](https://www.youtube.com/watch?v=tCPmkC3jPto)
+- [2024 ൽ ഞാൻ ആദ്യം കേട്ട മരിയൻ ഗാനങ്ങൾ #mariyan  christian songs malayalam #2024  MOTHER MARY HITS](https://www.youtube.com/watch?v=zvM8av4FcPU)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=rIjrbJetPWQ)
 - [2024 ൽ ഞാൻ ആദ്യം കേട്ട ഗാനങ്ങൾ #2024  morning christian devotional songs malayalam #best  songs](https://www.youtube.com/watch?v=fm113G3kkoU)
 - [Happy newyear | മേലേ മേലേ നീലാകാശം..|#kjyesudas | #lyrics | #viral | #ytshorts | #tharangini](https://www.youtube.com/watch?v=JpKtnXCGONE)
-- [പ്രഭാത പ്രാര്‍ത്ഥനJanuary 1 # Athiravile Prarthana 1st January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=Z_hvSJMbhnM)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=da_Fjsj208I)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 1st January 2024](https://www.youtube.com/watch?v=4XPMhimfzzo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
