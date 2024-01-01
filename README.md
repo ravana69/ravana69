@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ape vs. Mecha Ape &lpar;2023&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Kannada + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Kan + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177090-ape-vs-mecha-ape-2023-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-kannada-hindi-eng-2gb-1gb-x264-tam-kan-hin-450mb-esub/&do=findComment&comment=358696)
+- [Darling in the Franxx S01 E08 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 350MB - 250MB] - ESub [Google Drive]](https://www.1tamilmv.im/index.php?/forums/topic/177093-darling-in-the-franxx-s01-e08-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-350mb-250mb-esub-google-drive/&do=findComment&comment=358695)
+- [P2.2007 VCD 2.0 Tamil-Telugu-Hindi-DTS 5.1 English 1080p.BluRay.Remux.VC-1.DTS-HD.MA.5.1 Msub 19GB [G-Drive]](https://www.1tamilmv.im/index.php?/forums/topic/177085-p22007-vcd-20-tamil-telugu-hindi-dts-51-english-1080pblurayremuxvc-1dts-hdma51-msub-19gb-g-drive/&do=findComment&comment=358694)
 - [Darling in the Franxx S01 E07 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 350MB - 250MB] - ESub [Google Drive]](https://www.1tamilmv.im/index.php?/forums/topic/177092-darling-in-the-franxx-s01-e07-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-350mb-250mb-esub-google-drive/&do=findComment&comment=358693)
 - [ANIMAL 2023 HINDI 1080P | 720P | 480P HDTS](https://www.1tamilmv.im/index.php?/forums/topic/153032-animal-2023-hindi-1080p-720p-480p-hdts/&do=findComment&comment=358692)
-- [ANIMAL 2023 HINDI 1080P | 720P | 480P HDTS](https://www.1tamilmv.im/index.php?/forums/topic/153032-animal-2023-hindi-1080p-720p-480p-hdts/&do=findComment&comment=358691)
-- [வருசம் புதுசு நீங்க புதுசா? | Guru Mitreshiva | Ulchemy | New Year 2024](https://www.1tamilmv.im/index.php?/forums/topic/150704-%E0%AE%B5%E0%AE%B0%E0%AF%81%E0%AE%9A%E0%AE%AE%E0%AF%8D-%E0%AE%AA%E0%AF%81%E0%AE%A4%E0%AF%81%E0%AE%9A%E0%AF%81-%E0%AE%A8%E0%AF%80%E0%AE%99%E0%AF%8D%E0%AE%95-%E0%AE%AA%E0%AF%81%E0%AE%A4%E0%AF%81%E0%AE%9A%E0%AE%BE-guru-mitreshiva-ulchemy-new-year-2024/&do=findComment&comment=358690)
-- [INDRA &lpar;2002&rpar; Telugu HDTV-DL - 1080p - AVC - UNTOUCHED - AAC - 2.6GB](https://www.1tamilmv.im/index.php?/forums/topic/177079-indra-2002-telugu-hdtv-dl-1080p-avc-untouched-aac-26gb/&do=findComment&comment=358689)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
