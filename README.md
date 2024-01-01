@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Legend &lpar;2014&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.9GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177088-legend-2014-telugu-dvd9-untouched-480p-dd51-448kbps-69gb-esub/&do=findComment&comment=358681)
 - [Legend &lpar;2014&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.9GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177088-legend-2014-telugu-dvd9-untouched-480p-dd51-448kbps-69gb-esub/&do=findComment&comment=358680)
 - [Legend &lpar;2014&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.9GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177088-legend-2014-telugu-dvd9-untouched-480p-dd51-448kbps-69gb-esub/&do=findComment&comment=358679)
 - [Calling Sahasra &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.7GB - 1.4GB &amp; 950MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177087-calling-sahasra-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-27gb-14gb-950mb-x264-700mb-400mb-esub/&do=findComment&comment=358678)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP92 DAY 91 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.6GB - 801MB &amp; 338MB | 31-12-2023]](https://www.1tamilmv.im/index.php?/forums/topic/177086-bigg-boss-tamil-s07-ep92-day-91-true-web-dl-1080p-720p-480p-avc-untouched-16gb-801mb-338mb-31-12-2023/&do=findComment&comment=358677)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP92 DAY 91 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.6GB - 801MB &amp; 338MB | 31-12-2023]](https://www.1tamilmv.im/index.php?/forums/topic/177086-bigg-boss-tamil-s07-ep92-day-91-true-web-dl-1080p-720p-480p-avc-untouched-16gb-801mb-338mb-31-12-2023/&do=findComment&comment=358676)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
