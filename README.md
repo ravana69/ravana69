@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Suicide Squad &lpar;2021&rpar; &lpar;BluRay + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 8GB - 4GB &amp; 1.6GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 500MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/145952-the-suicide-squad-2021-bluray-original-audios-4k-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-8gb-4gb-16gb-x264-tam-tel-hin-500mb-esub/&do=findComment&comment=358740)
 - [Tholvi F.C. &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+2.0 - 224Kbps&rpar; - 5.3GB - 2.6GB - 1.4GB &amp; 750MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177107-tholvi-fc-2023-malayalam-true-web-dl-1080p-720p-avc-hevc-dd20-224kbps-53gb-26gb-14gb-750mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358739)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP94 DAY 93 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 944MB - 491MB &amp; 209MB | 02-01-2024]](https://www.1tamilmv.im/index.php?/forums/topic/177106-bigg-boss-tamil-s07-ep94-day-93-true-web-dl-1080p-720p-480p-avc-untouched-944mb-491mb-209mb-02-01-2024/&do=findComment&comment=358738)
 - [Koose Munisamy Veerappan &lpar;2023&rpar; Complete S01 EP &lpar;01-06&rpar; Merged TRUE WEB-DL - [4K, 1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada] - 13GB - 5GB - 2.6GB &amp; 800MB] - ESub [Google Drive]](https://www.1tamilmv.im/index.php?/forums/topic/176956-koose-munisamy-veerappan-2023-complete-s01-ep-01-06-merged-true-web-dl-4k-1080p-720p-avc-tamil-telugu-hindi-kannada-13gb-5gb-26gb-800mb-esub-google-drive/&do=findComment&comment=358736)
 - [Thagaraaru &lpar;2013&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 4.4GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177101-thagaraaru-2013-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-44gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358735)
-- [Raam &lpar;2005&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 3.4GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177100-raam-2005-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-34gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358734)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
