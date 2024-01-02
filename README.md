@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പുതുവർഷത്തിലും പുതുമോടിയോടെ കേൾക്കും പുത്തനുണർവേകും സിനിമാഗാനങ്ങൾ ! NEW YEAR SPECIAL SONGS](https://www.youtube.com/watch?v=d_FVzGbCnk8)
+- [Inku Nukarnnurangi | Kaattaruvi (1983) | KJ Yesudas | G Devarajan | Mammootty Songs](https://www.youtube.com/watch?v=yqx92oZ4lGE)
+- [Thaaram Vaalkannaadi Nokki | Keli | Bharathan | K S Chithra | Kaithapram #SongOfTheDay](https://www.youtube.com/watch?v=_kZkXbz4ICo)
 - [ഈസ്റ്റ്‌ കോസ്റ്റ് - ചിത്തിനി പുതുവര്‍ഷാഘോഷ വേളയില്‍ നടി ആരതി നായരുടെ തകര്‍പ്പന്‍ പെര്‍ഫോമന്‍സ്](https://www.youtube.com/watch?v=-EfZ5C42mG0)
 - [മനോജ് കെ ജയൻ അഭിനയിച്ച ഇളമുറത്തമ്പുരാൻ ചിത്രത്തിലെ കിടിലൻ പാട്ടുകൾ | Ilamurathamburan  Video Jukebox](https://www.youtube.com/watch?v=VTpRPLKt3Hk)
 - [Sona Sona | Animation Lyrical Video  | Kalabhavan Mani | കലാഭവൻ മണിയുടെ ഹിറ്റ് ഗാനം അനിമേഷൻ ലിറിക്കൽ](https://www.youtube.com/watch?v=MVCCYWZPi4U)
-- [Kollam Ajith Old Malayalam Movie Songs | Agnipravesham Remastered Malayalam Songs | M.G.Sreekumar](https://www.youtube.com/watch?v=bcfjpflRyH8)
-- [Vayanadan Kaavile | Themmadi Velappan | P.Susheela | Madhu | Hariharan](https://www.youtube.com/watch?v=tpTNbGX6AxQ)
-- [Ithratholamenne Konduvanneduvan | Kuttiyachan | Praise and Worship Songs | Christian Songs](https://www.youtube.com/watch?v=BnJ4QT9FuNo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
