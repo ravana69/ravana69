@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈസ്റ്റ്‌ കോസ്റ്റ് - ചിത്തിനി പുതുവര്‍ഷാഘോഷ വേളയില്‍ നടി ആരതി നായരുടെ തകര്‍പ്പന്‍ പെര്‍ഫോമന്‍സ്](https://www.youtube.com/watch?v=-EfZ5C42mG0)
+- [മനോജ് കെ ജയൻ അഭിനയിച്ച ഇളമുറത്തമ്പുരാൻ ചിത്രത്തിലെ കിടിലൻ പാട്ടുകൾ | Ilamurathamburan  Video Jukebox](https://www.youtube.com/watch?v=VTpRPLKt3Hk)
 - [Sona Sona | Animation Lyrical Video  | Kalabhavan Mani | കലാഭവൻ മണിയുടെ ഹിറ്റ് ഗാനം അനിമേഷൻ ലിറിക്കൽ](https://www.youtube.com/watch?v=MVCCYWZPi4U)
 - [Kollam Ajith Old Malayalam Movie Songs | Agnipravesham Remastered Malayalam Songs | M.G.Sreekumar](https://www.youtube.com/watch?v=bcfjpflRyH8)
 - [Vayanadan Kaavile | Themmadi Velappan | P.Susheela | Madhu | Hariharan](https://www.youtube.com/watch?v=tpTNbGX6AxQ)
 - [Ithratholamenne Konduvanneduvan | Kuttiyachan | Praise and Worship Songs | Christian Songs](https://www.youtube.com/watch?v=BnJ4QT9FuNo)
-- [ഇന്ന് ജനുവരി 2 . ജപമാല കേട്ട് ഈ വർഷം  ആരംഭിക്കാം #2024  ജപമാല #ദുഃഖത്തിൻറെ  രഹസ്യങ്ങൾ #japamala new](https://www.youtube.com/watch?v=AikLh8Xz8oo)
-- [മാതാവിൻറെ  പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mothermarysongs #2024 January 2](https://www.youtube.com/watch?v=ZVPWQYReH4g)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
