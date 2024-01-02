@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Trapped in a Dating Sim: The World of Otome Games is Tough for Mobs S01 EP03 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 200MB - 150MB] - ESub [Google Drive]](https://www.1tamilmv.im/index.php?/forums/topic/177103-trapped-in-a-dating-sim-the-world-of-otome-games-is-tough-for-mobs-s01-ep03-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-200mb-150mb-esub-google-drive/&do=findComment&comment=358731)
 - [Parking &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 12GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177061-parking-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-12gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358730)
 - [Annapoorani - The Goddess of Food &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.8GB - 2.5GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177028-annapoorani-the-goddess-of-food-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-58gb-25gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358729)
 - [Raam &lpar;2005&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 3.4GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177100-raam-2005-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-34gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358728)
 - [Will True AI Turn Against Human? Exploring the Existential Threat 🌐 | AI Ethics &amp; Safeguards 🛡️](https://www.1tamilmv.im/index.php?/forums/topic/150703-will-true-ai-turn-against-human-exploring-the-existential-threat-%F0%9F%8C%90-ai-ethics-safeguards-%F0%9F%9B%A1%EF%B8%8F/&do=findComment&comment=358727)
-- [Raam &lpar;2005&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 3.4GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177100-raam-2005-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-34gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358726)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
