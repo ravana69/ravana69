@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥനJanuary 3 # Athiravile Prarthana 3rd January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=Ndmn2T-x5is)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=VGF8xxFqqEU)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 3rd January 2024](https://www.youtube.com/watch?v=cnlPDmssmPg)
 - [Thirunnelli Kaadu | Dinarathrangal | Mukesh | Parvathy | Ouseppachan | M.G.Sreekumar](https://www.youtube.com/watch?v=ev-W8X_kwR4)
 - [2 January 2024](https://www.youtube.com/watch?v=tFkiMXcnUBo)
 - [Christian Melody Songs | Kester | Christian Devotional Songs Malayalam | Joji Johns | Biju Narayanan](https://www.youtube.com/watch?v=dcw-M9OUSGE)
-- [നടനവിസ്മയം മോഹൻലാലിൻറെ ഹരം കൊള്ളിക്കും സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ  | HITS OF MOHANLAL | MOVIEWORLD MUSIC](https://www.youtube.com/watch?v=G3nU6Ip6IrQ)
-- [Unnikale oru kadha parayam Song Mohanlal Bichu Thirumala Ouseppachan KJ Yesudas](https://www.youtube.com/watch?v=SxhB_bygjW4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
