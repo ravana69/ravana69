@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ente Malakhe | #shorts  | Intercession Song to St. Michael | Fr. Shaji Thumpechirayil | Biju L. T](https://www.youtube.com/watch?v=15zBh2k_Ufo)
+- [Kakkala kannamma... |  Oru Yathramozhi | MG Sreekumar | SP Balasubrahmanyam #shorts](https://www.youtube.com/watch?v=JFYG92QRRtw)
+- [Chandhanamani Sandhyakalude | Praja | MG Sreekumar | MG Radhakrishnan | Gireesh Puthenchery](https://www.youtube.com/watch?v=CUrtrnNiXCQ)
+- [Mele Vaanam - Lyrical Video | Palayam PC | Shahabaz Aman, Sruthy | Sadique Pandallur | V.M Anil](https://www.youtube.com/watch?v=G3JaOgMTiuw)
 - [വി.ചാവറ പിതാവിനെക്കുറിച്ചുള്ള മനോഹരമായ ഗാനം #frshajithumpechirayil #cmcvision](https://www.youtube.com/watch?v=r2AnoVFHjuY)
 - [എക്കാലവും മലയാളികളുടെ പ്ലേ ലിസ്റ്റിൽ സ്ഥാനം നേടിയ നിത്യ യൗവന ഗാനങ്ങൾ | SUPERHIT MELODY SONGS](https://www.youtube.com/watch?v=wHSqW119qfs)
-- ["കലയുടെ മാമാങ്കം കൊല്ലത്ത് " കലോത്സവകാഴ്ചകളുമായി മൂവി വേൾഡ് മീഡിയയും ! KERALA KALOLSAVAM 2024](https://www.youtube.com/watch?v=YxmCKblpuOY)
-- [ഇത്തവണ കൊല്ലത്താ കലോത്സവം ! അപ്പൊ എങ്ങനാ പോവല്ലേ ! KERLA KALOLSAVAM 2024 | MOVIEWORLD MEDIA](https://www.youtube.com/watch?v=JSSSLp33Xbw)
-- [Paathiraappullunarnnu | Ee Puzhayum Kadannu | Johnson | Yesudas | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=jml8kHja4i4)
-- [Feeling the love radiate from every chord and lyric #Alivozhukum #Antony #Shorts #ytshorts](https://www.youtube.com/watch?v=jRpBwvaMhKU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
