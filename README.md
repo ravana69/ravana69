@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [SAGA: Curse of the Shadow &lpar;2013&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.3GB &amp; 1.2GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177109-saga-curse-of-the-shadow-2013-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-23gb-12gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=358769)
+- [[ALAC] Anbe Sivam &lpar;2003&rpar; Original Motion Picture Soundtrack Hi-Fi Quality 16bit - ALAC - Vidyasagar Musical - 190 MB](https://www.1tamilmv.im/index.php?/forums/topic/177110-alac-anbe-sivam-2003-original-motion-picture-soundtrack-hi-fi-quality-16bit-alac-vidyasagar-musical-190-mb/&do=findComment&comment=358768)
+- [The Karate Kid &lpar;2010&rpar; &lpar;REMASTERED Blu-Ray + Original Audios&rpar; - [1080p &amp; 720p - &lpar;DD5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.7GB &amp; 1.6GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 500MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/138258-the-karate-kid-2010-remastered-blu-ray-original-audios-1080p-720p-dd51-640kbps-tamil-telugu-hindi-eng-37gb-16gb-x264-tam-tel-hin-500mb-esub/&do=findComment&comment=358767)
+- [Iruvar &lpar;1997&rpar; AHA WEB-DL AAC.2.0 Esubs x264 - 1080p | 720p - 3 GB | 1. 5 GB](https://www.1tamilmv.im/index.php?/forums/topic/177112-iruvar-1997-aha-web-dl-aac20-esubs-x264-1080p-720p-3-gb-1-5-gb/&do=findComment&comment=358766)
 - [Thodari &lpar;2016&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 4.8GB - ESub - GDFlix](https://www.1tamilmv.im/index.php?/forums/topic/177115-thodari-2016-tamil-true-web-dl-1080p-avc-untouched-dd51-48gb-esub-gdflix/&do=findComment&comment=358765)
-- [We&#39;ve Never Found Anything Like Our Solar System. Is It a Freak in Space?](https://www.1tamilmv.im/index.php?/forums/topic/150702-weve-never-found-anything-like-our-solar-system-is-it-a-freak-in-space/&do=findComment&comment=358764)
-- [Kshana.Kshanam.1991 Telugu.1080p.GPLAY.WEB.DL.H264.AAC.2.0.ESub 7GB [G-Drive]](https://www.1tamilmv.im/index.php?/forums/topic/177114-kshanakshanam1991-telugu1080pgplaywebdlh264aac20esub-7gb-g-drive/&do=findComment&comment=358763)
-- [Furious 7 &lpar;2015&rpar; DD5.1 Hindi-DDP5.1 Tamil-Telugu-DD5.1 English 1080p BluRay x264- Esub 6GB [G-Drive]](https://www.1tamilmv.im/index.php?/forums/topic/177104-furious-7-2015-dd51-hindi-ddp51-tamil-telugu-dd51-english-1080p-bluray-x264-esub-6gb-g-drive/&do=findComment&comment=358762)
-- [Conan The Barbarian 2011DDP5.1 Tamil-Telugu-Hindi-DTS5.1 English Blu-Ray 1080p x264-Esub 8GB [G-Drive]](https://www.1tamilmv.im/index.php?/forums/topic/177095-conan-the-barbarian-2011ddp51-tamil-telugu-hindi-dts51-english-blu-ray-1080p-x264-esub-8gb-g-drive/&do=findComment&comment=358761)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
