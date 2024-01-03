@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Suicide Squad &lpar;2021&rpar; &lpar;BluRay + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 8GB - 4GB &amp; 1.6GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 500MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/145952-the-suicide-squad-2021-bluray-original-audios-4k-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-8gb-4gb-16gb-x264-tam-tel-hin-500mb-esub/&do=findComment&comment=358754)
+- [Nuvvu Vastavani &lpar;2000&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB](https://www.1tamilmv.im/index.php?/forums/topic/177113-nuvvu-vastavani-2000-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-71gb/&do=findComment&comment=358753)
+- [Nuvvu Vastavani &lpar;2000&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB](https://www.1tamilmv.im/index.php?/forums/topic/177113-nuvvu-vastavani-2000-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-71gb/&do=findComment&comment=358752)
 - [Nuvvu Vastavani &lpar;2000&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB](https://www.1tamilmv.im/index.php?/forums/topic/177113-nuvvu-vastavani-2000-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-71gb/&do=findComment&comment=358751)
 - [Iruvar &lpar;1997&rpar; AHA WEB-DL AAC.2.0 Esubs x264 - 1080p | 720p - 3 GB | 1. 5 GB](https://www.1tamilmv.im/index.php?/forums/topic/177112-iruvar-1997-aha-web-dl-aac20-esubs-x264-1080p-720p-3-gb-1-5-gb/&do=findComment&comment=358750)
-- [Super &lpar;2005&rpar;.Telugu.480p.DVD9Rip.x264.DD5.1 448Kbps - 3GB &lpar;AI Deinterlaced&rpar;](https://www.1tamilmv.im/index.php?/forums/topic/177111-super-2005telugu480pdvd9ripx264dd51-448kbps-3gb-ai-deinterlaced/&do=findComment&comment=358749)
-- [[ALAC] Anbe Sivam &lpar;2003&rpar; Original Motion Picture Soundtrack Hi-Fi Quality 16bit - ALAC - Vidyasagar Musical - 190 MB](https://www.1tamilmv.im/index.php?/forums/topic/177110-alac-anbe-sivam-2003-original-motion-picture-soundtrack-hi-fi-quality-16bit-alac-vidyasagar-musical-190-mb/&do=findComment&comment=358748)
-- [Saga Curse of the Shadow &lpar;2013&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.3GB &amp; 1.2GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177109-saga-curse-of-the-shadow-2013-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-23gb-12gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=358747)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
