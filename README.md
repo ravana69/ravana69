@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Nuvvu Vastavani &lpar;2000&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB](https://www.1tamilmv.im/index.php?/forums/topic/177113-nuvvu-vastavani-2000-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-71gb/&do=findComment&comment=358775)
+- [Darling in the Franxx S01 E09 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 350MB - 250MB] - ESub [Google Drive]](https://www.1tamilmv.im/index.php?/forums/topic/177116-darling-in-the-franxx-s01-e09-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-350mb-250mb-esub-google-drive/&do=findComment&comment=358774)
 - [Super &lpar;2005&rpar;.Telugu.480p.DVD9Rip.x264.DD5.1 448Kbps - 3GB &lpar;AI Deinterlaced&rpar;](https://www.1tamilmv.im/index.php?/forums/topic/177111-super-2005telugu480pdvd9ripx264dd51-448kbps-3gb-ai-deinterlaced/&do=findComment&comment=358773)
 - [Nene Ambani &lpar;2010&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 4.1GB - ESub - SVV DVD](https://www.1tamilmv.im/index.php?/forums/topic/177072-nene-ambani-2010-telugu-dvd5-untouched-480p-dd51-448kbps-41gb-esub-svv-dvd/&do=findComment&comment=358772)
 - [Nuvvu Vastavani &lpar;2000&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB](https://www.1tamilmv.im/index.php?/forums/topic/177113-nuvvu-vastavani-2000-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-71gb/&do=findComment&comment=358771)
-- [Nuvvu Vastavani &lpar;2000&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB](https://www.1tamilmv.im/index.php?/forums/topic/177113-nuvvu-vastavani-2000-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-71gb/&do=findComment&comment=358770)
-- [SAGA: Curse of the Shadow &lpar;2013&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.3GB &amp; 1.2GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177109-saga-curse-of-the-shadow-2013-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-23gb-12gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=358769)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
