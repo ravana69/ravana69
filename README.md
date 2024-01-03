@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ananthananmakaleki Vazhum | Christian Video Song | Lakshmi Jayan | Raju James | Deva Devan](https://www.youtube.com/watch?v=yZp7mw4TYXQ)
+- [2024 ജപമാല #മഹിമയുടെ രഹസ്യങ്ങൾ കേട്ട് ഇന്ന് ആരംഭിക #mothermarysongs #japamalamalayalam](https://www.youtube.com/watch?v=EY451AsC9G0)
+- [Japamala 3rd of January 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 3rd of January 2024](https://www.youtube.com/watch?v=icXMfaENAew)
 - [മാതാവിൻറെ  പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#mothermary prayer and songs Jan 3](https://www.youtube.com/watch?v=SYfz0p9bma4)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=KlSlo8eBzrs)
 - [പ്രഭാത പ്രാര്‍ത്ഥനJanuary 3 # Athiravile Prarthana 3rd January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=Ndmn2T-x5is)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=VGF8xxFqqEU)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 3rd January 2024](https://www.youtube.com/watch?v=cnlPDmssmPg)
-- [Thirunnelli Kaadu | Dinarathrangal | Mukesh | Parvathy | Ouseppachan | M.G.Sreekumar](https://www.youtube.com/watch?v=ev-W8X_kwR4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
