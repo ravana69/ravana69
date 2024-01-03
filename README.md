@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Engae Nee Sendralum | Kannukulle | Ilaiyaraaja | Karthik & Bela Shende | Hi-Res Audio](https://www.youtube.com/watch?v=uidPlJ89JBs)
+- [Let the melody be the soft glow that lights up your soul #Alivozhukum #Antony #Shorts #ytshorts](https://www.youtube.com/watch?v=G9GpSbUEtD4)
+- [Mindappenninte | Vijayaraghavan | Urvashi | Kaithapram | Chithra | Video Song](https://www.youtube.com/watch?v=av9ojnXJaNw)
 - [എൻ്റെ  കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #sangeethajapamala #mothermary](https://www.youtube.com/watch?v=8YyEp_OIVQU)
 - [Ananthananmakaleki Vazhum | Christian Video Song | Lakshmi Jayan | Raju James | Deva Devan](https://www.youtube.com/watch?v=yZp7mw4TYXQ)
 - [2024 ജപമാല #മഹിമയുടെ രഹസ്യങ്ങൾ കേട്ട് ഇന്ന് ആരംഭിക #mothermarysongs #japamalamalayalam](https://www.youtube.com/watch?v=EY451AsC9G0)
-- [Japamala 3rd of January 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 3rd of January 2024](https://www.youtube.com/watch?v=icXMfaENAew)
-- [മാതാവിൻറെ  പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#mothermary prayer and songs Jan 3](https://www.youtube.com/watch?v=SYfz0p9bma4)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=KlSlo8eBzrs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
