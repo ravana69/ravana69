@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Paathiraappullunarnnu | Ee Puzhayum Kadannu | Johnson | Yesudas | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=jml8kHja4i4)
+- [Feeling the love radiate from every chord and lyric #Alivozhukum #Antony #Shorts #ytshorts](https://www.youtube.com/watch?v=jRpBwvaMhKU)
 - [Nandi Njaninnekidam | Kristheeya Bhakthiganangal | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=XfHBVCOeIrU)
 - [Sudheesh Old Malayalam Movie Songs | Chenapparambile Aanakkariyam Remastered Malayalam Songs](https://www.youtube.com/watch?v=F0jrQWtV1fY)
 - [Engae Nee Sendralum | Kannukulle | Ilaiyaraaja | Karthik & Bela Shende | Hi-Res Audio](https://www.youtube.com/watch?v=uidPlJ89JBs)
 - [Let the melody be the soft glow that lights up your soul #Alivozhukum #Antony #Shorts #ytshorts](https://www.youtube.com/watch?v=G9GpSbUEtD4)
-- [Mindappenninte | Vijayaraghavan | Urvashi | Kaithapram | Chithra | Video Song](https://www.youtube.com/watch?v=av9ojnXJaNw)
-- [എൻ്റെ  കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #sangeethajapamala #mothermary](https://www.youtube.com/watch?v=8YyEp_OIVQU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
