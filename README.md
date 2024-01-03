@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Ente Malakhe | #shorts  | Intercession Song to St. Michael | Fr. Shaji Thumpechirayil | Biju L. T](https://www.youtube.com/watch?v=15zBh2k_Ufo)
-- [Kakkala kannamma... |  Oru Yathramozhi | MG Sreekumar | SP Balasubrahmanyam #shorts](https://www.youtube.com/watch?v=JFYG92QRRtw)
-- [Chandhanamani Sandhyakalude | Praja | MG Sreekumar | MG Radhakrishnan | Gireesh Puthenchery](https://www.youtube.com/watch?v=CUrtrnNiXCQ)
-- [Mele Vaanam - Lyrical Video | Palayam PC | Shahabaz Aman, Sruthy | Sadique Pandallur | V.M Anil](https://www.youtube.com/watch?v=G3JaOgMTiuw)
-- [വി.ചാവറ പിതാവിനെക്കുറിച്ചുള്ള മനോഹരമായ ഗാനം #frshajithumpechirayil #cmcvision](https://www.youtube.com/watch?v=r2AnoVFHjuY)
-- [എക്കാലവും മലയാളികളുടെ പ്ലേ ലിസ്റ്റിൽ സ്ഥാനം നേടിയ നിത്യ യൗവന ഗാനങ്ങൾ | SUPERHIT MELODY SONGS](https://www.youtube.com/watch?v=wHSqW119qfs)
+- [സ്നേഹത്തിന്റെ സന്ദേശം  പകുത്തുനൽകാൻ നിന്നെയും ക്രിസ്തുവിന് ആവശ്യമുണ്ട് |Rev. Aneesh P Joseph#shorts](https://www.youtube.com/watch?v=y0LWNLggOKg)
+- [ചാവറയച്ചാ.. ചാവറയച്ചാ.. #frshajithumpechirayil](https://www.youtube.com/watch?v=w4XdC7MwWec)
+- [Ramzan Nilavotha Pennalle | Animation Video | Felix Devasia | Film Songs Animation Video](https://www.youtube.com/watch?v=0zS4CHwTQWw)
+- [Nalacharithathile Naayakano Video Song | Ponnapuram Kotta | P Susheela | Prem Nazir | Vijayasree](https://www.youtube.com/watch?v=9_ZEthQlwOM)
+- [Akkuthikkuthadaan Vaayo Video Song | Kaliyoonjal | Shobana | Shalini | KS Chithra | Ilayaraja](https://www.youtube.com/watch?v=zKQuhE23PaU)
+- [Onnu Thodanullil Theera Moham | Yathrakarude Sradhakku | Jyotsna | Johnson | Kaithapram](https://www.youtube.com/watch?v=t4firEhaWDo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
