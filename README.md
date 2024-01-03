@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Japan &lpar;2023&rpar; TRUE WEB-DL - 4K SDR - HEVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - &lpar;DD+5.1 - 640Kbps&rpar; - 23GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177121-japan-2023-true-web-dl-4k-sdr-hevc-tamil-telugu-hindi-malayalam-kannada-dd51-640kbps-23gb-esub/&do=findComment&comment=358798)
+- [Hi Nanna &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.3GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177127-hi-nanna-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-63gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358797)
 - [SNXT Movies Collection 2160p HDR10+ SUNNXT WEB-DL ×265 [Tamil &lpar;DD+ 5.1 - ATMOS 448kbps&rpar;] - Leyon](https://www.1tamilmv.im/index.php?/forums/topic/167662-snxt-movies-collection-2160p-hdr10-sunnxt-web-dl-%C3%97265-tamil-dd-51-atmos-448kbps-leyon/&do=findComment&comment=358796)
 - [Hi Nanna &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.3GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177127-hi-nanna-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-63gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358795)
 - [Chintakayala Ravi &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.9GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176814-chintakayala-ravi-2008-telugu-dvd9-untouched-480p-dd51-448kbps-69gb-esub/&do=findComment&comment=358794)
-- [Hi Nanna &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177126-hi-nanna-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358793)
-- [Surya Son of Krishnan &lpar;2008&rpar; Telugu ZEE5 TRUE WEBDL - [1080p / 720p / 576p / 480p / 360p] - UNTOUCHED - AVC - AAC - [2.4GB / 1.3GB / 600MB / 500MB / 400MB] - [GDrive]](https://www.1tamilmv.im/index.php?/forums/topic/124133-surya-son-of-krishnan-2008-telugu-zee5-true-webdl-1080p-720p-576p-480p-360p-untouched-avc-aac-24gb-13gb-600mb-500mb-400mb-gdrive/&do=findComment&comment=358792)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
