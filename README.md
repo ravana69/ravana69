@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Super &lpar;2005&rpar;.Telugu.480p.DVD9Rip.x264.DD5.1 448Kbps - 3GB &lpar;AI Deinterlaced&rpar;](https://www.1tamilmv.im/index.php?/forums/topic/177111-super-2005telugu480pdvd9ripx264dd51-448kbps-3gb-ai-deinterlaced/&do=findComment&comment=358773)
+- [Nene Ambani &lpar;2010&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 4.1GB - ESub - SVV DVD](https://www.1tamilmv.im/index.php?/forums/topic/177072-nene-ambani-2010-telugu-dvd5-untouched-480p-dd51-448kbps-41gb-esub-svv-dvd/&do=findComment&comment=358772)
+- [Nuvvu Vastavani &lpar;2000&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB](https://www.1tamilmv.im/index.php?/forums/topic/177113-nuvvu-vastavani-2000-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-71gb/&do=findComment&comment=358771)
+- [Nuvvu Vastavani &lpar;2000&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB](https://www.1tamilmv.im/index.php?/forums/topic/177113-nuvvu-vastavani-2000-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-71gb/&do=findComment&comment=358770)
 - [SAGA: Curse of the Shadow &lpar;2013&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.3GB &amp; 1.2GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177109-saga-curse-of-the-shadow-2013-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-23gb-12gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=358769)
-- [[ALAC] Anbe Sivam &lpar;2003&rpar; Original Motion Picture Soundtrack Hi-Fi Quality 16bit - ALAC - Vidyasagar Musical - 190 MB](https://www.1tamilmv.im/index.php?/forums/topic/177110-alac-anbe-sivam-2003-original-motion-picture-soundtrack-hi-fi-quality-16bit-alac-vidyasagar-musical-190-mb/&do=findComment&comment=358768)
-- [The Karate Kid &lpar;2010&rpar; &lpar;REMASTERED Blu-Ray + Original Audios&rpar; - [1080p &amp; 720p - &lpar;DD5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.7GB &amp; 1.6GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 500MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/138258-the-karate-kid-2010-remastered-blu-ray-original-audios-1080p-720p-dd51-640kbps-tamil-telugu-hindi-eng-37gb-16gb-x264-tam-tel-hin-500mb-esub/&do=findComment&comment=358767)
-- [Iruvar &lpar;1997&rpar; AHA WEB-DL AAC.2.0 Esubs x264 - 1080p | 720p - 3 GB | 1. 5 GB](https://www.1tamilmv.im/index.php?/forums/topic/177112-iruvar-1997-aha-web-dl-aac20-esubs-x264-1080p-720p-3-gb-1-5-gb/&do=findComment&comment=358766)
-- [Thodari &lpar;2016&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 4.8GB - ESub - GDFlix](https://www.1tamilmv.im/index.php?/forums/topic/177115-thodari-2016-tamil-true-web-dl-1080p-avc-untouched-dd51-48gb-esub-gdflix/&do=findComment&comment=358765)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
