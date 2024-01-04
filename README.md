@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ennu Varum Nee | Kannaki | K S Chithra | Kaithapram Vishwanathan |  Kaithapram](https://www.youtube.com/watch?v=GIL23MM_Vfo)
 - [Rama Sreerama |Most Popular Malayalam Comedy Song| Ulsavamelam |Jagathi Sreekumar | Birthday Special](https://www.youtube.com/watch?v=b_emkDGYcSs)
 - [യേശു മാത്രമാണ് എന്റെ ജീവിതത്തിലെ ഏക പ്രതീക്ഷ. | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=XMnaKH8Ia6o)
 - [മലയാളസിനിമയുടെ സ്വപ്നസുന്ദരി വിജയശ്രീ!!! | Super Hit Songs | Vijayasree Hits #shorts](https://www.youtube.com/watch?v=9ZTALRPviJs)
 - [Daivam | Kristheeya Bhakthigaanangal | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=4Me0ymQ4mjA)
 - [Valliyoor Kaavile Video Song | Ponnapuram Kotta |Vijayasree |Prem Nazir |G Devarajan |P Jayachandran](https://www.youtube.com/watch?v=76mXdcW8Hs4)
-- [Omane Padoo Nee | Snehithan | P Jayachandran | Mohan Sithara | Yusufali Kechery](https://www.youtube.com/watch?v=0HO0wySrnIs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
