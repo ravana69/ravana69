@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Cubicles &lpar;2024&rpar; S03 EP &lpar;01-05&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - &lpar;AAC 2.0&rpar; - 3.3GB - 1.6GB &amp; 650MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177136-cubicles-2024-s03-ep-01-05-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-aac-20-33gb-16gb-650mb-esub/&do=findComment&comment=358822)
+- [Kaathal - The Core &lpar;2023&rpar; Tamil TRUE WEB-DL HQ - HEVC - AAC - [1080p - 1.2GB |720p - 700MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177140-kaathal-the-core-2023-tamil-true-web-dl-hq-hevc-aac-1080p-12gb-720p-700mb-esub/&do=findComment&comment=358821)
+- [Society of the Snow &lpar;2024&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 5.5GB - 2.8GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 500MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177138-society-of-the-snow-2024-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-55gb-28gb-14gb-x264-tam-tel-hin-500mb-esub/&do=findComment&comment=358819)
 - [Ayalaan &lpar;2024&rpar; Tamil Audio launch TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.8GB - 1.2GB &amp; 400MB]](https://www.1tamilmv.im/index.php?/forums/topic/177089-ayalaan-2024-tamil-audio-launch-true-web-dl-1080p-720p-avc-28gb-12gb-400mb/&do=findComment&comment=358818)
 - [Hi Nanna &lpar;2023&rpar; [Hi Acchan] Malayalam HQ HDRip - HEVC - AAC - [1080p - 1.4GB |720p - 700MB]](https://www.1tamilmv.im/index.php?/forums/topic/177137-hi-nanna-2023-hi-acchan-malayalam-hq-hdrip-hevc-aac-1080p-14gb-720p-700mb/&do=findComment&comment=358817)
-- [Cubicles &lpar;2024&rpar; S03 EP &lpar;01-05&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - &lpar;AAC 2.0&rpar; - 3.3GB - 1.6GB &amp; 650MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177136-cubicles-2024-s03-ep-01-05-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-aac-20-33gb-16gb-650mb-esub/&do=findComment&comment=358816)
-- [Jujutsu Kaisen &lpar;2020&rpar; Complete S01 EP&lpar;01 - 24&rpar; Merged - Telugu - [1080p - 720p HEVC BDRip 10bit - &lpar;AAC 2.0 - 128kbps&rpar;] - x265 ESub [Google Drive]](https://www.1tamilmv.im/index.php?/forums/topic/177135-jujutsu-kaisen-2020-complete-s01-ep01-24-merged-telugu-1080p-720p-hevc-bdrip-10bit-aac-20-128kbps-x265-esub-google-drive/&do=findComment&comment=358815)
-- [Hi Nanna &lpar;2023&rpar; Tamil TRUE WEB-DL HQ - HEVC - AAC - [1080p - 1.4GB |720p - 700MB]](https://www.1tamilmv.im/index.php?/forums/topic/177134-hi-nanna-2023-tamil-true-web-dl-hq-hevc-aac-1080p-14gb-720p-700mb/&do=findComment&comment=358814)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
