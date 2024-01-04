@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [THE EXPENDABLES 4 2023 HINDI ORG DUAL AUDIO 1080P | 720P | 480P BLURAY ESUB](https://www.1tamilmv.im/index.php?/forums/topic/148312-the-expendables-4-2023-hindi-org-dual-audio-1080p-720p-480p-bluray-esub/&do=findComment&comment=358855)
+- [Tejas &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 1.2GB &amp; 700MB - 400MB]](https://www.1tamilmv.im/index.php?/forums/topic/177150-tejas-2023-hindi-true-web-dl-1080p-720p-avc-dd51-192kbps-12gb-700mb-400mb/&do=findComment&comment=358854)
+- [The Expendables 4 &lpar;2023&rpar; &lpar;BluRay + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 7GB - 2.4GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177142-the-expendables-4-2023-bluray-original-audios-4k-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-7gb-24gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=358853)
 - [The Expendables 4 &lpar;2023&rpar; BluRay - H264/H265 - Original Audios [Tamil + Telugu + Hindi + Eng] - ESub - [4K, 1080p &amp; 720p - 6.9GB - 2.3GB - 1.2GB][GDrive]](https://www.1tamilmv.im/index.php?/forums/topic/140694-the-expendables-4-2023-bluray-h264h265-original-audios-tamil-telugu-hindi-eng-esub-4k-1080p-720p-69gb-23gb-12gbgdrive/&do=findComment&comment=358852)
-- [Manmadha Banam &lpar;2010&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 4GB - ESub - Bhavani DVD](https://www.1tamilmv.im/index.php?/forums/topic/177145-manmadha-banam-2010-telugu-dvd5-untouched-480p-dd51-448kbps-4gb-esub-bhavani-dvd/&do=findComment&comment=358847)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP96 DAY 95 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 958MB - 492MB &amp; 201MB | 04-01-2024]](https://www.1tamilmv.im/index.php?/forums/topic/177144-bigg-boss-tamil-s07-ep96-day-95-true-web-dl-1080p-720p-480p-avc-untouched-958mb-492mb-201mb-04-01-2024/&do=findComment&comment=358846)
-- [Hi Nanna &lpar;2023&rpar; NF WEB DL H264 - [Telugu + Tamil + Malayalam + Kannada + Hindi] DDP5.1&lpar;640kbps&rpar; - [1080p - 6.1GB &amp; 2.1GB] [GDRIVE]](https://www.1tamilmv.im/index.php?/forums/topic/165001-hi-nanna-2023-nf-web-dl-h264-telugu-tamil-malayalam-kannada-hindi-ddp51640kbps-1080p-61gb-21gb-gdrive/&do=findComment&comment=358845)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [4-1-2024]](https://www.1tamilmv.im/index.php?/forums/topic/177143-movies-collection-all-languages-4k-1080p-720p-576p-480p-4-1-2024/&do=findComment&comment=358844)
+- [Conjuring Kannappan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177146-conjuring-kannappan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-56gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358848)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
