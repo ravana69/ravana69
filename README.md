@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Jujutsu Kaisen &lpar;2020&rpar; Complete S01 EP&lpar;01 - 24&rpar; Merged - Telugu - [1080p - 720p HEVC BDRip 10bit - &lpar;AAC 2.0 - 128kbps&rpar;] - x265 ESub [Google Drive]](https://www.1tamilmv.im/index.php?/forums/topic/177135-jujutsu-kaisen-2020-complete-s01-ep01-24-merged-telugu-1080p-720p-hevc-bdrip-10bit-aac-20-128kbps-x265-esub-google-drive/&do=findComment&comment=358815)
 - [Hi Nanna &lpar;2023&rpar; Tamil TRUE WEB-DL HQ - HEVC - AAC - [1080p - 1.4GB |720p - 700MB]](https://www.1tamilmv.im/index.php?/forums/topic/177134-hi-nanna-2023-tamil-true-web-dl-hq-hevc-aac-1080p-14gb-720p-700mb/&do=findComment&comment=358814)
 - [Hi Nanna &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.3GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177127-hi-nanna-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-63gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358813)
 - [Kaathal - The Core &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177132-kaathal-the-core-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358812)
 - [Hi Nanna &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.3GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177127-hi-nanna-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-63gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358811)
-- [Kaathal - The Core &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Telugu + Hindi + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 7GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177133-kaathal-the-core-2023-true-web-dl-1080p-720p-avc-telugu-hindi-kannada-dd51-192kbps-7gb-26gb-14gb-850mb-x264-750mb-450mb-esub/&do=findComment&comment=358810)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
