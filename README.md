@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [എൻ്റെ  കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#sangeethajapamala #japamala pray](https://www.youtube.com/watch?v=YBZTYcg484A)
-- [I Love You Mummy | Bhaskar The Rascal  #shortsfeed #shorts #mammootty #deepakdev #lyricalvideo](https://www.youtube.com/watch?v=C9201DFfMOg)
-- [Vibing through the chaos #Raakk #MalaikottaiVaaliban #Mohanlal #Shorts #ytshorts](https://www.youtube.com/watch?v=cz9Jlcr0DHU)
-- [കാപ്പി വൈബ്സ് | Kappy Vibes #ytshortsvideo #love](https://www.youtube.com/watch?v=8VplrMjjzZg)
-- [കാപ്പി വൈബ്സ് | Kappy Vibes #shorts #love](https://www.youtube.com/watch?v=UVsVLYc1LAE)
-- [കാപ്പി വൈബ്സ് | Kappy Vibes #shorts #love](https://www.youtube.com/watch?v=6i7i4O778Fo)
+- [Junile Nilamazhayil | K J Yesudas | Sujatha #shortsfeed #shorts #malayalammoviesongs #kjyesudas](https://www.youtube.com/watch?v=i4cFUpWQ6cI)
+- [Aliyarude Omana Beevi | Vaanku | Ouseppachan #shortsfeed #shorts #malayalammoviesongs #reels](https://www.youtube.com/watch?v=CSmuYFpX6aE)
+- [Sona Sona | Ben Johnson | Kalabhavan Mani | Deepakdev #shortsfeed #shorts #reels #kalabhavanmani](https://www.youtube.com/watch?v=syatRS_qU7o)
+- [Kukkuru Kukku | Vellinakshathram #shortsfeed #shorts #reels #filmsongs #malayalammoviesongs](https://www.youtube.com/watch?v=hzsqexzBpbk)
+- [I Love You Mummy | Bhaskar The Rascal #shortsfeed #shorts #shwetamohan #nayanthara #deepakdev](https://www.youtube.com/watch?v=w0DzTBQr8FE)
+- [Aaro Nilaavayi | Ee Pattanathil Bhootham #vineethsreenivasan #shwetamohan #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=WKC_VGAnHXo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
