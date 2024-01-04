@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Daivam Thanna Vidhi Alle Video Song | Snehithan | Kunchacko Boban | KJ Yesudas | Mohan Sithara](https://www.youtube.com/watch?v=qEJmlhje5xs)
 - [ഏവരും ഒരുപോലെ മനം നിറഞ്ഞാസ്വദിക്കുന്ന പ്രിയങ്കരമാം മലയാള സിനിമാഗാനങ്ങൾ | EVERGREEN MALAYALAM SONGS](https://www.youtube.com/watch?v=9tXSBslBXto)
 - [അന്നും ഇന്നും ക്യാമ്പസുകളെ ഹരം കൊള്ളിച്ച  സൂപ്പർഹിറ്റ് ചലച്ചിത്രഗാനങ്ങൾ | EVERGREEN SUPERHITS](https://www.youtube.com/watch?v=KR_WaAcnyns)
 - [Kunnimani Cheppu Audio Song Ponmuttayidunna Thaaravu Movie Song KS Chithra ONV Kurup Johnson](https://www.youtube.com/watch?v=htj0xD6J4wo)
 - [Iniyenthu Nalkanam - Life is Beautiful | Ouseppachan | K J Yesudas | Sujatha Mohan #SongOfTheDay](https://www.youtube.com/watch?v=ptvBpShWG5I)
 - [Junile Nilamazhayil | K J Yesudas | Sujatha #shortsfeed #shorts #malayalammoviesongs #kjyesudas](https://www.youtube.com/watch?v=i4cFUpWQ6cI)
-- [Aliyarude Omana Beevi | Vaanku | Ouseppachan #shortsfeed #shorts #malayalammoviesongs #reels](https://www.youtube.com/watch?v=CSmuYFpX6aE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
