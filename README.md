@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP96 DAY 95 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 958MB - 492MB &amp; 201MB | 04-01-2024]](https://www.1tamilmv.im/index.php?/forums/topic/177144-bigg-boss-tamil-s07-ep96-day-95-true-web-dl-1080p-720p-480p-avc-untouched-958mb-492mb-201mb-04-01-2024/&do=findComment&comment=358846)
+- [Hi Nanna &lpar;2023&rpar; NF WEB DL H264 - [Telugu + Tamil + Malayalam + Kannada + Hindi] DDP5.1&lpar;640kbps&rpar; - [1080p - 6.1GB &amp; 2.1GB] [GDRIVE]](https://www.1tamilmv.im/index.php?/forums/topic/165001-hi-nanna-2023-nf-web-dl-h264-telugu-tamil-malayalam-kannada-hindi-ddp51640kbps-1080p-61gb-21gb-gdrive/&do=findComment&comment=358845)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [4-1-2024]](https://www.1tamilmv.im/index.php?/forums/topic/177143-movies-collection-all-languages-4k-1080p-720p-576p-480p-4-1-2024/&do=findComment&comment=358844)
 - [Mersal &lpar;2017&rpar; Tamil - TRUE WEB-DL - 4K , 1080p &amp; 720p - HEVC / AVC - UNTOUCHED - DTS5.1&lpar;768kbps&rpar; - 9.4GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - ESub [GDrive]](https://www.1tamilmv.im/index.php?/forums/topic/177007-mersal-2017-tamil-true-web-dl-4k-1080p-720p-hevc-avc-untouched-dts51768kbps-94gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub-gdrive/&do=findComment&comment=358843)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [4-1-2024]](https://www.1tamilmv.im/index.php?/forums/topic/177143-movies-collection-all-languages-4k-1080p-720p-576p-480p-4-1-2024/&do=findComment&comment=358842)
-- [Kaathal - The Core &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177131-kaathal-the-core-2023-malayalam-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358841)
-- [The Brothers Sun &lpar;2024&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.5GB - 2GB &amp; 800MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177139-the-brothers-sun-2024-s01-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-55gb-2gb-800mb-esub/&do=findComment&comment=358840)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
