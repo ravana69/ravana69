@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Iniyenthu Nalkanam - Life is Beautiful | Ouseppachan | K J Yesudas | Sujatha Mohan #SongOfTheDay](https://www.youtube.com/watch?v=ptvBpShWG5I)
 - [Junile Nilamazhayil | K J Yesudas | Sujatha #shortsfeed #shorts #malayalammoviesongs #kjyesudas](https://www.youtube.com/watch?v=i4cFUpWQ6cI)
 - [Aliyarude Omana Beevi | Vaanku | Ouseppachan #shortsfeed #shorts #malayalammoviesongs #reels](https://www.youtube.com/watch?v=CSmuYFpX6aE)
 - [Sona Sona | Ben Johnson | Kalabhavan Mani | Deepakdev #shortsfeed #shorts #reels #kalabhavanmani](https://www.youtube.com/watch?v=syatRS_qU7o)
 - [Kukkuru Kukku | Vellinakshathram #shortsfeed #shorts #reels #filmsongs #malayalammoviesongs](https://www.youtube.com/watch?v=hzsqexzBpbk)
 - [I Love You Mummy | Bhaskar The Rascal #shortsfeed #shorts #shwetamohan #nayanthara #deepakdev](https://www.youtube.com/watch?v=w0DzTBQr8FE)
-- [Aaro Nilaavayi | Ee Pattanathil Bhootham #vineethsreenivasan #shwetamohan #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=WKC_VGAnHXo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
