@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vibing through the chaos #Raakk #MalaikottaiVaaliban #Mohanlal #Shorts #ytshorts](https://www.youtube.com/watch?v=cz9Jlcr0DHU)
+- [കാപ്പി വൈബ്സ് | Kappy Vibes #ytshortsvideo #love](https://www.youtube.com/watch?v=8VplrMjjzZg)
+- [കാപ്പി വൈബ്സ് | Kappy Vibes #shorts #love](https://www.youtube.com/watch?v=UVsVLYc1LAE)
+- [കാപ്പി വൈബ്സ് | Kappy Vibes #shorts #love](https://www.youtube.com/watch?v=6i7i4O778Fo)
 - [Konnappookkal | Mukesh | Suma Menon | Chithra | Bearny Ignatius | Gireesh Puthanchery](https://www.youtube.com/watch?v=IXC29JCvPu4)
 - [ഇന്ന് ജനുവരി 4  ജപമാല കേട്ട് ഈ വർഷം  ആരംഭിക്കാം #2024  ജപമാല #പ്രകാശത്തിൻറെ   രഹസ്യങ്ങൾ #japamala](https://www.youtube.com/watch?v=7QDT67zC_XA)
-- [പുതുവർഷംകേട്ട ആദ്യത്തെ ഹിറ്റ്ഗാനങ്ങൾ |Christian Devotional Songs Malayalam | Christian Melody Songs](https://www.youtube.com/watch?v=7YbL6FY4YR0)
-- [2024 ൽ ഞാൻ ആദ്യം കേട്ട മരിയൻ ഗാനങ്ങൾ #2024  first mother mary songs in youtube #part 2](https://www.youtube.com/watch?v=rVQQE2oL2p4)
-- [Japamala 4th of January 2024 # Mathavinte Japamala Prakashathinte Rahasyangal 4th of January 2024](https://www.youtube.com/watch?v=31-R4BJpo7c)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=UZjY1t0G9C0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
