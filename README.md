@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [എൻ്റെ  കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#sangeethajapamala #japamala pray](https://www.youtube.com/watch?v=YBZTYcg484A)
+- [I Love You Mummy | Bhaskar The Rascal  #shortsfeed #shorts #mammootty #deepakdev #lyricalvideo](https://www.youtube.com/watch?v=C9201DFfMOg)
 - [Vibing through the chaos #Raakk #MalaikottaiVaaliban #Mohanlal #Shorts #ytshorts](https://www.youtube.com/watch?v=cz9Jlcr0DHU)
 - [കാപ്പി വൈബ്സ് | Kappy Vibes #ytshortsvideo #love](https://www.youtube.com/watch?v=8VplrMjjzZg)
 - [കാപ്പി വൈബ്സ് | Kappy Vibes #shorts #love](https://www.youtube.com/watch?v=UVsVLYc1LAE)
 - [കാപ്പി വൈബ്സ് | Kappy Vibes #shorts #love](https://www.youtube.com/watch?v=6i7i4O778Fo)
-- [Konnappookkal | Mukesh | Suma Menon | Chithra | Bearny Ignatius | Gireesh Puthanchery](https://www.youtube.com/watch?v=IXC29JCvPu4)
-- [ഇന്ന് ജനുവരി 4  ജപമാല കേട്ട് ഈ വർഷം  ആരംഭിക്കാം #2024  ജപമാല #പ്രകാശത്തിൻറെ   രഹസ്യങ്ങൾ #japamala](https://www.youtube.com/watch?v=7QDT67zC_XA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
