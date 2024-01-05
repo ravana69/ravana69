@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ayalaan &lpar;2024&rpar; - Official Trailer &lpar;Tamil + Telugu&rpar; | Sivakarthikeyan | A.R.Rahman | Rakul Preet Singh | R.Ravikumar](https://www.1tamilmv.im/index.php?/forums/topic/177169-ayalaan-2024-official-trailer-tamil-telugu-sivakarthikeyan-arrahman-rakul-preet-singh-rravikumar/&do=findComment&comment=358907)
+- [Jay Jay &lpar;JayJay&rpar; &lpar;2003&rpar; Tamil TRUE WEB-DL - 1080p - x265 HEVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 5.7GB - ESub - GDFlix](https://www.1tamilmv.im/index.php?/forums/topic/174473-jay-jay-jayjay-2003-tamil-true-web-dl-1080p-x265-hevc-untouched-ddp20-57gb-esub-gdflix/&do=findComment&comment=358906)
+- [Kaththi &lpar;2014&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - DD5.1&lpar;640kbps&rpar; - 9.7GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - ESub [GDrive]](https://www.1tamilmv.im/index.php?/forums/topic/177168-kaththi-2014-tamil-true-web-dl-1080p-720p-avc-hevc-untouched-dd51640kbps-97gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub-gdrive/&do=findComment&comment=358905)
 - [Fast &amp; Furious &lpar;2009&rpar; 1080p 10bit Bluray x265 HEVC [Org DDP 5.1 Hindi-Tamil-Telugu-AAC 5.1 English] MSubs 3GB [G-Drive]](https://www.1tamilmv.im/index.php?/forums/topic/177167-fast-furious-2009-1080p-10bit-bluray-x265-hevc-org-ddp-51-hindi-tamil-telugu-aac-51-english-msubs-3gb-g-drive/&do=findComment&comment=358904)
 - [2024 This Week Released DVDRip &#39;s](https://www.1tamilmv.im/index.php?/forums/topic/177166-2024-this-week-released-dvdrip-s/&do=findComment&comment=358903)
-- [50 Hollywood Movies - 1080p - BluRay/WEB DL - H264 - [Tamil + Telugu + Hindi + Eng] - ESub 200GB [GDRive]](https://www.1tamilmv.im/index.php?/forums/topic/148003-50-hollywood-movies-1080p-blurayweb-dl-h264-tamil-telugu-hindi-eng-esub-200gb-gdrive/&do=findComment&comment=358902)
-- [A Savannah Haunting &lpar;2021&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.2GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177148-a-savannah-haunting-2021-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-32gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=358901)
-- [Gyeongseong Creature &lpar;2023&rpar; S01 EP &lpar;01-10&rpar; TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.2GB - 2.3GB &amp; 1GB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176929-gyeongseong-creature-2023-s01-ep-01-10-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-eng-dd51-192kbps-52gb-23gb-1gb-esub/&do=findComment&comment=358900)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
