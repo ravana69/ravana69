@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Conjuring Kannappan &lpar;2023&rpar; Tamil NF WEB DL H264 DDP5.1 - [1080p &amp; 720p - 5.5GB - 2GB - 1.5GB] [GDRIVE]](https://www.1tamilmv.im/index.php?/forums/topic/167509-conjuring-kannappan-2023-tamil-nf-web-dl-h264-ddp51-1080p-720p-55gb-2gb-15gb-gdrive/&do=findComment&comment=358898)
+- [Jay Jay &lpar;JayJay&rpar; &lpar;2003&rpar; Tamil TRUE WEB-DL - 1080p - x265 HEVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 5.7GB - ESub - GDFlix](https://www.1tamilmv.im/index.php?/forums/topic/174473-jay-jay-jayjay-2003-tamil-true-web-dl-1080p-x265-hevc-untouched-ddp20-57gb-esub-gdflix/&do=findComment&comment=358897)
+- [Shankar Dada M.B.B.S. &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.3GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177159-shankar-dada-mbbs-2004-telugu-dvd9-untouched-480p-dd51-448kbps-63gb-esub/&do=findComment&comment=358896)
 - [Petta &lpar;2019&rpar;.1080p.Web-dl.H265.HDR10+.DDP5.1.Atmos - 3.2GB](https://www.1tamilmv.im/index.php?/forums/topic/177156-petta-20191080pweb-dlh265hdr10ddp51atmos-32gb/&do=findComment&comment=358895)
 - [Okkadu &lpar;2003&rpar;.Telugu.480p.DVD9Rip.x264.DD5.1 448Kbps.ESub - 3GB &lpar;AI Deinterlaced&rpar;](https://www.1tamilmv.im/index.php?/forums/topic/177154-okkadu-2003telugu480pdvd9ripx264dd51-448kbpsesub-3gb-ai-deinterlaced/&do=findComment&comment=358894)
-- [Conjuring Kannappan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177146-conjuring-kannappan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-56gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358893)
-- [#90&#39;s Middle Class Biopic &lpar;2024&rpar; Complete S01 EP&lpar;01-06&rpar; Merged Telugu TRUE WEB-DL - [1080p - 720p &amp; 480p - AVC - AAC - 4.5GB - 2.4GB &amp; 1.2GB] [Google Drive]](https://www.1tamilmv.im/index.php?/forums/topic/177165-90s-middle-class-biopic-2024-complete-s01-ep01-06-merged-telugu-true-web-dl-1080p-720p-480p-avc-aac-45gb-24gb-12gb-google-drive/&do=findComment&comment=358892)
-- [Ratha Sarithiram [Rakht Charitra] [Rakta Charitra] &lpar;2010&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 1.5GB - ESub - GDFlix](https://www.1tamilmv.im/index.php?/forums/topic/177158-ratha-sarithiram-rakht-charitra-rakta-charitra-2010-tamil-true-web-dl-1080p-avc-untouched-aac20-15gb-esub-gdflix/&do=findComment&comment=358891)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
