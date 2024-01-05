@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Brothers Sun &lpar;2024&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.5GB - 2GB &amp; 800MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177139-the-brothers-sun-2024-s01-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-55gb-2gb-800mb-esub/&do=findComment&comment=358882)
+- [Perilloor Premier League &lpar;2024&rpar; S01 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 7.6GB - 2.8GB &amp; 1.2GB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177151-perilloor-premier-league-2024-s01-ep-01-07-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-dd51-192kbps-76gb-28gb-12gb-esub/&do=findComment&comment=358881)
+- [Shankar Dada M.B.B.S. &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.3GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177159-shankar-dada-mbbs-2004-telugu-dvd9-untouched-480p-dd51-448kbps-63gb-esub/&do=findComment&comment=358880)
+- [Ratha Sarithiram [Rakht Charitra] [Rakta Charitra] &lpar;2010&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 1.5GB - ESub - GDFlix](https://www.1tamilmv.im/index.php?/forums/topic/177158-ratha-sarithiram-rakht-charitra-rakta-charitra-2010-tamil-true-web-dl-1080p-avc-untouched-aac20-15gb-esub-gdflix/&do=findComment&comment=358879)
 - [Manmadha Banam &lpar;2010&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 4GB - ESub - Bhavani DVD](https://www.1tamilmv.im/index.php?/forums/topic/177145-manmadha-banam-2010-telugu-dvd5-untouched-480p-dd51-448kbps-4gb-esub-bhavani-dvd/&do=findComment&comment=358878)
-- [Journey 3 From the Earth to the Moon &lpar;2024&rpar; Official Ai Trailer | Warner Bros. Pictures](https://www.1tamilmv.im/index.php?/forums/topic/150718-journey-3-from-the-earth-to-the-moon-2024-official-ai-trailer-warner-bros-pictures/&do=findComment&comment=358877)
-- [Will True AI Turn Against Human? Exploring the Existential Threat 🌐 | AI Ethics &amp; Safeguards 🛡️](https://www.1tamilmv.im/index.php?/forums/topic/150703-will-true-ai-turn-against-human-exploring-the-existential-threat-%F0%9F%8C%90-ai-ethics-safeguards-%F0%9F%9B%A1%EF%B8%8F/&do=findComment&comment=358876)
-- [We&#39;ve Never Found Anything Like Our Solar System. Is It a Freak in Space?](https://www.1tamilmv.im/index.php?/forums/topic/150702-weve-never-found-anything-like-our-solar-system-is-it-a-freak-in-space/&do=findComment&comment=358875)
-- [Avatar 3: The Seed Bearer &lpar;2025&rpar; Official Ai Trailer | 20th Century Studios | Disney+](https://www.1tamilmv.im/index.php?/forums/topic/150701-avatar-3-the-seed-bearer-2025-official-ai-trailer-20th-century-studios-disney/&do=findComment&comment=358874)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
