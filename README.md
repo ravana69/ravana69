@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Gopaala Gokulapaala Crazy Gopalan Movie Song Dileep Shankar Mahadevan Anil Panachooran Rahul Raj](https://www.youtube.com/watch?v=GzK7-1BHDbs)
 - [ആർക്ക് എന്ത് ഹെൽപ് വേണമെങ്കിലും കുട്ടി പോലീസുകൾ ഡ്യൂട്ടിയിലുണ്ട്  ! KERALA KALOLSAVAM 2024](https://www.youtube.com/watch?v=DjxI_nmcNdI)
 - [തകർന്ന മനുഷ്യനിലും പൂർണ മനുഷ്യനെ കണ്ടെത്തുന്നവനാണ് നാഥൻ. | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=E8m4hUiAzQA)
 - [Puthuvettam Thedi Vannu | Mazhathullikkilukkam | M G Sreekumar | Suresh Peters | S Ramesan Nair](https://www.youtube.com/watch?v=-BwGz6YS3yQ)
 - [Munthirivalliyil Video Song | Kalari | KJ Yesudas | Kaithapram | Darsan Raman](https://www.youtube.com/watch?v=hiLxhlgX7uA)
 - [MLA പാടുന്നു ! കലയിൽ രാഷ്ട്രീയമില്ല മതമില്ല ! എല്ലാരും ഒന്നാണ് ! KERALA KALOLSAVAM 2024](https://www.youtube.com/watch?v=eJehF6Fu5qk)
-- [Neeyarinjo | Sadanandante Samayam | K J Yesudas |  Mohan Sithara  | Yusufali Kechery](https://www.youtube.com/watch?v=newogpVpScU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
