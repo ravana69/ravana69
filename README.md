@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന January 6 # Athiravile Prarthana 6th January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=qmFWBZ45k0E)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=444OBs_MZMM)
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 6th January 2024](https://www.youtube.com/watch?v=ExdcnRisKqg)
 - [പ്രിയമുള്ള ഗാനങ്ങൾ | Malayalam nostalgic songs | K JYesudas | Gireesh Puthenchery | Sujatha Mohan](https://www.youtube.com/watch?v=dmo7Au3pTE8)
 - [Pranayakadha Paadi Vannu | Dileep | Rasika | Jagadeesh | Mohan Sithara | Jagathy Sreekumar](https://www.youtube.com/watch?v=s5sQhwII7tg)
 - [5 January 2024](https://www.youtube.com/watch?v=fsTmPzpvyOk)
-- [Songs Of The Week | Sreya Jayadeep | Christian Superhit Songs |Rithuraj |Christian Songs |Joji Johns](https://www.youtube.com/watch?v=h0Voq_CRYfw)
-- [ജില്ലയിൽ ചരിത്രത്തിലാദ്യമായി ഒരു സ്‌കൂളിൽനിന്ന് 3 നാടകം ! KERALA KALOLSAVAM 2023](https://www.youtube.com/watch?v=_l6DwAAfTUk)
-- [Gopaala Gokulapaala Crazy Gopalan Movie Song Dileep Shankar Mahadevan Anil Panachooran Rahul Raj](https://www.youtube.com/watch?v=GzK7-1BHDbs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
