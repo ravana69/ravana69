@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [പഞ്ചമി രാവല്ലേ....| First Bell | K J Yesudas | Jagadish #shorts](https://www.youtube.com/watch?v=yUT03qUJOOY)
-- [𝘼𝙖 𝙍𝙖𝙩𝙝𝙧𝙞 𝙈𝙖𝙖𝙣𝙟𝙪 𝙥𝙤𝙮𝙞 | 𝙋𝙖𝙣𝙘𝙝𝙖𝙜𝙣𝙞 | #evergeeenmalayalamhits #mohanlal #malayalamsongs](https://www.youtube.com/watch?v=_efwaqMHWwI)
-- [Kaliyodam Chanchadum Video Song | Crazy Gopalan | Dileep | Radha Varma| Rahul Raj | Anil Panachooran](https://www.youtube.com/watch?v=8QdZAGPfGE0)
-- [മലയാളികൾക്ക് ഒത്തിരി കേൾക്കാൻ അവസരം ലഭിച്ചിട്ടില്ലാത്ത മനോഹരമായ മെലഡി ഗാനങ്ങൾ  |Evergreen  Songs](https://www.youtube.com/watch?v=_-b8joqg0GU)
-- [Alfaaz - Jenson George | Jithin Thomas | Priyanka Pinto | Dinesh Krish](https://www.youtube.com/watch?v=vbKc2TcpxlQ)
-- [Njan Gandharvan Malayalam Movie Songs | Yesudas | Johnson | Padmarajan | Sound of Arts](https://www.youtube.com/watch?v=KiySqbnnRgc)
+- [ആർക്ക് എന്ത് ഹെൽപ് വേണമെങ്കിലും കുട്ടി പോലീസുകൾ ഡ്യൂട്ടിയിലുണ്ട്  ! KERALA KALOLSAVAM 2024](https://www.youtube.com/watch?v=DjxI_nmcNdI)
+- [തകർന്ന മനുഷ്യനിലും പൂർണ മനുഷ്യനെ കണ്ടെത്തുന്നവനാണ് നാഥൻ. | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=E8m4hUiAzQA)
+- [Puthuvettam Thedi Vannu | Mazhathullikkilukkam | M G Sreekumar | Suresh Peters | S Ramesan Nair](https://www.youtube.com/watch?v=-BwGz6YS3yQ)
+- [Munthirivalliyil Video Song | Kalari | KJ Yesudas | Kaithapram | Darsan Raman](https://www.youtube.com/watch?v=hiLxhlgX7uA)
+- [MLA പാടുന്നു ! കലയിൽ രാഷ്ട്രീയമില്ല മതമില്ല ! എല്ലാരും ഒന്നാണ് ! KERALA KALOLSAVAM 2024](https://www.youtube.com/watch?v=eJehF6Fu5qk)
+- [Neeyarinjo | Sadanandante Samayam | K J Yesudas |  Mohan Sithara  | Yusufali Kechery](https://www.youtube.com/watch?v=newogpVpScU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
