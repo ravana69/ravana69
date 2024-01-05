@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ariyunna Papabharathal | Christian Devotional Songs Malayalam | Paul Chittoor |  Dr.Radhakrishnan](https://www.youtube.com/watch?v=Gm_vMJbBONI)
+- [ഇന്ന് ജനുവരി 5  എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#ദുഃഖത്തിൻറെ രഹസ്യം](https://www.youtube.com/watch?v=kCk2UkU_sHM)
+- [Japamala 5th of January 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 5th of January 24](https://www.youtube.com/watch?v=TJUs811ShbY)
 - [ഇപ്പോള്‍ മുതല്‍ സകല തലമുറകളും എന്നെ ഭാഗ്യവതി എന്നു പ്രകീര്‍ത്തിക്കും#kripasanam  daily prayer & song](https://www.youtube.com/watch?v=jsvm5Z3yw5w)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=d8M_8GT6_5I)
 - [പ്രഭാത പ്രാര്‍ത്ഥന January 5 # Athiravile Prarthana 5th January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=13HaFpBlDvc)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=VM-wSFIG_bM)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 5th January 2024](https://www.youtube.com/watch?v=ufzMUV83X6o)
-- [Muthukkal Pathikkatha | Uzhaithu Vaazha Vendum | Devendran | K.J.Yesudas & K.S.Chithra | Hi-Res](https://www.youtube.com/watch?v=ZPfYxXwwh5k)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
