@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Chandana Mukile | Vellinakshathram | Video | K S Chitra | Prithviraj | Vinayan | M Jayachandran](https://www.youtube.com/watch?v=0TQeFJNG-ng)
-- [Orupole Chimmum | Lyrical Video | Innanu Aa Kalyanam | Sudeep Kumar | Vayalar Sarath | Bijibal](https://www.youtube.com/watch?v=DzsrZTuxDV8)
-- [Vibes on point #Raakk #MalaikottaiVaaliban #Mohanlal #Shorts #ytshorts](https://www.youtube.com/watch?v=spUsJq-CXYU)
-- [Pattonnu Paadan | Kilukkam Kilukilukkam | Kunchacko Boban | Jayasurya | Kavya Madhavan](https://www.youtube.com/watch?v=R841R_BbSt8)
-- [Jagathy Old Malayalam Movie Songs | Vinayapoorvam Vidyaadharan | Remastered Malayalam Movie Songs](https://www.youtube.com/watch?v=2Sb71MyDedc)
-- [Ariyunna Papabharathal | Christian Devotional Songs Malayalam | Paul Chittoor |  Dr.Radhakrishnan](https://www.youtube.com/watch?v=Gm_vMJbBONI)
+- [Soulful beats, heartful lyrics #AadhyanuraagamNee #Khadhikan #shorts #ytshorts](https://www.youtube.com/watch?v=9mEvotBNEYk)
+- [Ramzan Nilavotha Pennalle | K J Yesudas  #shortsfeed #shorts #mjayachandran #kjyesudas #reels](https://www.youtube.com/watch?v=-05H-YEq2Kk)
+- [Poo Kunkumappoo | K J Yesudas | Mohanlal #shortsfeed #shorts #ilayaraja #kjyesudas #mohanlal](https://www.youtube.com/watch?v=FDMyQVXeCPo)
+- [Nira Thinkaley | K J Yesudas  #shortsfeed #shorts #reels #kjyesudas #yesudas  #malayalammoviesongs](https://www.youtube.com/watch?v=hJ6zPxonqG8)
+- [Mayangoo Nee Sakhi | K J Yesudas  #shortsfeed #shorts #mjayachandran  #kjyesudas #yesudas #reels](https://www.youtube.com/watch?v=cE8dHrn_5p8)
+- [Manassil Viriyunna | K J Yesudas #shortsfeed #shorts #mjayachandran #kjyesudas #reels #kjyesudashits](https://www.youtube.com/watch?v=ktZp43qsNWA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
