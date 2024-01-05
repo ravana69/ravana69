@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manjukaalam | Megham | K J Yesudas | Sujatha Mohan | Ouseppachan | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=3JosXXHvbb4)
+- [പറന്നൂ പൂങ്കുയില്‍ | Paranu Pookuyil | Bhishmachariya Malayalam Movie Song | K J Yesudas | Siddique](https://www.youtube.com/watch?v=PUR7xCHZT0o)
 - [Soulful beats, heartful lyrics #AadhyanuraagamNee #Khadhikan #shorts #ytshorts](https://www.youtube.com/watch?v=9mEvotBNEYk)
 - [Ramzan Nilavotha Pennalle | K J Yesudas  #shortsfeed #shorts #mjayachandran #kjyesudas #reels](https://www.youtube.com/watch?v=-05H-YEq2Kk)
 - [Poo Kunkumappoo | K J Yesudas | Mohanlal #shortsfeed #shorts #ilayaraja #kjyesudas #mohanlal](https://www.youtube.com/watch?v=FDMyQVXeCPo)
 - [Nira Thinkaley | K J Yesudas  #shortsfeed #shorts #reels #kjyesudas #yesudas  #malayalammoviesongs](https://www.youtube.com/watch?v=hJ6zPxonqG8)
-- [Mayangoo Nee Sakhi | K J Yesudas  #shortsfeed #shorts #mjayachandran  #kjyesudas #yesudas #reels](https://www.youtube.com/watch?v=cE8dHrn_5p8)
-- [Manassil Viriyunna | K J Yesudas #shortsfeed #shorts #mjayachandran #kjyesudas #reels #kjyesudashits](https://www.youtube.com/watch?v=ktZp43qsNWA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
