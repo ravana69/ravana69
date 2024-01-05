@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [The Brothers Sun &lpar;2024&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.5GB - 2GB &amp; 800MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177139-the-brothers-sun-2024-s01-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-55gb-2gb-800mb-esub/&do=findComment&comment=358882)
-- [Perilloor Premier League &lpar;2024&rpar; S01 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 7.6GB - 2.8GB &amp; 1.2GB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177151-perilloor-premier-league-2024-s01-ep-01-07-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-dd51-192kbps-76gb-28gb-12gb-esub/&do=findComment&comment=358881)
-- [Shankar Dada M.B.B.S. &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.3GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177159-shankar-dada-mbbs-2004-telugu-dvd9-untouched-480p-dd51-448kbps-63gb-esub/&do=findComment&comment=358880)
-- [Ratha Sarithiram [Rakht Charitra] [Rakta Charitra] &lpar;2010&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 1.5GB - ESub - GDFlix](https://www.1tamilmv.im/index.php?/forums/topic/177158-ratha-sarithiram-rakht-charitra-rakta-charitra-2010-tamil-true-web-dl-1080p-avc-untouched-aac20-15gb-esub-gdflix/&do=findComment&comment=358879)
-- [Manmadha Banam &lpar;2010&rpar; Telugu - DVD5 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 4GB - ESub - Bhavani DVD](https://www.1tamilmv.im/index.php?/forums/topic/177145-manmadha-banam-2010-telugu-dvd5-untouched-480p-dd51-448kbps-4gb-esub-bhavani-dvd/&do=findComment&comment=358878)
+- [#90&#39;s Middle Class Biopic &lpar;2024&rpar; S01 EP&lpar;01-06&rpar; Telugu TRUE WEB-DL - [1080p - 720p &amp; 480p - AVC - AAC - 4.5GB - 2.4GB &amp; 1.2GB]](https://www.1tamilmv.im/index.php?/forums/topic/177164-90s-middle-class-biopic-2024-s01-ep01-06-telugu-true-web-dl-1080p-720p-480p-avc-aac-45gb-24gb-12gb/&do=findComment&comment=358888)
+- [Hypnotic.2023.1080p., 720p AMZN.WEB-DL.DUAL.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.im/index.php?/forums/topic/177163-hypnotic20231080p-720p-amznweb-dldualddp51-direct-download/&do=findComment&comment=358887)
+- [Foe.2023.2160p., 1080p, 720p AMZN.WEB-DL.DUAL.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.im/index.php?/forums/topic/177162-foe20232160p-1080p-720p-amznweb-dldualddp51-direct-download/&do=findComment&comment=358886)
+- [Conjuring.Kannappan.2023.1080p.NF.WEB-DL.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.im/index.php?/forums/topic/177161-conjuringkannappan20231080pnfweb-dlddp51-direct-download/&do=findComment&comment=358885)
+- [Kaathal.The.Core.2023.1080p.AMZN.WEB-DL.MULTI.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.im/index.php?/forums/topic/177160-kaathalthecore20231080pamznweb-dlmultiddp51-direct-download/&do=findComment&comment=358884)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
