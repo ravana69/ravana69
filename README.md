@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Fast &amp; Furious &lpar;2009&rpar; 1080p 10bit Bluray x265 HEVC [Org DDP 5.1 Hindi-Tamil-Telugu-AAC 5.1 English] MSubs 3GB [G-Drive]](https://www.1tamilmv.im/index.php?/forums/topic/177167-fast-furious-2009-1080p-10bit-bluray-x265-hevc-org-ddp-51-hindi-tamil-telugu-aac-51-english-msubs-3gb-g-drive/&do=findComment&comment=358904)
+- [2024 This Week Released DVDRip &#39;s](https://www.1tamilmv.im/index.php?/forums/topic/177166-2024-this-week-released-dvdrip-s/&do=findComment&comment=358903)
 - [50 Hollywood Movies - 1080p - BluRay/WEB DL - H264 - [Tamil + Telugu + Hindi + Eng] - ESub 200GB [GDRive]](https://www.1tamilmv.im/index.php?/forums/topic/148003-50-hollywood-movies-1080p-blurayweb-dl-h264-tamil-telugu-hindi-eng-esub-200gb-gdrive/&do=findComment&comment=358902)
 - [A Savannah Haunting &lpar;2021&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.2GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177148-a-savannah-haunting-2021-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-32gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=358901)
 - [Gyeongseong Creature &lpar;2023&rpar; S01 EP &lpar;01-10&rpar; TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.2GB - 2.3GB &amp; 1GB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176929-gyeongseong-creature-2023-s01-ep-01-10-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-eng-dd51-192kbps-52gb-23gb-1gb-esub/&do=findComment&comment=358900)
-- [The Expendables 4 &lpar;2023&rpar; &lpar;BluRay + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 7GB - 2.4GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177142-the-expendables-4-2023-bluray-original-audios-4k-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-7gb-24gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=358899)
-- [Conjuring Kannappan &lpar;2023&rpar; Tamil NF WEB DL H264 DDP5.1 - [1080p &amp; 720p - 5.5GB - 2GB - 1.5GB] [GDRIVE]](https://www.1tamilmv.im/index.php?/forums/topic/167509-conjuring-kannappan-2023-tamil-nf-web-dl-h264-ddp51-1080p-720p-55gb-2gb-15gb-gdrive/&do=findComment&comment=358898)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
