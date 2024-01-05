@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chandana Mukile | Vellinakshathram | Video | K S Chitra | Prithviraj | Vinayan | M Jayachandran](https://www.youtube.com/watch?v=0TQeFJNG-ng)
+- [Orupole Chimmum | Lyrical Video | Innanu Aa Kalyanam | Sudeep Kumar | Vayalar Sarath | Bijibal](https://www.youtube.com/watch?v=DzsrZTuxDV8)
 - [Vibes on point #Raakk #MalaikottaiVaaliban #Mohanlal #Shorts #ytshorts](https://www.youtube.com/watch?v=spUsJq-CXYU)
 - [Pattonnu Paadan | Kilukkam Kilukilukkam | Kunchacko Boban | Jayasurya | Kavya Madhavan](https://www.youtube.com/watch?v=R841R_BbSt8)
 - [Jagathy Old Malayalam Movie Songs | Vinayapoorvam Vidyaadharan | Remastered Malayalam Movie Songs](https://www.youtube.com/watch?v=2Sb71MyDedc)
 - [Ariyunna Papabharathal | Christian Devotional Songs Malayalam | Paul Chittoor |  Dr.Radhakrishnan](https://www.youtube.com/watch?v=Gm_vMJbBONI)
-- [ഇന്ന് ജനുവരി 5  എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#ദുഃഖത്തിൻറെ രഹസ്യം](https://www.youtube.com/watch?v=kCk2UkU_sHM)
-- [Japamala 5th of January 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 5th of January 24](https://www.youtube.com/watch?v=TJUs811ShbY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
