@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളികൾക്ക് ഒത്തിരി കേൾക്കാൻ അവസരം ലഭിച്ചിട്ടില്ലാത്ത മനോഹരമായ മെലഡി ഗാനങ്ങൾ  |Evergreen  Songs](https://www.youtube.com/watch?v=_-b8joqg0GU)
+- [Alfaaz - Jenson George | Jithin Thomas | Priyanka Pinto | Dinesh Krish](https://www.youtube.com/watch?v=vbKc2TcpxlQ)
 - [Njan Gandharvan Malayalam Movie Songs | Yesudas | Johnson | Padmarajan | Sound of Arts](https://www.youtube.com/watch?v=KiySqbnnRgc)
 - [Manjukaalam | Megham | K J Yesudas | Sujatha Mohan | Ouseppachan | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=3JosXXHvbb4)
 - [പറന്നൂ പൂങ്കുയില്‍ | Paranu Pookuyil | Bhishmachariya Malayalam Movie Song | K J Yesudas | Siddique](https://www.youtube.com/watch?v=PUR7xCHZT0o)
 - [Soulful beats, heartful lyrics #AadhyanuraagamNee #Khadhikan #shorts #ytshorts](https://www.youtube.com/watch?v=9mEvotBNEYk)
-- [Ramzan Nilavotha Pennalle | K J Yesudas  #shortsfeed #shorts #mjayachandran #kjyesudas #reels](https://www.youtube.com/watch?v=-05H-YEq2Kk)
-- [Poo Kunkumappoo | K J Yesudas | Mohanlal #shortsfeed #shorts #ilayaraja #kjyesudas #mohanlal](https://www.youtube.com/watch?v=FDMyQVXeCPo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
