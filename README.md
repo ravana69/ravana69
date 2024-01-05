@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Petta &lpar;2019&rpar;.1080p.Web-dl.H265.HDR10+.DDP5.1.Atmos - 3.2GB](https://www.1tamilmv.im/index.php?/forums/topic/177156-petta-20191080pweb-dlh265hdr10ddp51atmos-32gb/&do=findComment&comment=358895)
+- [Okkadu &lpar;2003&rpar;.Telugu.480p.DVD9Rip.x264.DD5.1 448Kbps.ESub - 3GB &lpar;AI Deinterlaced&rpar;](https://www.1tamilmv.im/index.php?/forums/topic/177154-okkadu-2003telugu480pdvd9ripx264dd51-448kbpsesub-3gb-ai-deinterlaced/&do=findComment&comment=358894)
+- [Conjuring Kannappan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177146-conjuring-kannappan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-56gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358893)
 - [#90&#39;s Middle Class Biopic &lpar;2024&rpar; Complete S01 EP&lpar;01-06&rpar; Merged Telugu TRUE WEB-DL - [1080p - 720p &amp; 480p - AVC - AAC - 4.5GB - 2.4GB &amp; 1.2GB] [Google Drive]](https://www.1tamilmv.im/index.php?/forums/topic/177165-90s-middle-class-biopic-2024-complete-s01-ep01-06-merged-telugu-true-web-dl-1080p-720p-480p-avc-aac-45gb-24gb-12gb-google-drive/&do=findComment&comment=358892)
 - [Ratha Sarithiram [Rakht Charitra] [Rakta Charitra] &lpar;2010&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 1.5GB - ESub - GDFlix](https://www.1tamilmv.im/index.php?/forums/topic/177158-ratha-sarithiram-rakht-charitra-rakta-charitra-2010-tamil-true-web-dl-1080p-avc-untouched-aac20-15gb-esub-gdflix/&do=findComment&comment=358891)
-- [Nuvvu Vastavani &lpar;2000&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB](https://www.1tamilmv.im/index.php?/forums/topic/177113-nuvvu-vastavani-2000-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-71gb/&do=findComment&comment=358889)
-- [#90&#39;s Middle Class Biopic &lpar;2024&rpar; S01 EP&lpar;01-06&rpar; Telugu TRUE WEB-DL - [1080p - 720p &amp; 480p - AVC - AAC - 4.5GB - 2.4GB &amp; 1.2GB]](https://www.1tamilmv.im/index.php?/forums/topic/177164-90s-middle-class-biopic-2024-s01-ep01-06-telugu-true-web-dl-1080p-720p-480p-avc-aac-45gb-24gb-12gb/&do=findComment&comment=358888)
-- [Hypnotic.2023.1080p., 720p AMZN.WEB-DL.DUAL.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.im/index.php?/forums/topic/177163-hypnotic20231080p-720p-amznweb-dldualddp51-direct-download/&do=findComment&comment=358887)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
