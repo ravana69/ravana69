@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Cheran Cholan Pandiyar | Namma Annachi | Deva | S.Janaki & S.P.B | Hi-Res Audio](https://www.youtube.com/watch?v=DC4L4ooGy9g)
+- [AR Rahman Malayalam Hits | Video Jukebox | Malayalam Hit Songs | AR Rahman Songs | Birthday Special](https://www.youtube.com/watch?v=opntzltRVi8)
 - [Christian Video Songs Malayalam | Sreya Jayadeep | Christian Superhit Songs | Kester | Joji Johns](https://www.youtube.com/watch?v=wSiNZvXLCAM)
 - [മാതാവിൻറെ പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ടു  ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mothermarysongs and prayer 6th](https://www.youtube.com/watch?v=DTzI1-RpeRY)
 - [Japamala 6th of January 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 6th of January 24](https://www.youtube.com/watch?v=HvYsYJuNeMA)
 - [ഇന്ന് ജനുവരി 06  എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #santhosham രഹസ്യ](https://www.youtube.com/watch?v=HhmwIgaisfI)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=p4OJZHNYSBM)
-- [രാവിലെ പ്രാര്‍ത്ഥന January 6 # Athiravile Prarthana 6th January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=qmFWBZ45k0E)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
