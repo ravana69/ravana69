@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [DHEE &lpar;2007&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.3GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177182-dhee-2007-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-73gb-esub/&do=findComment&comment=358925)
-- [DHEE &lpar;2007&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.3GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177182-dhee-2007-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-73gb-esub/&do=findComment&comment=358924)
-- [DHEE &lpar;2007&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.3GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177182-dhee-2007-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-73gb-esub/&do=findComment&comment=358923)
-- [Yajaman &lpar;1993&rpar; 1080p DSNP WEB-DL AAC.2.0 x264 - 3.7 GB](https://www.1tamilmv.im/index.php?/forums/topic/177180-yajaman-1993-1080p-dsnp-web-dl-aac20-x264-37-gb/&do=findComment&comment=358922)
-- [Mangalavaaram &lpar;Original Background Score&rpar; - FLAC &lpar;16Bit-44.1kHz&rpar; - 64MB - B. Ajaneesh Loknath Musical](https://www.1tamilmv.im/index.php?/forums/topic/177181-mangalavaaram-original-background-score-flac-16bit-441khz-64mb-b-ajaneesh-loknath-musical/&do=findComment&comment=358921)
+- [Avatar 3: The Seed Bearer - First Official Trailer | 20th Century Studios | Disney+](https://www.1tamilmv.im/index.php?/forums/topic/150700-avatar-3-the-seed-bearer-first-official-trailer-20th-century-studios-disney/&do=findComment&comment=358932)
+- [Gyeongseong Creature &lpar;2023&rpar; S01 EP &lpar;01-10&rpar; TRUE WEB-DL - [1080p - 720p - x264 - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.2GB - 2.3GB &amp; 1GB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/176929-gyeongseong-creature-2023-s01-ep-01-10-true-web-dl-1080p-720p-x264-tamil-telugu-hindi-eng-dd51-192kbps-52gb-23gb-1gb-esub/&do=findComment&comment=358931)
+- [Udal &lpar;2022&rpar;  Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1GB &amp; 700MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177171-udal-2022-malayalam-true-web-dl-1080p-720p-avc-aac-20-1gb-700mb-x264-700mb-400mb-esub/&do=findComment&comment=358930)
+- [Conjuring Kannappan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.6GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177146-conjuring-kannappan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-56gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358929)
+- [Kumbaari &lpar;2024&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.im/index.php?/forums/topic/177176-kumbaari-2024-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=358928)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
