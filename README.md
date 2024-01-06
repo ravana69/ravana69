@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Soundtrack of the moment #AadhyanuraagamNee #Khadhikan #shorts #ytshorts](https://www.youtube.com/watch?v=8ohDSnbOn8c)
 - [മലയാളസിനിമയുടെ സ്വപ്നസുന്ദരി വിജയശ്രീ!!! | Super Hit Songs | Vijayasree Hits #shorts](https://www.youtube.com/watch?v=Ao3uPlZMmoA)
 - [പൂമാനവും താഴെ ഈ ഭൂമിയും സ്നേഹലാവണ്യമേ നിന്റെ ദേവാലയം..♩♪ 🎻#mammootty #yesudas #onvkurup #ouseppachan](https://www.youtube.com/watch?v=mBu8VkR1fe0)
 - [Mukesh Old Malayalam Movie Songs | Godfather Remastered Malayalam Songs | K. S. Chithra, Unni Menon](https://www.youtube.com/watch?v=ESiRC0mRDdA)
 - [Elevating my vibes with 🥁 #Raakk #MalaikottaiVaaliban #Mohanlal #Shorts #ytshorts](https://www.youtube.com/watch?v=teytzh4MPUs)
 - [Grampoo Manam Thookum| Kattaruvi | Jayachandran | Madhuri | Devarajan | Malayalam Classic Song](https://www.youtube.com/watch?v=sAgJv7T2INY)
-- [Cheran Cholan Pandiyar | Namma Annachi | Deva | S.Janaki & S.P.B | Hi-Res Audio](https://www.youtube.com/watch?v=DC4L4ooGy9g)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
