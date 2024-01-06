@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 7th January 2024](https://www.youtube.com/watch?v=sFGJPSLD9Lc)
 - [6 January 2024](https://www.youtube.com/watch?v=TxsSKJtH_qw)
 - [മൊഞ്ച് കൂടിയ കളർ ഐറ്റം തന്നെയാണ് ഒപ്പന ! കലോത്സവവേദിയിൽ അന്താക്ഷരി കളിച്ച് കുട്ടികൾ ! KALOLSAVAM](https://www.youtube.com/watch?v=neAXJqbmo9A)
 - [Maayo Maayo Kallan | Mr Marumakan | Suresh Peters | Dileep | Sanusha | Sheela | Bhagyaraj | Khushbu](https://www.youtube.com/watch?v=DLW8-hu3eic)
 - [Premika Ne Pyar Se   Humse Hai Muqabala   A R Rahman   Hi Res Audio](https://www.youtube.com/watch?v=drJx55co32Q)
 - [Iniyumoru Kaanan | Christian Video Song | Rithuraj | Kusumam Joseph | Joji Johns | Christian Song](https://www.youtube.com/watch?v=Oc7j4UwRpsI)
-- [ജനപ്രിയ നായകൻ ദിലീപിന്റെ തട്ടുപൊളിപ്പൻ ഗാനങ്ങൾ | DANCE HITS OF DILEEP | HITS OF DILEEP](https://www.youtube.com/watch?v=-X0sx-k8PAk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
