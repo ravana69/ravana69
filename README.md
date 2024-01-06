@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Podhuvaga En Manasu Thangam &lpar;2017&rpar; Tamil AMZN WEB DL 1080p H.264 DDP5.1&lpar;640Kbps&rpar; ESub 9.2GB [GDRIVE]](https://www.1tamilmv.im/index.php?/forums/topic/168009-podhuvaga-en-manasu-thangam-2017-tamil-amzn-web-dl-1080p-h264-ddp51640kbps-esub-92gb-gdrive/&do=findComment&comment=358947)
+- [Tejas &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 1.2GB &amp; 700MB - 400MB]](https://www.1tamilmv.im/index.php?/forums/topic/177150-tejas-2023-hindi-true-web-dl-1080p-720p-avc-dd51-192kbps-12gb-700mb-400mb/&do=findComment&comment=358946)
+- [Perilloor Premier League &lpar;2024&rpar; S01 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 7.6GB - 2.8GB &amp; 1.2GB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177151-perilloor-premier-league-2024-s01-ep-01-07-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-dd51-192kbps-76gb-28gb-12gb-esub/&do=findComment&comment=358945)
 - [Udal &lpar;2022&rpar;  Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1GB &amp; 700MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177171-udal-2022-malayalam-true-web-dl-1080p-720p-avc-aac-20-1gb-700mb-x264-700mb-400mb-esub/&do=findComment&comment=358944)
 - [Aattam &lpar;2024&rpar; Malayalam HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.im/index.php?/forums/topic/177177-aattam-2024-malayalam-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=358943)
-- [Kumbaari &lpar;2024&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.im/index.php?/forums/topic/177176-kumbaari-2024-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=358942)
-- [Slumdog Millionaire &lpar;2008&rpar; 1080p BluRay - HQ AVC - [ Tamil &lpar;Line Aud&rpar; + English &lpar;DD.5.1&rpar; ] - ESub - 3.1GB - GDFlix](https://www.1tamilmv.im/index.php?/forums/topic/177183-slumdog-millionaire-2008-1080p-bluray-hq-avc-tamil-line-aud-english-dd51-esub-31gb-gdflix/&do=findComment&comment=358941)
-- [A Savannah Haunting &lpar;2021&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.2GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177148-a-savannah-haunting-2021-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-32gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=358940)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
