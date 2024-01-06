@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Maayo Maayo Kallan | Mr Marumakan | Suresh Peters | Dileep | Sanusha | Sheela | Bhagyaraj | Khushbu](https://www.youtube.com/watch?v=DLW8-hu3eic)
 - [Premika Ne Pyar Se   Humse Hai Muqabala   A R Rahman   Hi Res Audio](https://www.youtube.com/watch?v=drJx55co32Q)
 - [Iniyumoru Kaanan | Christian Video Song | Rithuraj | Kusumam Joseph | Joji Johns | Christian Song](https://www.youtube.com/watch?v=Oc7j4UwRpsI)
 - [ജനപ്രിയ നായകൻ ദിലീപിന്റെ തട്ടുപൊളിപ്പൻ ഗാനങ്ങൾ | DANCE HITS OF DILEEP | HITS OF DILEEP](https://www.youtube.com/watch?v=-X0sx-k8PAk)
 - [KARIKKAL SREE GURUNADHA MAHADEVAN | HINDU DEVOTIONAL SONG | ROY PUTHUR #hindudevotionalsongs](https://www.youtube.com/watch?v=ajNgzCtZazg)
 - [യൂട്യൂബിൽ നോക്കി ചാക്യാർ കൂത്ത് പഠിച്ചു ഫസ്റ്റടിച്ച ഇവൻ കേമൻ തന്നെ ! KERALA KALOLSAVAM 2024](https://www.youtube.com/watch?v=1zeBCfWjgOw)
-- [Chillalamaalakal Poothali | Aayiram Meni | KS Chithra | S P Venkitesh | Gireesh Puthanchery](https://www.youtube.com/watch?v=MqjOFLVbUnY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
