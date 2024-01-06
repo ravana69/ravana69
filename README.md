@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chillalamaalakal Poothali | Aayiram Meni | KS Chithra | S P Venkitesh | Gireesh Puthanchery](https://www.youtube.com/watch?v=MqjOFLVbUnY)
+- [മനുഷ്യൻ പിന്നിലാക്കിയവനെ ദൈവം മുന്നിൽ കൊണ്ടുവരും. | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=amsbM5-qjz0)
+- [Kozhi Koovum Neram......| Azhagan Movie | Mammootty #shorts](https://www.youtube.com/watch?v=Fq0xvEWrrNw)
+- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 6th January 2024](https://www.youtube.com/watch?v=tgJBy_Ds8ZI)
+- [Kaathil Thenmazhayaai | Thumboli Kadappuram | KJ Yesudas | Salil Chowdhary | O N V Kurup](https://www.youtube.com/watch?v=Q1ZYA31uIVw)
 - [Dhim Dhim Dhimidhimi Video Song | Maanthrikam | Mohanlal | MG Sreekumar | SP Venkitesh | ONV Kurup](https://www.youtube.com/watch?v=6bZV5Wqmdv4)
-- [ദനഹാത്തിരുനാൾ 2024 | Short Video | Fr. Shaji Thumpechirayil](https://www.youtube.com/watch?v=pKp18HksHR4)
-- [വീണ്ടും കേട്ടെങ്കിലോയെന്ന് മനസ്സ് ഒരുപാട് ആശിച്ചുപോയ മലയാളസിനിമയിലെ മനോഹര ഗാനങ്ങൾ ! EVERGREEN HITS](https://www.youtube.com/watch?v=sgzmwpBKczk)
-- [Soundtrack of the moment #AadhyanuraagamNee #Khadhikan #shorts #ytshorts](https://www.youtube.com/watch?v=8ohDSnbOn8c)
-- [മലയാളസിനിമയുടെ സ്വപ്നസുന്ദരി വിജയശ്രീ!!! | Super Hit Songs | Vijayasree Hits #shorts](https://www.youtube.com/watch?v=Ao3uPlZMmoA)
-- [പൂമാനവും താഴെ ഈ ഭൂമിയും സ്നേഹലാവണ്യമേ നിന്റെ ദേവാലയം..♩♪ 🎻#mammootty #yesudas #onvkurup #ouseppachan](https://www.youtube.com/watch?v=mBu8VkR1fe0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
