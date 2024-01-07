@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈ വർഷത്തെ ആദ്യത്തെ ഹിറ്റ് ഗാനങ്ങളുമായി കെസ്റ്റർ | Christian Devotional Songs Malayalam | Kester](https://www.youtube.com/watch?v=aZkeIuEepZA)
+- [Japamala 7th of January 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 7th of January 2024](https://www.youtube.com/watch?v=yZfyDbflBpU)
+- [Kripasanam prarthanayum gaanagalum kettu innathe dhivasam aarambikkam #mothermarysongs  malayalam](https://www.youtube.com/watch?v=VgWVXOtUiyE)
 - [എൻ്റെ  കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #sangeethajapamala #japamala 7th](https://www.youtube.com/watch?v=FmmIaHO0_no)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=oBpukvDFHng)
 - [പ്രഭാത പ്രാര്‍ത്ഥന January 7 # Athiravile Prarthana 7th January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=BoK3IdUy7o0)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=xEZKLmvX_tc)
-- [എന്നെന്നും ദാസേട്ടൻ..| കാതുകുളിർക്കേ കേൾക്കാൻ ഗാനഗന്ധർവ്വന്റെ പാട്ടുകൾ | Best of  K J Yesudas](https://www.youtube.com/watch?v=tgI0d7nD-F8)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 7th January 2024](https://www.youtube.com/watch?v=sFGJPSLD9Lc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
