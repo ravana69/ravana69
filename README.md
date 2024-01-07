@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഒരേറ്റുപറച്ചിലിന്റെ കല്ലേറ് ദൂരത്തിൽ അവൻ നിനക്കായി കാത്തിരിപ്പുണ്ട്.  |Rev. Aneesh P Joseph#shorts](https://www.youtube.com/watch?v=kyovexi0JSU)
+- [Puthooram Veettil Video Song | Aromalunni | KJ Yesudas | G Devarajan | Vayalar](https://www.youtube.com/watch?v=YrHunDo39p0)
+- [Aninju Angaraagam | Super Hit Movie Song | Kallan Kappalil Thanne | Jagadish | Maathu - Yesudas Hit](https://www.youtube.com/watch?v=zOxFDs3b8_s)
+- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 7th January 2024](https://www.youtube.com/watch?v=3ZF0iahPo1Q)
+- [Neela Nilave X Ilamai Kadhal - Mashup | RDX | Neymar | Romantic Songs | Saregama Malayalam](https://www.youtube.com/watch?v=5icgE8KDDe0)
 - [Meri Zindagi Mein Ajnabee   Ajnabee   Anu Malik   Hi Res Audio](https://www.youtube.com/watch?v=GQc2lCsFZs4)
-- [Kozhi Koovum Neram Video Song | Azhagan Movie | Mammootty | Bhanupriya | K Balachander|Maragathamani](https://www.youtube.com/watch?v=_CZ2tUwvk84)
-- [Kunukku Penmaniye Video Song | Mr Butler | Dileep | Innocent | Ruchitha | KS Chithra | MG Sreekumar](https://www.youtube.com/watch?v=I3uV_n7j58I)
-- [shoka mookamay-F(തച്ചിലേടത്ത് ചുണ്ടൻ )Vinod velayudhan](https://www.youtube.com/watch?v=GJZkOqwV2Xw)
-- [Drowning in the sea of a dramatic serenade #AadhyanuraagamNee #Khadhikan #shorts #ytshorts](https://www.youtube.com/watch?v=eeo6jcWzJjI)
-- [കലോത്സവവേദി പൂരപ്പറമ്പ് ആക്കി ഷൈൻ ടോം ചാക്കോ ! KERALA KALOLSAVAM 2024](https://www.youtube.com/watch?v=Ogy_1XdT7V0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
