@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Meri Zindagi Mein Ajnabee   Ajnabee   Anu Malik   Hi Res Audio](https://www.youtube.com/watch?v=GQc2lCsFZs4)
+- [Kozhi Koovum Neram Video Song | Azhagan Movie | Mammootty | Bhanupriya | K Balachander|Maragathamani](https://www.youtube.com/watch?v=_CZ2tUwvk84)
+- [Kunukku Penmaniye Video Song | Mr Butler | Dileep | Innocent | Ruchitha | KS Chithra | MG Sreekumar](https://www.youtube.com/watch?v=I3uV_n7j58I)
 - [shoka mookamay-F(തച്ചിലേടത്ത് ചുണ്ടൻ )Vinod velayudhan](https://www.youtube.com/watch?v=GJZkOqwV2Xw)
 - [Drowning in the sea of a dramatic serenade #AadhyanuraagamNee #Khadhikan #shorts #ytshorts](https://www.youtube.com/watch?v=eeo6jcWzJjI)
 - [കലോത്സവവേദി പൂരപ്പറമ്പ് ആക്കി ഷൈൻ ടോം ചാക്കോ ! KERALA KALOLSAVAM 2024](https://www.youtube.com/watch?v=Ogy_1XdT7V0)
-- [പാട്ടുപെട്ടി | Paattupetti Vol 38 | Malayalam Film Songs](https://www.youtube.com/watch?v=xT04XXdktZY)
-- [Sundhariye | Panthaya Kozhi | Vidhu Prathap | Shweta Mohan | Vayalar |Sarathchandra Varma|Alex Paul](https://www.youtube.com/watch?v=mvMRbfH8zWU)
-- [Aaro Nilaavayi | Ee Pattanathil Bhootham  #shortsfeed #shorts #mammootty #shaanrahman #lyricalvideo](https://www.youtube.com/watch?v=0YpYT8WVqHc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
