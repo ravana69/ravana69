@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [iniyum paribhavamaruthe(കൈക്കുടന്ന നിലാവ് )Vinod velayudhan](https://www.youtube.com/watch?v=-OtD9HP7lHc)
+- [Panimathiye Punaroo | Symphony | Deepak Dev | KJ Yesudas | Kaithapram | IV Sasi | KS Chithra](https://www.youtube.com/watch?v=34UXcnSQhiQ)
 - [Christian Melody Songs | Chithra Arun | Christian Devotional Songs Malayalam | Manoj Christy](https://www.youtube.com/watch?v=yfSQJ7Dq2k8)
 - [ഒരേറ്റുപറച്ചിലിന്റെ കല്ലേറ് ദൂരത്തിൽ അവൻ നിനക്കായി കാത്തിരിപ്പുണ്ട്.  |Rev. Aneesh P Joseph#shorts](https://www.youtube.com/watch?v=kyovexi0JSU)
 - [Puthooram Veettil Video Song | Aromalunni | KJ Yesudas | G Devarajan | Vayalar](https://www.youtube.com/watch?v=YrHunDo39p0)
 - [Aninju Angaraagam | Super Hit Movie Song | Kallan Kappalil Thanne | Jagadish | Maathu - Yesudas Hit](https://www.youtube.com/watch?v=zOxFDs3b8_s)
-- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 7th January 2024](https://www.youtube.com/watch?v=3ZF0iahPo1Q)
-- [Neela Nilave X Ilamai Kadhal - Mashup | RDX | Neymar | Romantic Songs | Saregama Malayalam](https://www.youtube.com/watch?v=5icgE8KDDe0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
