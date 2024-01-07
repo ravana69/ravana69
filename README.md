@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Drowning in the sea of a dramatic serenade #AadhyanuraagamNee #Khadhikan #shorts #ytshorts](https://www.youtube.com/watch?v=eeo6jcWzJjI)
+- [കലോത്സവവേദി പൂരപ്പറമ്പ് ആക്കി ഷൈൻ ടോം ചാക്കോ ! KERALA KALOLSAVAM 2024](https://www.youtube.com/watch?v=Ogy_1XdT7V0)
 - [പാട്ടുപെട്ടി | Paattupetti Vol 38 | Malayalam Film Songs](https://www.youtube.com/watch?v=xT04XXdktZY)
 - [Sundhariye | Panthaya Kozhi | Vidhu Prathap | Shweta Mohan | Vayalar |Sarathchandra Varma|Alex Paul](https://www.youtube.com/watch?v=mvMRbfH8zWU)
 - [Aaro Nilaavayi | Ee Pattanathil Bhootham  #shortsfeed #shorts #mammootty #shaanrahman #lyricalvideo](https://www.youtube.com/watch?v=0YpYT8WVqHc)
 - [Vibing with the rhythm of life #Raakk #MalaikottaiVaaliban #Mohanlal #Shorts #ytshorts](https://www.youtube.com/watch?v=5g7ddiZ8EaA)
-- [Mammootty Old Malayalam Movie Songs | Vajram | Remastered Malayalam Movie Song| Afsal, Sujatha Mohan](https://www.youtube.com/watch?v=LLIFdC-27gc)
-- [ഈ വർഷത്തെ ആദ്യത്തെ ഹിറ്റ് ഗാനങ്ങളുമായി കെസ്റ്റർ | Christian Devotional Songs Malayalam | Kester](https://www.youtube.com/watch?v=aZkeIuEepZA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
