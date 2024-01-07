@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [110 Tamil Movies - 1080p - Bluray / TK / JC / AMZN / SUN NXT WEB DL - H264 - DDP5.1/DD2.0/AAC2.0 - 550GB [GDRIVE]]](https://www.1tamilmv.im/index.php?/forums/topic/125622-110-tamil-movies-1080p-bluray-tk-jc-amzn-sun-nxt-web-dl-h264-ddp51dd20aac20-550gb-gdrive/&do=findComment&comment=359002)
 - [Piranha 3D &lpar;2010&rpar;.1080p.Amzn.Web-dl.x264.&lpar;Tam.Tel.Hin.Eng.AAC2.0&rpar;.ESub - 3.9GB - GOFILE](https://www.1tamilmv.im/index.php?/forums/topic/106356-piranha-3d-20101080pamznweb-dlx264tamtelhinengaac20esub-39gb-gofile/&do=findComment&comment=359001)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP99 DAY 98 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.3GB - 683MB &amp; 300MB | 07-01-2024]](https://www.1tamilmv.im/index.php?/forums/topic/177199-bigg-boss-tamil-s07-ep99-day-98-true-web-dl-1080p-720p-480p-avc-untouched-13gb-683mb-300mb-07-01-2024/&do=findComment&comment=359000)
 - [The Expendables 4 &lpar;2023&rpar; &lpar;BluRay + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 7GB - 2.4GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177142-the-expendables-4-2023-bluray-original-audios-4k-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-7gb-24gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=358999)
 - [Hi Nanna &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177126-hi-nanna-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=358998)
-- [Perilloor Premier League &lpar;2024&rpar; S01 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 7.6GB - 2.8GB &amp; 1.2GB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177151-perilloor-premier-league-2024-s01-ep-01-07-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-dd51-192kbps-76gb-28gb-12gb-esub/&do=findComment&comment=358997)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
