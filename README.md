@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന January 8 # Athiravile Prarthana 8th January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=23pBe8uZ_UQ)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=pYIDdInqZJA)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 8th January 2024](https://www.youtube.com/watch?v=Yok2mpRbIvw)
 - [7 January 2024](https://www.youtube.com/watch?v=vEzjRgWG1qo)
 - [iniyum paribhavamaruthe(കൈക്കുടന്ന നിലാവ് )Vinod velayudhan](https://www.youtube.com/watch?v=-OtD9HP7lHc)
 - [Panimathiye Punaroo | Symphony | Deepak Dev | KJ Yesudas | Kaithapram | IV Sasi | KS Chithra](https://www.youtube.com/watch?v=34UXcnSQhiQ)
-- [Christian Melody Songs | Chithra Arun | Christian Devotional Songs Malayalam | Manoj Christy](https://www.youtube.com/watch?v=yfSQJ7Dq2k8)
-- [ഒരേറ്റുപറച്ചിലിന്റെ കല്ലേറ് ദൂരത്തിൽ അവൻ നിനക്കായി കാത്തിരിപ്പുണ്ട്.  |Rev. Aneesh P Joseph#shorts](https://www.youtube.com/watch?v=kyovexi0JSU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
