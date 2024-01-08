@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kunjante Penninu Video Song | Kunjikoonan | Dileep | Nithya Das | Vidhu Prathap | Mohan Sithara](https://www.youtube.com/watch?v=f8r20L6uTaw)
+- [രാമനും സീതയും | Ramanum Seethayum | Churam Movie Song | Divyaa Unni | Manoj K. Jayan](https://www.youtube.com/watch?v=J_oaFVOWL9Y)
 - [Swargangal Swapnam | Malootty Movie Song | Pazhavila Ramesan | Johnson | Sujatha Mohan | G Venugopal](https://www.youtube.com/watch?v=_5BqQJJpLHM)
 - [Siricha Kollimalai | Jothi | Ilaiyaraaja | S.P.B & S.P.Sailaja | Hi-Res Audio](https://www.youtube.com/watch?v=nBDt-pD8lZk)
 - [Thalaralle Njan Thakaralle | Yeshudevante Darshanamarulunna Kristheeya Bhakthiganangal](https://www.youtube.com/watch?v=AorbxYBeY44)
 - [ഏത് നേരവും കേൾക്കാൻ അറിയാതെ മനസ്സ് കൊതിച്ചുപോകുന്ന മലയാളസിനിമയിലെ പ്രശസ്‌ത ഗാനങ്ങൾ ! OLD IS GOLD](https://www.youtube.com/watch?v=CQbeONy0gQs)
-- [Oru Raajamalli | Aniyathipraavu | Ouseppachan | M G Sreekumar | S Rameshan Nair #SongOfTheDay](https://www.youtube.com/watch?v=2gfJxNh3rfE)
-- [Drama unfolds #AadhyanuraagamNee #Khadhikan #shorts #ytshorts](https://www.youtube.com/watch?v=7FKELVw65H8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
