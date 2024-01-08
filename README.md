@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [പ്രേമോദാരനായ് അണയൂ നാഥാ #evergeeenmalayalamhits #mohanlal #yesudas #malayalamsongs](https://www.youtube.com/watch?v=DdeptC2cMGw)
-- [ഗോപീഹൃദയം നിറയുന്നു...| Kankettu | KJ Yesudas | Sujatha Mohan | #shorts](https://www.youtube.com/watch?v=XFDhzYomoBE)
-- [Kunjante Penninu Video Song | Kunjikoonan | Dileep | Nithya Das | Vidhu Prathap | Mohan Sithara](https://www.youtube.com/watch?v=f8r20L6uTaw)
-- [രാമനും സീതയും | Ramanum Seethayum | Churam Movie Song | Divyaa Unni | Manoj K. Jayan](https://www.youtube.com/watch?v=J_oaFVOWL9Y)
-- [Swargangal Swapnam | Malootty Movie Song | Pazhavila Ramesan | Johnson | Sujatha Mohan | G Venugopal](https://www.youtube.com/watch?v=_5BqQJJpLHM)
-- [Siricha Kollimalai | Jothi | Ilaiyaraaja | S.P.B & S.P.Sailaja | Hi-Res Audio](https://www.youtube.com/watch?v=nBDt-pD8lZk)
+- [Karthave Nin Roopam | Michelle Pearl Gladis | Sadhu Kochukunjupadeshi | Malayalam Christian Songs](https://www.youtube.com/watch?v=nnDcSyrB0wA)
+- [ഇരുളിന്റെ മറവിൽ പ്രതീക്ഷയുടെ മഴവില്ലായി തെളിഞ്ഞവനാണ് ക്രിസ്തു |  Rev. Aneesh P Joseph   | #shorts](https://www.youtube.com/watch?v=7oHDdYyQFkQ)
+- [Puthooram Veettil Video Song | Aromalunni #shorts](https://www.youtube.com/watch?v=wPT3t0apC3s)
+- [Raakkilikal Chekkeri Varum | Suvarna Simhaasanam | KJ Yesudas | Ouseppachan | Kaithapram](https://www.youtube.com/watch?v=wvYY8N_4WTE)
+- [ഇത് പെൺ കരുത്തിന്റെ വിജയം ! നാടകത്തിന് A ഗ്രേഡ് വാങ്ങിച്ച് പട്ടത്തെ മിടുക്കികൾ ! KALOLSAVAM 2024](https://www.youtube.com/watch?v=h4NnPlPpZEA)
+- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 8th January 2024](https://www.youtube.com/watch?v=qBmn6SIpk6U)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
