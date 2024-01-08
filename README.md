@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Paranjilla Njan | Karaoke Video | Mambazhakalam | K J Yesudas |Gireesh Puthencherry | M Jayachandran](https://www.youtube.com/watch?v=CWzMrQhG0xo)
 - [വിശ്വസം ശരണം സ്‌നേഹം എന്നീ പുണ്യങ്ങളാൽ ഞങ്ങളെ ജ്വേലിപ്പിക്കണെ #mothermarysongs](https://www.youtube.com/watch?v=iBkRru0TLg4)
 - [Vibe with 💥#Raakk #MalaikottaiVaaliban #Mohanlal #Shorts #ytshorts](https://www.youtube.com/watch?v=mYYuITYtG-c)
 - [Thalamayanju | Pavithram | Mohanlal | Sobhana | Yesudas | Sharreth | Rajeev Kumar](https://www.youtube.com/watch?v=Rp_QJdRUkcM)
 - [Christian Superhit Songs | Wilson Piravom | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=bcbTfvE2bs4)
 - [Japamala 8th of January 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 8th of January 24](https://www.youtube.com/watch?v=UGehyE-xfh4)
-- [മാതാവിൻറെ പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ടു  ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#kripasanam  mother Mary prayer 8](https://www.youtube.com/watch?v=VY61QQ03m8c)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
