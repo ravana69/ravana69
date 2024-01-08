@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന January 9 # Athiravile Prarthana 9th January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=nPg5wt9JopA)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=Kob9HnDUs1c)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 9th January 2024](https://www.youtube.com/watch?v=ntjr2gvy7qA)
 - [8 January 2024](https://www.youtube.com/watch?v=7To6LpJGBhk)
 - [മാതാപിതാക്കളുടെ സ്നേഹം ഓർത്തുപോകും ഈ ഗാനങ്ങൾ കേട്ടാൽ | Biju Narayanan | Christian Melody Songs](https://www.youtube.com/watch?v=7vpyPxFGU0Q)
 - [Ka kaakke | Greetings | Malayalam Song | Gireesh Puthenchery | Raveendran | Vidhu Prathap | Kavya](https://www.youtube.com/watch?v=4M0fo5L3ezI)
-- [Sundarimaare Kettippoottiya | Hitler | MJ Sebastian | Boney | SP Venkitesh | Gireesh Puthanchery](https://www.youtube.com/watch?v=8kuHTOorMac)
-- [Karthave Nin Roopam | Michelle Pearl Gladis | Sadhu Kochukunjupadeshi | Malayalam Christian Songs](https://www.youtube.com/watch?v=nnDcSyrB0wA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
