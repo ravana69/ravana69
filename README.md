@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Swargangal Swapnam | Malootty Movie Song | Pazhavila Ramesan | Johnson | Sujatha Mohan | G Venugopal](https://www.youtube.com/watch?v=_5BqQJJpLHM)
+- [Siricha Kollimalai | Jothi | Ilaiyaraaja | S.P.B & S.P.Sailaja | Hi-Res Audio](https://www.youtube.com/watch?v=nBDt-pD8lZk)
+- [Thalaralle Njan Thakaralle | Yeshudevante Darshanamarulunna Kristheeya Bhakthiganangal](https://www.youtube.com/watch?v=AorbxYBeY44)
+- [ഏത് നേരവും കേൾക്കാൻ അറിയാതെ മനസ്സ് കൊതിച്ചുപോകുന്ന മലയാളസിനിമയിലെ പ്രശസ്‌ത ഗാനങ്ങൾ ! OLD IS GOLD](https://www.youtube.com/watch?v=CQbeONy0gQs)
+- [Oru Raajamalli | Aniyathipraavu | Ouseppachan | M G Sreekumar | S Rameshan Nair #SongOfTheDay](https://www.youtube.com/watch?v=2gfJxNh3rfE)
 - [Drama unfolds #AadhyanuraagamNee #Khadhikan #shorts #ytshorts](https://www.youtube.com/watch?v=7FKELVw65H8)
-- [Paranjilla Njan | Karaoke Video | Mambazhakalam | K J Yesudas |Gireesh Puthencherry | M Jayachandran](https://www.youtube.com/watch?v=CWzMrQhG0xo)
-- [വിശ്വസം ശരണം സ്‌നേഹം എന്നീ പുണ്യങ്ങളാൽ ഞങ്ങളെ ജ്വേലിപ്പിക്കണെ #mothermarysongs](https://www.youtube.com/watch?v=iBkRru0TLg4)
-- [Vibe with 💥#Raakk #MalaikottaiVaaliban #Mohanlal #Shorts #ytshorts](https://www.youtube.com/watch?v=mYYuITYtG-c)
-- [Thalamayanju | Pavithram | Mohanlal | Sobhana | Yesudas | Sharreth | Rajeev Kumar](https://www.youtube.com/watch?v=Rp_QJdRUkcM)
-- [Christian Superhit Songs | Wilson Piravom | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=bcbTfvE2bs4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
