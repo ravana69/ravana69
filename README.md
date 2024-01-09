@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഏതു രാവിലും പിരിയാത്ത സ്നേഹം . LYRICS :  BASTIN AUGUSTIN/ MUSIC: JOY CHERUVATHOOR /VOCAL : SONIYA /](https://www.youtube.com/watch?v=px59aAdQfSI)
+- [9 January 2024](https://www.youtube.com/watch?v=6e_hFmcrFrk)
 - [Yesudas Nostalgic Hits |  Evergreen Malayalam Songs of Yesudas | Hits Of KJ Yesudas](https://www.youtube.com/watch?v=Q_TXxfdoG80)
 - [Singer Of The Week | Manoj Christy | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=pTyNg7sS7Qg)
 - [എപ്പോൾ എവിടെനിന്നുകേട്ടാലും തിരിഞ്ഞു നിന്നുപോകുന്ന വ്യത്യസ്ത ഗാനങ്ങൾ  |Remastered Video Songs](https://www.youtube.com/watch?v=C5stWJqKb8o)
 - [Iniyum Mizhikal | K J Yesudas  #shorts #kjyesudas](https://www.youtube.com/watch?v=3fQNmhgGoBI)
-- [മുറിവ് ക്രിസ്തുവിങ്കലേക്കുള്ള മാധ്യമമാണ്.  | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=M44-Hja45YA)
-- [പ്രണയത്തിന്റെ ഗന്ധര്‍വ്വന്‍ | Romantic Songs of Dr K J Yesudas | Audio Jukebox | Malayalam Songs](https://www.youtube.com/watch?v=DnFxvhpOSEs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
