@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Aahlathachitharaai | Binoy Chacko | Christian Melody Song | Praise and Worship Songs](https://www.youtube.com/watch?v=lJNoSvsyC-g)
-- [മാതാവിൻറെ പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ടു  ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mothermarysongs for 9th 2024](https://www.youtube.com/watch?v=TBvK8S3Ut0Y)
-- [Japamala 9th of January 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 9th of January 24](https://www.youtube.com/watch?v=pQ-WWThrUqI)
-- [ഇന്ന് ജനുവരി 9  എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #ദുഃഖത്തിൻറെ രഹസ്യ](https://www.youtube.com/watch?v=khxQPFmozik)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=0rrC5UniOZU)
-- [പ്രഭാത പ്രാര്‍ത്ഥന January 9 # Athiravile Prarthana 9th January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=nPg5wt9JopA)
+- [Uyire  | K J Yesudas  #shortsfeed #shorts #mjayachandran #kjyesudas #reels #mohanlal #malayalam](https://www.youtube.com/watch?v=ceRJJqlMh2E)
+- [Pahadi Padu  | K J Yesudas  #shortsfeed #shorts #mjayachandran #kjyesudas #reels #filmsongs](https://www.youtube.com/watch?v=zcf_Pb90Kzw)
+- [Ormayil  | K J Yesudas  #shortsfeed #shorts  #kjyesudas #reels #filmsongs #manoramamusic](https://www.youtube.com/watch?v=oT23TkdfZT8)
+- [Maanazhako  | K J Yesudas  #shortsfeed #shorts #mjayachandran #kjyesudas #reels #filmsongs](https://www.youtube.com/watch?v=YwcwHMYk0Ms)
+- [Innale Ente Nenjile  | K J Yesudas  #shortsfeed #shorts #mjayachandran #kjyesudas #reels #mohanlal](https://www.youtube.com/watch?v=Ca_vm2nKOQM)
+- [Chempazhukka Nalla Chempazhukka | K J Yesudas  #shortsfeed #shorts #mjayachandran #kjyesudas #reels](https://www.youtube.com/watch?v=kuIHnhgPX0A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
