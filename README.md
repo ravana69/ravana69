@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Yesudas Nostalgic Hits |  Evergreen Malayalam Songs of Yesudas | Hits Of KJ Yesudas](https://www.youtube.com/watch?v=Q_TXxfdoG80)
+- [Singer Of The Week | Manoj Christy | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=pTyNg7sS7Qg)
+- [എപ്പോൾ എവിടെനിന്നുകേട്ടാലും തിരിഞ്ഞു നിന്നുപോകുന്ന വ്യത്യസ്ത ഗാനങ്ങൾ  |Remastered Video Songs](https://www.youtube.com/watch?v=C5stWJqKb8o)
 - [Iniyum Mizhikal | K J Yesudas  #shorts #kjyesudas](https://www.youtube.com/watch?v=3fQNmhgGoBI)
 - [മുറിവ് ക്രിസ്തുവിങ്കലേക്കുള്ള മാധ്യമമാണ്.  | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=M44-Hja45YA)
 - [പ്രണയത്തിന്റെ ഗന്ധര്‍വ്വന്‍ | Romantic Songs of Dr K J Yesudas | Audio Jukebox | Malayalam Songs](https://www.youtube.com/watch?v=DnFxvhpOSEs)
-- [Inganeyoral Mathram | Poem on Dr K J Yesudas by R Rajiv | Rhithwik S Chand | So New Ideas](https://www.youtube.com/watch?v=4T2_c-hutas)
-- [Raaravenu Gopabala | Mr Butler | KS Chithra | Kalyani Menon | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=0mkTYpfqzHI)
-- [Vayanaadan Keloonte Video Song |  Ponnaapuram Kotta | KJ Yesudas | P Madhuri | G Devarajan](https://www.youtube.com/watch?v=_7zjuN7R8xA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
