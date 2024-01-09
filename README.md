@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന January 10 # Athiravile Prarthana 10th January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=P3_vYnwmmGI)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=1GVosmIOJFo)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 10th January 24](https://www.youtube.com/watch?v=0sL-bwCNU_s)
 - [ഏതു രാവിലും പിരിയാത്ത സ്നേഹം . LYRICS :  BASTIN AUGUSTIN/ MUSIC: JOY CHERUVATHOOR /VOCAL : SONIYA /](https://www.youtube.com/watch?v=px59aAdQfSI)
 - [9 January 2024](https://www.youtube.com/watch?v=6e_hFmcrFrk)
 - [Yesudas Nostalgic Hits |  Evergreen Malayalam Songs of Yesudas | Hits Of KJ Yesudas](https://www.youtube.com/watch?v=Q_TXxfdoG80)
-- [Singer Of The Week | Manoj Christy | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=pTyNg7sS7Qg)
-- [എപ്പോൾ എവിടെനിന്നുകേട്ടാലും തിരിഞ്ഞു നിന്നുപോകുന്ന വ്യത്യസ്ത ഗാനങ്ങൾ  |Remastered Video Songs](https://www.youtube.com/watch?v=C5stWJqKb8o)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
