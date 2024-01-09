@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kaliyil Alpam Karyam Video Jukebox | ലാലേട്ടൻ അഭിനയിച്ച പഴയ അടിപൊളി ഗാനങ്ങൾ | Mohanlal, Rahman](https://www.youtube.com/watch?v=Eo8pCmXMy7Y)
+- [Athipazhathinilaneer Churathum  | Nakshthrakoodaram | Suresh Gopi | Swetha Menon | Romantic Song](https://www.youtube.com/watch?v=QgbIaGyBjX0)
+- [ചിത്രയുടെ തുടക്കകാലഘട്ടങ്ങളിലെ അനുഭവങ്ങൾ | Chithra Chechikkoppam Paadiyum Paranjum](https://www.youtube.com/watch?v=P7d-Or3yPV0)
 - [Poo Parikkan Porumo Video Song | Kannaki | KJ Yesudas | Lal | Siddique | Kaithapram Viswanath](https://www.youtube.com/watch?v=-RDLWw9u2vo)
 - [Enne Karuthunnavan #shortsvideo](https://www.youtube.com/watch?v=ll6_2so3__o)
 - [Breathing in the symphony of nature #AadhyanuraagamNee #Khadhikan #shorts #ytshorts](https://www.youtube.com/watch?v=IQN2NLpvvBU)
-- [മലയാളസിനിമയിലെ കവിത തുളുമ്പുന്ന  ഏവരുടെയും ഇഷ്ടഗാനങ്ങൾ | MALAYALAM EVERGREEN SONGS ! NISARI MUSIC](https://www.youtube.com/watch?v=1iWKdgHZPHw)
-- [" കലാകിരീടം കണ്ണൂരിന് "കേരള കലോത്സവം കപ്പടിച്ച് കണ്ണൂർ ! KERALA KALOLSAVAM 2024](https://www.youtube.com/watch?v=jzNqX_72H-A)
-- [Maayaamayooram | Vadakkunokkiyanthram  | Johnson | M G Sreekumar | Kaithapram #SongOfTheDay](https://www.youtube.com/watch?v=CvvNDAxQ694)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
