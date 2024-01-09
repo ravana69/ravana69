@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Kaliyil Alpam Karyam Video Jukebox | ലാലേട്ടൻ അഭിനയിച്ച പഴയ അടിപൊളി ഗാനങ്ങൾ | Mohanlal, Rahman](https://www.youtube.com/watch?v=Eo8pCmXMy7Y)
-- [Athipazhathinilaneer Churathum  | Nakshthrakoodaram | Suresh Gopi | Swetha Menon | Romantic Song](https://www.youtube.com/watch?v=QgbIaGyBjX0)
-- [ചിത്രയുടെ തുടക്കകാലഘട്ടങ്ങളിലെ അനുഭവങ്ങൾ | Chithra Chechikkoppam Paadiyum Paranjum](https://www.youtube.com/watch?v=P7d-Or3yPV0)
-- [Poo Parikkan Porumo Video Song | Kannaki | KJ Yesudas | Lal | Siddique | Kaithapram Viswanath](https://www.youtube.com/watch?v=-RDLWw9u2vo)
-- [Enne Karuthunnavan #shortsvideo](https://www.youtube.com/watch?v=ll6_2so3__o)
-- [Breathing in the symphony of nature #AadhyanuraagamNee #Khadhikan #shorts #ytshorts](https://www.youtube.com/watch?v=IQN2NLpvvBU)
+- [മുറിവ് ക്രിസ്തുവിങ്കലേക്കുള്ള മാധ്യമമാണ്.  | Rev. Aneesh P Joseph #shorts #motivation](https://www.youtube.com/watch?v=M44-Hja45YA)
+- [പ്രണയത്തിന്റെ ഗന്ധര്‍വ്വന്‍ | Romantic Songs of Dr K J Yesudas | Audio Jukebox | Malayalam Songs](https://www.youtube.com/watch?v=DnFxvhpOSEs)
+- [Inganeyoral Mathram | Poem on Dr K J Yesudas by R Rajiv | Rhithwik S Chand | So New Ideas](https://www.youtube.com/watch?v=4T2_c-hutas)
+- [Raaravenu Gopabala | Mr Butler | KS Chithra | Kalyani Menon | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=0mkTYpfqzHI)
+- [Vayanaadan Keloonte Video Song |  Ponnaapuram Kotta | KJ Yesudas | P Madhuri | G Devarajan](https://www.youtube.com/watch?v=_7zjuN7R8xA)
+- [84th Happy Birthday Wishes to Padmasree Dr. K. J. Yesudas | Manorama Christian Devotional Songs](https://www.youtube.com/watch?v=hCnEmnTANzg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
