@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Enne Karuthunnavan #shortsvideo](https://www.youtube.com/watch?v=ll6_2so3__o)
+- [Breathing in the symphony of nature #AadhyanuraagamNee #Khadhikan #shorts #ytshorts](https://www.youtube.com/watch?v=IQN2NLpvvBU)
+- [മലയാളസിനിമയിലെ കവിത തുളുമ്പുന്ന  ഏവരുടെയും ഇഷ്ടഗാനങ്ങൾ | MALAYALAM EVERGREEN SONGS ! NISARI MUSIC](https://www.youtube.com/watch?v=1iWKdgHZPHw)
 - [" കലാകിരീടം കണ്ണൂരിന് "കേരള കലോത്സവം കപ്പടിച്ച് കണ്ണൂർ ! KERALA KALOLSAVAM 2024](https://www.youtube.com/watch?v=jzNqX_72H-A)
 - [Maayaamayooram | Vadakkunokkiyanthram  | Johnson | M G Sreekumar | Kaithapram #SongOfTheDay](https://www.youtube.com/watch?v=CvvNDAxQ694)
-- [Admiring the world through the lens of gratitude #AadhyanuraagamNee #Khadhikan #shorts #ytshorts](https://www.youtube.com/watch?v=CXhjPxFEENA)
-- [മെർക്കുറി ലാമ്പു വീണുഅയ്യോ പൊട്ടിത്തെറിച്ച പോലെ | Mercury Labu Veanu | Sainyam | Mammootty](https://www.youtube.com/watch?v=Ltpw0sApU9s)
-- [Kathapoloru | Best Actor | Video Song | Mammootty | Martin Prakkat | Bijibal | Viswajith | Sreerekha](https://www.youtube.com/watch?v=MgixoN-5xtQ)
-- [Revathy Old Malayalam Movie Songs | Najangalude Kochu Doctor Remastered Malayalam Songs |K.S.Chithra](https://www.youtube.com/watch?v=7gOVm6Qc7dY)
+- [Kannil Ninnum | Nithya Mammen #ytshorts](https://www.youtube.com/watch?v=SMyXiQ3VRb4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
