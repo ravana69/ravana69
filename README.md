@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Revathy Old Malayalam Movie Songs | Najangalude Kochu Doctor Remastered Malayalam Songs |K.S.Chithra](https://www.youtube.com/watch?v=7gOVm6Qc7dY)
+- [Ee Neelima Than | Aa Rathri | Mammootty | Poornima | Yesudas | Ilayaraja](https://www.youtube.com/watch?v=RAdIwdfS5vQ)
 - [Uyire  | K J Yesudas  #shortsfeed #shorts #mjayachandran #kjyesudas #reels #mohanlal #malayalam](https://www.youtube.com/watch?v=ceRJJqlMh2E)
 - [Pahadi Padu  | K J Yesudas  #shortsfeed #shorts #mjayachandran #kjyesudas #reels #filmsongs](https://www.youtube.com/watch?v=zcf_Pb90Kzw)
 - [Ormayil  | K J Yesudas  #shortsfeed #shorts  #kjyesudas #reels #filmsongs #manoramamusic](https://www.youtube.com/watch?v=oT23TkdfZT8)
 - [Maanazhako  | K J Yesudas  #shortsfeed #shorts #mjayachandran #kjyesudas #reels #filmsongs](https://www.youtube.com/watch?v=YwcwHMYk0Ms)
-- [Innale Ente Nenjile  | K J Yesudas  #shortsfeed #shorts #mjayachandran #kjyesudas #reels #mohanlal](https://www.youtube.com/watch?v=Ca_vm2nKOQM)
-- [Chempazhukka Nalla Chempazhukka | K J Yesudas  #shortsfeed #shorts #mjayachandran #kjyesudas #reels](https://www.youtube.com/watch?v=kuIHnhgPX0A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
