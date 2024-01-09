@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aahlathachitharaai | Binoy Chacko | Christian Melody Song | Praise and Worship Songs](https://www.youtube.com/watch?v=lJNoSvsyC-g)
+- [മാതാവിൻറെ പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ടു  ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mothermarysongs for 9th 2024](https://www.youtube.com/watch?v=TBvK8S3Ut0Y)
+- [Japamala 9th of January 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 9th of January 24](https://www.youtube.com/watch?v=pQ-WWThrUqI)
 - [ഇന്ന് ജനുവരി 9  എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #ദുഃഖത്തിൻറെ രഹസ്യ](https://www.youtube.com/watch?v=khxQPFmozik)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=0rrC5UniOZU)
 - [പ്രഭാത പ്രാര്‍ത്ഥന January 9 # Athiravile Prarthana 9th January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=nPg5wt9JopA)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=Kob9HnDUs1c)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 9th January 2024](https://www.youtube.com/watch?v=ntjr2gvy7qA)
-- [8 January 2024](https://www.youtube.com/watch?v=7To6LpJGBhk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
