@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മെർക്കുറി ലാമ്പു വീണുഅയ്യോ പൊട്ടിത്തെറിച്ച പോലെ | Mercury Labu Veanu | Sainyam | Mammootty](https://www.youtube.com/watch?v=Ltpw0sApU9s)
+- [Kathapoloru | Best Actor | Video Song | Mammootty | Martin Prakkat | Bijibal | Viswajith | Sreerekha](https://www.youtube.com/watch?v=MgixoN-5xtQ)
 - [Revathy Old Malayalam Movie Songs | Najangalude Kochu Doctor Remastered Malayalam Songs |K.S.Chithra](https://www.youtube.com/watch?v=7gOVm6Qc7dY)
 - [Ee Neelima Than | Aa Rathri | Mammootty | Poornima | Yesudas | Ilayaraja](https://www.youtube.com/watch?v=RAdIwdfS5vQ)
 - [Uyire  | K J Yesudas  #shortsfeed #shorts #mjayachandran #kjyesudas #reels #mohanlal #malayalam](https://www.youtube.com/watch?v=ceRJJqlMh2E)
 - [Pahadi Padu  | K J Yesudas  #shortsfeed #shorts #mjayachandran #kjyesudas #reels #filmsongs](https://www.youtube.com/watch?v=zcf_Pb90Kzw)
-- [Ormayil  | K J Yesudas  #shortsfeed #shorts  #kjyesudas #reels #filmsongs #manoramamusic](https://www.youtube.com/watch?v=oT23TkdfZT8)
-- [Maanazhako  | K J Yesudas  #shortsfeed #shorts #mjayachandran #kjyesudas #reels #filmsongs](https://www.youtube.com/watch?v=YwcwHMYk0Ms)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
