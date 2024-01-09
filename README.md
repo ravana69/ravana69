@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Jenni &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+2.0 - 224Kbps&rpar; - 2.8GB - 1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177225-jenni-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd20-224kbps-28gb-1gb-x264-700mb-400mb-esub/&do=findComment&comment=359111)
+- [#90&#39;s Middle Class Biopic &lpar;2024&rpar; S01 EP&lpar;01-06&rpar; Telugu TRUE WEB-DL - [1080p - 720p &amp; 480p - AVC - AAC - 4.5GB - 2.4GB &amp; 1.2GB]](https://www.1tamilmv.im/index.php?/forums/topic/177164-90s-middle-class-biopic-2024-s01-ep01-06-telugu-true-web-dl-1080p-720p-480p-avc-aac-45gb-24gb-12gb/&do=findComment&comment=359110)
+- [Veedokkade &lpar;2009&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177220-veedokkade-2009-telugu-dvd9-untouched-480p-dd51-448kbps-72gb-esub/&do=findComment&comment=359109)
 - [Alpha Wolf &lpar;2018&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 1.6GB &amp; 850MB | x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177224-alpha-wolf-2018-hd-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-hindi-eng-16gb-850mb-x264-tam-hin-400mb-esub/&do=findComment&comment=359108)
 - [Veedokkade &lpar;2009&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7.2GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177220-veedokkade-2009-telugu-dvd9-untouched-480p-dd51-448kbps-72gb-esub/&do=findComment&comment=359107)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP101 DAY 100 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 533MB &amp; 212MB | 09-01-2024]](https://www.1tamilmv.im/index.php?/forums/topic/177228-bigg-boss-tamil-s07-ep101-day-100-true-web-dl-1080p-720p-480p-avc-untouched-1gb-533mb-212mb-09-01-2024/&do=findComment&comment=359106)
-- [MAIN YAHAN TU WAHAN PART 1+2 2024 ULLU S01 HINDI WEB SERIES HDRIP](https://www.1tamilmv.im/index.php?/forums/topic/161669-main-yahan-tu-wahan-part-12-2024-ullu-s01-hindi-web-series-hdrip/&do=findComment&comment=359105)
-- [NAPOLEON 2023 HINDI ORG DUAL AUDIO 1080P 720P 480P HDRIP ESUB](https://www.1tamilmv.im/index.php?/forums/topic/152756-napoleon-2023-hindi-org-dual-audio-1080p-720p-480p-hdrip-esub/&do=findComment&comment=359104)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
