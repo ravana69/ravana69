@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=YUCa7LEV9DY)
+- [ഇന്ന്  ജനുവരി 11.എൻ്റെ  കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala](https://www.youtube.com/watch?v=3QYxXO25PIo)
 - [പ്രഭാത പ്രാര്‍ത്ഥന January 11 # Athiravile Prarthana 11th January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=8lBQ2BFs3JY)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=w6AixMP6P_Q)
 - [10 January 2024](https://www.youtube.com/watch?v=u6ufr4sCJMc)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 11th January 24](https://www.youtube.com/watch?v=XVItvzM-gDM)
-- [Omkaaram Shankil Cherumbol | Veruthe Oru Bharya | Jaayaram | Gopika  | Unnimenon | Niveditha](https://www.youtube.com/watch?v=sHRO2u1i3i8)
-- [സ്വർഗ്ഗരാജ്യത്തേക്കുള്ള പൊരുൾ ഒളിപ്പിച്ചവയായിരുന്നു നസ്രായന്റെ വചസ്സുകളെല്ലം | Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=YWG_j0c6Q7Y)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
