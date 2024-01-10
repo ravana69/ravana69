@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Palavattom Pookkaalam | Manichithrathaazhu | K J Yesudas | M G Radhakrishnan #SongOfTheDay](https://www.youtube.com/watch?v=7mbFssPa1Wg)
+- [Karunyamoorthiyam Rakshaka Kelkkane | Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=f-Gqp9RsyrA)
+- [A blazing trail of desire that never fades 🔥💖 #NeeyeyullooEnnumen #Chovvazhcha #shorts #ytshorts](https://www.youtube.com/watch?v=PevfSvKt70E)
 - [Top 3 Hitlist (Specials) ft. Kannilu Kannilu, Pakaliravukal, Mandarappoove](https://www.youtube.com/watch?v=qqmmJn2Ysw8)
 - [Innale Ente Nenjile | Balettan | Pathos by K J Yesudas #shorts](https://www.youtube.com/watch?v=DEsG-CxWqPU)
 - [Mohanlal Old Malayalam Movie Songs | Indrajaalam Movie Song|Remastered Malayalam Song| M.G.Sreekumar](https://www.youtube.com/watch?v=Ls6yOuSzKQQ)
-- [കുറിവരച്ചാലും | Kuri Varachalum | K J Yesudas | M D Rajendran | SAND ART | Malayalam Film Song](https://www.youtube.com/watch?v=yq692OHjuCU)
-- [Every kiss a fiery revelation 🔥💏 #NeeyeyullooEnnumen #Chovvazhcha #shorts #ytshorts](https://www.youtube.com/watch?v=tQAzAYNzGNc)
-- [Urumbinu Pattiya Amali | Kattile Kannan Videios | Kids Animation Videos | Animation Video Songs](https://www.youtube.com/watch?v=iWnPP-ZzhkE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
