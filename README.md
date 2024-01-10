@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [10 January 2024](https://www.youtube.com/watch?v=u6ufr4sCJMc)
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 11th January 24](https://www.youtube.com/watch?v=XVItvzM-gDM)
 - [Omkaaram Shankil Cherumbol | Veruthe Oru Bharya | Jaayaram | Gopika  | Unnimenon | Niveditha](https://www.youtube.com/watch?v=sHRO2u1i3i8)
 - [സ്വർഗ്ഗരാജ്യത്തേക്കുള്ള പൊരുൾ ഒളിപ്പിച്ചവയായിരുന്നു നസ്രായന്റെ വചസ്സുകളെല്ലം | Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=YWG_j0c6Q7Y)
 - [Vayanaadan Keloonte Video Song |  Ponnaapuram Kotta | KJ Yesudas | P Madhuri #shorts](https://www.youtube.com/watch?v=bMXKp1NFXsw)
 - [Sopana Sangeetha | Super Hit Malayalam Movie Song | Oru Kadam Katha Pole | Nedumudi Venu, Geetha](https://www.youtube.com/watch?v=1WRp04k0-CU)
-- [Kaathil Thenmazhayayi - K.J. Yesudas Geethangal | Aararo Aariraro | Innale Mayangumbol](https://www.youtube.com/watch?v=1sGoWZqNoTQ)
-- [Harichandana Malarile | Kannezhuthi Pottum Thottu | MG Sreekumar | M G Radhakrishnan|](https://www.youtube.com/watch?v=OBnEn_jY-Hg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
