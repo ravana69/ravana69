@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [My X Boy Friend &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+2.0 - 224Kbps&rpar; - 2GB - 1GB] - [x264 - 600MB &amp; 300MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177240-my-x-boy-friend-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd20-224kbps-2gb-1gb-x264-600mb-300mb-esub/&do=findComment&comment=359125)
 - [[HDR10-DoVi] Echo S01 COMPLETE DSNP WEB-DL Multi DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p | 720p - 19.3 GB | 6.5 GB | 3.7 GB](https://www.1tamilmv.im/index.php?/forums/topic/177239-hdr10-dovi-echo-s01-complete-dsnp-web-dl-multi-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-720p-193-gb-65-gb-37-gb/&do=findComment&comment=359124)
 - [Leo - Movie Promo | World Television Premiere | 15 Jan 2024 @ 6.30PM | Gemini Tv](https://www.1tamilmv.im/index.php?/forums/topic/177238-leo-movie-promo-world-television-premiere-15-jan-2024-630pm-gemini-tv/&do=findComment&comment=359123)
 - [LEO - World Television premiere | Pongal special Movie | 15 Jan 2024 @ 6.30 PM | Vijay |SunTV](https://www.1tamilmv.im/index.php?/forums/topic/177237-leo-world-television-premiere-pongal-special-movie-15-jan-2024-630-pm-vijay-suntv/&do=findComment&comment=359122)
 - [Jigarthanda DoubleX - World Television premiere | Pongal special | 16 Jan 2024 @ 6.30 PM |SunTV](https://www.1tamilmv.im/index.php?/forums/topic/177236-jigarthanda-doublex-world-television-premiere-pongal-special-16-jan-2024-630-pm-suntv/&do=findComment&comment=359121)
-- [Karuppan &lpar;2017&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 7.5GB - UE](https://www.1tamilmv.im/index.php?/forums/topic/177235-karuppan-2017-tamil-true-web-dl-1080p-hq-avc-untouched-aac20-75gb-ue/&do=findComment&comment=359120)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
