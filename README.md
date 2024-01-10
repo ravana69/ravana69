@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Veera &lpar;1994&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 8.3GB - ESub - UE](https://www.1tamilmv.im/index.php?/forums/topic/177234-veera-1994-tamil-true-web-dl-1080p-avc-untouched-aac20-83gb-esub-ue/&do=findComment&comment=359119)
+- [Fire Force S01 EP14 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 350MB - 250MB] - ESub [Google Drive]](https://www.1tamilmv.im/index.php?/forums/topic/177233-fire-force-s01-ep14-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-350mb-250mb-esub-google-drive/&do=findComment&comment=359118)
+- [Fire Force S01 EP13 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 250MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.im/index.php?/forums/topic/177232-fire-force-s01-ep13-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-250mb-200mb-esub-google-drive/&do=findComment&comment=359117)
+- [Manam Kothi Paravai &lpar;2012&rpar; SNXT WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 4.8 GB | 3.3 GB](https://www.1tamilmv.im/index.php?/forums/topic/177231-manam-kothi-paravai-2012-snxt-web-dl-ddp51-esubs-x264-1080p-720p-48-gb-33-gb/&do=findComment&comment=359116)
 - [BAANAM &lpar;2009&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps &amp; DD2.0 - 224Kbps&rpar; - 5.7GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177215-baanam-2009-telugu-dvd9-untouched-480p-dd51-448kbps-dd20-224kbps-57gb-esub/&do=findComment&comment=359114)
-- [BAANAM &lpar;2009&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps &amp; DD2.0 - 224Kbps&rpar; - 5.7GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177215-baanam-2009-telugu-dvd9-untouched-480p-dd51-448kbps-dd20-224kbps-57gb-esub/&do=findComment&comment=359113)
-- [Saachi &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+2.0 - 224Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177229-saachi-2023-telugu-true-web-dl-1080p-720p-avc-dd20-224kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=359112)
-- [Jenni &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+2.0 - 224Kbps&rpar; - 2.8GB - 1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177225-jenni-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd20-224kbps-28gb-1gb-x264-700mb-400mb-esub/&do=findComment&comment=359111)
-- [#90&#39;s Middle Class Biopic &lpar;2024&rpar; S01 EP&lpar;01-06&rpar; Telugu TRUE WEB-DL - [1080p - 720p &amp; 480p - AVC - AAC - 4.5GB - 2.4GB &amp; 1.2GB]](https://www.1tamilmv.im/index.php?/forums/topic/177164-90s-middle-class-biopic-2024-s01-ep01-06-telugu-true-web-dl-1080p-720p-480p-avc-aac-45gb-24gb-12gb/&do=findComment&comment=359110)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
