@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Sandhyayum Ee Chandrikayum | Vazhunnor | KJ Yesudas | Ouseppachan | Gireesh Puthenchery](https://www.youtube.com/watch?v=hJsxyQpdZc0)
+- [Kanakam mannil |  Doctor Pashupathi | MG Sreekumar | Sujatha Mohan #shorts](https://www.youtube.com/watch?v=XgXjoguYrk8)
 - [Velutha Penninte Video Song | Snehithan | Krishna | Nandana | KJ Yesudas | Mohan Sithara](https://www.youtube.com/watch?v=cDMcEzd7p7U)
 - [ഒരു ജനതയെ മുഴുവൻ സംഗീതത്തിൽ ആറാടിച്ച മഹാനായ ഗായകൻ ! BEST OF YESUDAS | BIRTHDAY SPECIAL SONGS](https://www.youtube.com/watch?v=wsfuTA2IQmU)
 - [Tera Hi Jaadu Hai (From "Leo (Hindi)")](https://www.youtube.com/watch?v=UPJ1-wI3Dcw)
 - [മലയാളത്തിൻറെ നാദമയൂഖത്തിന്‌ പിറന്നാളാശംസകൾ | കെ ജെ യേശുദാസ് | Best of Dasettan](https://www.youtube.com/watch?v=RhGBEiJ8Y38)
-- [മലയാളസംഗീതത്തിന്റെ മഹാശോഭായ് തിളങ്ങിനിൽക്കും ദാസേട്ടന്റെ പിറന്നാൾ സ്പെഷ്യൽ ഗാനങ്ങൾ | HITS OF YESUDAS](https://www.youtube.com/watch?v=gP04nDUTWZ4)
-- [Swapnathil Vannaval njan | Taxi Car | Sreekumaran Thampi | RK Sekhar | P Madhuri | Vijaysree](https://www.youtube.com/watch?v=bZFjRd1aIR4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
