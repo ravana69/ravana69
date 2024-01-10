@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Thadam &lpar;2019&rpar; Tamil 1080p SS H.264 DD5.1&lpar;320Kbps&rpar; 3.83 GB ESub](https://www.1tamilmv.im/index.php?/forums/topic/177245-thadam-2019-tamil-1080p-ss-h264-dd51320kbps-383-gb-esub/&do=findComment&comment=359135)
+- [Echo &lpar;2024&rpar; S01 EP &lpar;01-05&rpar; TRUE WEB-DL - [2160p - 1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; -19.83 GB - 19.11 GB  - 6.49 GB - 3.72 GB  -] - ESub &lpar;Direct Download&rpar;](https://www.1tamilmv.im/index.php?/forums/topic/177244-echo-2024-s01-ep-01-05-true-web-dl-2160p-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-1983-gb%C2%A0-1911-gb%C2%A0-649-gb%C2%A0-372-gb%C2%A0-esub-direct-download/&do=findComment&comment=359134)
 - [Vaaranam Aayiram &lpar;2008&rpar; Tamil UNTOUCHED - HEVC - 1080p - DD2.0 - 1.9GB](https://www.1tamilmv.im/index.php?/forums/topic/177243-vaaranam-aayiram-2008-tamil-untouched-hevc-1080p-dd20-19gb/&do=findComment&comment=359133)
 - [City Lights and Love Strikes | Taylor Swift Music Video](https://www.1tamilmv.im/index.php?/forums/topic/150711-city-lights-and-love-strikes-taylor-swift-music-video/&do=findComment&comment=359132)
 - [Avatar 3: The Seed Bearer - First Official Trailer | 20th Century Studios | Disney+](https://www.1tamilmv.im/index.php?/forums/topic/150700-avatar-3-the-seed-bearer-first-official-trailer-20th-century-studios-disney/&do=findComment&comment=359131)
-- [The Twilight Saga: Eternal Dawn - First Trailer | Kristen Stewart, Robert Pattinson, Taylor Lautner](https://www.1tamilmv.im/index.php?/forums/topic/150699-the-twilight-saga-eternal-dawn-first-trailer-kristen-stewart-robert-pattinson-taylor-lautner/&do=findComment&comment=359130)
-- [Journey 3 From the Earth to the Moon &lpar;2024&rpar; Official Ai Trailer | Warner Bros. Pictures](https://www.1tamilmv.im/index.php?/forums/topic/150718-journey-3-from-the-earth-to-the-moon-2024-official-ai-trailer-warner-bros-pictures/&do=findComment&comment=359129)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
