@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kotabommali PS &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 4.2GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177249-kotabommali-ps-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-42gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359144)
 - [My X Boy Friend &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+2.0 - 224Kbps&rpar; - 2GB - 1GB] - [x264 - 600MB &amp; 300MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177240-my-x-boy-friend-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd20-224kbps-2gb-1gb-x264-600mb-300mb-esub/&do=findComment&comment=359143)
 - [Echo &lpar;2024&rpar; S01 EP &lpar;01-05&rpar; TRUE WEB-DL - [2160p - 1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; -19.83 GB - 19.11 GB  - 6.49 GB - 3.72 GB  -] - ESub &lpar;Direct Download&rpar;](https://www.1tamilmv.im/index.php?/forums/topic/177244-echo-2024-s01-ep-01-05-true-web-dl-2160p-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-1983-gb%C2%A0-1911-gb%C2%A0-649-gb%C2%A0-372-gb%C2%A0-esub-direct-download/&do=findComment&comment=359142)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP102 DAY 101 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.1GB - 578MB &amp; 224MB | 10-01-2024]](https://www.1tamilmv.im/index.php?/forums/topic/177248-bigg-boss-tamil-s07-ep102-day-101-true-web-dl-1080p-720p-480p-avc-untouched-11gb-578mb-224mb-10-01-2024/&do=findComment&comment=359141)
 - [My X Boy Friend &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+2.0 - 224Kbps&rpar; - 2GB - 1GB] - [x264 - 600MB &amp; 300MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177240-my-x-boy-friend-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd20-224kbps-2gb-1gb-x264-600mb-300mb-esub/&do=findComment&comment=359140)
-- [7aum Arivu &lpar;2011&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 9.4GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB [GDrive]](https://www.1tamilmv.im/index.php?/forums/topic/177247-7aum-arivu-2011-tamil-true-web-dl-1080p-720p-avc-hevc-untouched-dd51640kbps-94gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-gdrive/&do=findComment&comment=359139)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
