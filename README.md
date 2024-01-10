@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഒരു ജനതയെ മുഴുവൻ സംഗീതത്തിൽ ആറാടിച്ച മഹാനായ ഗായകൻ ! BEST OF YESUDAS | BIRTHDAY SPECIAL SONGS](https://www.youtube.com/watch?v=wsfuTA2IQmU)
+- [Tera Hi Jaadu Hai (From "Leo (Hindi)")](https://www.youtube.com/watch?v=UPJ1-wI3Dcw)
+- [മലയാളത്തിൻറെ നാദമയൂഖത്തിന്‌ പിറന്നാളാശംസകൾ | കെ ജെ യേശുദാസ് | Best of Dasettan](https://www.youtube.com/watch?v=RhGBEiJ8Y38)
+- [മലയാളസംഗീതത്തിന്റെ മഹാശോഭായ് തിളങ്ങിനിൽക്കും ദാസേട്ടന്റെ പിറന്നാൾ സ്പെഷ്യൽ ഗാനങ്ങൾ | HITS OF YESUDAS](https://www.youtube.com/watch?v=gP04nDUTWZ4)
+- [Swapnathil Vannaval njan | Taxi Car | Sreekumaran Thampi | RK Sekhar | P Madhuri | Vijaysree](https://www.youtube.com/watch?v=bZFjRd1aIR4)
 - [Palavattom Pookkaalam | Manichithrathaazhu | K J Yesudas | M G Radhakrishnan #SongOfTheDay](https://www.youtube.com/watch?v=7mbFssPa1Wg)
-- [Karunyamoorthiyam Rakshaka Kelkkane | Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=f-Gqp9RsyrA)
-- [A blazing trail of desire that never fades 🔥💖 #NeeyeyullooEnnumen #Chovvazhcha #shorts #ytshorts](https://www.youtube.com/watch?v=PevfSvKt70E)
-- [Top 3 Hitlist (Specials) ft. Kannilu Kannilu, Pakaliravukal, Mandarappoove](https://www.youtube.com/watch?v=qqmmJn2Ysw8)
-- [Innale Ente Nenjile | Balettan | Pathos by K J Yesudas #shorts](https://www.youtube.com/watch?v=DEsG-CxWqPU)
-- [Mohanlal Old Malayalam Movie Songs | Indrajaalam Movie Song|Remastered Malayalam Song| M.G.Sreekumar](https://www.youtube.com/watch?v=Ls6yOuSzKQQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
