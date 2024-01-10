@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Leo - Movie Promo | World Television Premiere | 15 Jan 2024 @ 6.30PM | Gemini Tv](https://www.1tamilmv.im/index.php?/forums/topic/177238-leo-movie-promo-world-television-premiere-15-jan-2024-630pm-gemini-tv/&do=findComment&comment=359123)
+- [LEO - World Television premiere | Pongal special Movie | 15 Jan 2024 @ 6.30 PM | Vijay |SunTV](https://www.1tamilmv.im/index.php?/forums/topic/177237-leo-world-television-premiere-pongal-special-movie-15-jan-2024-630-pm-vijay-suntv/&do=findComment&comment=359122)
+- [Jigarthanda DoubleX - World Television premiere | Pongal special | 16 Jan 2024 @ 6.30 PM |SunTV](https://www.1tamilmv.im/index.php?/forums/topic/177236-jigarthanda-doublex-world-television-premiere-pongal-special-16-jan-2024-630-pm-suntv/&do=findComment&comment=359121)
 - [Karuppan &lpar;2017&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 7.5GB - UE](https://www.1tamilmv.im/index.php?/forums/topic/177235-karuppan-2017-tamil-true-web-dl-1080p-hq-avc-untouched-aac20-75gb-ue/&do=findComment&comment=359120)
 - [Veera &lpar;1994&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 8.3GB - ESub - UE](https://www.1tamilmv.im/index.php?/forums/topic/177234-veera-1994-tamil-true-web-dl-1080p-avc-untouched-aac20-83gb-esub-ue/&do=findComment&comment=359119)
-- [Fire Force S01 EP14 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 350MB - 250MB] - ESub [Google Drive]](https://www.1tamilmv.im/index.php?/forums/topic/177233-fire-force-s01-ep14-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-350mb-250mb-esub-google-drive/&do=findComment&comment=359118)
-- [Fire Force S01 EP13 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 250MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.im/index.php?/forums/topic/177232-fire-force-s01-ep13-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-250mb-200mb-esub-google-drive/&do=findComment&comment=359117)
-- [Manam Kothi Paravai &lpar;2012&rpar; SNXT WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 4.8 GB | 3.3 GB](https://www.1tamilmv.im/index.php?/forums/topic/177231-manam-kothi-paravai-2012-snxt-web-dl-ddp51-esubs-x264-1080p-720p-48-gb-33-gb/&do=findComment&comment=359116)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
