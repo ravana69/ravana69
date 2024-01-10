@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [City Lights and Love Strikes | Taylor Swift Music Video](https://www.1tamilmv.im/index.php?/forums/topic/150711-city-lights-and-love-strikes-taylor-swift-music-video/&do=findComment&comment=359132)
+- [Avatar 3: The Seed Bearer - First Official Trailer | 20th Century Studios | Disney+](https://www.1tamilmv.im/index.php?/forums/topic/150700-avatar-3-the-seed-bearer-first-official-trailer-20th-century-studios-disney/&do=findComment&comment=359131)
+- [The Twilight Saga: Eternal Dawn - First Trailer | Kristen Stewart, Robert Pattinson, Taylor Lautner](https://www.1tamilmv.im/index.php?/forums/topic/150699-the-twilight-saga-eternal-dawn-first-trailer-kristen-stewart-robert-pattinson-taylor-lautner/&do=findComment&comment=359130)
+- [Journey 3 From the Earth to the Moon &lpar;2024&rpar; Official Ai Trailer | Warner Bros. Pictures](https://www.1tamilmv.im/index.php?/forums/topic/150718-journey-3-from-the-earth-to-the-moon-2024-official-ai-trailer-warner-bros-pictures/&do=findComment&comment=359129)
 - [Echo &lpar;2024&rpar; S01 EP &lpar;01-05&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5GB - 2.2GB &amp; 700MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177230-echo-2024-s01-ep-01-05-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-5gb-22gb-700mb-esub/&do=findComment&comment=359128)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [10-1-2024]](https://www.1tamilmv.im/index.php?/forums/topic/177242-movies-collection-all-languages-4k-1080p-720p-576p-480p-10-1-2024/&do=findComment&comment=359127)
-- [Atraiththingal Annilavil &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+2.0 - 224Kbps&rpar; - 2.1GB - 1.1GB] - [x264 - 600MB &amp; 300MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177241-atraiththingal-annilavil-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd20-224kbps-21gb-11gb-x264-600mb-300mb-esub/&do=findComment&comment=359126)
-- [My X Boy Friend &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+2.0 - 224Kbps&rpar; - 2GB - 1GB] - [x264 - 600MB &amp; 300MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177240-my-x-boy-friend-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd20-224kbps-2gb-1gb-x264-600mb-300mb-esub/&do=findComment&comment=359125)
-- [[HDR10-DoVi] Echo S01 COMPLETE DSNP WEB-DL Multi DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p | 720p - 19.3 GB | 6.5 GB | 3.7 GB](https://www.1tamilmv.im/index.php?/forums/topic/177239-hdr10-dovi-echo-s01-complete-dsnp-web-dl-multi-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-720p-193-gb-65-gb-37-gb/&do=findComment&comment=359124)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
