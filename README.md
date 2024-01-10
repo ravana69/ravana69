@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Sandhyayum Ee Chandrikayum | Vazhunnor | KJ Yesudas | Ouseppachan | Gireesh Puthenchery](https://www.youtube.com/watch?v=hJsxyQpdZc0)
-- [Kanakam mannil |  Doctor Pashupathi | MG Sreekumar | Sujatha Mohan #shorts](https://www.youtube.com/watch?v=XgXjoguYrk8)
-- [Velutha Penninte Video Song | Snehithan | Krishna | Nandana | KJ Yesudas | Mohan Sithara](https://www.youtube.com/watch?v=cDMcEzd7p7U)
-- [ഒരു ജനതയെ മുഴുവൻ സംഗീതത്തിൽ ആറാടിച്ച മഹാനായ ഗായകൻ ! BEST OF YESUDAS | BIRTHDAY SPECIAL SONGS](https://www.youtube.com/watch?v=wsfuTA2IQmU)
-- [Tera Hi Jaadu Hai (From "Leo (Hindi)")](https://www.youtube.com/watch?v=UPJ1-wI3Dcw)
-- [മലയാളത്തിൻറെ നാദമയൂഖത്തിന്‌ പിറന്നാളാശംസകൾ | കെ ജെ യേശുദാസ് | Best of Dasettan](https://www.youtube.com/watch?v=RhGBEiJ8Y38)
+- [സ്വർഗ്ഗരാജ്യത്തേക്കുള്ള പൊരുൾ ഒളിപ്പിച്ചവയായിരുന്നു നസ്രായന്റെ വചസ്സുകളെല്ലം | Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=YWG_j0c6Q7Y)
+- [Vayanaadan Keloonte Video Song |  Ponnaapuram Kotta | KJ Yesudas | P Madhuri #shorts](https://www.youtube.com/watch?v=bMXKp1NFXsw)
+- [Sopana Sangeetha | Super Hit Malayalam Movie Song | Oru Kadam Katha Pole | Nedumudi Venu, Geetha](https://www.youtube.com/watch?v=1WRp04k0-CU)
+- [Kaathil Thenmazhayayi - K.J. Yesudas Geethangal | Aararo Aariraro | Innale Mayangumbol](https://www.youtube.com/watch?v=1sGoWZqNoTQ)
+- [Harichandana Malarile | Kannezhuthi Pottum Thottu | MG Sreekumar | M G Radhakrishnan|](https://www.youtube.com/watch?v=OBnEn_jY-Hg)
+- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 10th January 2024](https://www.youtube.com/watch?v=6pXRBe2DwzE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
