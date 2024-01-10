@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Top 3 Hitlist (Specials) ft. Kannilu Kannilu, Pakaliravukal, Mandarappoove](https://www.youtube.com/watch?v=qqmmJn2Ysw8)
+- [Innale Ente Nenjile | Balettan | Pathos by K J Yesudas #shorts](https://www.youtube.com/watch?v=DEsG-CxWqPU)
 - [Mohanlal Old Malayalam Movie Songs | Indrajaalam Movie Song|Remastered Malayalam Song| M.G.Sreekumar](https://www.youtube.com/watch?v=Ls6yOuSzKQQ)
 - [കുറിവരച്ചാലും | Kuri Varachalum | K J Yesudas | M D Rajendran | SAND ART | Malayalam Film Song](https://www.youtube.com/watch?v=yq692OHjuCU)
 - [Every kiss a fiery revelation 🔥💏 #NeeyeyullooEnnumen #Chovvazhcha #shorts #ytshorts](https://www.youtube.com/watch?v=tQAzAYNzGNc)
 - [Urumbinu Pattiya Amali | Kattile Kannan Videios | Kids Animation Videos | Animation Video Songs](https://www.youtube.com/watch?v=iWnPP-ZzhkE)
-- [Mazhappattu | Kattile Kannan | Kids Animation Videos | Videos Songs for Children](https://www.youtube.com/watch?v=t7LkUkA_tmA)
-- [Ahankarathinte Avasanam | Kattile Kannan | Kids Animation Videos | Children Animation Video Songs](https://www.youtube.com/watch?v=bPWSVCq-QnM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
