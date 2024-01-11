@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [7aum Arivu &lpar;2011&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 9.4GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB [GDrive]](https://www.1tamilmv.im/index.php?/forums/topic/177247-7aum-arivu-2011-tamil-true-web-dl-1080p-720p-avc-hevc-untouched-dd51640kbps-94gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-gdrive/&do=findComment&comment=359203)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP103 DAY 102 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 530MB &amp; 215MB | 11-01-2024]](https://www.1tamilmv.im/index.php?/forums/topic/177267-bigg-boss-tamil-s07-ep103-day-102-true-web-dl-1080p-720p-480p-avc-untouched-1gb-530mb-215mb-11-01-2024/&do=findComment&comment=359202)
 - [14 Blades 2010 DDP5.1 640 Kbps~ Tamil-Telugu-Hindi-DD5.1 Chinese Blu-Ray 1080p x264 ESub 11GB [G-Drive]](https://www.1tamilmv.im/index.php?/forums/topic/177266-14-blades-2010-ddp51-640-kbps~-tamil-telugu-hindi-dd51-chinese-blu-ray-1080p-x264-esub-11gb-g-drive/&do=findComment&comment=359201)
 - [[HDR10-DoVi] Echo S01 COMPLETE DSNP WEB-DL Multi DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p | 720p - 19.3 GB | 6.5 GB | 3.7 GB](https://www.1tamilmv.im/index.php?/forums/topic/177239-hdr10-dovi-echo-s01-complete-dsnp-web-dl-multi-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-720p-193-gb-65-gb-37-gb/&do=findComment&comment=359200)
 - [Indru Netru Naalai &lpar;2015&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 4.4GB - ESub - UE](https://www.1tamilmv.im/index.php?/forums/topic/177256-indru-netru-naalai-2015-tamil-true-web-dl-1080p-avc-untouched-dd51-44gb-esub-ue/&do=findComment&comment=359199)
-- [Killer Soup &lpar;2024&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam] - &lpar;DD+5.1 - 192Kbps&rpar; - 6GB - 1.8GB &amp; 850MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177261-killer-soup-2024-s01-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-dd51-192kbps-6gb-18gb-850mb-esub/&do=findComment&comment=359198)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
