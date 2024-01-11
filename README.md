@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Cheran’s Journey &lpar;2024&rpar; S01 EP &lpar;01-09&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - &lpar;AAC 2.0&rpar; - 9GB - 4.5GB &amp; 1.7GB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177260-cheran%E2%80%99s-journey-2024-s01-ep-01-09-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-aac-20-9gb-45gb-17gb-esub/&do=findComment&comment=359175)
 - [Manmadha &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.6GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177259-manmadha-2004-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-66gb-esub/&do=findComment&comment=359174)
 - [Kotabommali PS &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 4.2GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177249-kotabommali-ps-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-42gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359173)
 - [A Ranjith Cinema &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177250-a-ranjith-cinema-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359172)
 - [Mask &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 2.8GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.im/index.php?/forums/topic/177252-mask-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-20-28gb-13gb-x264-700mb-400mb-250mb/&do=findComment&comment=359171)
-- [Echo &lpar;2024&rpar; S01 EP &lpar;01-05&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5GB - 2.2GB &amp; 700MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177230-echo-2024-s01-ep-01-05-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-5gb-22gb-700mb-esub/&do=findComment&comment=359170)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
