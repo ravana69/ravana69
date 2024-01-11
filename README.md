@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാത്രിയുടെ യാമങ്ങളിൽ മനസിനെ മദിപ്പിക്കുന്ന ഉറങ്ങാൻ സുഖമേകും സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | EVERGREEN SONGS](https://www.youtube.com/watch?v=FpPJEHk7ITo)
+- [Aniyampoo Muttathu  | Darling Darling | Dileep | Vineeth | Kavya Madhavan - Ouseppachan Hits](https://www.youtube.com/watch?v=GcT-uvYRcOU)
+- [Therirangum Mukile | Mazhathullikkilukkam | Suresh Peters | P Jayachandran  #SongOfTheDay](https://www.youtube.com/watch?v=O6ILdDzQUDI)
 - [അല്ലിയിളം പൂവോ ഇല്ലിമുളം തേനോ #evergeenhits #malayalamsongs #shalini #ilayaraja #nedumudivenu](https://www.youtube.com/watch?v=pSzfFqs_SvI)
 - [The chemistry is so intense that it's scorching #NeeyeyullooEnnumen #Chovvazhcha #shorts #ytshorts](https://www.youtube.com/watch?v=cnxPrRv3uu0)
 - [Thazhika Kudame | College Kumaran | Video Song | Mohanlal  Shibu Chakravarthi | Ouseppachan](https://www.youtube.com/watch?v=dFt92vw7VdU)
-- [Madhumasa Mounaragam|Lyrical Video| Rathinirvedam |Shreya Ghoshal |Murugan Kattakkada|M Jayachandran](https://www.youtube.com/watch?v=7ggoweZ5vKs)
-- [Pattaya Floating Market | Travel Guide#shorts #shortsvideo #shortsfeed #thailand #tourism #travel](https://www.youtube.com/watch?v=Eo6BMrmXtvk)
-- [Thayyunrile Kunju Vallyamma | Anjana S Kumar #shortsfeed #shorts #reels #folk #tribal #tribalsong](https://www.youtube.com/watch?v=JypUtMsy_ks)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
