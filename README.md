@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 12th January 24](https://www.youtube.com/watch?v=8FttFflm_yg)
 - [Varnamukil Paalikalil | Eshtadanam | Jagadheesh | Suma Menon | Yesudas | Mohan Sithara](https://www.youtube.com/watch?v=ROtD0PJHdB0)
 - [Christian Melody Songs | Manoj Christy | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=CQYraPC2k3c)
 - [Paranjilla Njan  | K J Yesudas  #shortsfeed #shorts #mjayachandran #kjyesudas #reels #mohanlal](https://www.youtube.com/watch?v=-Qw14Assixw)
 - [Maadatha Kili | Vajram | KJ Yesudas | Ouseppachan | Vyloppilli Sreedhara Menon](https://www.youtube.com/watch?v=JSV0dJJhJVY)
 - [11 January 2024](https://www.youtube.com/watch?v=YMDtQQ90JrA)
-- [നിന്റെ ഭാരം യഹോവയുടെ മുന്നിൽ ഇട്ടുകൊള്ളുക. |  Rev. Aneesh P Joseph   | #shorts #motivationalvideo](https://www.youtube.com/watch?v=ssLPyOv7NP4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
