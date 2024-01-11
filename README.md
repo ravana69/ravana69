@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [AADI &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 5.7GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177175-aadi-2002-telugu-dvd9-untouched-480p-dd51-448kbps-57gb-esub/&do=findComment&comment=359184)
+- [Killer Soup &lpar;2024&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam] - &lpar;DD+5.1 - 192Kbps&rpar; - 6GB - 1.8GB &amp; 850MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177261-killer-soup-2024-s01-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-dd51-192kbps-6gb-18gb-850mb-esub/&do=findComment&comment=359182)
+- [Cheran’s Journey &lpar;2024&rpar; S01 EP &lpar;01-09&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - &lpar;AAC 2.0&rpar; - 9GB - 4.5GB &amp; 1.7GB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177260-cheran%E2%80%99s-journey-2024-s01-ep-01-09-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-aac-20-9gb-45gb-17gb-esub/&do=findComment&comment=359181)
 - [Manmadha &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.6GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177259-manmadha-2004-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-66gb-esub/&do=findComment&comment=359180)
 - [[HDR10-DoVi] Echo S01 COMPLETE DSNP WEB-DL Multi DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p | 720p - 19.3 GB | 6.5 GB | 3.7 GB](https://www.1tamilmv.im/index.php?/forums/topic/177239-hdr10-dovi-echo-s01-complete-dsnp-web-dl-multi-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-720p-193-gb-65-gb-37-gb/&do=findComment&comment=359179)
-- [Cheran’s Journey &lpar;2024&rpar; S01 EP &lpar;01-09&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - &lpar;AAC 2.0&rpar; - 9GB - 4.5GB &amp; 1.7GB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177260-cheran%E2%80%99s-journey-2024-s01-ep-01-09-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-aac-20-9gb-45gb-17gb-esub/&do=findComment&comment=359178)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [11-1-2024]](https://www.1tamilmv.im/index.php?/forums/topic/177262-movies-collection-all-languages-4k-1080p-720p-576p-480p-11-1-2024/&do=findComment&comment=359177)
-- [Killer Soup &lpar;2024&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam] - &lpar;DD+5.1 - 192Kbps&rpar; - 6GB - 1.8GB &amp; 850MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177261-killer-soup-2024-s01-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-dd51-192kbps-6gb-18gb-850mb-esub/&do=findComment&comment=359176)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
