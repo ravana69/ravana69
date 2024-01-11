@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Red Eye &lpar;2005&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.GB &amp; 1.GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177270-red-eye-2005-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-2gb-1gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=359207)
+- [Manmadha &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.6GB - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177259-manmadha-2004-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-66gb-esub/&do=findComment&comment=359205)
+- [Science of Stupid [S01-S09] &lpar;2014&rpar; TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - [ Tamil + Telugu + Hindi + Bengali ] &lpar;AAC.2.0&rpar; - 86GB - ESub - PD](https://www.1tamilmv.im/index.php?/forums/topic/177268-science-of-stupid-s01-s09-2014-true-web-dl-1080p-hq-avc-untouched-tamil-telugu-hindi-bengali-aac20-86gb-esub-pd/&do=findComment&comment=359204)
 - [7aum Arivu &lpar;2011&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 9.4GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB [GDrive]](https://www.1tamilmv.im/index.php?/forums/topic/177247-7aum-arivu-2011-tamil-true-web-dl-1080p-720p-avc-hevc-untouched-dd51640kbps-94gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-gdrive/&do=findComment&comment=359203)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP103 DAY 102 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 530MB &amp; 215MB | 11-01-2024]](https://www.1tamilmv.im/index.php?/forums/topic/177267-bigg-boss-tamil-s07-ep103-day-102-true-web-dl-1080p-720p-480p-avc-untouched-1gb-530mb-215mb-11-01-2024/&do=findComment&comment=359202)
-- [14 Blades 2010 DDP5.1 640 Kbps~ Tamil-Telugu-Hindi-DD5.1 Chinese Blu-Ray 1080p x264 ESub 11GB [G-Drive]](https://www.1tamilmv.im/index.php?/forums/topic/177266-14-blades-2010-ddp51-640-kbps~-tamil-telugu-hindi-dd51-chinese-blu-ray-1080p-x264-esub-11gb-g-drive/&do=findComment&comment=359201)
-- [[HDR10-DoVi] Echo S01 COMPLETE DSNP WEB-DL Multi DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p | 720p - 19.3 GB | 6.5 GB | 3.7 GB](https://www.1tamilmv.im/index.php?/forums/topic/177239-hdr10-dovi-echo-s01-complete-dsnp-web-dl-multi-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-720p-193-gb-65-gb-37-gb/&do=findComment&comment=359200)
-- [Indru Netru Naalai &lpar;2015&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 4.4GB - ESub - UE](https://www.1tamilmv.im/index.php?/forums/topic/177256-indru-netru-naalai-2015-tamil-true-web-dl-1080p-avc-untouched-dd51-44gb-esub-ue/&do=findComment&comment=359199)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
