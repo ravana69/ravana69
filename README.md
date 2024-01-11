@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [മാതാവിൻറെ പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ടു  ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#kripasanam  mothermaryprayer song](https://www.youtube.com/watch?v=r4g2q3ZFYRE)
-- [Japamala 11th of January 2024 # Mathavinte Japamala Prakashathinte Rahasyangal 11th of January 2024](https://www.youtube.com/watch?v=Fhh-MnusLeM)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=YUCa7LEV9DY)
-- [ഇന്ന്  ജനുവരി 11.എൻ്റെ  കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala](https://www.youtube.com/watch?v=3QYxXO25PIo)
-- [പ്രഭാത പ്രാര്‍ത്ഥന January 11 # Athiravile Prarthana 11th January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=8lBQ2BFs3JY)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=w6AixMP6P_Q)
+- [Pattaya Floating Market | Travel Guide#shorts #shortsvideo #shortsfeed #thailand #tourism #travel](https://www.youtube.com/watch?v=Eo6BMrmXtvk)
+- [Thayyunrile Kunju Vallyamma | Anjana S Kumar #shortsfeed #shorts #reels #folk #tribal #tribalsong](https://www.youtube.com/watch?v=JypUtMsy_ks)
+- [Mukesh Neer Old Movie Songs | Godfather Remastered Malayalam Songs | M.G.Sreekumar, Sujatha Mohan](https://www.youtube.com/watch?v=wDG7q9f1Ch4)
+- [A perfect blend of warmth and desire #NeeyeyullooEnnumen #Chovvazhcha #shorts #ytshorts](https://www.youtube.com/watch?v=ZFay3wyDLvs)
+- [Thamarappoomkavanathil  | K J Yesudas  #shortsfeed #shorts #mammootty #kjyesudas #reels #filmsongs](https://www.youtube.com/watch?v=L2kVu1NrPRA)
+- [Vaalittezhuthiya | Onnanu Nammal | Mohanlal | Sunandha | Yesudas | Ilayaraja](https://www.youtube.com/watch?v=44ED8hl_SGA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
