@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നിന്റെ ഭാരം യഹോവയുടെ മുന്നിൽ ഇട്ടുകൊള്ളുക. |  Rev. Aneesh P Joseph   | #shorts #motivationalvideo](https://www.youtube.com/watch?v=ssLPyOv7NP4)
+- [Unni Kumaara Video Song | Ulsavamelam | KJ Yesudas | ONV Kurup | Mohan Sithara](https://www.youtube.com/watch?v=ZkIIdNQxP8E)
+- [Chembazhukka | Kannezhuthi Pottum Thottu | KJ Yesudas | Manju Warrier | M G Radhakrishnan](https://www.youtube.com/watch?v=Dthv_wmANlQ)
+- [ദേവാങ്കണങ്ങൾ കൈയ്യൊഴിഞ്ഞ താരകം സായാഹ്നസാനുവിൽ വിലോലമേഘമായ് #kjyesudas  #kaithapram  #johnsonmaster](https://www.youtube.com/watch?v=jmgWYohHOkU)
+- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 11th January 2024](https://www.youtube.com/watch?v=b_GtoIdzVvs)
 - [Chantham Thelinju - Lyrical Video | Utopiayile Raajaavu |Mridula Warrier, Rahul R Nath  |Ouseppachan](https://www.youtube.com/watch?v=NSY90GWSEDI)
-- [Njan Rajanithan Kusumam Video Song  | Aattakkalaasham  | S Janaki | Mohanlal | Silk Smitha](https://www.youtube.com/watch?v=uudRKh5hH8A)
-- [നീല നീല സമുദ്രത്തിന്നക്കരെയായി | Neela Neela Samudrathin | Achaani |  P Madhuri | Prem Nazir](https://www.youtube.com/watch?v=vIUvTEcYkHY)
-- [രാത്രിയുടെ യാമങ്ങളിൽ മനസിനെ മദിപ്പിക്കുന്ന ഉറങ്ങാൻ സുഖമേകും സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | EVERGREEN SONGS](https://www.youtube.com/watch?v=FpPJEHk7ITo)
-- [Aniyampoo Muttathu  | Darling Darling | Dileep | Vineeth | Kavya Madhavan - Ouseppachan Hits](https://www.youtube.com/watch?v=GcT-uvYRcOU)
-- [Therirangum Mukile | Mazhathullikkilukkam | Suresh Peters | P Jayachandran  #SongOfTheDay](https://www.youtube.com/watch?v=O6ILdDzQUDI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
