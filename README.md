@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kumkumaraga | Punyam | KJ Yesudas | Lakshmi Gopalaswamy | Boban Alumoodan | M Jayachandran](https://www.youtube.com/watch?v=qTqIiPgvwYI)
 - [Songs Of The Week | Jomon Moonjely | Christian Devotional Songs Malayalam | Christian Songs](https://www.youtube.com/watch?v=r7U-Yt3Ye3U)
 - [Manjin Chirakulla  | Swagatham | Jayaram | Paravathi | Ashokan | Urvashi | Sreenath | Jagathi](https://www.youtube.com/watch?v=TvmzLJMTgp8)
 - [Mallikappoo  | K J Yesudas  #shortsfeed #shorts #mjayachandran #kjyesudas #reels #filmsongs](https://www.youtube.com/watch?v=SVOnpYRDqBU)
 - [Ente Janmam Neeyeduthu | Itha Oru dhikkari | Poovachal Khader | AT ummer | KJ Yesudas | S Janaki](https://www.youtube.com/watch?v=-0GI-a9H-AY)
 - [12 January 2024](https://www.youtube.com/watch?v=bxYPKntR5Yc)
-- [ദൈവം നിനക്കുവേണ്ടി  ഒരു പുതുവഴിയൊരുക്കും  | Rev. Aneesh P Joseph   | #shorts #motivationalvideo](https://www.youtube.com/watch?v=b8-HdcrKhsE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
