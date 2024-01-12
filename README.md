@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Villain Yevadu Ra (From "Leo (Telugu)")](https://www.youtube.com/watch?v=ZtkouaKldfM)
+- [Villain Aarada (From "Leo (Malayalam)")](https://www.youtube.com/watch?v=K2PL8G9BVLI)
+- [Villain Yaarava (From "Leo (Kannada)")](https://www.youtube.com/watch?v=GqBDaEI9pao)
+- [MARIAN FOLK SONG | RELEASING TOMORROW | Fr. SHAJI THUMPECHIRAYIL | JILSON CHACKO](https://www.youtube.com/watch?v=m5YCVuemRr0)
 - [പാട്ടിനുള്ളിൽ നിറഞ്ഞു നിൽക്കുന്ന കുളിരും സുഗന്ധവും ശ്രോതാക്കളിലേക്ക് പകരുന്ന മനോഹര ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=QpiBKzJ8o4M)
 - [Doore Doore Saagaram | Varavelpu  | Johnson | K S Chithra | Kaithapram #SongOfTheDay](https://www.youtube.com/watch?v=iBgaCi3G__Y)
-- [Madhuram Madhu Video Song | Achante Bharya | K. J. Yesudas #shorts](https://www.youtube.com/watch?v=tCBFzrh7TOA)
-- [പച്ചക്കറിക്കായത്തട്ടിൽ ഒരു മുത്തശ്ശിപൊട്ടറ്റോ ചൊല്ലി  #evergeenhits  #malayalamsongs #jayaram](https://www.youtube.com/watch?v=ogXxv_WmWk8)
-- [Red-hot romance #NeeyeyullooEnnumen #Chovvazhcha #shorts #ytshorts](https://www.youtube.com/watch?v=6GL6410ASBQ)
-- [Mohanlal Old Malayalam Movie Song | Chandralekha | Remastered Malayalam Movie Song |  M.G.Sreekumar](https://www.youtube.com/watch?v=qYXmgjpBMus)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
