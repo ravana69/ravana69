@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Madhuram Madhu Video Song | Achante Bharya | K. J. Yesudas #shorts](https://www.youtube.com/watch?v=tCBFzrh7TOA)
+- [പച്ചക്കറിക്കായത്തട്ടിൽ ഒരു മുത്തശ്ശിപൊട്ടറ്റോ ചൊല്ലി  #evergeenhits  #malayalamsongs #jayaram](https://www.youtube.com/watch?v=ogXxv_WmWk8)
+- [Red-hot romance #NeeyeyullooEnnumen #Chovvazhcha #shorts #ytshorts](https://www.youtube.com/watch?v=6GL6410ASBQ)
 - [Mohanlal Old Malayalam Movie Song | Chandralekha | Remastered Malayalam Movie Song |  M.G.Sreekumar](https://www.youtube.com/watch?v=qYXmgjpBMus)
 - [Love simmers with a heat that never cools #NeeyeyullooEnnumen #Chovvazhcha #shorts #ytshorts](https://www.youtube.com/watch?v=VUr3XtoFMXQ)
 - [Marannuvo Poomakale  | K J Yesudas  #shortsfeed #shorts #mjayachandran #kjyesudas #reels #filmsongs](https://www.youtube.com/watch?v=OxFDEu0CshQ)
-- [Oru Naalu Naalai | Carnival | Mammootty | Parvathy | Unni Menon | Siddique](https://www.youtube.com/watch?v=AeWYWAD_JJc)
-- [Vaahini Premavaahini | Achante Bharya | K. J. Yesudas | S. Janaki  #shorts](https://www.youtube.com/watch?v=dffuFXzJJ-8)
-- [Daiva Kripayil Njan Aasrayichu | Prayer and Worship Songs |Christian Songs | Christian Worship Songs](https://www.youtube.com/watch?v=uD95BfTtgCo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
