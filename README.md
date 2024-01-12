@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Guntur Kaaram &lpar;2024&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.world/index.php?/forums/topic/177278-guntur-kaaram-2024-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=359236)
-- [The Legend Of Hanuman &lpar;2024&rpar; S03 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - &lpar;AAC 2.0&rpar; - 3.8GB - 1.7GB &amp; 550MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177276-the-legend-of-hanuman-2024-s03-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-aac-20-38gb-17gb-550mb-esub/&do=findComment&comment=359235)
-- [Sarkaaru Noukari &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177291-sarkaaru-noukari-2024-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=359234)
-- [Science of Stupid [S01-S09] &lpar;2014&rpar; TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - [ Tamil + Telugu + Hindi + Bengali ] &lpar;AAC.2.0&rpar; - 86GB - ESub - PD](https://www.1tamilmv.world/index.php?/forums/topic/177268-science-of-stupid-s01-s09-2014-true-web-dl-1080p-hq-avc-untouched-tamil-telugu-hindi-bengali-aac20-86gb-esub-pd/&do=findComment&comment=359233)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [12-1-2024]](https://www.1tamilmv.world/index.php?/forums/topic/177290-movies-collection-all-languages-4k-1080p-720p-576p-480p-12-1-2024/&do=findComment&comment=359232)
+- [Echo &lpar;2024&rpar; Complete S01 EP &lpar;01-05&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5GB - 2.2GB &amp; 700MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177254-echo-2024-complete-s01-ep-01-05-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-5gb-22gb-700mb-esub-google-drive/&do=findComment&comment=359247)
+- [Unraveling the Cosmos: 10 Mystifying Questions in Science That Will Blow Your Mind](https://www.1tamilmv.world/index.php?/forums/topic/150715-unraveling-the-cosmos-10-mystifying-questions-in-science-that-will-blow-your-mind/&do=findComment&comment=359246)
+- [Vallavan &lpar;2006&rpar; Tamil HDRip - 720p - x264 - AAC - 1.5GB](https://www.1tamilmv.world/index.php?/forums/topic/177289-vallavan-2006-tamil-hdrip-720p-x264-aac-15gb/&do=findComment&comment=359245)
+- [Journey 3 From the Earth to the Moon &lpar;2024&rpar; Official Ai Trailer | Warner Bros. Pictures](https://www.1tamilmv.world/index.php?/forums/topic/150718-journey-3-from-the-earth-to-the-moon-2024-official-ai-trailer-warner-bros-pictures/&do=findComment&comment=359244)
+- [Avatar 3: The Seed Bearer - First Official Trailer | 20th Century Studios | Disney+](https://www.1tamilmv.world/index.php?/forums/topic/150700-avatar-3-the-seed-bearer-first-official-trailer-20th-century-studios-disney/&do=findComment&comment=359243)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
