@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Songs Of The Week | Jomon Moonjely | Christian Devotional Songs Malayalam | Christian Songs](https://www.youtube.com/watch?v=r7U-Yt3Ye3U)
+- [Manjin Chirakulla  | Swagatham | Jayaram | Paravathi | Ashokan | Urvashi | Sreenath | Jagathi](https://www.youtube.com/watch?v=TvmzLJMTgp8)
+- [Mallikappoo  | K J Yesudas  #shortsfeed #shorts #mjayachandran #kjyesudas #reels #filmsongs](https://www.youtube.com/watch?v=SVOnpYRDqBU)
+- [Ente Janmam Neeyeduthu | Itha Oru dhikkari | Poovachal Khader | AT ummer | KJ Yesudas | S Janaki](https://www.youtube.com/watch?v=-0GI-a9H-AY)
+- [12 January 2024](https://www.youtube.com/watch?v=bxYPKntR5Yc)
 - [ദൈവം നിനക്കുവേണ്ടി  ഒരു പുതുവഴിയൊരുക്കും  | Rev. Aneesh P Joseph   | #shorts #motivationalvideo](https://www.youtube.com/watch?v=b8-HdcrKhsE)
-- [Anweshippin Kandethum - Official Teaser | Tovino Thomas | Darwin Kuriakose | 9th Feb 2024](https://www.youtube.com/watch?v=L9pnAiEUc90)
-- [മറക്കാൻ കഴിയാത്ത ഗാനങ്ങൾ!!! | Malayalam Evergreen Movie Songs | Ouseppachan Hits | Video Jukebox](https://www.youtube.com/watch?v=Er7dAYGi2UA)
-- [Arundiniyarundu Video Song | Pulival Kalyanam | Jayasurya | Afsal | Vijay Yesudas | Kaithapram](https://www.youtube.com/watch?v=dt_otEcwHc4)
-- [പ്രണയത്തിന്റെ ഗന്ധര്‍വ്വന്‍ | Romantic Songs of Dr K J Yesudas | Audio Jukebox | Malayalam Songs](https://www.youtube.com/watch?v=1UWJNwbSdd4)
-- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 12th January 2024](https://www.youtube.com/watch?v=gqy7xAIUO98)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
