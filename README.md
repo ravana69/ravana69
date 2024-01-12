@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Unraveling the Cosmic Puzzle: Why Doesn&#39;t Radiation Dominate the Universe?](https://www.1tamilmv.world/index.php?/forums/topic/150698-unraveling-the-cosmic-puzzle-why-doesnt-radiation-dominate-the-universe/&do=findComment&comment=359248)
 - [Echo &lpar;2024&rpar; Complete S01 EP &lpar;01-05&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5GB - 2.2GB &amp; 700MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177254-echo-2024-complete-s01-ep-01-05-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-5gb-22gb-700mb-esub-google-drive/&do=findComment&comment=359247)
 - [Unraveling the Cosmos: 10 Mystifying Questions in Science That Will Blow Your Mind](https://www.1tamilmv.world/index.php?/forums/topic/150715-unraveling-the-cosmos-10-mystifying-questions-in-science-that-will-blow-your-mind/&do=findComment&comment=359246)
 - [Vallavan &lpar;2006&rpar; Tamil HDRip - 720p - x264 - AAC - 1.5GB](https://www.1tamilmv.world/index.php?/forums/topic/177289-vallavan-2006-tamil-hdrip-720p-x264-aac-15gb/&do=findComment&comment=359245)
 - [Journey 3 From the Earth to the Moon &lpar;2024&rpar; Official Ai Trailer | Warner Bros. Pictures](https://www.1tamilmv.world/index.php?/forums/topic/150718-journey-3-from-the-earth-to-the-moon-2024-official-ai-trailer-warner-bros-pictures/&do=findComment&comment=359244)
-- [Avatar 3: The Seed Bearer - First Official Trailer | 20th Century Studios | Disney+](https://www.1tamilmv.world/index.php?/forums/topic/150700-avatar-3-the-seed-bearer-first-official-trailer-20th-century-studios-disney/&do=findComment&comment=359243)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
