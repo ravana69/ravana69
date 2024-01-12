@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vallavan &lpar;2006&rpar; Tamil HDRip - 720p - x264 - AAC - 1.5GB](https://www.1tamilmv.im/index.php?/forums/topic/177289-vallavan-2006-tamil-hdrip-720p-x264-aac-15gb/&do=findComment&comment=359230)
+- [The Legend Of Hanuman &lpar;2024&rpar; S03 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - &lpar;AAC 2.0&rpar; - 3.8GB - 1.7GB &amp; 550MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177276-the-legend-of-hanuman-2024-s03-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-aac-20-38gb-17gb-550mb-esub/&do=findComment&comment=359229)
 - [[HDR10-DoVi] Killer Soup S01 COMPLETE NF WEB-DL Multi DDP5.1 Esubs - 1080p [HDR10-DoVi] | 720p - 23.4 GB | 19.4 GB | 13 GB](https://www.1tamilmv.im/index.php?/forums/topic/177277-hdr10-dovi-killer-soup-s01-complete-nf-web-dl-multi-ddp51-esubs-1080p-hdr10-dovi-720p-234-gb-194-gb-13-gb/&do=findComment&comment=359217)
 - [Killer Soup &lpar;2024&rpar; Complete S01 EP &lpar;01-08&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam] - &lpar;DD+5.1 - 192Kbps&rpar; - 6GB - 1.8GB &amp; 850MB] - ESub [Google Drive]](https://www.1tamilmv.im/index.php?/forums/topic/177265-killer-soup-2024-complete-s01-ep-01-08-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-dd51-192kbps-6gb-18gb-850mb-esub-google-drive/&do=findComment&comment=359216)
 - [The Legend Of Hanuman &lpar;2024&rpar; S03 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - &lpar;AAC 2.0&rpar; - 3.8GB - 1.7GB &amp; 550MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177276-the-legend-of-hanuman-2024-s03-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-aac-20-38gb-17gb-550mb-esub/&do=findComment&comment=359215)
-- [Hanu-Man &lpar;2024&rpar; Telugu DVDScr - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.im/index.php?/forums/topic/177275-hanu-man-2024-telugu-dvdscr-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=359214)
-- [The Legend Of Hanuman &lpar;2024&rpar; S03 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - &lpar;AAC 2.0&rpar; - 3.8GB - 1.7GB &amp; 550MB] - ESub](https://www.1tamilmv.im/index.php?/forums/topic/177276-the-legend-of-hanuman-2024-s03-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-aac-20-38gb-17gb-550mb-esub/&do=findComment&comment=359213)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
