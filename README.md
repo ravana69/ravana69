@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Darling Darling Video Songs | ഡാർലിങ്ങ് ഡാർലിങ്ങ് ചിത്രത്തിലെ  അടിപൊളി ഗാനങ്ങൾ Dileep, Kavya,Vineeth](https://www.youtube.com/watch?v=Lz_IEWGJflQ)
+- [Athipazhathinilaneer Churathum | | Suresh Gopi | Swetha Menon | Romantic Song #malayalamoldsongs](https://www.youtube.com/watch?v=fZmE2gouqPo)
 - [Villain Yevadu Ra (From "Leo (Telugu)")](https://www.youtube.com/watch?v=ZtkouaKldfM)
 - [Villain Aarada (From "Leo (Malayalam)")](https://www.youtube.com/watch?v=K2PL8G9BVLI)
 - [Villain Yaarava (From "Leo (Kannada)")](https://www.youtube.com/watch?v=GqBDaEI9pao)
 - [MARIAN FOLK SONG | RELEASING TOMORROW | Fr. SHAJI THUMPECHIRAYIL | JILSON CHACKO](https://www.youtube.com/watch?v=m5YCVuemRr0)
-- [പാട്ടിനുള്ളിൽ നിറഞ്ഞു നിൽക്കുന്ന കുളിരും സുഗന്ധവും ശ്രോതാക്കളിലേക്ക് പകരുന്ന മനോഹര ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=QpiBKzJ8o4M)
-- [Doore Doore Saagaram | Varavelpu  | Johnson | K S Chithra | Kaithapram #SongOfTheDay](https://www.youtube.com/watch?v=iBgaCi3G__Y)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
