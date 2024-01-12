@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Captain Miller &lpar;2024&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.world/index.php?/forums/topic/177279-captain-miller-2024-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=359260)
-- [Sarkaaru Noukari &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177291-sarkaaru-noukari-2024-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=359259)
-- [Expend4bles &lpar;2023&rpar; DDP2.0 224Kbps Tamil-Telugu-Hindi-AAC5.1 English 1080p Blu-Ray Esub 3GB [G-Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177174-expend4bles-2023-ddp20-224kbps-tamil-telugu-hindi-aac51-english-1080p-blu-ray-esub-3gb-g-drive/&do=findComment&comment=359258)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP103 DAY 102 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1GB - 530MB &amp; 215MB | 11-01-2024]](https://www.1tamilmv.world/index.php?/forums/topic/177267-bigg-boss-tamil-s07-ep103-day-102-true-web-dl-1080p-720p-480p-avc-untouched-1gb-530mb-215mb-11-01-2024/&do=findComment&comment=359257)
-- [Ghilli &lpar;2004&rpar; Tamil UNTOUCHED WEBDL - HEVC - 1080p - &lpar;DD+5.1 - 192Kbps&rpar; - 3.3GB](https://www.1tamilmv.world/index.php?/forums/topic/177294-ghilli-2004-tamil-untouched-webdl-hevc-1080p-dd51-192kbps-33gb/&do=findComment&comment=359256)
+- [Lift.2024.1080p, 720p .NF.WEB-DL.MULTI.&lpar;Eng, Hin, Tam, Telu&rpar; DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177300-lift20241080p-720p-nfweb-dlmultieng-hin-tam-telu-ddp51-direct-download/&do=findComment&comment=359272)
+- [BIGG BOSS &lpar;Tamil&rpar; S07 EP104 DAY 103 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.6GB - 861MB &amp; 340MB | 12-01-2024]](https://www.1tamilmv.world/index.php?/forums/topic/177299-bigg-boss-tamil-s07-ep104-day-103-true-web-dl-1080p-720p-480p-avc-untouched-16gb-861mb-340mb-12-01-2024/&do=findComment&comment=359271)
+- [Antony.2023.1080p, 720p .AMZN.WEB-DL.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177298-antony20231080p-720p-amznweb-dlddp51-direct-download/&do=findComment&comment=359270)
+- [Saachi &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+2.0 - 224Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177229-saachi-2023-telugu-true-web-dl-1080p-720p-avc-dd20-224kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=359269)
+- [Reacher.S02E07.The.Man.Goes.Through.2160p, 1080p, 720p .AMZN.WEB-DL.MULTI.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177297-reachers02e07themangoesthrough2160p-1080p-720p-amznweb-dlmultiddp51-direct-download/&do=findComment&comment=359268)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
