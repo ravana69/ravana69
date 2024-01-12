@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Dancing Beauty Queen &quot; Sai Pallavi &quot; Birthday Special [6 Movies] Complete Collection &lpar;2017 - 2019&rpar; - Telugu - 1080p - WEB-HD Rip&#39;s - AVC - AAC - x264 - 18GB](https://www.1tamilmv.world/index.php?/forums/topic/127506-dancing-beauty-queen-sai-pallavi-birthday-special-6-movies-complete-collection-2017-2019-telugu-1080p-web-hd-rips-avc-aac-x264-18gb/&do=findComment&comment=359274)
+- [Lingocha &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 5.2GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177301-lingocha-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-52gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359273)
 - [Lift.2024.1080p, 720p .NF.WEB-DL.MULTI.&lpar;Eng, Hin, Tam, Telu&rpar; DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177300-lift20241080p-720p-nfweb-dlmultieng-hin-tam-telu-ddp51-direct-download/&do=findComment&comment=359272)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 EP104 DAY 103 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.6GB - 861MB &amp; 340MB | 12-01-2024]](https://www.1tamilmv.world/index.php?/forums/topic/177299-bigg-boss-tamil-s07-ep104-day-103-true-web-dl-1080p-720p-480p-avc-untouched-16gb-861mb-340mb-12-01-2024/&do=findComment&comment=359271)
 - [Antony.2023.1080p, 720p .AMZN.WEB-DL.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177298-antony20231080p-720p-amznweb-dlddp51-direct-download/&do=findComment&comment=359270)
-- [Saachi &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+2.0 - 224Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177229-saachi-2023-telugu-true-web-dl-1080p-720p-avc-dd20-224kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=359269)
-- [Reacher.S02E07.The.Man.Goes.Through.2160p, 1080p, 720p .AMZN.WEB-DL.MULTI.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177297-reachers02e07themangoesthrough2160p-1080p-720p-amznweb-dlmultiddp51-direct-download/&do=findComment&comment=359268)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
