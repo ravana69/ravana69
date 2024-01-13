@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [All-Time Love Cues (Malayalam) | Neela Nilave | Elamalakaadinullil | Mazha Pattu](https://www.youtube.com/watch?v=s2-4IA35LCE)
-- [എല്ലാവർക്കും മാതൃകയാക്കാവുന്ന ഒരു ഉപേദശവുമായ് ചിത്രച്ചേച്ചി | Padiyum Paranjum](https://www.youtube.com/watch?v=V-xZzE-7PBs)
-- [Virinja Marlarithal Video Song | Mr. Micheal | Prem Nazir | Seema | Jose |](https://www.youtube.com/watch?v=s35HtE2WKvw)
-- [മകരനിലാവ് | Audio Jukebox | Hits of Kalaratnam KG Jayan | Jaya Vijaya | Ayyappa Devotional Songs](https://www.youtube.com/watch?v=dH3eHHy_KtM)
-- [Keli Vipinam Video Song | Manthrikam | Mohanlal | Biju Narayanan | SP Venkitesh | ONV Kurup](https://www.youtube.com/watch?v=yEJme9TpliI)
-- [Anirudh Ravichander, Manisha Eerabathini, Sampath GK - Villain Kaun Hai](https://www.youtube.com/watch?v=j_12kEZHrls)
+- [ചില നന്മകൾ വരാൻ വൈകിയെന്നിരിക്കും പക്ഷെ അത് വരാതിരിക്കില്ല |  Rev. Aneesh P Joseph   | #shorts](https://www.youtube.com/watch?v=vTdqZXKWhMY)
+- [Pinnil Oral | Official Trailer | S.Ananthapuri | Adv.Vinod S Nair | UV Jayakanth |Kripanidhi Cinemas](https://www.youtube.com/watch?v=pg2kC0G8u6E)
+- [Muthumanippalunku Vellam Video Song | Aromalunni (1972) | KJ Yesudas | G Devarajan | Vayalar](https://www.youtube.com/watch?v=5vUTww-HGNg)
+- [MARIAN FOLK SONG | Fr SHAJI THUMPECHIRAYIL | JILSON CHACKO | THANKAPPETTA KANAL](https://www.youtube.com/watch?v=IWxZrlfcm5I)
+- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 13th January 2024](https://www.youtube.com/watch?v=Qqpp8UitKTo)
+- [13 January 2024](https://www.youtube.com/watch?v=FqZWho38ygU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
