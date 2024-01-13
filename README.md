@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kannaram Pothi  | K J Yesudas  #shortsfeed #shorts #mjayachandran #kjyesudas #reels #filmsongs](https://www.youtube.com/watch?v=gNoTZ76g2uQ)
+- [An orchestration of emotions #PraananPol #Bandra #Dileep #Tamannaah #shorts #ytshorts](https://www.youtube.com/watch?v=-wDcSh07h_8)
 - [Prem Nazir, Jayan Old Malayalam Movie Songs | Ithikkara Pakki Remastered Malayalam Songs|  Sreelatha](https://www.youtube.com/watch?v=2lSpkq-MyHE)
 - [Christian Video Songs Malayalam | KG Markose | Madhu Balakrishnan | Christian Melody Songs](https://www.youtube.com/watch?v=VTx2dqTiQIo)
 - [Japamala 13th of January 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 13th of January 24](https://www.youtube.com/watch?v=xnDN3hdS6WY)
 - [മാതാവിൻറെ പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ടു  ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#malayalamchristiansongs of mother](https://www.youtube.com/watch?v=nLUqxxSKunM)
-- [Mathavinodulla Samprakshana Prarthana Short | Mother Mary Prayer for Protections](https://www.youtube.com/watch?v=ayb0tftSOy0)
-- [Karunyathin # Lord's Presence # Ft. Kester , Fr Mathews , Samji # Holy Communion Song Malayalam](https://www.youtube.com/watch?v=zNbAoLOLuBI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
