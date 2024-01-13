@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Anirudh Ravichander, Manisha Eerabathini, Sampath GK - Villain Kaun Hai](https://www.youtube.com/watch?v=j_12kEZHrls)
+- [നല്ല മൂഡ് പ്രദാനം ചെയ്യും മലയാളസിനിമാഗാനങ്ങൾ | EVERGREEN MALAYALAM SONGS | MOVIEWORLD MUSIC](https://www.youtube.com/watch?v=RpqZ4R6ge8A)
+- [ജനഹൃദയങ്ങൾ കീഴടക്കി നാടെങ്ങും സുഗന്ധപൂരിതമാക്കിയ മലയാളസിനിമയിലെ എണ്ണം പറഞ്ഞ ഗാനങ്ങൾ](https://www.youtube.com/watch?v=2eFJOQuKhkk)
+- [ഒരു കാലത്ത് മലയാളികളുടെ നാവിൻ തുമ്പിൽ സ്ഥിരമായി തത്തി കളിച്ചിരുന്ന അപൂർവ്വസുന്ദരഗാനങ്ങൾ !](https://www.youtube.com/watch?v=1P99jvswd1o)
+- [Peeliyezhum Veesi Vaa | Poovinu Puthiya Poonthennal | K J Yesudas | K S Chithra #SongOfTheDay](https://www.youtube.com/watch?v=n6Vf8PTxAlI)
 - [Melting into your embrace #NeeyeyullooEnnumen #Chovvazhcha #shorts #ytshorts](https://www.youtube.com/watch?v=IqjdgJex8HM)
-- [Manithinkal thidampinmel Kilukil Pamparam Movie Song MG Sreekumar Gireesh Puthenchery SP Venkitesh](https://www.youtube.com/watch?v=VT2xY_7iZbk)
-- [Raamaa Sreeraama | Ulsavamelam | Jagathy Sreekumar | ONV Kurup #shorts](https://www.youtube.com/watch?v=DaE5epa9FnI)
-- [Ranadheera Version 2 | Nayakan | Lijo Jose Pellissery | Indrajith Sukumaran | Prashant Pillai](https://www.youtube.com/watch?v=QzEJh053dr8)
-- [Minnadi Minnadi | Beautiful Song by K S Chithra from the movie Naran #shorts](https://www.youtube.com/watch?v=3FmLU6HpYFY)
-- [Kannaram Pothi  | K J Yesudas  #shortsfeed #shorts #mjayachandran #kjyesudas #reels #filmsongs](https://www.youtube.com/watch?v=gNoTZ76g2uQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
