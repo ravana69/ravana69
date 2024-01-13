@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manithinkal thidampinmel Kilukil Pamparam Movie Song MG Sreekumar Gireesh Puthenchery SP Venkitesh](https://www.youtube.com/watch?v=VT2xY_7iZbk)
+- [Raamaa Sreeraama | Ulsavamelam | Jagathy Sreekumar | ONV Kurup #shorts](https://www.youtube.com/watch?v=DaE5epa9FnI)
+- [Ranadheera Version 2 | Nayakan | Lijo Jose Pellissery | Indrajith Sukumaran | Prashant Pillai](https://www.youtube.com/watch?v=QzEJh053dr8)
+- [Minnadi Minnadi | Beautiful Song by K S Chithra from the movie Naran #shorts](https://www.youtube.com/watch?v=3FmLU6HpYFY)
 - [Kannaram Pothi  | K J Yesudas  #shortsfeed #shorts #mjayachandran #kjyesudas #reels #filmsongs](https://www.youtube.com/watch?v=gNoTZ76g2uQ)
 - [An orchestration of emotions #PraananPol #Bandra #Dileep #Tamannaah #shorts #ytshorts](https://www.youtube.com/watch?v=-wDcSh07h_8)
-- [Prem Nazir, Jayan Old Malayalam Movie Songs | Ithikkara Pakki Remastered Malayalam Songs|  Sreelatha](https://www.youtube.com/watch?v=2lSpkq-MyHE)
-- [Christian Video Songs Malayalam | KG Markose | Madhu Balakrishnan | Christian Melody Songs](https://www.youtube.com/watch?v=VTx2dqTiQIo)
-- [Japamala 13th of January 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 13th of January 24](https://www.youtube.com/watch?v=xnDN3hdS6WY)
-- [മാതാവിൻറെ പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ടു  ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#malayalamchristiansongs of mother](https://www.youtube.com/watch?v=nLUqxxSKunM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
