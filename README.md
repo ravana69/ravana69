@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Christian Video Songs Malayalam | KG Markose | Madhu Balakrishnan | Christian Melody Songs](https://www.youtube.com/watch?v=VTx2dqTiQIo)
+- [Japamala 13th of January 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 13th of January 24](https://www.youtube.com/watch?v=xnDN3hdS6WY)
+- [മാതാവിൻറെ പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ടു  ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#malayalamchristiansongs of mother](https://www.youtube.com/watch?v=nLUqxxSKunM)
+- [Mathavinodulla Samprakshana Prarthana Short | Mother Mary Prayer for Protections](https://www.youtube.com/watch?v=ayb0tftSOy0)
 - [ഇന്ന് ജനുവരി 13  എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #സന്തോഷത്തിൻറെ](https://www.youtube.com/watch?v=XC6O7wYjq0A)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=9o0tVd-vlBc)
-- [രാവിലെ പ്രാര്‍ത്ഥന January 13 # Athiravile Prarthana 13th January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=k5wdq45cFGA)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=LpRKVWakSIM)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 13th January 24](https://www.youtube.com/watch?v=ZehVu5zwCmY)
-- [Kumkumaraga | Punyam | KJ Yesudas | Lakshmi Gopalaswamy | Boban Alumoodan | M Jayachandran](https://www.youtube.com/watch?v=qTqIiPgvwYI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
