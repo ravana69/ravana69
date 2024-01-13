@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന January 14 # Athiravile Prarthana 14th January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=pmpJ5ajQeY0)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=2MEW0nDsKdE)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 14th January 24](https://www.youtube.com/watch?v=L7ZoEyNEjUI)
 - [Raakkilithan Vazhi Marayum | Perumazhakaalam | Meera Jasmine | M Jayachanadran | Kaithapram](https://www.youtube.com/watch?v=-a1_qpKxtoI)
 - [Christian Melody Songs | Rajkumar Radhakrishnan | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=ogycjVEU58c)
 - [ചില നന്മകൾ വരാൻ വൈകിയെന്നിരിക്കും പക്ഷെ അത് വരാതിരിക്കില്ല |  Rev. Aneesh P Joseph   | #shorts](https://www.youtube.com/watch?v=vTdqZXKWhMY)
-- [Pinnil Oral | Official Trailer | S.Ananthapuri | Adv.Vinod S Nair | UV Jayakanth |Kripanidhi Cinemas](https://www.youtube.com/watch?v=pg2kC0G8u6E)
-- [Muthumanippalunku Vellam Video Song | Aromalunni (1972) | KJ Yesudas | G Devarajan | Vayalar](https://www.youtube.com/watch?v=5vUTww-HGNg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
