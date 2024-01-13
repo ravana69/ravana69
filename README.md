@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [All-Time Love Cues (Malayalam) | Neela Nilave | Elamalakaadinullil | Mazha Pattu](https://www.youtube.com/watch?v=s2-4IA35LCE)
+- [എല്ലാവർക്കും മാതൃകയാക്കാവുന്ന ഒരു ഉപേദശവുമായ് ചിത്രച്ചേച്ചി | Padiyum Paranjum](https://www.youtube.com/watch?v=V-xZzE-7PBs)
+- [Virinja Marlarithal Video Song | Mr. Micheal | Prem Nazir | Seema | Jose |](https://www.youtube.com/watch?v=s35HtE2WKvw)
+- [മകരനിലാവ് | Audio Jukebox | Hits of Kalaratnam KG Jayan | Jaya Vijaya | Ayyappa Devotional Songs](https://www.youtube.com/watch?v=dH3eHHy_KtM)
 - [Keli Vipinam Video Song | Manthrikam | Mohanlal | Biju Narayanan | SP Venkitesh | ONV Kurup](https://www.youtube.com/watch?v=yEJme9TpliI)
 - [Anirudh Ravichander, Manisha Eerabathini, Sampath GK - Villain Kaun Hai](https://www.youtube.com/watch?v=j_12kEZHrls)
-- [നല്ല മൂഡ് പ്രദാനം ചെയ്യും മലയാളസിനിമാഗാനങ്ങൾ | EVERGREEN MALAYALAM SONGS | MOVIEWORLD MUSIC](https://www.youtube.com/watch?v=RpqZ4R6ge8A)
-- [ജനഹൃദയങ്ങൾ കീഴടക്കി നാടെങ്ങും സുഗന്ധപൂരിതമാക്കിയ മലയാളസിനിമയിലെ എണ്ണം പറഞ്ഞ ഗാനങ്ങൾ](https://www.youtube.com/watch?v=2eFJOQuKhkk)
-- [ഒരു കാലത്ത് മലയാളികളുടെ നാവിൻ തുമ്പിൽ സ്ഥിരമായി തത്തി കളിച്ചിരുന്ന അപൂർവ്വസുന്ദരഗാനങ്ങൾ !](https://www.youtube.com/watch?v=1P99jvswd1o)
-- [Peeliyezhum Veesi Vaa | Poovinu Puthiya Poonthennal | K J Yesudas | K S Chithra #SongOfTheDay](https://www.youtube.com/watch?v=n6Vf8PTxAlI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
