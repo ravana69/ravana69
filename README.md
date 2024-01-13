@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ayalaan &lpar;2024&rpar; Original Motion Picture Soundtrack Master Quality 24bit 96kHz - FLAC - A.R. Rahman Musical - 362 MB](https://www.1tamilmv.world/index.php?/forums/topic/177303-ayalaan-2024-original-motion-picture-soundtrack-master-quality-24bit-96khz-flac-ar-rahman-musical-362-mb/&do=findComment&comment=359276)
+- [[HDR10-DoVi] Lift &lpar;2024&rpar; NF WEB-DL Multi DDP5.1 Atmos Esubs - 1080p [HDR10-DoVi] | 720p - 5.7 GB | 3.8 GB | 2.7 GB](https://www.1tamilmv.world/index.php?/forums/topic/177302-hdr10-dovi-lift-2024-nf-web-dl-multi-ddp51-atmos-esubs-1080p-hdr10-dovi-720p-57-gb-38-gb-27-gb/&do=findComment&comment=359275)
 - [Dancing Beauty Queen &quot; Sai Pallavi &quot; Birthday Special [6 Movies] Complete Collection &lpar;2017 - 2019&rpar; - Telugu - 1080p - WEB-HD Rip&#39;s - AVC - AAC - x264 - 18GB](https://www.1tamilmv.world/index.php?/forums/topic/127506-dancing-beauty-queen-sai-pallavi-birthday-special-6-movies-complete-collection-2017-2019-telugu-1080p-web-hd-rips-avc-aac-x264-18gb/&do=findComment&comment=359274)
 - [Lingocha &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 5.2GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177301-lingocha-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-52gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359273)
 - [Lift.2024.1080p, 720p .NF.WEB-DL.MULTI.&lpar;Eng, Hin, Tam, Telu&rpar; DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177300-lift20241080p-720p-nfweb-dlmultieng-hin-tam-telu-ddp51-direct-download/&do=findComment&comment=359272)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 EP104 DAY 103 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 1.6GB - 861MB &amp; 340MB | 12-01-2024]](https://www.1tamilmv.world/index.php?/forums/topic/177299-bigg-boss-tamil-s07-ep104-day-103-true-web-dl-1080p-720p-480p-avc-untouched-16gb-861mb-340mb-12-01-2024/&do=findComment&comment=359271)
-- [Antony.2023.1080p, 720p .AMZN.WEB-DL.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177298-antony20231080p-720p-amznweb-dlddp51-direct-download/&do=findComment&comment=359270)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
