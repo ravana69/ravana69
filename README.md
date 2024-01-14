@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Aayirathil Oruvan &lpar;2010&rpar; Tamil TRUE WEB-DL - UNTOUCHED - AVC - &lpar;DD+ 5.1 - 192Kbps&rpar; - 5.3GB](https://www.1tamilmv.world/index.php?/forums/topic/177325-aayirathil-oruvan-2010-tamil-true-web-dl-untouched-avc-dd-51-192kbps-53gb/&do=findComment&comment=359323)
+- [Thulli Thirintha Kaalam &lpar;1998&rpar;.Tamil.1080p.HDTV.HEVC.AAC2.0 - 2.2GB](https://www.1tamilmv.world/index.php?/forums/topic/173601-thulli-thirintha-kaalam-1998tamil1080phdtvhevcaac20-22gb/&do=findComment&comment=359322)
 - [Devil: The British Secret Agent &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 9GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177319-devil-the-british-secret-agent-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-9gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359321)
 - [Satyam &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177322-satyam-2003-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-6gb-esub/&do=findComment&comment=359320)
 - [Satyam &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177322-satyam-2003-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-6gb-esub/&do=findComment&comment=359319)
-- [Captain Miller &lpar;2024&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.world/index.php?/forums/topic/177279-captain-miller-2024-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=359318)
-- [Nerrukku Ner &lpar;1997&rpar; AHA WEB-DL AAC2.0 Esubs x264 - 1080p | 720p - 3.4 GB | 1.8 GB](https://www.1tamilmv.world/index.php?/forums/topic/177324-nerrukku-ner-1997-aha-web-dl-aac20-esubs-x264-1080p-720p-34-gb-18-gb/&do=findComment&comment=359317)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
