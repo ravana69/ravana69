@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [BIGG BOSS &lpar;Tamil&rpar; S07 GRAND FINALE EP106 DAY 105 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 5.2GB - 2.6GB &amp; 1GB | 14-01-2024]](https://www.1tamilmv.world/index.php?/forums/topic/177329-bigg-boss-tamil-s07-grand-finale-ep106-day-105-true-web-dl-1080p-720p-480p-avc-untouched-52gb-26gb-1gb-14-01-2024/&do=findComment&comment=359348)
+- [Naa Saami Ranga &lpar;2024&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.world/index.php?/forums/topic/177308-naa-saami-ranga-2024-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=359347)
+- [Raghavan &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.3GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177328-raghavan-2006-telugu-dvd9-untouched-480p-dd51-448kbps-63gb-esub/&do=findComment&comment=359346)
+- [Kuiko &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177326-kuiko-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359345)
 - [Raghavan &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.3GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177328-raghavan-2006-telugu-dvd9-untouched-480p-dd51-448kbps-63gb-esub/&do=findComment&comment=359344)
-- [Science of Stupid [S01-S09] &lpar;2014&rpar; TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - [ Tamil + Telugu + Hindi + Bengali ] &lpar;AAC.2.0&rpar; - 86GB - ESub - PD](https://www.1tamilmv.world/index.php?/forums/topic/177268-science-of-stupid-s01-s09-2014-true-web-dl-1080p-hq-avc-untouched-tamil-telugu-hindi-bengali-aac20-86gb-esub-pd/&do=findComment&comment=359343)
-- [Satyam &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177322-satyam-2003-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-6gb-esub/&do=findComment&comment=359342)
-- [Saw I &lpar;2004&rpar; AAC 2.0 Telugu-Hindi-DD5.1 English 1080p Blu-Ray H265 Esub 3GB [G-Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177315-saw-i-2004-aac-20-telugu-hindi-dd51-english-1080p-blu-ray-h265-esub-3gb-g-drive/&do=findComment&comment=359341)
-- [Devil: The British Secret Agent &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 16GB - 9GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177319-devil-the-british-secret-agent-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-16gb-9gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359340)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
