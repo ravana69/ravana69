@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aarari Rariraro | K J Yesudas  #shortsfeed #shorts ##kjyesudas #reels #filmsongs](https://www.youtube.com/watch?v=qh4U__WlP18)
+- [Divya Kaarunyame | Christian Video Song | Kester | Joji Johns | Joby Kavalam | Christian Melody Song](https://www.youtube.com/watch?v=W-2Qr5Xn5U4)
 - [നിന്റെ നീറുന്ന വിഷയങ്ങൾക്കവിടുന്ന് മാറ്റം നൽകുക തന്നെ ചെയ്യും. | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=1x4ACNHAyHw)
 - [പെരുംകാളിയാട്ടം | Perumkaliyattam | Official Trailer | Malayalam Movie 2024 | Shaji Damodharan](https://www.youtube.com/watch?v=ORs3UrF_7ac)
 - [14 January 2024](https://www.youtube.com/watch?v=GHVsNs0vHMg)
 - [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 14th January 2024](https://www.youtube.com/watch?v=PJ3iATBwbSE)
-- [Nellikkaadu Chuttinu | Nakshathrakkoodaaram | KS Chithra | Shweta Menon #shorts](https://www.youtube.com/watch?v=j29vPE_yZmc)
-- [Ente Ulludukkum Kotti Video Song | Dileep | Jomol | KJ Yesudas | Radhika Thilak | Mohan Sithara](https://www.youtube.com/watch?v=r3Uoeqat01c)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
