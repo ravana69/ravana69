@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Joe &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Telugu + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 5GB - 2.6GB &amp; 1.4GB] - [x264 - 850MB &amp; 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177331-joe-2023-true-web-dl-1080p-720p-avc-hevc-telugu-malayalam-kannada-dd51-192kbps-5gb-26gb-14gb-x264-850mb-450mb-esub/&do=findComment&comment=359350)
+- [Joe &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 6GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177330-joe-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-6gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359349)
 - [BIGG BOSS &lpar;Tamil&rpar; S07 GRAND FINALE EP106 DAY 105 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 5.2GB - 2.6GB &amp; 1GB | 14-01-2024]](https://www.1tamilmv.world/index.php?/forums/topic/177329-bigg-boss-tamil-s07-grand-finale-ep106-day-105-true-web-dl-1080p-720p-480p-avc-untouched-52gb-26gb-1gb-14-01-2024/&do=findComment&comment=359348)
 - [Naa Saami Ranga &lpar;2024&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.world/index.php?/forums/topic/177308-naa-saami-ranga-2024-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=359347)
 - [Raghavan &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.3GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177328-raghavan-2006-telugu-dvd9-untouched-480p-dd51-448kbps-63gb-esub/&do=findComment&comment=359346)
-- [Kuiko &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177326-kuiko-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359345)
-- [Raghavan &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.3GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177328-raghavan-2006-telugu-dvd9-untouched-480p-dd51-448kbps-63gb-esub/&do=findComment&comment=359344)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
