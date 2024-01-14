@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [#Mayalo &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.3GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177333-mayalo-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-23gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359353)
 - [The Climbers &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Chi&rpar; - 3.8GB &amp; 1.5GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177332-the-climbers-2019-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-chi-38gb-15gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=359352)
 - [Joe &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 14GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177330-joe-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-14gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359351)
 - [Joe &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Telugu + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 5GB - 2.6GB &amp; 1.4GB] - [x264 - 850MB &amp; 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177331-joe-2023-true-web-dl-1080p-720p-avc-hevc-telugu-malayalam-kannada-dd51-192kbps-5gb-26gb-14gb-x264-850mb-450mb-esub/&do=findComment&comment=359350)
 - [Joe &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 14GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177330-joe-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-14gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359349)
-- [BIGG BOSS &lpar;Tamil&rpar; S07 GRAND FINALE EP106 DAY 105 TRUE WEB-DL - [1080p, 720p &amp; 480p - AVC - UNTOUCHED - 5.2GB - 2.6GB &amp; 1GB | 14-01-2024]](https://www.1tamilmv.world/index.php?/forums/topic/177329-bigg-boss-tamil-s07-grand-finale-ep106-day-105-true-web-dl-1080p-720p-480p-avc-untouched-52gb-26gb-1gb-14-01-2024/&do=findComment&comment=359348)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
