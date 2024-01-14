@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Devil: The British Secret Agent &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 9GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177319-devil-the-british-secret-agent-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-9gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359321)
+- [Satyam &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177322-satyam-2003-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-6gb-esub/&do=findComment&comment=359320)
+- [Satyam &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177322-satyam-2003-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-6gb-esub/&do=findComment&comment=359319)
+- [Captain Miller &lpar;2024&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.world/index.php?/forums/topic/177279-captain-miller-2024-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=359318)
 - [Nerrukku Ner &lpar;1997&rpar; AHA WEB-DL AAC2.0 Esubs x264 - 1080p | 720p - 3.4 GB | 1.8 GB](https://www.1tamilmv.world/index.php?/forums/topic/177324-nerrukku-ner-1997-aha-web-dl-aac20-esubs-x264-1080p-720p-34-gb-18-gb/&do=findComment&comment=359317)
-- [Fire Force S01 EP16 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 300MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177323-fire-force-s01-ep16-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-300mb-200mb-esub-google-drive/&do=findComment&comment=359316)
-- [Satyam &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177322-satyam-2003-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-6gb-esub/&do=findComment&comment=359315)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [14-1-2024]](https://www.1tamilmv.world/index.php?/forums/topic/177321-movies-collection-all-languages-4k-1080p-720p-576p-480p-14-1-2024/&do=findComment&comment=359314)
-- [Leo Das Entry &lpar;From &quot;Leo&quot;&rpar; Master Quality 24bit 96kHz - FLAC - Anirudh Ravichander Musical - 32 MB](https://www.1tamilmv.world/index.php?/forums/topic/177320-leo-das-entry-from-leo-master-quality-24bit-96khz-flac-anirudh-ravichander-musical-32-mb/&do=findComment&comment=359313)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
