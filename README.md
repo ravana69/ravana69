@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Rise of Miller &lpar;From &quot;Captain Miller&quot;&rpar; Hi-Fi Quality 16bit - FLAC - G.V. Prakash Kumar Musical - 23 MB](https://www.1tamilmv.world/index.php?/forums/topic/177336-rise-of-miller-from-captain-miller-hi-fi-quality-16bit-flac-gv-prakash-kumar-musical-23-mb/&do=findComment&comment=359358)
+- [Joe &lpar;2023&rpar; DSNP WEB-DL Multi DDP5.1 Esubs - 2160p | 1080p | 720p - 13.8 GB | 4.1 GB  | 1.8 GB](https://www.1tamilmv.world/index.php?/forums/topic/177335-joe-2023-dsnp-web-dl-multi-ddp51-esubs-2160p-1080p-720p-138-gb-41-gb-18-gb/&do=findComment&comment=359357)
 - [Joe &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 14GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177330-joe-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-14gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359356)
 - [Nanban &lpar;2012&rpar; Tamil TRUE HDRip - 1080p - HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 1.6GB](https://www.1tamilmv.world/index.php?/forums/topic/177334-nanban-2012-tamil-true-hdrip-1080p-hevc-dd51-192kbps-16gb/&do=findComment&comment=359355)
 - [Joe &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 14GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177330-joe-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-14gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359354)
-- [#Mayalo &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.3GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177333-mayalo-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-23gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359353)
-- [The Climbers &lpar;2019&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Chi&rpar; - 3.8GB &amp; 1.5GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177332-the-climbers-2019-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-chi-38gb-15gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=359352)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
