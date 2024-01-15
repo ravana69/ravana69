@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kaatte Nee Veesharuthippol | Kaattu Vannu Vilichappol | M G Radhakrishnan | Chithra #SongOfTheDay](https://www.youtube.com/watch?v=CkQeisIkaRo)
+- [ഏതൊരു മാനവ ഹൃദയവും വിങ്ങിപൊട്ടി കരഞ്ഞു പോകുന്ന മലയാളസിനിമയിലെ വിഷാദ ഗാനങ്ങൾ | SAD SONGS MALAYALAM](https://www.youtube.com/watch?v=R6MfyWeqbIE)
 - [Hits Of K.J Joy | കെജെ.ജോയിയുടെ ഗാനങ്ങൾ | K.J Joy Hit songs | Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=v6z-jiZtjcg)
 - [Every heartbeat becomes a musical expression #PraananPol #Bandra #Dileep #Tamannaah #shorts#ytshorts](https://www.youtube.com/watch?v=i7K2l7C5Ka8)
 - [Chenkathir Kaiyum | Sneha Veedu | Mohanlal | Sathyan Anthikkad | Ilayaraja | Rafeeque Ahammed](https://www.youtube.com/watch?v=vJAud4wfQ0E)
 - [Balachandra Menon Old Malayalam Movie Song | Najangalude Kochu Doctor Movie Song | Remastered Song](https://www.youtube.com/watch?v=zw19gO7Sbag)
-- [Love hums a beautiful melody #PraananPol #Bandra #Dileep #Tamannaah #shorts #ytshorts](https://www.youtube.com/watch?v=Ua8cVLOdQaQ)
-- [Kinginoippoove | Kinnaripuzhayoram | Sreenivasan | Devayani | M.G.Sreekumar | Chithra | M.G.R](https://www.youtube.com/watch?v=HQSWhMg6lzA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
