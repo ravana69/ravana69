@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന January 16 # Athiravile Prarthana 16th January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=03KAhbFwPa8)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=4jnShEVnEWU)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 16th January 24](https://www.youtube.com/watch?v=yYDJiPV6Jso)
 - [Tribute to the maker of Melodies K J Joy | കെ ജെ ജോയ് ഹിറ്റ്‌സ് | മലയാളചലച്ചിത്രഗാനങ്ങൾ](https://www.youtube.com/watch?v=phNlme6wdmY)
 - [Manjil Kulikkum | Veruthe Oru Bharya | Jayaram | Gopika | Shyam Dharman](https://www.youtube.com/watch?v=15PeYtTPcQ8)
 - [15 January 2024](https://www.youtube.com/watch?v=CBXG7mtUMH0)
-- [Doore Oru Thaaram | Meenathil Thalikettu | KJ Yesudas | KS Chithra |Ouseppachan |Gireesh Puthanchery](https://www.youtube.com/watch?v=tMsK6mhocMA)
-- [ജീവനുള്ള കാലംവരെയും എന്നും പാടുന്ന ക്രിസ്തീയ ഗാനങ്ങൾ  | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=KpxrXzTK4r8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
