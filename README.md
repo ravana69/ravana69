@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ദൈവത്തിന് നിങ്ങൾ പ്രിയപ്പെട്ടതാണ്  | Rev. Aneesh P Joseph   | #shorts #motivationalvideo](https://www.youtube.com/watch?v=3mu7SABjjWE)
+- [Chaanchakkam Thenniyum Video Song | Johnnie Walker | KJ Yesudas | Gireesh Puthenchery](https://www.youtube.com/watch?v=ANIUaAi4tMU)
+- [Manassil Midhuna Mazha | Nandanam | MG Sreekumar | Raveendran | Gireesh Puthanchery](https://www.youtube.com/watch?v=tQXJD2PYNmc)
+- [Vilapikkunnavarkku Bhagyam| Elizabeth Raju | Fr.John Pichappilly | Sebi Nayarambalam |Christian Song](https://www.youtube.com/watch?v=BiigcJIhIf4)
+- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 15th January 2024](https://www.youtube.com/watch?v=FqMPiv9TNH8)
 - [Snehadeepam Koluthi Video Song | Sreedevi Malayalam Movie | P Madhuri | Kamal Haasan | Sharada](https://www.youtube.com/watch?v=GMbuSE6F82w)
-- [Oru Naal Ini Naam | Madhura Naranga | Video | Haricharan | Sooraj Santhosh | Kunchacko Boban](https://www.youtube.com/watch?v=jGyKGAJd4EY)
-- [Moham Kondal Video Song | Christian Brothers | Mohanlal | Raai Laxmi | Dileep | Kaniha | Deepak Dev](https://www.youtube.com/watch?v=MvOpvDxkxQQ)
-- [Kaatte Nee Veesharuthippol | Kaattu Vannu Vilichappol | M G Radhakrishnan | Chithra #SongOfTheDay](https://www.youtube.com/watch?v=CkQeisIkaRo)
-- [ഏതൊരു മാനവ ഹൃദയവും വിങ്ങിപൊട്ടി കരഞ്ഞു പോകുന്ന മലയാളസിനിമയിലെ വിഷാദ ഗാനങ്ങൾ | SAD SONGS MALAYALAM](https://www.youtube.com/watch?v=R6MfyWeqbIE)
-- [Hits Of K.J Joy | കെജെ.ജോയിയുടെ ഗാനങ്ങൾ | K.J Joy Hit songs | Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=v6z-jiZtjcg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
