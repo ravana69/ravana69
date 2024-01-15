@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Yeshunadhan | Yeshudevante Divyakarunyam Niranja Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=ETTQ4KZg9kM)
+- [Maaya Sandhye | Swapnakoodu | KJ Yesudas | Jyotsna | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=kUV1FcdIB7M)
+- [Pudamurikkalyaanam devee Chilambu Movie Audio Song Bharathan Ouseppachan KS Chithra](https://www.youtube.com/watch?v=Ai7Y78LJ8mM)
 - [ദൈവത്തിന് നിങ്ങൾ പ്രിയപ്പെട്ടതാണ്  | Rev. Aneesh P Joseph   | #shorts #motivationalvideo](https://www.youtube.com/watch?v=3mu7SABjjWE)
 - [Chaanchakkam Thenniyum Video Song | Johnnie Walker | KJ Yesudas | Gireesh Puthenchery](https://www.youtube.com/watch?v=ANIUaAi4tMU)
 - [Manassil Midhuna Mazha | Nandanam | MG Sreekumar | Raveendran | Gireesh Puthanchery](https://www.youtube.com/watch?v=tQXJD2PYNmc)
-- [Vilapikkunnavarkku Bhagyam| Elizabeth Raju | Fr.John Pichappilly | Sebi Nayarambalam |Christian Song](https://www.youtube.com/watch?v=BiigcJIhIf4)
-- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 15th January 2024](https://www.youtube.com/watch?v=FqMPiv9TNH8)
-- [Snehadeepam Koluthi Video Song | Sreedevi Malayalam Movie | P Madhuri | Kamal Haasan | Sharada](https://www.youtube.com/watch?v=GMbuSE6F82w)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
