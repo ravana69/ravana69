@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [15-1-2024]](https://www.1tamilmv.world/index.php?/forums/topic/177339-movies-collection-all-languages-4k-1080p-720p-576p-480p-15-1-2024/&do=findComment&comment=359369)
-- [Joe &lpar;2023&rpar; Tamil TRUE WEB-DL HQ - HEVC - AAC - [1080p - 1.2GB |720p - 600MB]](https://www.1tamilmv.world/index.php?/forums/topic/177338-joe-2023-tamil-true-web-dl-hq-hevc-aac-1080p-12gb-720p-600mb/&do=findComment&comment=359368)
-- [Sankranti &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.6GB](https://www.1tamilmv.world/index.php?/forums/topic/177337-sankranti-2005-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-66gb/&do=findComment&comment=359367)
-- [Sankranti &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.6GB](https://www.1tamilmv.world/index.php?/forums/topic/177337-sankranti-2005-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-66gb/&do=findComment&comment=359366)
-- [Sankranti &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.6GB](https://www.1tamilmv.world/index.php?/forums/topic/177337-sankranti-2005-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-66gb/&do=findComment&comment=359365)
+- [TADAKHA &lpar;2014&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - HQ 1080P - AMZN - WEBDL - H264 - DDP 5.1 @ 640 Kb/s - ESUBS - 1.6GB](https://www.1tamilmv.world/index.php?/forums/topic/177340-tadakha-2014-music-video-album-hq-1080p-amzn-webdl-h264-ddp-51-640-kbs-esubs-16gb/&do=findComment&comment=359374)
+- [Rise of Miller &lpar;From &quot;Captain Miller&quot;&rpar; Hi-Fi Quality 16bit - FLAC - G.V. Prakash Kumar Musical - 23 MB](https://www.1tamilmv.world/index.php?/forums/topic/177336-rise-of-miller-from-captain-miller-hi-fi-quality-16bit-flac-gv-prakash-kumar-musical-23-mb/&do=findComment&comment=359373)
+- [Devil: The British Secret Agent &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 16GB - 9GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177319-devil-the-british-secret-agent-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-16gb-9gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359372)
+- [Joe &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 14GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177330-joe-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-14gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359371)
+- [Joe &lpar;2023&rpar; DSNP WEB-DL Multi DDP5.1 Esubs - 2160p | 1080p | 720p - 13.8 GB | 4.1 GB  | 1.8 GB](https://www.1tamilmv.world/index.php?/forums/topic/177335-joe-2023-dsnp-web-dl-multi-ddp51-esubs-2160p-1080p-720p-138-gb-41-gb-18-gb/&do=findComment&comment=359370)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
