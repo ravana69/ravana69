@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Hanuman &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 5.1GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177341-hanuman-2005-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-51gb-esub/&do=findComment&comment=359383)
+- [Hanuman &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 5.1GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177341-hanuman-2005-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-51gb-esub/&do=findComment&comment=359382)
 - [Avatar 3: The Seed Bearer - First Official Trailer | 20th Century Studios | Disney+ | JamesCameron](https://www.1tamilmv.world/index.php?/forums/topic/150695-avatar-3-the-seed-bearer-first-official-trailer-20th-century-studios-disney-jamescameron/&do=findComment&comment=359381)
 - [Journey 3: From the Earth to the Moon - First Trailer | Dwayne Johnson | Josh Hutcherson | Vanessa](https://www.1tamilmv.world/index.php?/forums/topic/150696-journey-3-from-the-earth-to-the-moon-first-trailer-dwayne-johnson-josh-hutcherson-vanessa/&do=findComment&comment=359380)
 - [The Twilight Saga: Eternal Dawn - First Trailer | Kristen Stewart, Robert Pattinson, Taylor Lautner](https://www.1tamilmv.world/index.php?/forums/topic/150697-the-twilight-saga-eternal-dawn-first-trailer-kristen-stewart-robert-pattinson-taylor-lautner/&do=findComment&comment=359379)
-- [#Mayalo &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.3GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177333-mayalo-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-23gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359378)
-- [Joe &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Telugu + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 5GB - 2.6GB &amp; 1.4GB] - [x264 - 850MB &amp; 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177331-joe-2023-true-web-dl-1080p-720p-avc-hevc-telugu-malayalam-kannada-dd51-192kbps-5gb-26gb-14gb-x264-850mb-450mb-esub/&do=findComment&comment=359377)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
