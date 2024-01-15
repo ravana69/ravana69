@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oru Naal Ini Naam | Madhura Naranga | Video | Haricharan | Sooraj Santhosh | Kunchacko Boban](https://www.youtube.com/watch?v=jGyKGAJd4EY)
+- [Moham Kondal Video Song | Christian Brothers | Mohanlal | Raai Laxmi | Dileep | Kaniha | Deepak Dev](https://www.youtube.com/watch?v=MvOpvDxkxQQ)
 - [Kaatte Nee Veesharuthippol | Kaattu Vannu Vilichappol | M G Radhakrishnan | Chithra #SongOfTheDay](https://www.youtube.com/watch?v=CkQeisIkaRo)
 - [ഏതൊരു മാനവ ഹൃദയവും വിങ്ങിപൊട്ടി കരഞ്ഞു പോകുന്ന മലയാളസിനിമയിലെ വിഷാദ ഗാനങ്ങൾ | SAD SONGS MALAYALAM](https://www.youtube.com/watch?v=R6MfyWeqbIE)
 - [Hits Of K.J Joy | കെജെ.ജോയിയുടെ ഗാനങ്ങൾ | K.J Joy Hit songs | Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=v6z-jiZtjcg)
-- [Every heartbeat becomes a musical expression #PraananPol #Bandra #Dileep #Tamannaah #shorts#ytshorts](https://www.youtube.com/watch?v=i7K2l7C5Ka8)
-- [Chenkathir Kaiyum | Sneha Veedu | Mohanlal | Sathyan Anthikkad | Ilayaraja | Rafeeque Ahammed](https://www.youtube.com/watch?v=vJAud4wfQ0E)
-- [Balachandra Menon Old Malayalam Movie Song | Najangalude Kochu Doctor Movie Song | Remastered Song](https://www.youtube.com/watch?v=zw19gO7Sbag)
+- [Neeharam Nila | Guardian Angel |Saju S DaslMadhu Balakrishnan|Mridula Varier|Ram Surendar|Sreejith R](https://www.youtube.com/watch?v=60bqR6xT_CA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
