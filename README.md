@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kuiko &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177352-kuiko-2023-true-web-dl-1080p-720p-avc-malayalam-kannada-dd51-192kbps-27gb-14gb-850mb-x264-750mb-450mb-esub/&do=findComment&comment=359416)
+- [The Marvels &lpar;2023&rpar; English TRUE WEB-DL - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 11GB - 2.8GB &amp; 1.1GB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177343-the-marvels-2023-english-true-web-dl-4k-1080p-720p-x264-dd51-atmos-768kbps-11gb-28gb-11gb-esub/&do=findComment&comment=359415)
 - [Govindudu Andarivadele &lpar;2014&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.1GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177351-govindudu-andarivadele-2014-telugu-dvd9-untouched-480p-dd51-448kbps-61gb-esub/&do=findComment&comment=359414)
 - [📌 TADAKHA &lpar;2013&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - HQ 1080P - AMZN - WEBDL - H264 - DDP 5.1 @ 640 Kb/s - ESUBS - 1.6GB](https://www.1tamilmv.world/index.php?/forums/topic/177340-%F0%9F%93%8C-tadakha-2013-music-video-album-hq-1080p-amzn-webdl-h264-ddp-51-640-kbs-esubs-16gb/&do=findComment&comment=359413)
 - [Kuiko &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177352-kuiko-2023-true-web-dl-1080p-720p-avc-malayalam-kannada-dd51-192kbps-27gb-14gb-850mb-x264-750mb-450mb-esub/&do=findComment&comment=359412)
-- [Govindudu Andarivadele &lpar;2014&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.1GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177351-govindudu-andarivadele-2014-telugu-dvd9-untouched-480p-dd51-448kbps-61gb-esub/&do=findComment&comment=359411)
-- [True.Detective.S04E01.Part.1.1080p.JIO.WEB-DL.DUAL.AAC2.0 &lpar;Eng, Hin&rpar; &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177350-truedetectives04e01part11080pjioweb-dldualaac20-eng-hin-direct-download/&do=findComment&comment=359410)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
