@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Govindudu Andarivadele &lpar;2014&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.1GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177351-govindudu-andarivadele-2014-telugu-dvd9-untouched-480p-dd51-448kbps-61gb-esub/&do=findComment&comment=359414)
+- [📌 TADAKHA &lpar;2013&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - HQ 1080P - AMZN - WEBDL - H264 - DDP 5.1 @ 640 Kb/s - ESUBS - 1.6GB](https://www.1tamilmv.world/index.php?/forums/topic/177340-%F0%9F%93%8C-tadakha-2013-music-video-album-hq-1080p-amzn-webdl-h264-ddp-51-640-kbs-esubs-16gb/&do=findComment&comment=359413)
+- [Kuiko &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177352-kuiko-2023-true-web-dl-1080p-720p-avc-malayalam-kannada-dd51-192kbps-27gb-14gb-850mb-x264-750mb-450mb-esub/&do=findComment&comment=359412)
 - [Govindudu Andarivadele &lpar;2014&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.1GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177351-govindudu-andarivadele-2014-telugu-dvd9-untouched-480p-dd51-448kbps-61gb-esub/&do=findComment&comment=359411)
 - [True.Detective.S04E01.Part.1.1080p.JIO.WEB-DL.DUAL.AAC2.0 &lpar;Eng, Hin&rpar; &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177350-truedetectives04e01part11080pjioweb-dldualaac20-eng-hin-direct-download/&do=findComment&comment=359410)
-- [The Climbers &lpar;2019&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Chi&rpar; -  9.98 GB &amp; 6.17GB &amp; 5.27 &amp; 3.13 GB - ESub &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177349-the-climbers-2019-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-chi-998-gb-617gb-527-313-gb-esub-direct-download/&do=findComment&comment=359409)
-- [[HDR10-DoVi] The Marvels &lpar;2023&rpar; AMZN WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p - 18.1 GB | 7.7 GB](https://www.1tamilmv.world/index.php?/forums/topic/177348-hdr10-dovi-the-marvels-2023-amzn-web-dl-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-181-gb-77-gb/&do=findComment&comment=359408)
-- [A Couple of Cuckoos S01 EP10 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 350MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177347-a-couple-of-cuckoos-s01-ep10-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-350mb-200mb-esub-google-drive/&do=findComment&comment=359407)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
