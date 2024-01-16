@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [[HDR10-DoVi] The Marvels &lpar;2023&rpar; AMZN WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p - 18.1 GB | 7.7 GB](https://www.1tamilmv.world/index.php?/forums/topic/177348-hdr10-dovi-the-marvels-2023-amzn-web-dl-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-181-gb-77-gb/&do=findComment&comment=359408)
+- [A Couple of Cuckoos S01 EP10 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 350MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177347-a-couple-of-cuckoos-s01-ep10-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-350mb-200mb-esub-google-drive/&do=findComment&comment=359407)
+- [Etharkkum.Thunindhavan.2022.NF.WEB-DL.Tamil.DDP5.1.Atmos.H.264 - 1080p | 720p - 5.1 GB | 3.41 GB + SUNNXT Rips](https://www.1tamilmv.world/index.php?/forums/topic/159577-etharkkumthunindhavan2022nfweb-dltamilddp51atmosh264-1080p-720p-51-gb-341-gb-sunnxt-rips/&do=findComment&comment=359406)
 - [Ala Ninnu Cheri &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Malayalam] - 2.8GB - 1.5GB &amp; 900MB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177345-ala-ninnu-cheri-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-malayalam-28gb-15gb-900mb-x264-750mb-450mb-esub/&do=findComment&comment=359405)
 - [📌 AADIKESHAVA &lpar;2023&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - HQ 2160P / 1080P - NF - WEBDL - DDP 5.1 @ 640 Kb/s - ESUBS - 2GB](https://www.1tamilmv.world/index.php?/forums/topic/177346-%F0%9F%93%8C-aadikeshava-2023-music-video-album-hq-2160p-1080p-nf-webdl-ddp-51-640-kbs-esubs-2gb/&do=findComment&comment=359404)
-- [📌 AADIKESHAVA &lpar;2023&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - HQ 2160P / 1080P - NF - WEBDL - DDP 5.1 @ 640 Kb/s - ESUBS - 2GB](https://www.1tamilmv.world/index.php?/forums/topic/177346-%F0%9F%93%8C-aadikeshava-2023-music-video-album-hq-2160p-1080p-nf-webdl-ddp-51-640-kbs-esubs-2gb/&do=findComment&comment=359403)
-- [📌 TADAKHA &lpar;2013&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - HQ 1080P - AMZN - WEBDL - H264 - DDP 5.1 @ 640 Kb/s - ESUBS - 1.6GB](https://www.1tamilmv.world/index.php?/forums/topic/177340-%F0%9F%93%8C-tadakha-2013-music-video-album-hq-1080p-amzn-webdl-h264-ddp-51-640-kbs-esubs-16gb/&do=findComment&comment=359402)
-- [Ala Ninnu Cheri &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Malayalam] - 2.8GB - 1.5GB &amp; 900MB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177345-ala-ninnu-cheri-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-malayalam-28gb-15gb-900mb-x264-750mb-450mb-esub/&do=findComment&comment=359401)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
