@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കാക്കാല കണ്ണമ്മാ...| Oru Yathramozhi | MG Sreekumar | SP Balasubrahmanyam #shorts](https://www.youtube.com/watch?v=BQSBXSFyxW4)
 - [മലയാളികളുടെ മനസിലെന്നും ആഘോഷം നിറച്ച പഴയ ചിത്രങ്ങളിലെ ആഹ്ളാദഭരിത ഗാനങ്ങൾ | OLD IS GOLD](https://www.youtube.com/watch?v=Zhac-FuBFDA)
 - [മനസിന്റെ കോണിൽ എന്നും തത്തി കളിക്കുന്ന ആരും കേൾക്കാൻ കൊതിക്കുന്ന സൂപ്പർഹിറ്റ് മെലഡി ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=QJ-86wfHTrI)
 - [Strings of the heart #PraananPol #Bandra #Dileep #Tamannaah #shorts #ytshorts](https://www.youtube.com/watch?v=syPwGZPe88I)
 - [Minnithennum Nakshathrangal | Niram  | Vidyasagar, K J Yesudas, K S Chithra #SongOfTheDay](https://www.youtube.com/watch?v=ptgYubef6N8)
 - [Yercaud Travel Guide #shorts #shortsvideo #shortsfeed #tamilnadu #tourism #travel #southindia](https://www.youtube.com/watch?v=inFLB6p2aDE)
-- [Kusumavadhana Madhuchandralekha | D J Remix #shortsfeed #shorts #malayalamfilmsongs #dance](https://www.youtube.com/watch?v=2xvvjQ3Ri5s)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
