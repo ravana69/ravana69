@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Minnithennum Nakshathrangal | Niram  | Vidyasagar, K J Yesudas, K S Chithra #SongOfTheDay](https://www.youtube.com/watch?v=ptgYubef6N8)
+- [Yercaud Travel Guide #shorts #shortsvideo #shortsfeed #tamilnadu #tourism #travel #southindia](https://www.youtube.com/watch?v=inFLB6p2aDE)
 - [Kusumavadhana Madhuchandralekha | D J Remix #shortsfeed #shorts #malayalamfilmsongs #dance](https://www.youtube.com/watch?v=2xvvjQ3Ri5s)
 - [Mohanlal Old Malayalam Movie Songs | Aattakalasam Remastered Malayalam Songs | K. J. Yesudas](https://www.youtube.com/watch?v=7d143NQ0y6k)
 - [Creating a love-filled melody #PraananPol #Bandra #Dileep #Tamannaah #shorts #ytshorts](https://www.youtube.com/watch?v=Y0zaF05mOAk)
 - [Oru Mounamaayi Pinneyum | Pavam I A Ivachan | Siddique | Jagadheesh | Yesudas | Raveendran](https://www.youtube.com/watch?v=fMmU3VnZWLA)
-- [Seeyon Yathrayathil | Prayer and Worship Songs |Christian Songs | Smitha | Christian Worship Songs](https://www.youtube.com/watch?v=xqaGxqF8bSg)
-- [മാതാവിൻറെ  പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#kripasanam  mother mary prayer 16](https://www.youtube.com/watch?v=oZ-C2VNrxX4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
