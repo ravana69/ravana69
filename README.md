@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളികളുടെ മാനസപുത്രി ചിത്രച്ചേച്ചിയുടെ എന്നെന്നും കേൾക്കാൻ കൊതിക്കുന്ന നിത്യഹരിത ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=wAvVLARyP4w)
+- [ക്രിസ്തീയ ഗാനങ്ങളുടെ പ്രാരംഭ കാലംമുതൽ നിറഞ്ഞുനിൽക്കുന്ന ബിനോയ് ചാക്കോയുടെ ഗാനങ്ങൾ | Christian Songs](https://www.youtube.com/watch?v=1KEVANqTt34)
 - [16 January 2024](https://www.youtube.com/watch?v=zrVq0fXFv9Y)
 - [ദൈവത്തിന്റെ പദ്ധതികൾ നിങ്ങളുടെ വിചാരങ്ങളെക്കാൾ  വലുതാണ് | Rev. Aneesh P Joseph   | #shorts](https://www.youtube.com/watch?v=thL9o7BN8a4)
 - [Omane Thankame | Mizhirandilum | K J Yesudas | Raveendran | Vayalar Sarathchandra Varma](https://www.youtube.com/watch?v=s-XiSD2raoA)
 - [Paadaanoru Pattilla | Pinnil Oral | Aswani Jayakanth | Ananthapuri | Malayalam Film Songs](https://www.youtube.com/watch?v=hKuWDPsmmJs)
-- [Mukila Simhame Video Song | Anarkali | Vayalar | MS Baburaj #shorts](https://www.youtube.com/watch?v=Zh8StejWpgs)
-- [മമ്മൂട്ടിയുടെ പഴയകാല റൊമാന്റിക് സോങ്ങ്സ്കേൾക്കാം | Jackpot Malayalam Video Songs | Mammootty,Yesudas](https://www.youtube.com/watch?v=uO4s_Co1Mls)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
