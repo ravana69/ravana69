@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Pranaya Souganthikangal #malayalamsongs #vineeth #kavya #dileep #shorts #darlingdarling](https://www.youtube.com/watch?v=MfYA2s97FXc)
+- [Rhythms of happiness #OManuja #Djinn #Shorts #ytshorts](https://www.youtube.com/watch?v=OqliGXv5fY8)
+- [Kando Kando | Lyrical Video  | Innathe Chintha Vishayam | Mohanlal | Sathyan Anthikkad | Ilayaraaja](https://www.youtube.com/watch?v=3cnj6zDFRZs)
+- [Mammootty Super hit Old Malayalam Movie Songs | Soorya Manasam Remastered Malayalam Songs | Yesudas](https://www.youtube.com/watch?v=DA_aD8CGOkE)
 - [ആമ്മേൻ 3000 ദിനങ്ങൾ പിന്നിടുന്നു | Fr SHAJI THUMPECHIRAYIL](https://www.youtube.com/watch?v=O2R9vF0RpSU)
 - [Pulari nilavu | Pallavur Devanarayanan | Mammootty | Sangeetha | Yesudas | Raveendran](https://www.youtube.com/watch?v=aKBPgjfSSeQ)
-- [Ennullame Sthuthikka | New Christian Video Song | Kester | Praise and Worship Songs](https://www.youtube.com/watch?v=62kXiEaTIQo)
-- [മാതാവിൻറെ  പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kreupasanamprayer and songs 17th](https://www.youtube.com/watch?v=M9NSePLFNqY)
-- [Japamala 17th of January 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 17th of January 2024](https://www.youtube.com/watch?v=7Lw-nZdsVpQ)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=qUL1EHjb3-0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
