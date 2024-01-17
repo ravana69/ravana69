@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 18th January 24](https://www.youtube.com/watch?v=RmAzzQibu84)
+- [മഞ്ഞൾ പ്രസാദവും നെറ്റിയിൽ ചാർത്തി | കെ ജെ യേശുദാസ് | Selected Remastered Movie songs| Selected Hits](https://www.youtube.com/watch?v=KBGr4OZqsGo)
 - [Maranno Nee Nilaavil | Five Star Hospital | KJ Yesudas | Siddique | Kaveri | Bomaby Ravi](https://www.youtube.com/watch?v=QGXhOA--ONo)
 - [Marimaanmizhi Video Song | Aromalunni | P Madhuri | G Devarajan | Vayalar](https://www.youtube.com/watch?v=GGydrpNJ7YI)
 - [പ്രാർത്ഥിക്കുന്ന നേരം മനസ്സിൽ ഓടിയെത്തുന്ന ക്രിസ്തീയഗാനങ്ങൾ | Wilson Piravom |Christian Melody Songs](https://www.youtube.com/watch?v=So5qEYiIzgU)
 - [Pranaya Sowgandhikangal | 1080p Remastered | Darling Darling | Chithra | Kavya Madhavan | Vineeth](https://www.youtube.com/watch?v=H7iwOrLrn_E)
-- [സ്നേഹത്തിന്റെ പ്രാതലുകൾക്ക് നിയോഗത്തിന്റെ ചൂടുണ്ട്. | Rev. Aneesh P Joseph   | #shorts](https://www.youtube.com/watch?v=Kz6AUrWbi9U)
-- [We hope your year ahead is as merry as this Christmas was. Happy Birthday To You #rameshtaurani](https://www.youtube.com/watch?v=Ux6jfIlt2HE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
