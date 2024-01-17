@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=fNVaV-qK5sk)
+- [ഇന്ന് ജനുവരി 18  എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #prakashathinte](https://www.youtube.com/watch?v=8UQRnc4U4gk)
 - [Engirundho Azhaikkum (F) | En Jeevan Paduthu | Ilaiyaraaja | Lata Mangeshkar | Hi-Res Audio](https://www.youtube.com/watch?v=FSihQq16dB4)
 - [രാവിലെ പ്രാര്‍ത്ഥന January 18 # Athiravile Prarthana 18th January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=IKIKs99kZXg)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=UULzRXO5Ycs)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 18th January 24](https://www.youtube.com/watch?v=RmAzzQibu84)
-- [മഞ്ഞൾ പ്രസാദവും നെറ്റിയിൽ ചാർത്തി | കെ ജെ യേശുദാസ് | Selected Remastered Movie songs| Selected Hits](https://www.youtube.com/watch?v=KBGr4OZqsGo)
-- [Maranno Nee Nilaavil | Five Star Hospital | KJ Yesudas | Siddique | Kaveri | Bomaby Ravi](https://www.youtube.com/watch?v=QGXhOA--ONo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
