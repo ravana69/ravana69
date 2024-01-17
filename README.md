@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Darling in the Franxx S01 E11 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 300MB - 250MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177361-darling-in-the-franxx-s01-e11-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-300mb-250mb-esub-google-drive/&do=findComment&comment=359435)
 - [Guntur Kaaram &lpar;2024&rpar; Telugu New HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.world/index.php?/forums/topic/177355-guntur-kaaram-2024-telugu-new-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=359434)
 - [The Abyss Rescue &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng + Kor&rpar; - 2.2GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB]](https://www.1tamilmv.world/index.php?/forums/topic/177354-the-abyss-rescue-2023-hd-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-kor-22gb-11gb-x264-tam-tel-hin-450mb/&do=findComment&comment=359433)
 - [Monkey King: The One and Only &lpar;2021&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Chi&rpar; - 1.8GB &amp; 1GB| x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177356-monkey-king-the-one-and-only-2021-hd-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-chi-18gb-1gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=359432)
 - [Govindudu Andarivadele &lpar;2014&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.1GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177351-govindudu-andarivadele-2014-telugu-dvd9-untouched-480p-dd51-448kbps-61gb-esub/&do=findComment&comment=359431)
-- [I.Spit.on.Your.Grave.2010 AAC 2.0 Tamil-Telugu-Hindi-DTS 5.1 English 1080p Unrated Cut Open Matte Blu-Ray Msub 12GB [G-Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177360-ispitonyourgrave2010-aac-20-tamil-telugu-hindi-dts-51-english-1080p-unrated-cut-open-matte-blu-ray-msub-12gb-g-drive/&do=findComment&comment=359430)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
