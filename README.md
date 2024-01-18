@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [ചന്ദ്രനുദിച്ചില്ലേ....| First Bell | K J Yesudas | Jagadish #shorts](https://www.youtube.com/watch?v=VSevaq3jgdI)
-- [Valuthayoru Marathinte Video Song | Chathurangam | Mohanlal | MG Sreekumar | Shibu Chakravarthy](https://www.youtube.com/watch?v=10k3R6yPjvc)
-- [മറഞ്ഞിരുന്നാലും മനസിന്റെ കോണിൽ തെളിയുന്ന മലയാളസിനിമയിലെ മെലഡി ഗാനങ്ങൾ ! EVERGREEN SONGS](https://www.youtube.com/watch?v=NFQYStVoSJg)
-- [Eden Poove | Daivathintemakan | Vidyasagar | P Jayachandran | K S Chithra  #SongOfTheDay](https://www.youtube.com/watch?v=TGLUsmgQe8Q)
-- [Dance like no one is watching #Raakk #MalaikottaiVaaliban #Mohanlal #shorts #ytshorts](https://www.youtube.com/watch?v=bnZV_DZ8KxM)
-- [Njan Kanavil | Aagathan | Video Song | Shweta Mohan | Kaithapram| Ouseppachan |Kamal| Ranjith Govind](https://www.youtube.com/watch?v=HYrY3xoan88)
+- [ജീവൻ പകരുവാൻ ജീവൻ നൽകിയ മുറിവുകൾ.| Rev. Aneesh P Joseph   | #shorts #motivationalvideo](https://www.youtube.com/watch?v=kxCKke8aQVs)
+- [Muthumanippalunku Vellam Song | Aromalunni (1972) | KJ Yesudas #shorts](https://www.youtube.com/watch?v=ZA1I_aYIH1E)
+- [Paalsaranikalil | Mannar Mathai Speaking | KS Chithra | SP Venkitesh | Bichu Thirumala](https://www.youtube.com/watch?v=HCIzN4gZC1U)
+- [Aaro Nee Aaro | Urumi #prithvirajsukumaran #kjyesudas #shwetamohan #deepakdev #shortsfeed #shorts](https://www.youtube.com/watch?v=EJE252ApJb8)
+- [Darbuka Siva, Vijay Prakash, Pavithra Chari - Homecoming (The Ayodhya Anthem) (Hindi)](https://www.youtube.com/watch?v=fBdOZQjGDo4)
+- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 18th January 2024](https://www.youtube.com/watch?v=bAuVRnJRWoo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
