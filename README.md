@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Valuthayoru Marathinte Video Song | Chathurangam | Mohanlal | MG Sreekumar | Shibu Chakravarthy](https://www.youtube.com/watch?v=10k3R6yPjvc)
+- [മറഞ്ഞിരുന്നാലും മനസിന്റെ കോണിൽ തെളിയുന്ന മലയാളസിനിമയിലെ മെലഡി ഗാനങ്ങൾ ! EVERGREEN SONGS](https://www.youtube.com/watch?v=NFQYStVoSJg)
+- [Eden Poove | Daivathintemakan | Vidyasagar | P Jayachandran | K S Chithra  #SongOfTheDay](https://www.youtube.com/watch?v=TGLUsmgQe8Q)
 - [Dance like no one is watching #Raakk #MalaikottaiVaaliban #Mohanlal #shorts #ytshorts](https://www.youtube.com/watch?v=bnZV_DZ8KxM)
 - [Njan Kanavil | Aagathan | Video Song | Shweta Mohan | Kaithapram| Ouseppachan |Kamal| Ranjith Govind](https://www.youtube.com/watch?v=HYrY3xoan88)
 - [ശ്യാമ മേഘമേ നീ യദുകുല സ്നേഹ ദൂ‍തുമായ് വാ #lalettan #mohanlal #evergreen #adhipan #parvathy #chithra](https://www.youtube.com/watch?v=_PgV_mi3uBA)
-- [Mukesh, Lissy Old Malayalam Movie Songs | Mutharamkunnu P.O. Remastered Malayalam Songs |K.J.Yesudas](https://www.youtube.com/watch?v=mi7uO5Tm_xY)
-- [Where smiles meet the melody #OManuja #Djinn #Shorts #ytshorts](https://www.youtube.com/watch?v=nZccrO2bjm0)
-- [Aayiram Perkalil | Shorts #ytshorts  #malayalamchristiansongs](https://www.youtube.com/watch?v=Dyy4ZAsg3RY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
