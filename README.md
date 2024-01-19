@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന January 20 # Athiravile Prarthana 20th January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=huV-dvJLBmI)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=ls7QNjUojSw)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 20th January 24](https://www.youtube.com/watch?v=XK34E0LcILg)
 - [Indraneelimayolum | Vaishali | KS Chithra | Bombay Ravi | Suparna Anand | Sanjay Mishra | ONV Kurupp](https://www.youtube.com/watch?v=acBlRAdvLFc)
 - [Oru Rathri Koodi Vidavangave Video Song | HD | Summer in Bethlehem Movie Song | REMASTERED |](https://www.youtube.com/watch?v=ghQZtA_kwh8)
 - [Songs Of The Week | Kester | Christian Devotional Songs Malayalam | Joji Johns | Shymol Alex](https://www.youtube.com/watch?v=tWQVE9EzriQ)
-- [നന്മയിലേക്കുള്ള പ്രയാണമല്ലേ ജീവിതം.| Rev. Aneesh P Joseph   | #shorts #motivationalvideo](https://www.youtube.com/watch?v=HjrCORlNt10)
-- [Vayassethrayayi - Promo Song | Vayassethrayayi Muppathi| Nolimit films| Anurag Ram| Prashanth Murali](https://www.youtube.com/watch?v=eSnDWZU3lP0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
