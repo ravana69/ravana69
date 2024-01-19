@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Pathira Poochoodi Video Song | Mayilpeelikkavu | Kunchacko Boban | Jomol| KS Chithra |Berny Ignatius](https://www.youtube.com/watch?v=hYiD6JVcGDo)
+- [Naarimani Naadodi Video Song  | Mr. Micheal | Kuthiravattam Pappu | Sreelatha Namboothiri](https://www.youtube.com/watch?v=eK-bwNDX0Z8)
+- [Dayana Dayana|DJ Remix #shortsfeed #shorts #malayalamfilmsongs #gopisundar #dileep #shankarmahadevan](https://www.youtube.com/watch?v=Zn94YQnr25c)
 - [Oorusanam odi vannu Melepparampil Aanveedu Jayaram Shobhana Gireesh Puthenchery Kannadasan Johnson](https://www.youtube.com/watch?v=-TQnVlEJ1_4)
 - [Kalvriyile Yagapeedamam Marakkurish | Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=ZGtrhD-PPXQ)
 - [സുരേഷ് ഗോപിയുടെ അടിപൊളി പാട്ടുകൾ | Thechi Poove | Ratholsavam |K J Yesudas,K S Chithra | Suresh Gopi](https://www.youtube.com/watch?v=fMjGUoY3NJ8)
-- [Raathinkal Poothaali |Ee Puzhayum Kadannu | Biju Menon | Mohini | Johnson Hits | Gireesh Puthenchery](https://www.youtube.com/watch?v=wLZsms1ADHg)
-- [Vennayo Vennilavuranjatho | Itha Ivide Vare | Yusufali Kecheri | G Devarajan | KJ Yesudas |Vidhubala](https://www.youtube.com/watch?v=_QtnXWJ37wo)
-- [കുടുംബസമേതവും കൂട്ടുകാരുമൊത്ത് യാത്രപോവുമ്പോൾ സ്ഥിരമായി കേൾക്കുന്ന വിനോദഗാനങ്ങൾ | EVERGREEN SONGS](https://www.youtube.com/watch?v=3MSxAEYlb8I)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
