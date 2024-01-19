@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Odavum Mudiyadhu Oliyavum Mudiyadhu &lpar;2023&rpar; AHA WEB.DL DDP5.1 Esubs - 2160p | 1080p - 7.3 GB | 3 GB](https://www.1tamilmv.world/index.php?/forums/topic/177392-odavum-mudiyadhu-oliyavum-mudiyadhu-2023-aha-webdl-ddp51-esubs-2160p-1080p-73-gb-3-gb/&do=findComment&comment=359513)
+- [Extra Ordinary Man &lpar;2023&rpar; DSNP WEB.DL TAM-TEL DDP5.1 Esubs x264 - 1080p | 720p - 3.9 GB | 1.7 GB](https://www.1tamilmv.world/index.php?/forums/topic/177391-extra-ordinary-man-2023-dsnp-webdl-tam-tel-ddp51-esubs-x264-1080p-720p-39-gb-17-gb/&do=findComment&comment=359512)
 - [Akebi&#39;s Sailor Uniform S01 EP09 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 250MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177390-akebis-sailor-uniform-s01-ep09-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-250mb-200mb-esub-google-drive/&do=findComment&comment=359511)
 - [Akebi&#39;s Sailor Uniform S01 EP08 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 250MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177389-akebis-sailor-uniform-s01-ep08-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-250mb-200mb-esub-google-drive/&do=findComment&comment=359510)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [19-1-2024]](https://www.1tamilmv.world/index.php?/forums/topic/177388-movies-collection-all-languages-4k-1080p-720p-576p-480p-19-1-2024/&do=findComment&comment=359509)
-- [Extra Ordinary Man &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177384-extra-ordinary-man-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359508)
-- [The Communion Girl &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Spa&rpar; - 3.2GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177387-the-communion-girl-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-spa-32gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=359507)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
