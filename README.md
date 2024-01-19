@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Paikkurumbiye Meykkum | Gramophone | Vidyasagar | Sujatha Mohan | Balram #SongOfTheDay](https://www.youtube.com/watch?v=U1CtvdgKVvQ)
+- [അനുരാഗിണീ ഇതാ എൻ കരളിൽ വിരിഞ്ഞ പൂക്കൾ #yesudas #johnsonmaster](https://www.youtube.com/watch?v=73TcBoWa_OE)
+- [From goofy twirls to graceful spins #Raakk #MalaikottaiVaaliban #Mohanlal #shorts #ytshorts](https://www.youtube.com/watch?v=H2G5zh2hBCs)
 - [Kaana Kuyilin | College Kumaran  | G Venugopal| | Shibu Chakravarthi | Ouseppachan](https://www.youtube.com/watch?v=mkjROysk4u4)
 - [Thirunnelli Kaadu Poothu | Dinarathrangal | Mukesh | Parvathy | Chithra | Ouseppachan](https://www.youtube.com/watch?v=Xf_2ZGj1Js8)
 - [Joyful beats for a happy heart #OManuja #Djinn #Shorts #ytshorts](https://www.youtube.com/watch?v=Q_PdOxocam8)
-- [Uthradakkattinte Old Malayalam Movie Song| Najangalude Kochu Doctor |Remastered Malayalam Movie Song](https://www.youtube.com/watch?v=RhvPRV_JH50)
-- [Alpakalam Mathram | Binoy Chacko | Christian Video Song | Prayer and Worship Songs](https://www.youtube.com/watch?v=9me66e8uMKk)
-- [മാതാവിൻറെ പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#kreupasanamprayer  &songs for 19th](https://www.youtube.com/watch?v=v7kdySAsS2w)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
