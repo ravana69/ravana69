@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thirunnelli Kaadu Poothu | Dinarathrangal | Mukesh | Parvathy | Chithra | Ouseppachan](https://www.youtube.com/watch?v=Xf_2ZGj1Js8)
+- [Joyful beats for a happy heart #OManuja #Djinn #Shorts #ytshorts](https://www.youtube.com/watch?v=Q_PdOxocam8)
 - [Uthradakkattinte Old Malayalam Movie Song| Najangalude Kochu Doctor |Remastered Malayalam Movie Song](https://www.youtube.com/watch?v=RhvPRV_JH50)
 - [Alpakalam Mathram | Binoy Chacko | Christian Video Song | Prayer and Worship Songs](https://www.youtube.com/watch?v=9me66e8uMKk)
 - [മാതാവിൻറെ പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#kreupasanamprayer  &songs for 19th](https://www.youtube.com/watch?v=v7kdySAsS2w)
 - [Japamala 19th of January 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 19th of January 24](https://www.youtube.com/watch?v=dIIPXj4spGQ)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=_h88W7Yq_48)
-- [ഇന്ന് ജനുവരി 19  എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #dhukathinte](https://www.youtube.com/watch?v=_XDJ79lMnSU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
