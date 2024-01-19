@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Raathinkal Poothaali |Ee Puzhayum Kadannu | Biju Menon | Mohini | Johnson Hits | Gireesh Puthenchery](https://www.youtube.com/watch?v=wLZsms1ADHg)
+- [Vennayo Vennilavuranjatho | Itha Ivide Vare | Yusufali Kecheri | G Devarajan | KJ Yesudas |Vidhubala](https://www.youtube.com/watch?v=_QtnXWJ37wo)
+- [കുടുംബസമേതവും കൂട്ടുകാരുമൊത്ത് യാത്രപോവുമ്പോൾ സ്ഥിരമായി കേൾക്കുന്ന വിനോദഗാനങ്ങൾ | EVERGREEN SONGS](https://www.youtube.com/watch?v=3MSxAEYlb8I)
 - [Paikkurumbiye Meykkum | Gramophone | Vidyasagar | Sujatha Mohan | Balram #SongOfTheDay](https://www.youtube.com/watch?v=U1CtvdgKVvQ)
 - [അനുരാഗിണീ ഇതാ എൻ കരളിൽ വിരിഞ്ഞ പൂക്കൾ #yesudas #johnsonmaster](https://www.youtube.com/watch?v=73TcBoWa_OE)
 - [From goofy twirls to graceful spins #Raakk #MalaikottaiVaaliban #Mohanlal #shorts #ytshorts](https://www.youtube.com/watch?v=H2G5zh2hBCs)
-- [Kaana Kuyilin | College Kumaran  | G Venugopal| | Shibu Chakravarthi | Ouseppachan](https://www.youtube.com/watch?v=mkjROysk4u4)
-- [Thirunnelli Kaadu Poothu | Dinarathrangal | Mukesh | Parvathy | Chithra | Ouseppachan](https://www.youtube.com/watch?v=Xf_2ZGj1Js8)
-- [Joyful beats for a happy heart #OManuja #Djinn #Shorts #ytshorts](https://www.youtube.com/watch?v=Q_PdOxocam8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
