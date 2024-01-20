@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Embrace the moment #Raakk #MalaikottaiVaaliban #Mohanlal #shorts #ytshorts](https://www.youtube.com/watch?v=BTTnUaYSfUI)
-- [Pavizha Mazhaye | Lyrical +Karaoke Video  | Athiran | K S Harishankar | Fahad Fazil | P S Jayhari](https://www.youtube.com/watch?v=F84mEjPJXBc)
-- [In the groove of happiness #OManuja #Djinn #Shorts #ytshorts](https://www.youtube.com/watch?v=BMMXVQDFbik)
-- [Baiju  Old Malayalam Movie Songs | Kambolam | Remastered Malayalam Movie Song](https://www.youtube.com/watch?v=alUWQIv3I_Q)
-- [ഓർത്തോർത്തു കേൾക്കും ഈ ക്രിസ്തീയ ഗാനങ്ങൾ | Christian Video Songs | Kester | Midhila | Joji Johns](https://www.youtube.com/watch?v=Eoe-_oLPZ4k)
-- [മാതാവിൻറെ പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kripasanam  mother Mary prayer 20](https://www.youtube.com/watch?v=sfEPRx6WvfI)
+- [Thalavaraykkoru thilakkam Kilukil Pamparam Gireesh Puthenchery SP Venkitesh MG Sreekumar Unni Menon](https://www.youtube.com/watch?v=lUbB2HKYSLU)
+- [എന്നും പ്രണയിക്കാൻ കൊതിക്കുന്നവർക്കായ് സൂപ്പർഹിറ്റ് പ്രണയഗാനങ്ങൾ | LOVE SONGS MALAYALAM](https://www.youtube.com/watch?v=deZgLQ3ad10)
+- [Pakaliravukal - Lofi Beats | Kurup | Sushin Shyam | Neha Nair | EternaLove](https://www.youtube.com/watch?v=Eq5bP9FR8FM)
+- [ജയറാമിന്റെ ഇഷ്ടഗാനങ്ങൾ  | EVERGREEN HITS OF JAYARAM | HITS OF JAYARAM | MELODY HITS](https://www.youtube.com/watch?v=BXKpw2ALZac)
+- [YESHUVIN NIZHALAKUVAN | LIBIN SCARIA | Fr. JUBIN MARIA KALLIDAYIL SDV](https://www.youtube.com/watch?v=GDHkmfDC-8M)
+- [Medapponnaniyum | Devaasuram | M G Radhakrishnan | M G Sreekumar | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=d_Ryq4nue_c)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
