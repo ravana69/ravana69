@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Pavizha Mazhaye | Lyrical +Karaoke Video  | Athiran | K S Harishankar | Fahad Fazil | P S Jayhari](https://www.youtube.com/watch?v=F84mEjPJXBc)
 - [In the groove of happiness #OManuja #Djinn #Shorts #ytshorts](https://www.youtube.com/watch?v=BMMXVQDFbik)
 - [Baiju  Old Malayalam Movie Songs | Kambolam | Remastered Malayalam Movie Song](https://www.youtube.com/watch?v=alUWQIv3I_Q)
 - [ഓർത്തോർത്തു കേൾക്കും ഈ ക്രിസ്തീയ ഗാനങ്ങൾ | Christian Video Songs | Kester | Midhila | Joji Johns](https://www.youtube.com/watch?v=Eoe-_oLPZ4k)
 - [മാതാവിൻറെ പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kripasanam  mother Mary prayer 20](https://www.youtube.com/watch?v=sfEPRx6WvfI)
 - [Japamala 20th of January 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 20th of January 24](https://www.youtube.com/watch?v=PRUJOtPYPSQ)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=wb7f1Pkbcbg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
