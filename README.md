@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Devi Putrudu &lpar;2001&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 5.9GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177416-devi-putrudu-2001-telugu-dvd9-untouched-480p-dd51-448kbps-59gb-esub/&do=findComment&comment=359606)
 - [Aathi &lpar;2006&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - DD+2.0&lpar;224kbps&rpar; - 10.6GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - ESub [GDrive]](https://www.1tamilmv.world/index.php?/forums/topic/177415-aathi-2006-tamil-true-web-dl-1080p-720p-avc-hevc-untouched-dd20224kbps-106gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub-gdrive/&do=findComment&comment=359605)
 - [Kedi &lpar;2006&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 2.5GB - UE](https://www.1tamilmv.world/index.php?/forums/topic/177395-kedi-2006-tamil-true-web-dl-1080p-avc-untouched-aac20-25gb-ue/&do=findComment&comment=359604)
 - [Wonka &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 3.2GB - 1GB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177412-wonka-2023-english-true-web-dl-1080p-720p-x264-dd51-atmos-768kbps-32gb-1gb-400mb-esub/&do=findComment&comment=359603)
 - [Reacher &lpar;2023&rpar; S02 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 4GB - 2GB &amp; 1GB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/176781-reacher-2023-s02-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-eng-dd51-192kbps-4gb-2gb-1gb-esub/&do=findComment&comment=359602)
-- [Odavum Mudiyadhu Oliyavum Mudiyadhu &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.2GB - 2.2GB - 1.2GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177383-odavum-mudiyadhu-oliyavum-mudiyadhu-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-32gb-22gb-12gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359601)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
