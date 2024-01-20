@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [DON &lpar;2007&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB](https://www.1tamilmv.world/index.php?/forums/topic/177409-don-2007-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-71gb/&do=findComment&comment=359597)
 - [Salaar: Part 1 – Ceasefire &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177401-salaar-part-1-%E2%80%93-ceasefire-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359596)
 - [Salaar: Part 1 – Ceasefire &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 4GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177400-salaar-part-1-%E2%80%93-ceasefire-2023-kannada-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-4gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359595)
 - [DON &lpar;2007&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB](https://www.1tamilmv.world/index.php?/forums/topic/177409-don-2007-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-71gb/&do=findComment&comment=359594)
 - [Banaras &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Kannada+ Hindi] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177413-banaras-2023-true-web-dl-1080p-720p-avc-kannada-hindi-dd51-192kbps-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=359593)
-- [Vote &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177414-vote-2023-telugu-true-web-dl-1080p-720p-avc-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=359592)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
