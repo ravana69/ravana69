@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Devi Putrudu &lpar;2001&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 5.9GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177416-devi-putrudu-2001-telugu-dvd9-untouched-480p-dd51-448kbps-59gb-esub/&do=findComment&comment=359608)
 - [Devi Putrudu &lpar;2001&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 5.9GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177416-devi-putrudu-2001-telugu-dvd9-untouched-480p-dd51-448kbps-59gb-esub/&do=findComment&comment=359607)
 - [Devi Putrudu &lpar;2001&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 5.9GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177416-devi-putrudu-2001-telugu-dvd9-untouched-480p-dd51-448kbps-59gb-esub/&do=findComment&comment=359606)
 - [Aathi &lpar;2006&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - DD+2.0&lpar;224kbps&rpar; - 10.6GB - 5.5GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - ESub [GDrive]](https://www.1tamilmv.world/index.php?/forums/topic/177415-aathi-2006-tamil-true-web-dl-1080p-720p-avc-hevc-untouched-dd20224kbps-106gb-55gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub-gdrive/&do=findComment&comment=359605)
 - [Kedi &lpar;2006&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 2.5GB - UE](https://www.1tamilmv.world/index.php?/forums/topic/177395-kedi-2006-tamil-true-web-dl-1080p-avc-untouched-aac20-25gb-ue/&do=findComment&comment=359604)
-- [Wonka &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 3.2GB - 1GB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177412-wonka-2023-english-true-web-dl-1080p-720p-x264-dd51-atmos-768kbps-32gb-1gb-400mb-esub/&do=findComment&comment=359603)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
