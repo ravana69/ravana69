@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Gopeehridayam nirayunnu | Kankettu | KJ Yesudas | Sujatha Mohan | #shorts](https://www.youtube.com/watch?v=_n14I0iGVr0)
 - [Neela Nilave - Chill Trap | RDX | Sam C.S. | Kapil Kapilan | DJ VIM](https://www.youtube.com/watch?v=NGsXaX_GJ4c)
 - [കേട്ട് കൊതി തീരാത്ത മനം മയക്കും നിത്യസുന്ദര ഗാനങ്ങൾ  |  MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=KHgkkYsLdH8)
 - [Thalavaraykkoru thilakkam Kilukil Pamparam Gireesh Puthenchery SP Venkitesh MG Sreekumar Unni Menon](https://www.youtube.com/watch?v=lUbB2HKYSLU)
 - [എന്നും പ്രണയിക്കാൻ കൊതിക്കുന്നവർക്കായ് സൂപ്പർഹിറ്റ് പ്രണയഗാനങ്ങൾ | LOVE SONGS MALAYALAM](https://www.youtube.com/watch?v=deZgLQ3ad10)
 - [Pakaliravukal - Lofi Beats | Kurup | Sushin Shyam | Neha Nair | EternaLove](https://www.youtube.com/watch?v=Eq5bP9FR8FM)
-- [ജയറാമിന്റെ ഇഷ്ടഗാനങ്ങൾ  | EVERGREEN HITS OF JAYARAM | HITS OF JAYARAM | MELODY HITS](https://www.youtube.com/watch?v=BXKpw2ALZac)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
