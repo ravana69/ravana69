@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Malayalam Film Compilation Hits | Mammootty | Mohanlal | Yesudas | Ilayaraja | Sound of Arts](https://www.youtube.com/watch?v=9hvdluwr-es)
+- [Vivaaham Swargathil Video Song | Sreedevi Malayalam Movie | KJ Yesudas | Kamal Haasan | Sharada](https://www.youtube.com/watch?v=Bx09loImzFo)
 - [Enthedi Enthedi Panam Kiliye Video Song | Shikkar | Mohanlal | Sneha | KS Chithra | Sudeep Kumar](https://www.youtube.com/watch?v=oZEENCWiFZA)
 - [PS 2 Malayalam | Firdaus Making Video | @ARRahman | Mani Ratnam | Firdaus Orchestra Studio](https://www.youtube.com/watch?v=vGsYRqXhYew)
 - [ഒരു പൊൻതിരിയായി ഞാൻ പൂത്തുണരാം ! #mohanlalhits #evergreenhitssongs #youtubeshorts](https://www.youtube.com/watch?v=Os1BZNNYwQo)
 - [Vagamon Travel Guide #shorts #shortsvideo #shortsfeed #kerala #tourism #travel #southindia #idukki](https://www.youtube.com/watch?v=4I0mMDRT6aA)
-- [Dancing through life #Raakk #MalaikottaiVaaliban #Mohanlal #shorts #ytshorts](https://www.youtube.com/watch?v=21Ipj6AGLvM)
-- [പാട്ടുപെട്ടി | Paattupetti Vol 40 | Malayalam Film Songs | Satyam Audios](https://www.youtube.com/watch?v=3q9YCjdt0bs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
