@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vanakkam Salaam &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 2GB &amp; 1GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.world/index.php?/forums/topic/177419-vanakkam-salaam-2024-tamil-true-web-dl-1080p-720p-avc-2gb-1gb-x264-700mb-400mb/&do=findComment&comment=359622)
 - [DON &lpar;2007&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB](https://www.1tamilmv.world/index.php?/forums/topic/177409-don-2007-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-71gb/&do=findComment&comment=359621)
 - [Devi Putrudu &lpar;2001&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 5.9GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177416-devi-putrudu-2001-telugu-dvd9-untouched-480p-dd51-448kbps-59gb-esub/&do=findComment&comment=359620)
 - [Devi Putrudu &lpar;2001&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 5.9GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177416-devi-putrudu-2001-telugu-dvd9-untouched-480p-dd51-448kbps-59gb-esub/&do=findComment&comment=359619)
 - [Devi Putrudu &lpar;2001&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 5.9GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177416-devi-putrudu-2001-telugu-dvd9-untouched-480p-dd51-448kbps-59gb-esub/&do=findComment&comment=359618)
-- [[60FPS] Salaar &lpar;2023&rpar; 1080p 10bit NF WEBRip Multii DDP5.1 ESub H.265 - 15.6 GB](https://www.1tamilmv.world/index.php?/forums/topic/177418-60fps-salaar-2023-1080p-10bit-nf-webrip-multii-ddp51-esub-h265-156-gb/&do=findComment&comment=359617)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
