@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [[60FPS] Salaar &lpar;2023&rpar; 1080p 10bit NF WEBRip Multii DDP5.1 ESub H.265 - 15.6 GB](https://www.1tamilmv.world/index.php?/forums/topic/177418-60fps-salaar-2023-1080p-10bit-nf-webrip-multii-ddp51-esub-h265-156-gb/&do=findComment&comment=359617)
+- [Salaar: Part 1 – Ceasefire &lpar;2023&rpar; NF WEB-DL Multi DDP5.1 Esubs x264 - 1080p | 720p - 9.2 GB | 6.8 GB | 4 GB](https://www.1tamilmv.world/index.php?/forums/topic/177408-salaar-part-1-%E2%80%93-ceasefire-2023-nf-web-dl-multi-ddp51-esubs-x264-1080p-720p-92-gb-68-gb-4-gb/&do=findComment&comment=359616)
 - [Trapped in a Dating Sim: The World of Otome Games is Tough for Mobs S01 EP05 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 250MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177417-trapped-in-a-dating-sim-the-world-of-otome-games-is-tough-for-mobs-s01-ep05-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-250mb-200mb-esub-google-drive/&do=findComment&comment=359615)
 - [Extra Ordinary Man &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177385-extra-ordinary-man-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359614)
 - [Good luck Ganesha &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.2GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177386-good-luck-ganesha-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-22gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=359613)
-- [Devil: The British Secret Agent &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.7GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177318-devil-the-british-secret-agent-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-67gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359612)
-- [Vote &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177414-vote-2023-telugu-true-web-dl-1080p-720p-avc-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=359611)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
