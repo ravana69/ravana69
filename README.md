@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Amala, Srividya Old Malayalam Movie Songs | Ente Sooryaputhrikku Remastered Malayalam Songs |Chithra](https://www.youtube.com/watch?v=M_LiQKBhncg)
 - [Karunanidhiye Kalvari Anpe | Wilson Piravom #ytshorts #christianshorts](https://www.youtube.com/watch?v=aDv4DW993ZM)
 - [ഏറ്റവും പുതിയ കുർബാന സ്വീകരണ ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Holy Communion Songs](https://www.youtube.com/watch?v=4ng-mCP0h3A)
 - [Japamala 21st of January 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 21st of January 2024](https://www.youtube.com/watch?v=rfcRkDGZPjI)
 - [കൃപാസനം മാതാവിനോടുള്ള പ്രാത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mothermaryprayer 21st](https://www.youtube.com/watch?v=-7g4I029swY)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=dhvPxm5yfPs)
-- [ഇന്ന് ജനുവരി 21  എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala mahima](https://www.youtube.com/watch?v=4mznthNU470)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
