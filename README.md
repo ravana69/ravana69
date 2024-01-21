@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Karunanidhiye Kalvari Anpe | Wilson Piravom #ytshorts #christianshorts](https://www.youtube.com/watch?v=aDv4DW993ZM)
+- [ഏറ്റവും പുതിയ കുർബാന സ്വീകരണ ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Holy Communion Songs](https://www.youtube.com/watch?v=4ng-mCP0h3A)
+- [Japamala 21st of January 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 21st of January 2024](https://www.youtube.com/watch?v=rfcRkDGZPjI)
+- [കൃപാസനം മാതാവിനോടുള്ള പ്രാത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mothermaryprayer 21st](https://www.youtube.com/watch?v=-7g4I029swY)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=dhvPxm5yfPs)
 - [ഇന്ന് ജനുവരി 21  എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala mahima](https://www.youtube.com/watch?v=4mznthNU470)
-- [രാവിലെ പ്രാര്‍ത്ഥന January 21 # Athiravile Prarthana 21st January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=aih81VjB-hE)
-- [21 January 2024](https://www.youtube.com/watch?v=rXQlB9K65Xc)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=tHNbqhiwxrM)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 21st January 24](https://www.youtube.com/watch?v=GfXCmhmDD5w)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
