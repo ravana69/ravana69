@@ -190,7 +190,7 @@ https://user-images.githubusercontent.com/47528708/176845771-6ad8f1d2-8008-4f49-
 
 # Timeline
 
-[![Newyear.svg](https://dday-widget.minung.dev/widget?text=New%20Year%20&date=2024-01-01&startDate=2022-01-01&theme=theme1)](https://google.com)
+[![Newyear.svg](https://dday-widget.minung.dev/widget?text=New%20Year%20&date=2025-01-01&startDate=2022-01-01&theme=theme1)](https://google.com)
 [![Birthday.svg](https://dday-widget.minung.dev/widget?text=Birthday&date=2024-03-13)](https://dday-widget.minung.dev)
 
 <img alt="GitHub Future" src="https://github.com/ravana69/ravana69/blob/main/media/gifs/githubfuture.png"> </img>
