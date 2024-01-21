@@ -34,10 +34,10 @@
 <!-- BLOGPOSTS:START -->
 - [Orikkalomana... I Abhinivesham(1977) I P.Jayachandhran I Sreekumaran Thampi I Shyam | I. V. Sasi](https://www.youtube.com/watch?v=z6NAyGCuR60)
 - [ഞാൻ നല്ല ഇടയനാകുന്നു. .| Rev. Aneesh P Joseph   | #shorts #motivationalvideo](https://www.youtube.com/watch?v=HrXASicA3GY)
+- [Muttathe Mulla - Chill Lofi | Jawanum Mullappoovum | 4 MUSICS | K.S. Chithra | AJX](https://www.youtube.com/watch?v=5O-a-CliAnU)
 - [Aadikkalikkeda Kochuraama Video Song | Aromalunni | Raveendran | G Devarajan | Vayalar](https://www.youtube.com/watch?v=H6d0_48OZVc)
 - [Thumbi Vaa - Unplugged Cover | Olangal | Ilaiyaraaja | S. Janaki | Akshay Nath MS](https://www.youtube.com/watch?v=X3WNuEy81mc)
 - [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 21st January 2024](https://www.youtube.com/watch?v=d8LZoxp_ZT0)
-- [Innee Jeevitham | Aanandhapuram Diaries  #malayalamfilmsongs #filmsongs #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=7lXWWEz8UQQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
