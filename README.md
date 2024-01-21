@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aaru Ninte| Annayum Rasoolum |Video Song|  Fahadh Faasil | Anvar Ali |K| Rajeev Ravi|Andrea Jeremiah](https://www.youtube.com/watch?v=fHjdgfS5Pxc)
+- [Kandu Njan Mizhikalil | Abhimanyu | Mohanlal | Geetha | Raveendran | Priyadarshan](https://www.youtube.com/watch?v=mY0qbVbpf6g)
+- [Lost in the harmony of feel-good vibes #OManuja #Djinn #Shorts #ytshorts](https://www.youtube.com/watch?v=ClKrq4PJovM)
 - [Amala, Srividya Old Malayalam Movie Songs | Ente Sooryaputhrikku Remastered Malayalam Songs |Chithra](https://www.youtube.com/watch?v=M_LiQKBhncg)
 - [Karunanidhiye Kalvari Anpe | Wilson Piravom #ytshorts #christianshorts](https://www.youtube.com/watch?v=aDv4DW993ZM)
 - [ഏറ്റവും പുതിയ കുർബാന സ്വീകരണ ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Holy Communion Songs](https://www.youtube.com/watch?v=4ng-mCP0h3A)
-- [Japamala 21st of January 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 21st of January 2024](https://www.youtube.com/watch?v=rfcRkDGZPjI)
-- [കൃപാസനം മാതാവിനോടുള്ള പ്രാത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mothermaryprayer 21st](https://www.youtube.com/watch?v=-7g4I029swY)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=dhvPxm5yfPs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
