@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Uriyadi &lpar;2016&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 6.2GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - ESub [GDrive]](https://www.1tamilmv.world/index.php?/forums/topic/177436-uriyadi-2016-tamil-true-web-dl-1080p-720p-avc-hevc-untouched-dd51640kbps-62gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub-gdrive/&do=findComment&comment=359681)
 - [[REMUX] K.G.F: Chapter 2 &lpar;2022&rpar; 1080p BluRay REMUX Multi DTS-HD.MA.5.1 Msubs x264 - 35 GB](https://www.1tamilmv.world/index.php?/forums/topic/176320-remux-kgf-chapter-2-2022-1080p-bluray-remux-multi-dts-hdma51-msubs-x264-35-gb/&do=findComment&comment=359680)
 - [Vivesini &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 4GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177393-vivesini-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-4gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359679)
 - [Extra Ordinary Man &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177384-extra-ordinary-man-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359678)
 - [Nadukkam &lpar;2017&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.3GB - 1.2GB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177292-nadukkam-2017-tamil-true-web-dl-1080p-720p-avc-aac-23gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=359677)
-- [Dragon Knight &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 1.9GB - 950MB &amp; 350MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177434-dragon-knight-2022-bluray-original-audios-1080p-720p-x264-tamil-eng-19gb-950mb-350mb-esub/&do=findComment&comment=359676)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
