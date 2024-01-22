@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chittattinkavil Video Song | Nivedyam | Vinu Mohan | Bhama | M Jayachandran | Bichu Thirumala](https://www.youtube.com/watch?v=O4WIH64IX8Q)
 - [പ്രഭാതത്തിൽ കേൾക്കുമ്പോൾ മനസിന് ഉന്മേഷമേകുന്ന സിനിമ ഗാനങ്ങൾ  | Mind  Refreshing  Film Songs  Yesudas](https://www.youtube.com/watch?v=cIiKfGDmkXw)
 - [മനസിന് എന്തെന്നില്ലാത്ത ആനന്ദവും സുഖവുമേകുന്ന മലയാളചലച്ചിത്ര ഗാനങ്ങൾ  | EVEREGREEN HITS](https://www.youtube.com/watch?v=YOK2buEGhdE)
 - [Kunje Ninakku Vendi | Kaazhcha | Mohan Sithara | K J Yesudas | Kaithapram #SongOfTheDay](https://www.youtube.com/watch?v=s2iyAGdZwPE)
 - [മാതാവിൻറെ ഈ ലുത്തിനിയ എത്രയോ മനോഹരം.  ലോകം ഏറ്റെടുത്ത ഏറ്റവും പുതിയ ലുത്തിനിയ #kreupasanam](https://www.youtube.com/watch?v=ltawsdxgqqw)
 - [Two souls, one dance floor #Raakk #MalaikottaiVaaliban #Mohanlal #shorts #ytshorts](https://www.youtube.com/watch?v=j231VeXeOhM)
-- [Sreenivasan Old Malayalam Movie Songs | Vadhu Doctoraanu |  | Remastered Malayalam Movie Songs](https://www.youtube.com/watch?v=st49Rqpr4Bs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
