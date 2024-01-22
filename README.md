@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Dragon Knight &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 1.9GB - 950MB &amp; 350MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177434-dragon-knight-2022-bluray-original-audios-1080p-720p-x264-tamil-eng-19gb-950mb-350mb-esub/&do=findComment&comment=359672)
 - [Echo &lpar;2024&rpar; S01 EP &lpar;01-05&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 5GB - 2.2GB &amp; 700MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177230-echo-2024-s01-ep-01-05-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-5gb-22gb-700mb-esub/&do=findComment&comment=359671)
 - [Nadukkam &lpar;2017&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2.3GB - 1.2GB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177292-nadukkam-2017-tamil-true-web-dl-1080p-720p-avc-aac-23gb-12gb-x264-700mb-400mb-esub/&do=findComment&comment=359670)
 - [A Couple of Cuckoos S01 EP11 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 350MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177435-a-couple-of-cuckoos-s01-ep11-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-350mb-200mb-esub-google-drive/&do=findComment&comment=359669)
 - [Half Stories &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.2GB &amp; 900MB] - [x264 - 600MB &amp; 300MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177430-half-stories-2022-telugu-true-web-dl-1080p-720p-avc-aac-20-12gb-900mb-x264-600mb-300mb-esub/&do=findComment&comment=359668)
-- [Dragon Knight &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 1.9GB - 950MB &amp; 350MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177434-dragon-knight-2022-bluray-original-audios-1080p-720p-x264-tamil-eng-19gb-950mb-350mb-esub/&do=findComment&comment=359667)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
