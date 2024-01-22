@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Chembarathipoo | Janaki Jaane #shortvideos](https://www.youtube.com/watch?v=VKJGuSC5OMY)
-- [Chembarathippoo | Janaki Jaane #shorts](https://www.youtube.com/watch?v=5AVjFFV7XTs)
-- [Virinja Marlarithal | Mr. Micheal | Prem Nazir | Seema | Jose | #shorts](https://www.youtube.com/watch?v=i-0SgTYyW5E)
-- [വയലാർ ദേവരാജൻ ടീം വീണ്ടും | Padiyum Paranjum | Vayalar Sarath ChandraVarma with Sreejith K. Warrier](https://www.youtube.com/watch?v=aNuaGhNIhK8)
-- [Chittattinkavil Video Song | Nivedyam | Vinu Mohan | Bhama | M Jayachandran | Bichu Thirumala](https://www.youtube.com/watch?v=O4WIH64IX8Q)
-- [പ്രഭാതത്തിൽ കേൾക്കുമ്പോൾ മനസിന് ഉന്മേഷമേകുന്ന സിനിമ ഗാനങ്ങൾ  | Mind  Refreshing  Film Songs  Yesudas](https://www.youtube.com/watch?v=cIiKfGDmkXw)
+- [സ്നേഹത്തിന്റെ പ്രാതലൊരുക്കി നസ്രായൻ കാത്തിരിപ്പുണ്ട് | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=Pyg-Z7o2BvI)
+- [Marimaanmizhi Song | Aromalunni | P Madhuri #shorts](https://www.youtube.com/watch?v=-LZOSWEw9KI)
+- [Pranthan Kandalin | Thottappan #sithara_krishnakumar #vinayakan #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=P_GEFhzVMmY)
+- [Nalla Muthassiyamma | Super Hit Malayalam Movie Song | Oru Muthassikkadha | Vineeth | Nirosha](https://www.youtube.com/watch?v=SrzbsJr_S0w)
+- [Chembakame | Kakkakarumban | Madhu Balakrishnan | M Jayachandran | Gireesh Puthenchery](https://www.youtube.com/watch?v=Ap_ejtjwgUE)
+- [K S Chithra Songs | Vaanambadi Paadunnu  | Movie Songs Video Jukebox](https://www.youtube.com/watch?v=YtmvA-Y4uds)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
