@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [A Couple of Cuckoos S01 EP11 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 350MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177435-a-couple-of-cuckoos-s01-ep11-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-350mb-200mb-esub-google-drive/&do=findComment&comment=359669)
 - [Half Stories &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.2GB &amp; 900MB] - [x264 - 600MB &amp; 300MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177430-half-stories-2022-telugu-true-web-dl-1080p-720p-avc-aac-20-12gb-900mb-x264-600mb-300mb-esub/&do=findComment&comment=359668)
 - [Dragon Knight &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 1.9GB - 950MB &amp; 350MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177434-dragon-knight-2022-bluray-original-audios-1080p-720p-x264-tamil-eng-19gb-950mb-350mb-esub/&do=findComment&comment=359667)
 - [Etharkkum.Thunindhavan.2022.NF.WEB-DL.Tamil.DDP5.1.Atmos.H.264 - 1080p | 720p - 5.1 GB | 3.41 GB + SUNNXT Rips](https://www.1tamilmv.world/index.php?/forums/topic/159577-etharkkumthunindhavan2022nfweb-dltamilddp51atmosh264-1080p-720p-51-gb-341-gb-sunnxt-rips/&do=findComment&comment=359666)
 - [🔰High Speed Download Links🔰  Etharkkum Thunindhavan &lpar;2022&rpar; 2160p-1080p-720p WEB-DL - x264/x265/x265 10bit - Tamil/Hindi [DD5.1~224Kbps|384Kbps/DDP5.1~192Kbps/AAC 2.0|AAC5.1/DDP5.1 Atmos 768Kbps|448Kbps] - 16GB - 15GB - 6GB -5GB - 3.4GB 1.45GB](https://www.1tamilmv.world/index.php?/forums/topic/159678-%F0%9F%94%B0high-speed-download-links%F0%9F%94%B0-etharkkum-thunindhavan-2022-2160p-1080p-720p-web-dl-x264x265x265-10bit-tamilhindi-dd51~224kbps384kbpsddp51~192kbpsaac-20aac51ddp51-atmos-768kbps448kbps-16gb-15gb-6gb-5gb-34gb-145gb/&do=findComment&comment=359665)
-- [Avatar 3: The Seed Bearer - First Official Trailer | 20th Century Studios | Disney+ | JamesCameron](https://www.1tamilmv.world/index.php?/forums/topic/150695-avatar-3-the-seed-bearer-first-official-trailer-20th-century-studios-disney-jamescameron/&do=findComment&comment=359664)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
