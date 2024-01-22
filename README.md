@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Avatar 3: The Seed Bearer - First Official Trailer | 20th Century Studios | Disney+ | JamesCameron](https://www.1tamilmv.world/index.php?/forums/topic/150695-avatar-3-the-seed-bearer-first-official-trailer-20th-century-studios-disney-jamescameron/&do=findComment&comment=359664)
+- [Dragon Knight &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 1.9GB - 950MB &amp; 350MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177434-dragon-knight-2022-bluray-original-audios-1080p-720p-x264-tamil-eng-19gb-950mb-350mb-esub/&do=findComment&comment=359663)
 - [Darling in the Franxx S01 E14 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 300MB - 250MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177433-darling-in-the-franxx-s01-e14-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-300mb-250mb-esub-google-drive/&do=findComment&comment=359662)
 - [Darling in the Franxx S01 E13 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 300MB - 250MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177432-darling-in-the-franxx-s01-e13-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-300mb-250mb-esub-google-drive/&do=findComment&comment=359661)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [22-1-2024]](https://www.1tamilmv.world/index.php?/forums/topic/177431-movies-collection-all-languages-4k-1080p-720p-576p-480p-22-1-2024/&do=findComment&comment=359660)
-- [Devi &lpar;1999&rpar; Telugu JC TRUE WEBDL &amp; HDRips - [1080p-5GB-2.5GB / 720p-1.4GB / 576p-6GB-700MB / 480p-400MB] - AVC - AAC &amp; MP3 - [GoogleDriveLinks]](https://www.1tamilmv.world/index.php?/forums/topic/158064-devi-1999-telugu-jc-true-webdl-hdrips-1080p-5gb-25gb-720p-14gb-576p-6gb-700mb-480p-400mb-avc-aac-mp3-googledrivelinks/&do=findComment&comment=359659)
-- [Evandi Aavida Vachindi 1993 Telugu GEMINI MOVIES HD 720p HDTVRip Untouched x264 AVC 3.2GB [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/130928-evandi-aavida-vachindi-1993-telugu-gemini-movies-hd-720p-hdtvrip-untouched-x264-avc-32gb-google-drive/&do=findComment&comment=359658)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
