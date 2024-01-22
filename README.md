@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 23rd January 24](https://www.youtube.com/watch?v=0WEUUCezSU8)
 - [Siyona Hey Siyona | Nammal Thammil | Indrajith | Geethu Mohandas | Ranjini Jose | Vidhu Prathap](https://www.youtube.com/watch?v=oTrN686uJmw)
 - [Mizhikalil Thaliridum | Greetings | Gireesh Puthenchery | Raveendran | JayaSurya  | Kavya Madhavan](https://www.youtube.com/watch?v=tesq0ZkOhKM)
 - [ജീവിത വഴിയിൽ വിജയമേകുന്ന ക്രിസ്തീയ ഗാനങ്ങൾ | Christian Melody Songs | Biju Narayanan | Joji Johns](https://www.youtube.com/watch?v=JVlP3uJY420)
 - [22 January 2024](https://www.youtube.com/watch?v=fy7ZC_Xo2qc)
 - [Aalolam Poove Nee | Perumazhakaalam | KS Chithra |  M Jayachandran | Kaithapram](https://www.youtube.com/watch?v=XsT6t5YFoRg)
-- [സ്നേഹത്തിന്റെ പ്രാതലൊരുക്കി നസ്രായൻ കാത്തിരിപ്പുണ്ട് | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=Pyg-Z7o2BvI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
