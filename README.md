@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Neela Nilave - Unplugged Cover | RDX | Sam C.S. | Kapil Kapilan | Syam Das, Mihraj Khalid](https://www.youtube.com/watch?v=QYeHMa9xt2c)
-- [Kudayolam bhoomi Video Song | Thakara Movie | Prathap Pothan | Surekha](https://www.youtube.com/watch?v=ZiURYU_GbFQ)
-- [ഹൃദയം നുറുങ്ങുന്ന വേദനയിലും കേൾക്കാൻ മനസ്സ് വെമ്പുന്ന നൊമ്പര ഗാനങ്ങൾ | HEART WARMING SONGS MALAYALAM](https://www.youtube.com/watch?v=zc9HRRHaSCE)
-- [Ammaye Thedunna Paithale Pole Njan | Snehardramaya Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=Qxuc-P4YJto)
-- [Apathuvelakalil | Christian Songs #shorts](https://www.youtube.com/watch?v=zY_9EDksLwg)
-- [Apathuvelakalil | Christian Songs #shorts](https://www.youtube.com/watch?v=86MbIggNd8A)
+- [Penne En Penne | Remix Version | Udayananu Tharam | Afsal | Deepak Dev | Kaithapram](https://www.youtube.com/watch?v=g59qwUDfato)
+- [ആത്മീയത ഒരുവന്റെ അകം പൊളിയാലാണ്. | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=iH0-fMaG15A)
+- [Amme Gange Mandaakini Video Song | Ulsavamelam | KJ Yesudas | Mohan Sithara](https://www.youtube.com/watch?v=WtRZlZKTiLg)
+- [Thankamani | Biju Narayanan, Chitra Iyer | Berny Ignatius | Kudumba Varthakal | Malayalam Film Songs](https://www.youtube.com/watch?v=qzoU67_6IYc)
+- [Madanapathaakayil | Njaan Salpperu Ramankutty | KJ Yesudas | Radhika Thilak |  Raveendran](https://www.youtube.com/watch?v=UCnDIoMHXDU)
+- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 23rd January 2024](https://www.youtube.com/watch?v=RJBbqL7nu1o)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
