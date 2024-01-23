@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [SYE &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177457-sye-2004-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-7gb-esub/&do=findComment&comment=359730)
+- [SYE &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177457-sye-2004-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-7gb-esub/&do=findComment&comment=359729)
 - [Gajendra &lpar;2004&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 9.6GB - ESub - GDFlix](https://www.1tamilmv.world/index.php?/forums/topic/177446-gajendra-2004-tamil-true-web-dl-1080p-hq-avc-untouched-ddp20-96gb-esub-gdflix/&do=findComment&comment=359728)
 - [Migration.2023.1080p.10bit.WEBRip.6CH.x265.HEVC-PSA - 1.2GB](https://www.1tamilmv.world/index.php?/forums/topic/177456-migration20231080p10bitwebrip6chx265hevc-psa-12gb/&do=findComment&comment=359727)
 - [ZORRO &lpar;2024&rpar; - 1080P - DUAL AUDIO &lpar;ENGLISH AND SPANISH&rpar; - AAC5.1 - ESUB - PSA - 6GB &lpar;DIRECT LINKS&rpar; - ENJOY](https://www.1tamilmv.world/index.php?/forums/topic/177455-zorro-2024-1080p-dual-audio-english-and-spanish-aac51-esub-psa-6gb-direct-links-enjoy/&do=findComment&comment=359726)
-- [Vallavan &lpar;2006&rpar; Tamil DVD9 1080p Ai Upscaled x264 DTS5.1 - 5.7GB[Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/118214-vallavan-2006-tamil-dvd9-1080p-ai-upscaled-x264-dts51-57gbgoogle-drive/&do=findComment&comment=359725)
-- [Vallavan &lpar;2006&rpar; Tamil DVD9 1080p Ai Upscaled x264 DTS5.1 - 5.7GB[Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/118214-vallavan-2006-tamil-dvd9-1080p-ai-upscaled-x264-dts51-57gbgoogle-drive/&do=findComment&comment=359724)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
