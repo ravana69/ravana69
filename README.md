@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Gajendra &lpar;2004&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 9.6GB - ESub - GDFlix](https://www.1tamilmv.world/index.php?/forums/topic/177446-gajendra-2004-tamil-true-web-dl-1080p-hq-avc-untouched-ddp20-96gb-esub-gdflix/&do=findComment&comment=359728)
+- [Migration.2023.1080p.10bit.WEBRip.6CH.x265.HEVC-PSA - 1.2GB](https://www.1tamilmv.world/index.php?/forums/topic/177456-migration20231080p10bitwebrip6chx265hevc-psa-12gb/&do=findComment&comment=359727)
+- [ZORRO &lpar;2024&rpar; - 1080P - DUAL AUDIO &lpar;ENGLISH AND SPANISH&rpar; - AAC5.1 - ESUB - PSA - 6GB &lpar;DIRECT LINKS&rpar; - ENJOY](https://www.1tamilmv.world/index.php?/forums/topic/177455-zorro-2024-1080p-dual-audio-english-and-spanish-aac51-esub-psa-6gb-direct-links-enjoy/&do=findComment&comment=359726)
 - [Vallavan &lpar;2006&rpar; Tamil DVD9 1080p Ai Upscaled x264 DTS5.1 - 5.7GB[Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/118214-vallavan-2006-tamil-dvd9-1080p-ai-upscaled-x264-dts51-57gbgoogle-drive/&do=findComment&comment=359725)
 - [Vallavan &lpar;2006&rpar; Tamil DVD9 1080p Ai Upscaled x264 DTS5.1 - 5.7GB[Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/118214-vallavan-2006-tamil-dvd9-1080p-ai-upscaled-x264-dts51-57gbgoogle-drive/&do=findComment&comment=359724)
-- [Aquaman.and.the.Lost.Kingdom.2023.1080p.10bit.WEBRip.6CH.x265.HEVC-PSA - 3GB](https://www.1tamilmv.world/index.php?/forums/topic/177454-aquamanandthelostkingdom20231080p10bitwebrip6chx265hevc-psa-3gb/&do=findComment&comment=359723)
-- [Radiant S01 EP12 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 250MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177453-radiant-s01-ep12-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-250mb-200mb-esub-google-drive/&do=findComment&comment=359722)
-- [Radiant S01 EP11 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 250MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177452-radiant-s01-ep11-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-250mb-200mb-esub-google-drive/&do=findComment&comment=359721)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
