@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [SYE &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177457-sye-2004-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-7gb-esub/&do=findComment&comment=359740)
+- [Kotha Rangula Prapancham &lpar;2024&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.world/index.php?/forums/topic/177458-kotha-rangula-prapancham-2024-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=359739)
 - [Kotha Rangula Prapancham &lpar;2024&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.world/index.php?/forums/topic/177458-kotha-rangula-prapancham-2024-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=359738)
 - [Uriyadi &lpar;2016&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 6.2GB - 2.7GB - 1.8GB - 1.4GB &amp; 950MB - x264 - 700MB - 400MB &amp; 250MB - ESub [GDrive]](https://www.1tamilmv.world/index.php?/forums/topic/177436-uriyadi-2016-tamil-true-web-dl-1080p-720p-avc-hevc-untouched-dd51640kbps-62gb-27gb-18gb-14gb-950mb-x264-700mb-400mb-250mb-esub-gdrive/&do=findComment&comment=359737)
 - [Wish &lpar;2023&rpar; DSNP WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10-DV] | 1080p | 720p - 15.7 GB | 7.1 GB | 2.4 GB](https://www.1tamilmv.world/index.php?/forums/topic/177445-wish-2023-dsnp-web-dl-ddp51-atmos-esubs-2160p-hdr10-dv-1080p-720p-157-gb-71-gb-24-gb/&do=findComment&comment=359736)
-- [Neru &lpar;2023&rpar; DSNP WEB-DL Multi DDP5.1 Atmos Esubs - 2160p | 1080p | 720p - 15.5 GB | 6.5 GB | 2 GB](https://www.1tamilmv.world/index.php?/forums/topic/177443-neru-2023-dsnp-web-dl-multi-ddp51-atmos-esubs-2160p-1080p-720p-155-gb-65-gb-2-gb/&do=findComment&comment=359735)
-- [Curse of the Blind Dead &lpar;2020&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB| x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177440-curse-of-the-blind-dead-2020-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=359734)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
