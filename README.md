@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Neru &lpar;2023&rpar; DSNP WEB-DL Multi DDP5.1 Atmos Esubs - 2160p | 1080p | 720p - 15.5 GB | 6.5 GB | 2 GB](https://www.1tamilmv.world/index.php?/forums/topic/177443-neru-2023-dsnp-web-dl-multi-ddp51-atmos-esubs-2160p-1080p-720p-155-gb-65-gb-2-gb/&do=findComment&comment=359718)
+- [Sivappu Sooriyan &lpar;1983&rpar;.Tamil.1080p.Web-dl.HEVC.DD+2.0 - 2.3GB &lpar;Aspect Ratio Corrected&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177450-sivappu-sooriyan-1983tamil1080pweb-dlhevcdd20-23gb-aspect-ratio-corrected/&do=findComment&comment=359717)
+- [Neru &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 15GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177437-neru-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-15gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359716)
+- [Aquaman and the Lost Kingdom &lpar;2023&rpar; English TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 3GB - 1GB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177449-aquaman-and-the-lost-kingdom-2023-english-true-web-dl-1080p-720p-x264-dd51-atmos-768kbps-3gb-1gb-400mb-esub/&do=findComment&comment=359715)
 - [Vallavan &lpar;2006&rpar; Tamil DVD9 1080p Ai Upscaled x264 DTS5.1 - 5.7GB[Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/118214-vallavan-2006-tamil-dvd9-1080p-ai-upscaled-x264-dts51-57gbgoogle-drive/&do=findComment&comment=359712)
-- [100 Tamil Movies - 1080p - Bluray / TK / JC / AMZN / SUN NXT WEB DL - H264 - DDP5.1/DD2.0/AAC2.0 - 550GB [GDRIVE]]](https://www.1tamilmv.world/index.php?/forums/topic/125622-100-tamil-movies-1080p-bluray-tk-jc-amzn-sun-nxt-web-dl-h264-ddp51dd20aac20-550gb-gdrive/&do=findComment&comment=359711)
-- [Gajendra &lpar;2004&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 9.6GB - ESub - GDFlix](https://www.1tamilmv.world/index.php?/forums/topic/177446-gajendra-2004-tamil-true-web-dl-1080p-hq-avc-untouched-ddp20-96gb-esub-gdflix/&do=findComment&comment=359710)
-- [Curse of the Blind Dead &lpar;2020&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB| x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177440-curse-of-the-blind-dead-2020-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=359709)
-- [Neru &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [4K ,Telugu + Hinid + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 15GB - 2.9GB &amp; 1.4GB] - [x264 - 850MB &amp; 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177439-neru-2023-true-web-dl-1080p-720p-avc-4k-telugu-hinid-kannada-dd51-192kbps-15gb-29gb-14gb-x264-850mb-450mb-esub/&do=findComment&comment=359708)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
