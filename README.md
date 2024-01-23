@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ദൈവമുണ്ടെങ്കിൽ എല്ലാമല്ലേ....](https://www.youtube.com/watch?v=qxcrzJCOO6o)
+- [Piyathu Piyathu | Black Cat | Suresh Gopi | Karthika | Meena | Alphonse Joseph | KS Chithra](https://www.youtube.com/watch?v=yKGsIyMBAxM)
 - [Songs Of The Week | Kester | Christian Devotional Songs Malayalam | Joji Johns | Melody Songs](https://www.youtube.com/watch?v=TBvU9fk8eVc)
 - [Sandhyathan Ambalathil | Abhinivesham | KJ Yesudas | Ravikumar | Sumithra |Malayalam Film Song](https://www.youtube.com/watch?v=ONsqRW4LZnE)
 - [Innee Jeevitham | Aanandhapuram Diaries  #malayalamfilmsongs #filmsongs #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=nzLx6GnznWc)
 - [Tiger Nageswara Rao (Malayalam) - Video Jukebox | Ravi Teja | Nupur Sanon | Vamsee |GV Prakash Kumar](https://www.youtube.com/watch?v=iTVq7IP4WeM)
-- [Penne En Penne | Remix Version | Udayananu Tharam | Afsal | Deepak Dev | Kaithapram](https://www.youtube.com/watch?v=g59qwUDfato)
-- [ആത്മീയത ഒരുവന്റെ അകം പൊളിയാലാണ്. | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=iH0-fMaG15A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
