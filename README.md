@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഹൃദയം നുറുങ്ങുന്ന വേദനയിലും കേൾക്കാൻ മനസ്സ് വെമ്പുന്ന നൊമ്പര ഗാനങ്ങൾ | HEART WARMING SONGS MALAYALAM](https://www.youtube.com/watch?v=zc9HRRHaSCE)
+- [Ammaye Thedunna Paithale Pole Njan | Snehardramaya Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=Qxuc-P4YJto)
 - [Apathuvelakalil | Christian Songs #shorts](https://www.youtube.com/watch?v=zY_9EDksLwg)
 - [Apathuvelakalil | Christian Songs #shorts](https://www.youtube.com/watch?v=86MbIggNd8A)
 - [Apathuvelakalil | Christian Songs #shorts](https://www.youtube.com/watch?v=ILIqkVVs9Yg)
 - [Enikkay Murivetta | Apathuvelakalil | Christian Songs #shorts](https://www.youtube.com/watch?v=dqEOOApfvrk)
-- [Kushavante Kaiyyil | Apathuvelakalil #shorts](https://www.youtube.com/watch?v=QvXbfQBfzbg)
-- [എക്കാലത്തെയും ഹൃദയസ്പര്ശിയായ മലയാളചലച്ചിത്ര ഗാനങ്ങൾ  | HEART TOUCHING MALAYALAM SONGS](https://www.youtube.com/watch?v=4v26kkSsMKE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
