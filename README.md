@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=QyjHreeqL5c)
 - [രാവിലെ പ്രാര്‍ത്ഥന January 24 # Athiravile Prarthana 24th January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=b9ulevZHcac)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=L4lxjjM0VJo)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 24th January 24](https://www.youtube.com/watch?v=llw1jrqj3xo)
 - [രവീന്ദ്രൻ മാഷിൻറെ ഈണത്തിൽ ചിത്ര പാടിയ ഗാനങ്ങൾ | Raveendran master | K S Chitra  | Film songs](https://www.youtube.com/watch?v=eA14vRcukrA)
 - [എന്നും രാവിലെ കേൾക്കുവാൻ പറ്റിയ അനുഗ്രഹീതഗാനങ്ങൾ | Evergreen Christian Songs | Non Stop Devotionals](https://www.youtube.com/watch?v=dhytCw3lvPs)
-- [ദൈവമുണ്ടെങ്കിൽ എല്ലാമല്ലേ....](https://www.youtube.com/watch?v=qxcrzJCOO6o)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
