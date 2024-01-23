@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Paattinte Palkadavil | Living Together #shreyaghoshal #shortsfeed #shorts #reels #shreyaghosal](https://www.youtube.com/watch?v=y5vIqrSLvTI)
+- [Dance to the beat of your dreams #Raakk #MalaikottaiVaaliban #Mohanlal #shorts #ytshorts](https://www.youtube.com/watch?v=-JZD8T2EsQ4)
 - [Ormmathan Vaasantha Audio Song | Daisy Movie Song | P Bhaskaran | Shyam | KJ Yesudas](https://www.youtube.com/watch?v=xjE3B9T1Xm4)
 - [പൂത്തു നിൽക്കൂ പൂനിലാവായ് പ്രണയരാഗില മലരേ ❤️ #romantic #sureshgopi  #evergeeenmalayalamhits](https://www.youtube.com/watch?v=lDbcmZRiHV4)
 - [Love Me Love Me | Hareendran Oru Nishkalankan | Rimi Tomy |Prabha Varma | Jayasurya | Vinayan](https://www.youtube.com/watch?v=OsAiZO6RBdc)
 - [Melodies that lift the spirit #OManuja #Djinn #Shorts #ytshorts](https://www.youtube.com/watch?v=V_uY8S5nwqI)
-- [Priye Ninakkuvendi | Kandavarundo | P.Jayachandran | R K Sekhar | Sreekumaran Thampi](https://www.youtube.com/watch?v=BmK6__pVMb0)
-- [Japamala 23rd of January 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 23rd of January 24](https://www.youtube.com/watch?v=xLPsbrlNDOg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
