@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Sathyameva Jayathe | Aanandhapuram Diaries | Lyrical Video | Shan Rahman | Meena  | Jaya Jose Raj](https://www.youtube.com/watch?v=2pHi13pdL80)
 - [വെള്ളിത്തിങ്കള്‍ പൂങ്കിണ്ണം തുള്ളിത്തൂവും... ഉള്ളിന്നുള്ളില്‍ താലോലം താളം തേടും.. കാണാപ്പൂം ചെപ്പിലെ](https://www.youtube.com/watch?v=Y_kkURCsTCw)
 - [ഒരു മനുഷ്യായുസ്സ് മുഴുവൻ ഓർത്തിരിക്കുന്ന മനസ്സിൽ തങ്ങിയ മധുര മനോഹരഗാനങ്ങൾ](https://www.youtube.com/watch?v=S1JS2WE9heo)
 - [Maarivillinmel | Meenathil Thalikettu | MG Sreekumar | Ouseppachan | Gireesh Puthanchery | Dileep](https://www.youtube.com/watch?v=SMCw8JY-_7g)
 - [Aaraarum Kaanaathe | Chandrolsavam  | Vidyasagar | P Jayachandran, Sujatha Mohan #SongOfTheDay](https://www.youtube.com/watch?v=Ws4_Fv4bzyM)
 - [തേടി തേടി അണഞ്ഞു ഞാൻ | Thedi Thedi | Idanaazhiyil Oru Kalocha Movie Song | Vineeth | K J Yesudas](https://www.youtube.com/watch?v=mbQorcsMAlc)
-- [Brotherly love: a dance that never ends #Raakk #MalaikottaiVaaliban #Mohanlal #shorts #ytshorts](https://www.youtube.com/watch?v=vein_RJ2rHo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
