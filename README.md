@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [[18+] Burning Betrayal &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 2.6GB &amp; 1.2GB| x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177468-18-burning-betrayal-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-hindi-eng-26gb-12gb-x264-tam-hin-400mb-esub/&do=findComment&comment=359802)
+- [Vetri Vizha &lpar;1989&rpar; Tamil.1080p.PYD.DVD9Rip.x264.DD5.1 - 3.4GB](https://www.1tamilmv.world/index.php?/forums/topic/177477-vetri-vizha-1989-tamil1080ppyddvd9ripx264dd51-34gb/&do=findComment&comment=359801)
+- [Half Stories &lpar;2022&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.2GB &amp; 900MB] - [x264 - 600MB &amp; 300MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177430-half-stories-2022-telugu-true-web-dl-1080p-720p-avc-aac-20-12gb-900mb-x264-600mb-300mb-esub/&do=findComment&comment=359800)
+- [Apoorva Sagodharargal &lpar;1989&rpar;.Tamil.480p.PYD.DVD9Rip.x264.AAC5.1 - 2.9GB](https://www.1tamilmv.world/index.php?/forums/topic/177476-apoorva-sagodharargal-1989tamil480ppyddvd9ripx264aac51-29gb/&do=findComment&comment=359799)
 - [Nagavalli &lpar;2010&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177463-nagavalli-2010-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-71gb-esub/&do=findComment&comment=359798)
-- [Naanu Ladies &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2GB &amp; 1GB] - [x264 - 600MB &amp; 300MB]](https://www.1tamilmv.world/index.php?/forums/topic/177475-naanu-ladies-2023-kannada-true-web-dl-1080p-720p-avc-aac-20-2gb-1gb-x264-600mb-300mb/&do=findComment&comment=359797)
-- [Neranja Manasu &lpar;2004&rpar; REMASTERED Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 4.4GB - UE](https://www.1tamilmv.world/index.php?/forums/topic/177464-neranja-manasu-2004-remastered-tamil-true-web-dl-1080p-avc-untouched-aac20-44gb-ue/&do=findComment&comment=359796)
-- [Little Miss Naina &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.5GB &amp; 1GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.world/index.php?/forums/topic/177474-little-miss-naina-2024-telugu-true-web-dl-1080p-720p-avc-aac-20-15gb-1gb-x264-700mb-400mb/&do=findComment&comment=359795)
-- [Raja Vikramarka &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.9GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177469-raja-vikramarka-2024-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-29gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359794)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
