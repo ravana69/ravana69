@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Siruthai &lpar;2011&rpar;.Tamil.1080p + 720p.BD50Rip.x264.DD5.1 640Kbps.ESub - 6GB + 3GB &lpar;FIRST ON NET - ONLY ON TMV&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177460-siruthai-2011tamil1080p-720pbd50ripx264dd51-640kbpsesub-6gb-3gb-first-on-net-only-on-tmv/&do=findComment&comment=359783)
 - [BIGGEST_UNTOUCHED_BLU_RAY_COLLECTION_OF_INDIAN_CINEMA_INDUSTRY_ALL_Time &lpar;Gdrive&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/170897-biggest_untouched_blu_ray_collection_of_indian_cinema_industry_all_time-gdrive/&do=findComment&comment=359782)
 - [Siruthai &lpar;2011&rpar;.Tamil.1080p + 720p.BD50Rip.x264.DD5.1 640Kbps.ESub - 6GB + 3GB &lpar;FIRST ON NET - ONLY ON TMV&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177460-siruthai-2011tamil1080p-720pbd50ripx264dd51-640kbpsesub-6gb-3gb-first-on-net-only-on-tmv/&do=findComment&comment=359781)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [24-1-2024]](https://www.1tamilmv.world/index.php?/forums/topic/177472-movies-collection-all-languages-4k-1080p-720p-576p-480p-24-1-2024/&do=findComment&comment=359780)
-- [Brotherhood &lpar;2010&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177471-brotherhood-2010-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-24gb-14gb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=359779)
-- [Babes with Blades &lpar;2018&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.7GB &amp; 1GB| x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177470-babes-with-blades-2018-hd-original-audios-1080p-720p-x264-tamil-hindi-eng-17gb-1gb-x264-tam-hin-400mb-esub/&do=findComment&comment=359778)
+- [Brotherhood &lpar;2010&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.6GB &amp; 800MB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177471-brotherhood-2010-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-16gb-800mb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=359779)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
