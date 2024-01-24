@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Yakshiyambalamadachu | Gandharvashethram | Vayalar | G Devarajan | P Susheela | Saradha](https://www.youtube.com/watch?v=dXY7GxZ58Hw)
+- [Christian Melody Songs | MG Sreekumar | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=A2_Es-UnaOs)
 - [Vandyanam Thatha | Christian Devotional Songs | Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=UBJnHzJU5dY)
 - [പുതുതായി ജനിച്ചില്ലായെങ്കിൽ ദൈവരാജ്യം കാണുവാൻ ആർക്കും കഴിയില്ല | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=LaKY6uLT220)
 - [Odavum Mudiyadhu Oliyavum Mudiyadhu - Ennodu Nee Video | Kaushik Krish | Ramesh Venkat](https://www.youtube.com/watch?v=QmpfUEAbiYI)
 - [Odavum Mudiyadhu Oliyavum Mudiyadhu - Magave Video | Kaushik Krish | Ramesh Venkat](https://www.youtube.com/watch?v=7eSLITAxoyE)
-- [Sapthaswarasudhaa Song | Anarkali | MS Baburaj #shorts](https://www.youtube.com/watch?v=-w4ztnJkTiM)
-- [Parannu Vannu Painkili Video Song | Robin Hood | Prithviraj Sukumaran | Naren | Bhavana | Kaithapram](https://www.youtube.com/watch?v=NbgCnEhTRtc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
