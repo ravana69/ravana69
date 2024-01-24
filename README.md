@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Minnaminunge - Lyrical Video | Nirnnayakam | Job Kurian | M Jayachandran | Evergreen Song](https://www.youtube.com/watch?v=VXGCoX7iABA)
-- [Thiruvarangil | Udayon | KS Chithra | Ouseppachan | Gireesh Puthenchery](https://www.youtube.com/watch?v=Hjta9GcNuf4)
-- [Sangeetha Marathaka Haram | Mr. Micheal | S Janaki | Zarina Wahab | #shorts](https://www.youtube.com/watch?v=4LsVPP96fP8)
-- [Sathyameva Jayathe | Aanandhapuram Diaries | Lyrical Video | Shan Rahman | Meena  | Jaya Jose Raj](https://www.youtube.com/watch?v=2pHi13pdL80)
-- [വെള്ളിത്തിങ്കള്‍ പൂങ്കിണ്ണം തുള്ളിത്തൂവും... ഉള്ളിന്നുള്ളില്‍ താലോലം താളം തേടും.. കാണാപ്പൂം ചെപ്പിലെ](https://www.youtube.com/watch?v=Y_kkURCsTCw)
-- [ഒരു മനുഷ്യായുസ്സ് മുഴുവൻ ഓർത്തിരിക്കുന്ന മനസ്സിൽ തങ്ങിയ മധുര മനോഹരഗാനങ്ങൾ](https://www.youtube.com/watch?v=S1JS2WE9heo)
+- [പുതുതായി ജനിച്ചില്ലായെങ്കിൽ ദൈവരാജ്യം കാണുവാൻ ആർക്കും കഴിയില്ല | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=LaKY6uLT220)
+- [Odavum Mudiyadhu Oliyavum Mudiyadhu - Ennodu Nee Video | Kaushik Krish | Ramesh Venkat](https://www.youtube.com/watch?v=QmpfUEAbiYI)
+- [Odavum Mudiyadhu Oliyavum Mudiyadhu - Magave Video | Kaushik Krish | Ramesh Venkat](https://www.youtube.com/watch?v=7eSLITAxoyE)
+- [Sapthaswarasudhaa Song | Anarkali | MS Baburaj #shorts](https://www.youtube.com/watch?v=-w4ztnJkTiM)
+- [Parannu Vannu Painkili Video Song | Robin Hood | Prithviraj Sukumaran | Naren | Bhavana | Kaithapram](https://www.youtube.com/watch?v=NbgCnEhTRtc)
+- [I Love You Mummy | Bhaskar the Rascal #shorts](https://www.youtube.com/watch?v=jgMoiZx43nw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
