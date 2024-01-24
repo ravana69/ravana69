@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Siruthai &lpar;2011&rpar;.Tamil.1080p + 720p.BD50Rip.x264.DD5.1 640Kbps.ESub - 6GB + 3GB &lpar;FIRST ON NET - ONLY ON TMV&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177460-siruthai-2011tamil1080p-720pbd50ripx264dd51-640kbpsesub-6gb-3gb-first-on-net-only-on-tmv/&do=findComment&comment=359783)
-- [BIGGEST_UNTOUCHED_BLU_RAY_COLLECTION_OF_INDIAN_CINEMA_INDUSTRY_ALL_Time &lpar;Gdrive&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/170897-biggest_untouched_blu_ray_collection_of_indian_cinema_industry_all_time-gdrive/&do=findComment&comment=359782)
-- [Siruthai &lpar;2011&rpar;.Tamil.1080p + 720p.BD50Rip.x264.DD5.1 640Kbps.ESub - 6GB + 3GB &lpar;FIRST ON NET - ONLY ON TMV&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177460-siruthai-2011tamil1080p-720pbd50ripx264dd51-640kbpsesub-6gb-3gb-first-on-net-only-on-tmv/&do=findComment&comment=359781)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [24-1-2024]](https://www.1tamilmv.world/index.php?/forums/topic/177472-movies-collection-all-languages-4k-1080p-720p-576p-480p-24-1-2024/&do=findComment&comment=359780)
-- [Brotherhood &lpar;2010&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.6GB &amp; 800MB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177471-brotherhood-2010-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-16gb-800mb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=359779)
+- [Siruthai &lpar;2011&rpar;.Tamil.1080p + 720p.BD50Rip.x264.DD5.1 640Kbps.ESub - 6GB + 3GB &lpar;FIRST ON NET - ONLY ON TMV&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177460-siruthai-2011tamil1080p-720pbd50ripx264dd51-640kbpsesub-6gb-3gb-first-on-net-only-on-tmv/&do=findComment&comment=359788)
+- [MATHIMARAN &lpar;2023&rpar; 1080p AMZN WEB.DL DDP5.1 Esubs x264 - 8.5 GB](https://www.1tamilmv.world/index.php?/forums/topic/177462-mathimaran-2023-1080p-amzn-webdl-ddp51-esubs-x264-85-gb/&do=findComment&comment=359787)
+- [Aquaman and the Lost Kingdom &lpar;2023&rpar; WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10-DV] | 1080p | 720p - 22 GB | 7.5 GB | 4.1 GB](https://www.1tamilmv.world/index.php?/forums/topic/177461-aquaman-and-the-lost-kingdom-2023-web-dl-ddp51-atmos-esubs-2160p-hdr10-dv-1080p-720p-22-gb-75-gb-41-gb/&do=findComment&comment=359786)
+- [[18+] Burning Betrayal &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 2.6GB &amp; 1.2GB| x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177468-18-burning-betrayal-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-hindi-eng-26gb-12gb-x264-tam-hin-400mb-esub/&do=findComment&comment=359785)
+- [Babes with Blades &lpar;2018&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.7GB &amp; 1GB| x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177470-babes-with-blades-2018-hd-original-audios-1080p-720p-x264-tamil-hindi-eng-17gb-1gb-x264-tam-hin-400mb-esub/&do=findComment&comment=359784)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
