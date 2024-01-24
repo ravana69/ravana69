@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Nagavalli &lpar;2010&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177463-nagavalli-2010-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-71gb-esub/&do=findComment&comment=359751)
+- [SYE &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177457-sye-2004-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-7gb-esub/&do=findComment&comment=359750)
 - [MATHIMARAN &lpar;2023&rpar; 1080p AMZN WEB.DL DDP5.1 Esubs x264 - 8.5 GB](https://www.1tamilmv.world/index.php?/forums/topic/177462-mathimaran-2023-1080p-amzn-webdl-ddp51-esubs-x264-85-gb/&do=findComment&comment=359749)
 - [Aquaman and the Lost Kingdom &lpar;2023&rpar; WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10-DV] | 1080p | 720p - 22 GB | 7.5 GB | 4.1 GB](https://www.1tamilmv.world/index.php?/forums/topic/177461-aquaman-and-the-lost-kingdom-2023-web-dl-ddp51-atmos-esubs-2160p-hdr10-dv-1080p-720p-22-gb-75-gb-41-gb/&do=findComment&comment=359748)
 - [SYE &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177457-sye-2004-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-7gb-esub/&do=findComment&comment=359747)
-- [Siruthai &lpar;2011&rpar;.Tamil.1080p + 720p.BD50Rip.x264.DD5.1 640Kbps.ESub - 6GB + 3GB &lpar;FIRST ON NET - ONLY ON TMV&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177460-siruthai-2011tamil1080p-720pbd50ripx264dd51-640kbpsesub-6gb-3gb-first-on-net-only-on-tmv/&do=findComment&comment=359746)
-- [Vaanathaippola &lpar;2000&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 10.8GB - ESub - UE](https://www.1tamilmv.world/index.php?/forums/topic/177411-vaanathaippola-2000-tamil-true-web-dl-1080p-hq-avc-untouched-ddp20-108gb-esub-ue/&do=findComment&comment=359745)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
