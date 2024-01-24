@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Raja Vikramarka &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.9GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177469-raja-vikramarka-2024-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-29gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359775)
 - [House On Elm Lake &lpar;2017&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 2GB &amp; 1GB| x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177465-house-on-elm-lake-2017-hd-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-hindi-eng-2gb-1gb-x264-tam-hin-400mb-esub/&do=findComment&comment=359774)
 - [ANIMAL: Evarevaro &lpar;Full Video&rpar; - Ranbir Kapoor,Tripti Dimri | Sandeep V | Vishal M | Bhushan K](https://www.1tamilmv.world/index.php?/forums/topic/176860-animal-evarevaro-full-video-ranbir-kapoortripti-dimri-sandeep-v-vishal-m-bhushan-k/&do=findComment&comment=359771)
 - [📌 TADAKHA &lpar;2013&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - HQ 1080P - AMZN - WEBDL - H264 - DDP 5.1 @ 640 Kb/s - ESUBS - 1.6GB](https://www.1tamilmv.world/index.php?/forums/topic/177340-%F0%9F%93%8C-tadakha-2013-music-video-album-hq-1080p-amzn-webdl-h264-ddp-51-640-kbs-esubs-16gb/&do=findComment&comment=359770)
 - [[18+] Burning Betrayal &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 2.6GB &amp; 1.2GB| x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177468-18-burning-betrayal-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-hindi-eng-26gb-12gb-x264-tam-hin-400mb-esub/&do=findComment&comment=359768)
-- [Khichdi 2 &lpar;2023&rpar; Hindi HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.world/index.php?/forums/topic/176315-khichdi-2-2023-hindi-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=359767)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
