@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നിങ്ങൾ എല്ലാവരും കേൾക്കാൻ കൊതിച്ച ലുത്തിനിയ # കേൾക്കാതെ പോകരുതേ](https://www.youtube.com/watch?v=tQZD7AREZXM)
 - [Eesho Neeyen Ullil | Christian Video Song | Br.Anil Malappuram | Smitha Joshy | Joji Johns](https://www.youtube.com/watch?v=txA4xXo5Dws)
 - [kripasanam mother mary daily prayer and songs for January 24th, 2024 #kreupasanam prayer malayalam](https://www.youtube.com/watch?v=a2GTJz1BlIU)
 - [Japamala 24th of January 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 24th of January 2024](https://www.youtube.com/watch?v=53hrgk0cprs)
 - [ഇന്ന് ജനുവരി 24 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamalamalayalam](https://www.youtube.com/watch?v=SicM9gYMuL4)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=QyjHreeqL5c)
-- [രാവിലെ പ്രാര്‍ത്ഥന January 24 # Athiravile Prarthana 24th January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=b9ulevZHcac)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
