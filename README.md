@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Nagavalli &lpar;2010&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177463-nagavalli-2010-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-71gb-esub/&do=findComment&comment=359798)
+- [Naanu Ladies &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2GB &amp; 1GB] - [x264 - 600MB &amp; 300MB]](https://www.1tamilmv.world/index.php?/forums/topic/177475-naanu-ladies-2023-kannada-true-web-dl-1080p-720p-avc-aac-20-2gb-1gb-x264-600mb-300mb/&do=findComment&comment=359797)
 - [Neranja Manasu &lpar;2004&rpar; REMASTERED Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 4.4GB - UE](https://www.1tamilmv.world/index.php?/forums/topic/177464-neranja-manasu-2004-remastered-tamil-true-web-dl-1080p-avc-untouched-aac20-44gb-ue/&do=findComment&comment=359796)
 - [Little Miss Naina &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.5GB &amp; 1GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.world/index.php?/forums/topic/177474-little-miss-naina-2024-telugu-true-web-dl-1080p-720p-avc-aac-20-15gb-1gb-x264-700mb-400mb/&do=findComment&comment=359795)
 - [Raja Vikramarka &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.9GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177469-raja-vikramarka-2024-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-29gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359794)
-- [Brotherhood &lpar;2010&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.6GB &amp; 800MB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177471-brotherhood-2010-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-16gb-800mb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=359793)
-- [Babes with Blades &lpar;2018&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.7GB &amp; 1GB| x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177470-babes-with-blades-2018-hd-original-audios-1080p-720p-x264-tamil-hindi-eng-17gb-1gb-x264-tam-hin-400mb-esub/&do=findComment&comment=359792)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
