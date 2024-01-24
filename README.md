@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Nagavalli &lpar;2010&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177463-nagavalli-2010-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-71gb-esub/&do=findComment&comment=359773)
 - [Nagavalli &lpar;2010&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177463-nagavalli-2010-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-71gb-esub/&do=findComment&comment=359772)
 - [ANIMAL: Evarevaro &lpar;Full Video&rpar; - Ranbir Kapoor,Tripti Dimri | Sandeep V | Vishal M | Bhushan K](https://www.1tamilmv.world/index.php?/forums/topic/176860-animal-evarevaro-full-video-ranbir-kapoortripti-dimri-sandeep-v-vishal-m-bhushan-k/&do=findComment&comment=359771)
 - [📌 TADAKHA &lpar;2013&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - HQ 1080P - AMZN - WEBDL - H264 - DDP 5.1 @ 640 Kb/s - ESUBS - 1.6GB](https://www.1tamilmv.world/index.php?/forums/topic/177340-%F0%9F%93%8C-tadakha-2013-music-video-album-hq-1080p-amzn-webdl-h264-ddp-51-640-kbs-esubs-16gb/&do=findComment&comment=359770)
 - [Nagavalli &lpar;2010&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177463-nagavalli-2010-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-71gb-esub/&do=findComment&comment=359769)
-- [[18+] Burning Betrayal &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 2.6GB &amp; 1.2GB| x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177468-18-burning-betrayal-2023-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-hindi-eng-26gb-12gb-x264-tam-hin-400mb-esub/&do=findComment&comment=359768)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
