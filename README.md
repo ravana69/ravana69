@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kannagi &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 15GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177493-kannagi-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-15gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359826)
+- [Chinese Zodiac &lpar;2012&rpar; AAC 2.0 Tamil-Telugu-Hindi-DTS 5.1Russian 720p &amp; 1080p Blu-Ray  1GB &amp; 4GB [G-Drive]](https://www.1tamilmv.world/index.php?/forums/topic/171612-chinese-zodiac-2012-aac-20-tamil-telugu-hindi-dts-51russian-720p-1080p-blu-ray-1gb-4gb-g-drive/&do=findComment&comment=359825)
 - [Little Miss Naina &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.5GB &amp; 1GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.world/index.php?/forums/topic/177474-little-miss-naina-2024-telugu-true-web-dl-1080p-720p-avc-aac-20-15gb-1gb-x264-700mb-400mb/&do=findComment&comment=359824)
+- [Fighter &lpar;2024&rpar; Hindi HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.world/index.php?/forums/topic/177482-fighter-2024-hindi-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=359813)
 - [Naanu Ladies &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2GB &amp; 1GB] - [x264 - 600MB &amp; 300MB]](https://www.1tamilmv.world/index.php?/forums/topic/177475-naanu-ladies-2023-kannada-true-web-dl-1080p-720p-avc-aac-20-2gb-1gb-x264-600mb-300mb/&do=findComment&comment=359812)
-- [Little Miss Naina &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.5GB &amp; 1GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.world/index.php?/forums/topic/177474-little-miss-naina-2024-telugu-true-web-dl-1080p-720p-avc-aac-20-15gb-1gb-x264-700mb-400mb/&do=findComment&comment=359811)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [25-1-2024]](https://www.1tamilmv.world/index.php?/forums/topic/177481-movies-collection-all-languages-4k-1080p-720p-576p-480p-25-1-2024/&do=findComment&comment=359810)
-- [Oomai Vizhigal &lpar;1986&rpar; Tamil TRUE WEB-DL - 576p HQ - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 7.3GB - UE](https://www.1tamilmv.world/index.php?/forums/topic/177480-oomai-vizhigal-1986-tamil-true-web-dl-576p-hq-avc-untouched-aac20-73gb-ue/&do=findComment&comment=359809)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
