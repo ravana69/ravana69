@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളസിനിമയിലെ എക്കാലത്തെയും മികവുള്ള വിനോദ ഗാനങ്ങൾ | EVERGREEN MALAYALAM SONGS](https://www.youtube.com/watch?v=WLQFg2aoGvk)
+- [Muthum Pavizhavum | Darling Darling | Ouseppachan | Hariharan | Sujatha Mohan #SongOfTheDay](https://www.youtube.com/watch?v=H5WuqpBaovo)
 - [Bharathame Bhagyame | #shorts  | Malayalam Patriotic Song | Vande Mataram | Deshabhakthiganam](https://www.youtube.com/watch?v=jA6zJi6v00A)
 - [Feel the beat, move your feet #Raakk #MalaikottaiVaaliban #Mohanlal #shorts #ytshorts](https://www.youtube.com/watch?v=1eJNHAb0eHY)
 - [Sagar Alias Jacky (Theme Song)  | Sagar Alias Jacky Reloaded | Mohanlal | Amal Neerad | Gopi Sundar](https://www.youtube.com/watch?v=p4ioNi69BEc)
 - [Sathyameva Jayathe | Aanandhapuram Diaries #filmsongs #shortsfeed #shorts #reels #meena #latestsong](https://www.youtube.com/watch?v=xTlI4IXhKYg)
-- [Srividya Old Malayalam Movie Songs |Vilkkanundu Swapnangal Remastered Malayalam Songs | S. Janaki](https://www.youtube.com/watch?v=qn2BjIsKw70)
-- [Aayiram Perkalil | Shorts #ytshorts  #malayalamchristiansongs](https://www.youtube.com/watch?v=1pgR3n_Ktws)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
