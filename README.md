@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Premam &lpar;2015&rpar; BluRay - Malayalam - 1080p HQ - x264 - [DTS &lpar;1509Kbps&rpar; + AAC 2.0] - 8GB - ESub - UE](https://www.1tamilmv.world/index.php?/forums/topic/177506-premam-2015-bluray-malayalam-1080p-hq-x264-dts-1509kbps-aac-20-8gb-esub-ue/&do=findComment&comment=359863)
+- [Fighter &lpar;2024&rpar; Hindi v2 HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.world/index.php?/forums/topic/177482-fighter-2024-hindi-v2-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=359861)
+- [Sapta Sagaradaache Ello - Side B &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 8.5GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177500-sapta-sagaradaache-ello-side-b-2023-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-85gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359860)
 - [Avunu Valliddaru Ista Paddaru! &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177497-avunu-valliddaru-ista-paddaru-2002-telugu-dvd9-untouched-480p-dd51-448kbps-7gb-esub/&do=findComment&comment=359859)
 - [Avunu Valliddaru Ista Paddaru! &lpar;2002&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177497-avunu-valliddaru-ista-paddaru-2002-telugu-dvd9-untouched-480p-dd51-448kbps-7gb-esub/&do=findComment&comment=359858)
-- [Baaplyok.2023.1080p., 720p AMZN.WEB-DL.DDP5.1.H.265 &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177504-baaplyok20231080p-720p-amznweb-dlddp51h265-direct-download/&do=findComment&comment=359857)
-- [Baaplyok.2023.1080p, 720p .AMZN.WEB-DL.DDP5.1.H.265 &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177503-baaplyok20231080p-720p-amznweb-dlddp51h265-direct-download/&do=findComment&comment=359856)
-- [Sapta Sagaradaache Ello - Side B &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 8.5GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177499-sapta-sagaradaache-ello-side-b-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-85gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359855)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
