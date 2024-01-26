@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kattile Mainaye Pattu Padippichatharo | Akashadoothu | Murali | Madhavi | Evergreen Songs Malayalam](https://www.youtube.com/watch?v=wXfq1mwvFZs)
+- [ലോകം മുഴുവൻ  കേൾക്കാൻ ആഗ്രഹിക്കുന്ന യേശുനാഥന്റെ കരുണാർദ്ര ഗീതങ്ങൾ |Shreya Jayadeep | Christian Songs](https://www.youtube.com/watch?v=OfM9yteQZQ8)
 - [ദൈവം കനിഞ്ഞുനല്കിയ അത്ഭുതം. | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=w0t9dOhVI3o)
 - [Sweet Melodies of Shweta Mohan | Video Jukebox | ശ്വേത മോഹൻ ആലപിച്ച മനോഹര സിനിമാഗാനങ്ങൾ](https://www.youtube.com/watch?v=pv1LHrwxtbE)
 - [Anjanadri Theme Song | HanuMan (Malayalam)|Prasanth Varma |Sai Charan, GowraHari, Siva Shakthi Datta](https://www.youtube.com/watch?v=7-5-0qW-on8)
 - [Venna Tholkumudalode Video Song | Oru Sundhariyude Kadha | K. J Yesudas #shorts](https://www.youtube.com/watch?v=8rkb0KxgCfs)
-- [എന്റെ സൂര്യപുത്രിയിലെ മനോഹര ഗാനങ്ങൾ കേൾക്കാം | Ente Sooryaputhrikku Film Songs | Suresh Gopi](https://www.youtube.com/watch?v=GwCGPlhSWcE)
-- [Karineelakkannazhaki |Super Hit Malayalam Movie Song | Kannaki | Lal | Nanditha Das, Geethu Mohandas](https://www.youtube.com/watch?v=pMaF-gJGLk0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
