@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Donga Dongadi &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 384Kbps&rpar; - 5.9GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177539-donga-dongadi-2004-telugu-dvd9-untouched-480p-dd51-384kbps-59gb-esub/&do=findComment&comment=359930)
+- [Badland Hunters &lpar;2024&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.2GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177534-badland-hunters-2024-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-32gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=359928)
 - [Kalavaadiya Pozhuthugal &lpar;2018&rpar; Tamil TK WEB-DL [2160p &amp; 1080p - 6.2GB] H264 DD 5.1 [GDRIVE]](https://www.1tamilmv.world/index.php?/forums/topic/168712-kalavaadiya-pozhuthugal-2018-tamil-tk-web-dl-2160p-1080p-62gb-h264-dd-51-gdrive/&do=findComment&comment=359927)
 - [Raja Vikramarka &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.9GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177469-raja-vikramarka-2024-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-29gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359926)
 - [Akash Vaani &lpar;2024&rpar; S01 EP &lpar;01-07&rpar; Telugu TRUE WEB-DL - [1080p - 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.8GB - 1.4GB &amp; 800MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177533-akash-vaani-2024-s01-ep-01-07-telugu-true-web-dl-1080p-720p-avc-dd51-384kbps-28gb-14gb-800mb-esub/&do=findComment&comment=359925)
-- [The Piper &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.1GB &amp; 1.1GB| x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB]](https://www.1tamilmv.world/index.php?/forums/topic/177498-the-piper-2023-hd-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-21gb-11gb-x264-tam-tel-hin-450mb/&do=findComment&comment=359924)
-- [Animal &lpar;2023&rpar; NF WEB DL - H264/H265 - &lpar;DD5.1 &amp; AAC 2.0&rpar; - ESub - [1080p &amp; 720p - 3.3GB - 2.2GB - 1.8GB] [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/118216-animal-2023-nf-web-dl-h264h265-dd51-aac-20-esub-1080p-720p-33gb-22gb-18gb-google-drive/&do=findComment&comment=359923)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
