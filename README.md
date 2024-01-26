@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Sathyameva Jayathe | Aanandhapuram Diaries #filmsongs #shortsfeed #shorts #reels #meena #latestsong](https://www.youtube.com/watch?v=A4lZlAzBxb4)
 - [Bharathame Bhagyame | #shorts  | Malayalam Patriotic Song | Vande Mataram | Deshabhakthiganam](https://www.youtube.com/watch?v=OAI2sbmJITE)
 - [രാവിലെ കേൾക്കാൻ ഏറ്റവും നല്ല ഗാനങ്ങൾ daily worship songs | christian devotional songs malayalam](https://www.youtube.com/watch?v=hewwRoP8jzo)
 - [Aradhikunne Njngal | Prayer and Worship Songs |Christian Songs | Smitha | Christian Worship Songs](https://www.youtube.com/watch?v=QG2PiER4sAc)
 - [മാതാവിൻറെ  പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#kripasanam  mother mary prayer 26](https://www.youtube.com/watch?v=-KQzrD-Apr0)
 - [Japamala 26th of January 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 26th of January 24](https://www.youtube.com/watch?v=OmyzOX-YlhM)
-- [ഇന്ന് ജനുവരി 26 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  dhukkathi](https://www.youtube.com/watch?v=E2QlzKingeg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
