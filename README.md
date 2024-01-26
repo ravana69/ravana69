@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നാടെങ്ങും തരംഗം സൃഷ്ടിച്ച മലയാളസിനിമയിലെ സൂപ്പർഹിറ്റ് സിനിമാഗാനങ്ങൾ  | MOST FAMOUS FILM SONGS](https://www.youtube.com/watch?v=Rp278ouidjU)
+- [Deva Deva Divya Dharshanam |  Pachanottukal (1973) | KJ Yesudas | Prem Nazeer Songs](https://www.youtube.com/watch?v=DmJZ5ClIbj0)
 - [North Goa Travel Guide #shorts #shortsvideo #shortsfeed #goa #tourism #travel #southindia #beaches](https://www.youtube.com/watch?v=PjsR2acgrpQ)
 - [Pavizham Pol Pavizhaadharam Pol Namukku Paarkkaan Munthirithoppukal ONV Kurup Johnson KJ Yesudas](https://www.youtube.com/watch?v=vZkPkn6Z9QY)
 - [Every step is a celebration #Raakk #MalaikottaiVaaliban #Mohanlal #shorts #ytshorts](https://www.youtube.com/watch?v=NEPeS2nYBZs)
 - [Corona Dhavan Jukebox | Rijo Joseph | Lukman Avaran | Sreenath Bhasi | CC](https://www.youtube.com/watch?v=ctcHhZt3_Ls)
-- [Mizhiyoram - Ambient Lofi | Manjil Virinja Pookkal | Jerry Amaldev | S. Janaki | Chris Wayne](https://www.youtube.com/watch?v=METR3ArYNRA)
-- [Thirusannidhanam | Pavam I A Ivachan | Siddique | Jagadheesh | Yesudas | Raveendran | Innocent](https://www.youtube.com/watch?v=RAffea81peE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
