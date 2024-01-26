@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Sapta Sagaradaache Ello: Side B &lpar;2023&rpar; 1080p AMZN WEB-DL Multi DDP5.1 Esubs x264 - 9 GB](https://www.1tamilmv.world/index.php?/forums/topic/177525-sapta-sagaradaache-ello-side-b-2023-1080p-amzn-web-dl-multi-ddp51-esubs-x264-9-gb/&do=findComment&comment=359917)
+- [Animal &lpar;2023&rpar; NF WEB-DL Multi DDP5.1 Esubs - 1080p | 720p - 11.5 GB | 3.3 GB](https://www.1tamilmv.world/index.php?/forums/topic/177522-animal-2023-nf-web-dl-multi-ddp51-esubs-1080p-720p-115-gb-33-gb/&do=findComment&comment=359916)
+- [Kavan &lpar;2017&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 10.6GB - ESub - GDFlix](https://www.1tamilmv.world/index.php?/forums/topic/177531-kavan-2017-tamil-true-web-dl-1080p-hq-avc-untouched-aac20-106gb-esub-gdflix/&do=findComment&comment=359915)
 - [Griselda &lpar;2024&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 4GB - 2.5GB &amp; 800MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177447-griselda-2024-s01-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-4gb-25gb-800mb-esub/&do=findComment&comment=359913)
 - [Sam Bahadur &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.5GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] -  ESub](https://www.1tamilmv.world/index.php?/forums/topic/177507-sam-bahadur-2023-hindi-true-web-dl-1080p-720p-avc-aac-20-25gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=359912)
-- [Expats &lpar;2024&rpar; S01 EP &lpar;01-02&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Mal + Kan+ Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 4GB - 2.5GB &amp; 800MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177526-expats-2024-s01-ep-01-02-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-mal-kan-eng-dd51-192kbps-4gb-25gb-800mb-esub/&do=findComment&comment=359911)
-- [Karmma Calling &lpar;2024&rpar; S01 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi] - &lpar;DD+5.1 - 192Kbps&rpar; - 5GB - 2.5GB &amp; 800MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177527-karmma-calling-2024-s01-ep-01-07-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-dd51-192kbps-5gb-25gb-800mb-esub/&do=findComment&comment=359910)
-- [Kodai &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.5GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177532-kodai-2023-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-25gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=359909)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
