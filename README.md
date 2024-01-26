@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Donga Dongadi &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 384Kbps&rpar; - 5.9GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177539-donga-dongadi-2004-telugu-dvd9-untouched-480p-dd51-384kbps-59gb-esub/&do=findComment&comment=359934)
-- [Akash Vaani &lpar;2024&rpar; Complete S01 EP &lpar;01-07&rpar; Merged Telugu TRUE WEB-DL - [1080p - 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.8GB - 1.4GB &amp; 800MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177540-akash-vaani-2024-complete-s01-ep-01-07-merged-telugu-true-web-dl-1080p-720p-avc-dd51-384kbps-28gb-14gb-800mb-esub-google-drive/&do=findComment&comment=359933)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [26-1-2024]](https://www.1tamilmv.world/index.php?/forums/topic/177529-movies-collection-all-languages-4k-1080p-720p-576p-480p-26-1-2024/&do=findComment&comment=359932)
-- [50 Tamil Movies - AMZN/SS/TK/JC/SUN NXT WEB DL - H264/H265 - DDP5.1/AAC2.0 - ESub - [1080p &amp; 720p - 350GB] [GDRIVE]](https://www.1tamilmv.world/index.php?/forums/topic/168865-50-tamil-movies-amznsstkjcsun-nxt-web-dl-h264h265-ddp51aac20-esub-1080p-720p-350gb-gdrive/&do=findComment&comment=359931)
-- [Donga Dongadi &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 384Kbps&rpar; - 5.9GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177539-donga-dongadi-2004-telugu-dvd9-untouched-480p-dd51-384kbps-59gb-esub/&do=findComment&comment=359930)
+- [Donga Dongadi &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 384Kbps&rpar; - 5.9GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177539-donga-dongadi-2004-telugu-dvd9-untouched-480p-dd51-384kbps-59gb-esub/&do=findComment&comment=359946)
+- [Siruthai &lpar;2011&rpar;.Tamil.1080p + 720p.BD50Rip.x264.DD5.1 640Kbps.ESub - 6GB + 3GB &lpar;FIRST ON NET - ONLY ON TMV&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177460-siruthai-2011tamil1080p-720pbd50ripx264dd51-640kbpsesub-6gb-3gb-first-on-net-only-on-tmv/&do=findComment&comment=359945)
+- [Akash Vaani &lpar;2024&rpar; S01 EP &lpar;01-07&rpar; Telugu TRUE WEB-DL - [1080p - 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.8GB - 1.4GB &amp; 800MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177533-akash-vaani-2024-s01-ep-01-07-telugu-true-web-dl-1080p-720p-avc-dd51-384kbps-28gb-14gb-800mb-esub/&do=findComment&comment=359944)
+- [Blue Star &lpar;2024&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.world/index.php?/forums/topic/177485-blue-star-2024-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=359943)
+- [Kodai &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.5GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177532-kodai-2023-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-25gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=359942)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
