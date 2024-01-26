@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Expats.S01E01 &amp; E02.The.Peak.2160p, 1080p, 720p .AMZN.WEB-DL.MULTI.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177528-expatss01e01-e02thepeak2160p-1080p-720p-amznweb-dlmultiddp51-direct-download/&do=findComment&comment=359896)
+- [Karmma Calling &lpar;2024&rpar; S01 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi] - &lpar;DD+5.1 - 192Kbps&rpar; - 5GB - 2.5GB &amp; 800MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177527-karmma-calling-2024-s01-ep-01-07-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-dd51-192kbps-5gb-25gb-800mb-esub/&do=findComment&comment=359894)
 - [Expats &lpar;2024&rpar; S01 EP &lpar;01-02&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Mal + Kan+ Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 4GB - 2.5GB &amp; 800MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177526-expats-2024-s01-ep-01-02-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-mal-kan-eng-dd51-192kbps-4gb-25gb-800mb-esub/&do=findComment&comment=359893)
 - [Sapta Sagaradaache Ello: Side B &lpar;2023&rpar; 1080p AMZN WEB-DL Multi DDP5.1 Esubs x264 - 9 GB](https://www.1tamilmv.world/index.php?/forums/topic/177525-sapta-sagaradaache-ello-side-b-2023-1080p-amzn-web-dl-multi-ddp51-esubs-x264-9-gb/&do=findComment&comment=359892)
 - [Metallic Rogue S01 E02 WEBRip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 230MB - 180MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177524-metallic-rogue-s01-e02-webrip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-230mb-180mb-esub-google-drive/&do=findComment&comment=359891)
-- [Metallic Rogue S01 E01 WEBRip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 250MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177523-metallic-rogue-s01-e01-webrip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-250mb-200mb-esub-google-drive/&do=findComment&comment=359890)
-- [Animal &lpar;2023&rpar; NF WEB-DL Multi DDP5.1 Esubs - 1080p | 720p - 11.5 GB | 3.3 GB](https://www.1tamilmv.world/index.php?/forums/topic/177522-animal-2023-nf-web-dl-multi-ddp51-esubs-1080p-720p-115-gb-33-gb/&do=findComment&comment=359889)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
