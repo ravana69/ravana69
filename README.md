@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Fear the Walking Dead &lpar;2023&rpar; S08 EP &lpar;01-12&rpar; TRUE WEB-DL - [1080p, 720p - [Tamil + Hindi + Eng] - &lpar;DD+ 5.1-192Kbps&rpar; - 7.5GB - 3.4GB - 1.5GB] - MSub](https://www.1tamilmv.world/index.php?/forums/topic/177543-fear-the-walking-dead-2023-s08-ep-01-12-true-web-dl-1080p-720p-tamil-hindi-eng-dd-51-192kbps-75gb-34gb-15gb-msub/&do=findComment&comment=359949)
+- [The Beast Below [Leio] &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Thai&rpar; - 2.4GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177542-the-beast-below-leio-2022-hd-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-thai-24gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=359948)
+- [Thavasi &lpar;2001&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 5.9GB - UE](https://www.1tamilmv.world/index.php?/forums/topic/177541-thavasi-2001-tamil-true-web-dl-1080p-avc-untouched-aac20-59gb-ue/&do=findComment&comment=359947)
 - [Donga Dongadi &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 384Kbps&rpar; - 5.9GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177539-donga-dongadi-2004-telugu-dvd9-untouched-480p-dd51-384kbps-59gb-esub/&do=findComment&comment=359946)
 - [Siruthai &lpar;2011&rpar;.Tamil.1080p + 720p.BD50Rip.x264.DD5.1 640Kbps.ESub - 6GB + 3GB &lpar;FIRST ON NET - ONLY ON TMV&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177460-siruthai-2011tamil1080p-720pbd50ripx264dd51-640kbpsesub-6gb-3gb-first-on-net-only-on-tmv/&do=findComment&comment=359945)
-- [Akash Vaani &lpar;2024&rpar; S01 EP &lpar;01-07&rpar; Telugu TRUE WEB-DL - [1080p - 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.8GB - 1.4GB &amp; 800MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177533-akash-vaani-2024-s01-ep-01-07-telugu-true-web-dl-1080p-720p-avc-dd51-384kbps-28gb-14gb-800mb-esub/&do=findComment&comment=359944)
-- [Blue Star &lpar;2024&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.world/index.php?/forums/topic/177485-blue-star-2024-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=359943)
-- [Kodai &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.5GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177532-kodai-2023-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-25gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=359942)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
