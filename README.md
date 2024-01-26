@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 27th January 24](https://www.youtube.com/watch?v=1Txq0uG8C7c)
 - [Ororo Poomuthum | Ilamurathamburan | Manoj K Jayan | ONV Kurupp | KJ Yesudas | Raveendran](https://www.youtube.com/watch?v=vlxc-9aM_qs)
 - [26 January 2024](https://www.youtube.com/watch?v=zbAYX6fz_fI)
 - [Kattile Mainaye Pattu Padippichatharo | Akashadoothu | Murali | Madhavi | Evergreen Songs Malayalam](https://www.youtube.com/watch?v=wXfq1mwvFZs)
 - [ലോകം മുഴുവൻ  കേൾക്കാൻ ആഗ്രഹിക്കുന്ന യേശുനാഥന്റെ കരുണാർദ്ര ഗീതങ്ങൾ |Shreya Jayadeep | Christian Songs](https://www.youtube.com/watch?v=OfM9yteQZQ8)
 - [ദൈവം കനിഞ്ഞുനല്കിയ അത്ഭുതം. | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=w0t9dOhVI3o)
-- [Sweet Melodies of Shweta Mohan | Video Jukebox | ശ്വേത മോഹൻ ആലപിച്ച മനോഹര സിനിമാഗാനങ്ങൾ](https://www.youtube.com/watch?v=pv1LHrwxtbE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
