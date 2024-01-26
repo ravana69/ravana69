@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Corona Dhavan Jukebox | Rijo Joseph | Lukman Avaran | Sreenath Bhasi | CC](https://www.youtube.com/watch?v=ctcHhZt3_Ls)
 - [Mizhiyoram - Ambient Lofi | Manjil Virinja Pookkal | Jerry Amaldev | S. Janaki | Chris Wayne](https://www.youtube.com/watch?v=METR3ArYNRA)
 - [Thirusannidhanam | Pavam I A Ivachan | Siddique | Jagadheesh | Yesudas | Raveendran | Innocent](https://www.youtube.com/watch?v=RAffea81peE)
 - [Madhu  Old Malayalam Movie Songs | Vellam  | Remastered Malayalam Movie Songs | K.J. Yesudas, Chorus](https://www.youtube.com/watch?v=deHrL_SUkJM)
 - [Sathyameva Jayathe | Aanandhapuram Diaries #filmsongs #shortsfeed #shorts #reels #meena #latestsong](https://www.youtube.com/watch?v=A4lZlAzBxb4)
 - [Bharathame Bhagyame | #shorts  | Malayalam Patriotic Song | Vande Mataram | Deshabhakthiganam](https://www.youtube.com/watch?v=OAI2sbmJITE)
-- [രാവിലെ കേൾക്കാൻ ഏറ്റവും നല്ല ഗാനങ്ങൾ daily worship songs | christian devotional songs malayalam](https://www.youtube.com/watch?v=hewwRoP8jzo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
