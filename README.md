@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Bharathame Bhagyame | #shorts  | Malayalam Patriotic Song | Vande Mataram | Deshabhakthiganam](https://www.youtube.com/watch?v=OAI2sbmJITE)
+- [രാവിലെ കേൾക്കാൻ ഏറ്റവും നല്ല ഗാനങ്ങൾ daily worship songs | christian devotional songs malayalam](https://www.youtube.com/watch?v=hewwRoP8jzo)
+- [Aradhikunne Njngal | Prayer and Worship Songs |Christian Songs | Smitha | Christian Worship Songs](https://www.youtube.com/watch?v=QG2PiER4sAc)
+- [മാതാവിൻറെ  പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#kripasanam  mother mary prayer 26](https://www.youtube.com/watch?v=-KQzrD-Apr0)
+- [Japamala 26th of January 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 26th of January 24](https://www.youtube.com/watch?v=OmyzOX-YlhM)
 - [ഇന്ന് ജനുവരി 26 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  dhukkathi](https://www.youtube.com/watch?v=E2QlzKingeg)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=ME89W_K9Z3k)
-- [പ്രഭാത പ്രാര്‍ത്ഥന January 26 # Athiravile Prarthana 26th January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=ysKHX8qXpj0)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=cNxRylCiDxw)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 26th January 24](https://www.youtube.com/watch?v=C_G2CpsoDYg)
-- [Kavyashilpam Kalimanilorukkum | Ee Bhargavi Nilayam | Vani Vishwanath | Sujatha Mohan](https://www.youtube.com/watch?v=4FnIwvB3MNQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
