@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Fight Club &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 13.5GB - 3.3GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177544-fight-club-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-135gb-33gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360002)
-- [Bachelor Party &lpar;2024&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.world/index.php?/forums/topic/177489-bachelor-party-2024-kannada-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=360001)
-- [Swarnakamalam &lpar;1988&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 256Kbps&rpar; - 6.3GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177557-swarnakamalam-1988-telugu-dvd9-untouched-480p-dd51-256kbps-63gb-esub/&do=findComment&comment=360000)
-- [📌 HI NANNA &lpar;2023&rpar; &lpar;Tel + Tam + Mal + Kan + Hin&rpar; &lpar;MUSIC VIDEO ALBUM&rpar; - HQ 1080P - NF - WEBDL - AVC - DDP 5.1 @ 640 Kb/s - ESUBS - 2GB](https://www.1tamilmv.world/index.php?/forums/topic/177178-%F0%9F%93%8C-hi-nanna-2023-tel-tam-mal-kan-hin-music-video-album-hq-1080p-nf-webdl-avc-ddp-51-640-kbs-esubs-2gb/&do=findComment&comment=359999)
-- [Fight.Club.2023.720p + 1080p.SS.WEB-DL.DD+5.1.H.264.ESub - 1.6GB &amp; 3GB](https://www.1tamilmv.world/index.php?/forums/topic/177556-fightclub2023720p-1080pssweb-dldd51h264esub-16gb-3gb/&do=findComment&comment=359998)
+- [Premam &lpar;2015&rpar; BluRay - Malayalam - 1080p HQ - x264 - [DTS &lpar;1509Kbps&rpar; + AAC 2.0] - 8GB - ESub - UE](https://www.1tamilmv.world/index.php?/forums/topic/177506-premam-2015-bluray-malayalam-1080p-hq-x264-dts-1509kbps-aac-20-8gb-esub-ue/&do=findComment&comment=360010)
+- [Raja Vikramarka &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.9GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177469-raja-vikramarka-2024-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-29gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360009)
+- [Fight.Club.2023.720p + 1080p.SS.WEB-DL.DD+5.1.H.264.ESub - 1.6GB &amp; 3GB](https://www.1tamilmv.world/index.php?/forums/topic/177556-fightclub2023720p-1080pssweb-dldd51h264esub-16gb-3gb/&do=findComment&comment=360008)
+- [Fight Club &lpar;2023&rpar; DSNP WEB-DL DDP5.1 Esubs - 2160p | 1080p - 13.3 GB | 4.4 GB](https://www.1tamilmv.world/index.php?/forums/topic/177546-fight-club-2023-dsnp-web-dl-ddp51-esubs-2160p-1080p-133-gb-44-gb/&do=findComment&comment=360007)
+- [Singam &lpar;2010&rpar; Tamil BluRay - 1080p HQ - x265 HEVC 10bit - &lpar;DDP.5.1&rpar; - 3.4GB - ESub - UE](https://www.1tamilmv.world/index.php?/forums/topic/177549-singam-2010-tamil-bluray-1080p-hq-x265-hevc-10bit-ddp51-34gb-esub-ue/&do=findComment&comment=360006)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
