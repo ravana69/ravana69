@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [വണ്ടിൻ ചുണ്ടത്ത് തേനിൻ ചെണ്ടൊന്നു ചേർക്കും വാസന്തമേ |  Thammil Thammil](https://www.youtube.com/watch?v=Y6lb6Cg1P-I)
+- [Parayatharike | KOLAAMBI | Madhushree Narayan |T K Rajeevkumar| Ramesh Narayanan | Vinayak Sasikumar](https://www.youtube.com/watch?v=umKDn80TcRk)
 - [Vellam  Old Malayalam Movie Songs |Vellam Remastered Malayalam Songs | P. Susheela](https://www.youtube.com/watch?v=YH637zV2cAo)
 - [Chirichath Chilankayalla | Nrithasala | Sreekumaran Thampi | B.Vasantha | Dakshionamoorty](https://www.youtube.com/watch?v=bAyArmWNLl0)
 - [Aadharanjali X Onnukku Renda - Mashup | Romancham | Sushin Shyam, Hiphop Tamizha | Harish Hwarkling](https://www.youtube.com/watch?v=NpyYRv5vxlo)
 - [Karunanidhiye Kalvari Anpe | Wilson Piravom #ytshorts #christianshorts](https://www.youtube.com/watch?v=Q0pbQfgwIyQ)
-- [പഴയകാല പ്രഭാതഗാനങ്ങൾ കേട്ട് പ്രാർത്ഥിച്ചു ഉണരാം daily morning old worship songs with lyrics](https://www.youtube.com/watch?v=fR9-mQqFfGY)
-- [കൃപാസനം മാതാവിന്റെ  പ്രാർത്ഥനയും ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാ #kripasanam  mother mary](https://www.youtube.com/watch?v=HQlPERnv2x0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
