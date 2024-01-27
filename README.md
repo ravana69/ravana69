@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Siddu from Srikakulam &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.8GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177554-siddu-from-srikakulam-2008-telugu-dvd9-untouched-480p-dd51-448kbps-68gb-esub/&do=findComment&comment=359976)
 - [Kill Bill Vol.2 &lpar;2004&rpar; DD2.0 Tamil+ DD2.0 Hindi +DD5.1 English +DD5.1 German[2160p x265 Blu-ray 10bit FS92 First on net](https://www.1tamilmv.world/index.php?/forums/topic/143735-kill-bill-vol2-2004-dd20-tamil-dd20-hindi-dd51-english-dd51-german2160p-x265-blu-ray-10bit-fs92-first-on-net/&do=findComment&comment=359975)
 - [Animal &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 12GB - 7.9GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177505-animal-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-12gb-79gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359974)
 - [Fight Club &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 13.5GB - 3.3GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177544-fight-club-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-135gb-33gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359973)
 - [Animal &lpar;2023&rpar; NF WEB-DL Multi DDP5.1 Esubs - 1080p | 720p - 11.5 GB | 3.3 GB](https://www.1tamilmv.world/index.php?/forums/topic/177522-animal-2023-nf-web-dl-multi-ddp51-esubs-1080p-720p-115-gb-33-gb/&do=findComment&comment=359972)
-- [Animal &lpar;2023&rpar; NF WEB-DL Multi DDP5.1 Esubs - 1080p | 720p - 11.5 GB | 3.3 GB](https://www.1tamilmv.world/index.php?/forums/topic/177522-animal-2023-nf-web-dl-multi-ddp51-esubs-1080p-720p-115-gb-33-gb/&do=findComment&comment=359971)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
