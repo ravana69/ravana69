@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Shruthiyil Ninnuyarum Video Song | Thrishna | KJ Yesudas | Mammootty](https://www.youtube.com/watch?v=ZUciyv4vPY0)
+- [Aakashamake Audio Song Namukku Paarkkaan Munthirithoppukal ONV Kurup Johnson KJ Yesudas](https://www.youtube.com/watch?v=WE-XD5yr3A8)
 - [Manathe Velli Vithanicha Kottaram  Video Song | Palunku | Mammootty | Nazriya Nazim | KJ Yesudas](https://www.youtube.com/watch?v=58oITjwFY8g)
 - [പാട്ടുപെട്ടി | Paattupetti Vol 41| Malayalam Film Songs | Satyam Audios](https://www.youtube.com/watch?v=K61p-dmG_Qk)
 - [കാതിന് കുളിരേകി മനസ്സിൽ വിസ്മയമായ് നിലകൊള്ളുന്ന മലയാളസിനിമയിലെ അതിപ്രശസ്തഗാനങ്ങൾ ! EVERGREEN HITS](https://www.youtube.com/watch?v=uPD4Bdx520w)
 - [വീണ്ടും വീണ്ടും കേൾക്കാൻ മനസ്സ് വെമ്പുന്ന മലയാളസിനിമയിലെ അതിമനോഹര ഗാനങ്ങൾ ! EVERGREEN MOVIE SONGS](https://www.youtube.com/watch?v=V3CIOkMc5nA)
-- [Raappadippakshikkoottam | Ente Sooryaputhrikku | Ilaiyaraaja | K S Chithra #SongOfTheDay](https://www.youtube.com/watch?v=MU8gO_YFGXg)
-- [The dance floor is my happy place #Raakk #MalaikottaiVaaliban #Mohanlal #shorts #ytshorts](https://www.youtube.com/watch?v=lqQckzDjtXk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
