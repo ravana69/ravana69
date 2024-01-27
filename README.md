@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Gamyam &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 5.8GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177547-gamyam-2008-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-58gb-esub/&do=findComment&comment=359963)
-- [Donga Dongadi &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 384Kbps&rpar; - 5.9GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177539-donga-dongadi-2004-telugu-dvd9-untouched-480p-dd51-384kbps-59gb-esub/&do=findComment&comment=359962)
-- [Fight Club &lpar;2023&rpar; DSNP WEB-DL DDP5.1 Esubs - 2160p | 1080p - 13.3 GB | 4.4 GB](https://www.1tamilmv.world/index.php?/forums/topic/177546-fight-club-2023-dsnp-web-dl-ddp51-esubs-2160p-1080p-133-gb-44-gb/&do=findComment&comment=359961)
-- [Siruthai &lpar;2011&rpar;.Tamil.1080p + 720p.BD50Rip.x264.DD5.1 640Kbps.ESub - 6GB + 3GB &lpar;FIRST ON NET - ONLY ON TMV&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177460-siruthai-2011tamil1080p-720pbd50ripx264dd51-640kbpsesub-6gb-3gb-first-on-net-only-on-tmv/&do=findComment&comment=359960)
-- [Fight Club &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 13.5GB - 3.3GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177544-fight-club-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-135gb-33gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=359959)
+- [Police.Story.2.2022.1080p, 720p .AMZN.WEB-DL.DDP2.0 &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177553-policestory220221080p-720p-amznweb-dlddp20-direct-download/&do=findComment&comment=359969)
+- [Fear the Walking Dead &lpar;2023&rpar; S08 EP &lpar;01-12&rpar; TRUE WEB-DL - [1080p, 720p - [Tamil + Hindi + Eng] - &lpar;DD+ 5.1-192Kbps&rpar; &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177552-fear-the-walking-dead-2023-s08-ep-01-12-true-web-dl-1080p-720p-tamil-hindi-eng-dd-51-192kbps-direct-download/&do=findComment&comment=359968)
+- [Vidhi.2023.1080p, 720p .AMZN.WEB-DL.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177551-vidhi20231080p-720p-amznweb-dlddp51-direct-download/&do=findComment&comment=359967)
+- [Karmma.Calling.S01.2160p, 10180p .WEB-DL.Multi.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177550-karmmacallings012160p-10180p-web-dlmultiddp51-direct-download/&do=findComment&comment=359966)
+- [Singam &lpar;2010&rpar; Tamil BluRay - 1080p HQ - x265 HEVC 10bit - &lpar;DDP.5.1&rpar; - 3.4GB - ESub - UE](https://www.1tamilmv.world/index.php?/forums/topic/177549-singam-2010-tamil-bluray-1080p-hq-x265-hevc-10bit-ddp51-34gb-esub-ue/&do=findComment&comment=359965)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
