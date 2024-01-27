@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Swarnakamalam &lpar;1988&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 256Kbps&rpar; - 6.3GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177557-swarnakamalam-1988-telugu-dvd9-untouched-480p-dd51-256kbps-63gb-esub/&do=findComment&comment=360012)
-- [Siruthai &lpar;2011&rpar; - Tamil - 1080p - Blu-Ray - Untouched - [DD5.1 + DTS-HDMA + PCM5.1] - Esubs](https://www.1tamilmv.world/index.php?/forums/topic/177558-siruthai-2011-tamil-1080p-blu-ray-untouched-dd51-dts-hdma-pcm51-esubs/&do=findComment&comment=360011)
-- [Premam &lpar;2015&rpar; BluRay - Malayalam - 1080p HQ - x264 - [DTS &lpar;1509Kbps&rpar; + AAC 2.0] - 8GB - ESub - UE](https://www.1tamilmv.world/index.php?/forums/topic/177506-premam-2015-bluray-malayalam-1080p-hq-x264-dts-1509kbps-aac-20-8gb-esub-ue/&do=findComment&comment=360010)
-- [Raja Vikramarka &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 2.9GB - 1.4GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177469-raja-vikramarka-2024-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-29gb-14gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360009)
-- [Fight.Club.2023.720p + 1080p.SS.WEB-DL.DD+5.1.H.264.ESub - 1.6GB &amp; 3GB](https://www.1tamilmv.world/index.php?/forums/topic/177556-fightclub2023720p-1080pssweb-dldd51h264esub-16gb-3gb/&do=findComment&comment=360008)
+- [Fear the Walking Dead &lpar;2023&rpar; S08 EP &lpar;01-12&rpar; TRUE WEB-DL - [1080p, 720p - [Tamil + Hindi + Eng] - &lpar;DD+ 5.1-192Kbps&rpar; &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177552-fear-the-walking-dead-2023-s08-ep-01-12-true-web-dl-1080p-720p-tamil-hindi-eng-dd-51-192kbps-direct-download/&do=findComment&comment=360022)
+- [Fight Club &lpar;2023&rpar; DSNP WEB-DL DDP5.1 Esubs - 2160p | 1080p - 13.3 GB | 4.4 GB](https://www.1tamilmv.world/index.php?/forums/topic/177546-fight-club-2023-dsnp-web-dl-ddp51-esubs-2160p-1080p-133-gb-44-gb/&do=findComment&comment=360021)
+- [Fight Club &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 13.5GB - 3.3GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177544-fight-club-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-135gb-33gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360020)
+- [Siruthai &lpar;2011&rpar;.Tamil.1080p + 720p.BD50Rip.x264.DD5.1 640Kbps.ESub - 6GB + 3GB &lpar;FIRST ON NET - ONLY ON TMV&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177460-siruthai-2011tamil1080p-720pbd50ripx264dd51-640kbpsesub-6gb-3gb-first-on-net-only-on-tmv/&do=findComment&comment=360019)
+- [Siruthai &lpar;2011&rpar;.Tamil.1080p + 720p.BD50Rip.x264.DD5.1 640Kbps.ESub - 6GB + 3GB &lpar;FIRST ON NET - ONLY ON TMV&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177460-siruthai-2011tamil1080p-720pbd50ripx264dd51-640kbpsesub-6gb-3gb-first-on-net-only-on-tmv/&do=findComment&comment=360018)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
