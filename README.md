@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പാട്ടുപെട്ടി | Paattupetti Vol 41| Malayalam Film Songs | Satyam Audios](https://www.youtube.com/watch?v=K61p-dmG_Qk)
+- [കാതിന് കുളിരേകി മനസ്സിൽ വിസ്മയമായ് നിലകൊള്ളുന്ന മലയാളസിനിമയിലെ അതിപ്രശസ്തഗാനങ്ങൾ ! EVERGREEN HITS](https://www.youtube.com/watch?v=uPD4Bdx520w)
+- [വീണ്ടും വീണ്ടും കേൾക്കാൻ മനസ്സ് വെമ്പുന്ന മലയാളസിനിമയിലെ അതിമനോഹര ഗാനങ്ങൾ ! EVERGREEN MOVIE SONGS](https://www.youtube.com/watch?v=V3CIOkMc5nA)
 - [Raappadippakshikkoottam | Ente Sooryaputhrikku | Ilaiyaraaja | K S Chithra #SongOfTheDay](https://www.youtube.com/watch?v=MU8gO_YFGXg)
 - [The dance floor is my happy place #Raakk #MalaikottaiVaaliban #Mohanlal #shorts #ytshorts](https://www.youtube.com/watch?v=lqQckzDjtXk)
 - [മലയാളികളുടെ ഇഷ്ടഗായികമാർ ഒന്നിക്കുന്ന സൂപ്പർഹിറ്റ് ക്രിസ്തീയ ഗാനങ്ങൾ | Christian Video Songs](https://www.youtube.com/watch?v=cog31R65O9k)
-- [വണ്ടിൻ ചുണ്ടത്ത് തേനിൻ ചെണ്ടൊന്നു ചേർക്കും വാസന്തമേ |  Thammil Thammil](https://www.youtube.com/watch?v=Y6lb6Cg1P-I)
-- [Parayatharike | KOLAAMBI | Madhushree Narayan |T K Rajeevkumar| Ramesh Narayanan | Vinayak Sasikumar](https://www.youtube.com/watch?v=umKDn80TcRk)
-- [Vellam  Old Malayalam Movie Songs |Vellam Remastered Malayalam Songs | P. Susheela](https://www.youtube.com/watch?v=YH637zV2cAo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
