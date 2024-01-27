@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Jerry - Official Teaser | Anish Uday | Kottayam Naseer, Pramod Veliyanaadu | Arun Vijay](https://www.youtube.com/watch?v=qnE7NeTf9oo)
+- [ദൈവം തന്നെ സ്നേഹിക്കുന്നവർക്ക് ഒരുക്കീട്ടുള്ളത്  | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=ptuFEqBr7TY)
 - [Ambilippoomarano Video Song | Sreekrishnapurathu Nakshathrathilakkam |  KS Chithra | MG Sreekumar](https://www.youtube.com/watch?v=FMBeDHaUe00)
 - [Neermathalappoo | Aami #manjuwarrier #shreyaghoshal #shortsfeed #shorts #reels #filmsongs](https://www.youtube.com/watch?v=SCXFjS3ghSE)
 - [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 27th January 2024](https://www.youtube.com/watch?v=Aor1tXWj5sw)
 - [Shruthiyil Ninnuyarum Video Song | Thrishna | KJ Yesudas | Mammootty](https://www.youtube.com/watch?v=ZUciyv4vPY0)
-- [Aakashamake Audio Song Namukku Paarkkaan Munthirithoppukal ONV Kurup Johnson KJ Yesudas](https://www.youtube.com/watch?v=WE-XD5yr3A8)
-- [Manathe Velli Vithanicha Kottaram  Video Song | Palunku | Mammootty | Nazriya Nazim | KJ Yesudas](https://www.youtube.com/watch?v=58oITjwFY8g)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
