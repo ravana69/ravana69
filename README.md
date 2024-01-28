@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന January 29 # Athiravile Prarthana 29th January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=2SBrvV5wxIw)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=TuENC5fBIN0)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 29th January 24](https://www.youtube.com/watch?v=tl9rSrcd6ao)
 - [28 January 2024](https://www.youtube.com/watch?v=RKVfw4NKgzU)
 - [Raakadal Kadanjedutha   Kalyanaraman   Berny Ignatius   Hi Res Audio](https://www.youtube.com/watch?v=0qXYUc31pjI)
 - [Poovattaka Thatti Chinni | Ennennum Kannettante | KJ Yesudas | KS Chithra | Sangeeth | Soniya](https://www.youtube.com/watch?v=3GrRLK-a30w)
-- [Adachitta Vathilil | Christian Video Song | Adv.Subal Paul | Renju Joseph | Christian Melody Song](https://www.youtube.com/watch?v=3X2Bki3GEDE)
-- [എല്ലാം അവസാനിച്ചുവെന്ന് കരുതുന്ന ഒരു സമയം | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=g_m-k3FDUWk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
