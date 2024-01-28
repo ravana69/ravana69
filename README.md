@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നോവുകൾ മാറാലമൂടും മനസിന്റെ മച്ചിലെ മച്ചിലെ ശ്രീദേവിയായ് ..#gireeshputhencgeryhit #evergreenhitssong](https://www.youtube.com/watch?v=tEa5vtlfZr4)
+- [Snehadharayil | Rakshassu | AT Ummer | KG Menon | Vani Jayaram | Ratheesh | Old Film Songs](https://www.youtube.com/watch?v=9800uXk0mJI)
 - [Mukilvarna Mukunda | Bahubali 2 -The Conclusion #mmkeeravani #shwetamohan #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=P2lvcumanMk)
 - [Oorum Perum Parayathe | Thappana | Lyrical  + Karaoke Video | Mammootty | Vijay Yesudas | Vidyasagar](https://www.youtube.com/watch?v=C4VdqyYvlb0)
 - [Aadivaa Kaatte - Chill Lofi | Koodevide | Johnson | S. Janaki | AJX](https://www.youtube.com/watch?v=y3LkqKOR1wQ)
 - [Neeyen Ulppoovinullil | Ponnuchaami | Ashokan | Ranjitha | Chithra | Mohan Sithara](https://www.youtube.com/watch?v=pI92aAdAMhY)
-- [Sreenivasan Old Malayalam Movie Songs | Nagarangalil Chennu Raparkam | Remastered Malayalam Song](https://www.youtube.com/watch?v=9fr8eB9EwYQ)
-- [Dillu Baru Jaane   Kalaignan   Ilaiyaraaja   Hi Res Audio](https://www.youtube.com/watch?v=mGDAb9xGzn0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
