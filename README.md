@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oorum Perum Parayathe | Thappana | Lyrical  + Karaoke Video | Mammootty | Vijay Yesudas | Vidyasagar](https://www.youtube.com/watch?v=C4VdqyYvlb0)
 - [Aadivaa Kaatte - Chill Lofi | Koodevide | Johnson | S. Janaki | AJX](https://www.youtube.com/watch?v=y3LkqKOR1wQ)
 - [Neeyen Ulppoovinullil | Ponnuchaami | Ashokan | Ranjitha | Chithra | Mohan Sithara](https://www.youtube.com/watch?v=pI92aAdAMhY)
 - [Sreenivasan Old Malayalam Movie Songs | Nagarangalil Chennu Raparkam | Remastered Malayalam Song](https://www.youtube.com/watch?v=9fr8eB9EwYQ)
 - [Dillu Baru Jaane   Kalaignan   Ilaiyaraaja   Hi Res Audio](https://www.youtube.com/watch?v=mGDAb9xGzn0)
 - [ഇത്ര ശക്തമായ പ്രാർത്ഥന ഇല്ല  ജപമാല സാത്താൻറെ തല തകർക്കും](https://www.youtube.com/watch?v=3Y1iBufigdk)
-- [ക്രിസ്തീയ ചരിത്രത്തിലെ ഹിറ്റ് ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Manoj Christy](https://www.youtube.com/watch?v=cBeQiSWse4w)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
