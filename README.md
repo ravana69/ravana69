@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഇത്ര ശക്തമായ പ്രാർത്ഥന ഇല്ല  ജപമാല സാത്താൻറെ തല തകർക്കും](https://www.youtube.com/watch?v=3Y1iBufigdk)
 - [ക്രിസ്തീയ ചരിത്രത്തിലെ ഹിറ്റ് ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Manoj Christy](https://www.youtube.com/watch?v=cBeQiSWse4w)
 - [Japamala 28th of January 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 28th of January 2024](https://www.youtube.com/watch?v=zYA0mQgtSbU)
 - [ഈ മരിയൻ പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kripasanam  daily prayer and songs](https://www.youtube.com/watch?v=blOYZjcH1_Q)
 - [ഇന്ന് ജനുവരി 28 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  Mahimayud](https://www.youtube.com/watch?v=31avlU-XdL0)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=dI-nrjRahyE)
-- [പ്രഭാത പ്രാര്‍ത്ഥന January 28 # Athiravile Prarthana 28th January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=uP95_yYNWpM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
