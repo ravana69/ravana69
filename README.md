@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Weakest Tamer Began a Journey to Pick Up Trash S01 E02 WEBRip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 300MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177564-the-weakest-tamer-began-a-journey-to-pick-up-trash-s01-e02-webrip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-300mb-200mb-esub-google-drive/&do=findComment&comment=360033)
+- [The Weakest Tamer Began a Journey to Pick Up Trash S01 E01 WEBRip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 300MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177563-the-weakest-tamer-began-a-journey-to-pick-up-trash-s01-e01-webrip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-300mb-200mb-esub-google-drive/&do=findComment&comment=360032)
+- [[60FPS] Animal &lpar;2023&rpar; 1080p 10bit WEBRIP x265 Multi DDP.5.1 MSub - 11.2 GB](https://www.1tamilmv.world/index.php?/forums/topic/177562-60fps-animal-2023-1080p-10bit-webrip-x265-multi-ddp51-msub-112-gb/&do=findComment&comment=360031)
+- [OY! &lpar;2009&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.5GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177560-oy-2009-telugu-dvd9-untouched-480p-dd51-448kbps-65gb-esub/&do=findComment&comment=360030)
 - [OY! &lpar;2009&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.5GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177560-oy-2009-telugu-dvd9-untouched-480p-dd51-448kbps-65gb-esub/&do=findComment&comment=360029)
-- [OY! &lpar;2009&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.5GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177560-oy-2009-telugu-dvd9-untouched-480p-dd51-448kbps-65gb-esub/&do=findComment&comment=360028)
-- [Hi TMV](https://www.1tamilmv.world/index.php?/forums/topic/177561-hi-tmv/&do=findComment&comment=360027)
-- [Fight Club &lpar;2023&rpar; TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; [Telugu + Hindi + Malayalam + Kannada] - 13.5GB - 2.9GB &amp; 1.4GB] - [x264 - 850MB &amp; 500MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177545-fight-club-2023-true-web-dl-4k-1080p-720p-avc-dd51-192kbps%C2%A0telugu-hindi-malayalam-kannada-135gb-29gb-14gb-x264-850mb-500mb-esub/&do=findComment&comment=360026)
-- [Bachelor Party &lpar;2024&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.5GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.world/index.php?/forums/topic/177489-bachelor-party-2024-kannada-hq-predvd-1080p-720p-x264-25gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=360025)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
