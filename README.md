@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Ten Commandments &lpar;2006&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Eng&rpar; - 3GB &amp; 1.3GB | x264 - &lpar;Tamil&rpar; - 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177565-the-ten-commandments-2006-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-eng-3gb-13gb-x264-tamil-450mb-esub/&do=findComment&comment=360063)
+- [105 Minuttess &lpar;2024&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.world/index.php?/forums/topic/177490-105-minuttess-2024-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=360062)
 - [Singam II &lpar;2013&rpar; BluRay - 1080p HQ - AVC - UNTOUCHED - [ Tamil &lpar;DTS&rpar; + Telugu &lpar;DD.5.1&rpar; ] - 9GB - ESub - GDFlix](https://www.1tamilmv.world/index.php?/forums/topic/177566-singam-ii-2013-bluray-1080p-hq-avc-untouched-tamil-dts-telugu-dd51-9gb-esub-gdflix/&do=findComment&comment=360061)
 - [Singam &lpar;2010&rpar; Tamil BluRay - 1080p HQ - x265 HEVC 10bit - &lpar;DDP.5.1&rpar; - 3.4GB - ESub - UE](https://www.1tamilmv.world/index.php?/forums/topic/177549-singam-2010-tamil-bluray-1080p-hq-x265-hevc-10bit-ddp51-34gb-esub-ue/&do=findComment&comment=360060)
 - [Due [E.M.I] &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 2.3GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177569-due-emi-2023-tamil-true-web-dl-1080p-720p-avc-hevc-aac-20-23gb-13gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360059)
-- [Due [E.M.I] &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 2.3GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177569-due-emi-2023-tamil-true-web-dl-1080p-720p-avc-hevc-aac-20-23gb-13gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360058)
-- [Adyaksha 2014 Kannada UDAYA TV HD 720p HDTVRip Untouched x264 AVC 3.2GB [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/128346-adyaksha-2014-kannada-udaya-tv-hd-720p-hdtvrip-untouched-x264-avc-32gb-google-drive/&do=findComment&comment=360057)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
