@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Due [E.M.I] &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 2.3GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177569-due-emi-2023-tamil-true-web-dl-1080p-720p-avc-hevc-aac-20-23gb-13gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360073)
+- [King of the Lost World &lpar;2005&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 2GB &amp; 800MB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177571-king-of-the-lost-world-2005-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-2gb-800mb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=360072)
 - [OY! &lpar;2009&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.5GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177560-oy-2009-telugu-dvd9-untouched-480p-dd51-448kbps-65gb-esub/&do=findComment&comment=360071)
 - [Premam &lpar;2015&rpar; BluRay - Malayalam - 1080p HQ - x264 - [DTS &lpar;1509Kbps&rpar; + AAC 2.0] - 8GB - ESub - UE](https://www.1tamilmv.world/index.php?/forums/topic/177506-premam-2015-bluray-malayalam-1080p-hq-x264-dts-1509kbps-aac-20-8gb-esub-ue/&do=findComment&comment=360070)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [26-1-2024]](https://www.1tamilmv.world/index.php?/forums/topic/177529-movies-collection-all-languages-4k-1080p-720p-576p-480p-26-1-2024/&do=findComment&comment=360069)
-- [Singam II &lpar;2013&rpar; BluRay - 1080p HQ - AVC - UNTOUCHED - [ Tamil &lpar;DTS&rpar; + Telugu &lpar;DD.5.1&rpar; ] - 9GB - ESub - GDFlix](https://www.1tamilmv.world/index.php?/forums/topic/177566-singam-ii-2013-bluray-1080p-hq-avc-untouched-tamil-dts-telugu-dd51-9gb-esub-gdflix/&do=findComment&comment=360068)
-- [📌 ATHARINTIKI DAAREDI &lpar;2013&rpar; &lpar;Music Video Album&rpar; - 1080P - BLU-RAY - UNTOUCHED BDREUMX - AVC - DTS-HD® MA 5.1 @ 2929 Kbps - ESubs - 6.5GB](https://www.1tamilmv.world/index.php?/forums/topic/173194-%F0%9F%93%8C-atharintiki-daaredi-2013-music-video-album-1080p-blu-ray-untouched-bdreumx-avc-dts-hd%C2%AE-ma-51-2929-kbps-esubs-65gb/&do=findComment&comment=360067)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
