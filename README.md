@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kandu Njan | Abhimanyu | Raveendran | M G Sreekumar | Kaithapram #SongOfTheDay](https://www.youtube.com/watch?v=B7jy4X-W6f0)
+- [YESHUVIN NIZHALAKUVAN | #shorts | LIBIN SCARIA | Fr. JUBIN MARIA KALLIDAYIL SDV](https://www.youtube.com/watch?v=D2Y1C2VvgcU)
+- [Sathyameva Jayathe | Aanandhapuram Diaries #filmsongs #shortsfeed #shorts #reels #meena #latestsong](https://www.youtube.com/watch?v=hmLNvYnaOC0)
 - [Nenjile Nenjile | Video Song | 1983 | Shankar Mahadevan | Gopi Sundar | Nivin Pauly | Abrid Shine](https://www.youtube.com/watch?v=l9UYjPBu3mc)
 - [ഒരു ദിവസത്തിന്റെ നന്മകൾ മുഴുവനേകും  ക്രിസ്തീയ ഗാനങ്ങൾ  | Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=-p1aUhHy8G8)
 - [Madhu Old Malayalam Movie Songs |Vellam Remastered Malayalam Songs | K. J. Yesudas, P. Madhuri](https://www.youtube.com/watch?v=4CQTw7MttVY)
-- [Pakal Kinaavil Palavattam | Thattakam | Sreehari | Ranjitha | Jayaraj | Yesudas | Kaithapram](https://www.youtube.com/watch?v=Lv8kzMMeI_Q)
-- [Enne Karuthunnavan #shortsvideo](https://www.youtube.com/watch?v=eWURfrTs7Rc)
-- [മാതാവിൻറെ  പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#kreupasanam  daily prayer for 29](https://www.youtube.com/watch?v=MU2uM4JVZ28)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
