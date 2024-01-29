@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Mangalavaaram &lpar;2023&rpar; - Original Background Score - DD5.1 + DTSHD5.1 &lpar;Upmixed&rpar; + 16Bit FLAC - 431MB](https://www.1tamilmv.world/index.php?/forums/topic/177582-mangalavaaram-2023-original-background-score-dd51-dtshd51-upmixed-16bit-flac-431mb/&do=findComment&comment=360104)
+- [Marichi &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.56GB &amp; 2.89 &amp; 2.96 &amp; 1.77 GB] - ESub &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177581-marichi-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-556gb-289-296-177-gb-esub-direct-download/&do=findComment&comment=360103)
+- [Mathimaran.2023.1080p, 720p .AMZN.WEB-DL.DDP5.1 &lpar; Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177580-mathimaran20231080p-720p-amznweb-dlddp51-direct-download/&do=findComment&comment=360102)
 - [Yuvan.Yuvathi.2011.Tamil.480p.DVD5Rip.x264.AAC2.0 - 1.2GB](https://www.1tamilmv.world/index.php?/forums/topic/177575-yuvanyuvathi2011tamil480pdvd5ripx264aac20-12gb/&do=findComment&comment=360101)
 - [Singam 3 &lpar;2017&rpar; Tamil Bluray - 1080p HQ - x265 HEVC 10bit - &lpar;DDP.5.1&rpar; - 4.2GB - UE](https://www.1tamilmv.world/index.php?/forums/topic/177574-singam-3-2017-tamil-bluray-1080p-hq-x265-hevc-10bit-ddp51-42gb-ue/&do=findComment&comment=360100)
-- [Siva Manasula Sakthi &lpar;2009&rpar; | Tamil | TRUE HD | 1080p  x264 | &lpar;DD+5.1 - 192Kbps &amp; AAC&rpar; | 3.2 GB](https://www.1tamilmv.world/index.php?/forums/topic/149712-siva-manasula-sakthi-2009-tamil-true-hd-1080p-x264-dd51-192kbps-aac-32-gb/&do=findComment&comment=360099)
-- [Thalaikkavasamum 4 Nanbargalum &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - AAC - 2.7GB - 1.4GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.world/index.php?/forums/topic/177572-thalaikkavasamum-4-nanbargalum-2023-tamil-true-web-dl-1080p-720p-avc-hevc-aac-27gb-14gb-900mb-x264-700mb-400mb-250mb/&do=findComment&comment=360098)
-- [4554 &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 2.4GB - 1.2GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.world/index.php?/forums/topic/177578-4554-2022-tamil-true-web-dl-1080p-720p-avc-hevc-aac-20-24gb-12gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=360097)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
