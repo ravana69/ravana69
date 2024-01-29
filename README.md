@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [29-1-2024]](https://www.1tamilmv.world/index.php?/forums/topic/177576-movies-collection-all-languages-4k-1080p-720p-576p-480p-29-1-2024/&do=findComment&comment=360080)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [26-1-2024]](https://www.1tamilmv.world/index.php?/forums/topic/177529-movies-collection-all-languages-4k-1080p-720p-576p-480p-26-1-2024/&do=findComment&comment=360079)
-- [Pirates.of.the.Caribbean  &lpar;Gdrive&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/170679-piratesofthecaribbean-gdrive/&do=findComment&comment=360078)
-- [Yuvan.Yuvathi.2011.Tamil.480p.DVD5Rip.x264.AAC2.0 - 1.2GB](https://www.1tamilmv.world/index.php?/forums/topic/177575-yuvanyuvathi2011tamil480pdvd5ripx264aac20-12gb/&do=findComment&comment=360077)
-- [Singam 3 &lpar;2017&rpar; Tamil Bluray - 1080p HQ - x265 HEVC 10bit - &lpar;DDP.5.1&rpar; - 4.2GB - UE](https://www.1tamilmv.world/index.php?/forums/topic/177574-singam-3-2017-tamil-bluray-1080p-hq-x265-hevc-10bit-ddp51-42gb-ue/&do=findComment&comment=360076)
+- [King of the Lost World &lpar;2005&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 2GB &amp; 800MB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177571-king-of-the-lost-world-2005-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-2gb-800mb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=360087)
+- [The Ten Commandments &lpar;2006&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Eng&rpar; - 3GB &amp; 1.3GB | x264 - &lpar;Tamil&rpar; - 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177565-the-ten-commandments-2006-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-eng-3gb-13gb-x264-tamil-450mb-esub/&do=findComment&comment=360086)
+- [Fear the Walking Dead &lpar;2023&rpar; S08 EP &lpar;01-12&rpar; TRUE WEB-DL - [1080p, 720p - [Tamil + Hindi + Eng] - &lpar;DD+ 5.1-192Kbps&rpar; - 7.5GB - 3.4GB - 1.5GB] - MSub](https://www.1tamilmv.world/index.php?/forums/topic/177543-fear-the-walking-dead-2023-s08-ep-01-12-true-web-dl-1080p-720p-tamil-hindi-eng-dd-51-192kbps-75gb-34gb-15gb-msub/&do=findComment&comment=360085)
+- [Singam 3 &lpar;2017&rpar; Tamil Bluray - 1080p HQ - x265 HEVC 10bit - &lpar;DDP.5.1&rpar; - 4.2GB - UE](https://www.1tamilmv.world/index.php?/forums/topic/177574-singam-3-2017-tamil-bluray-1080p-hq-x265-hevc-10bit-ddp51-42gb-ue/&do=findComment&comment=360084)
+- [Yuvan.Yuvathi.2011.Tamil.480p.DVD5Rip.x264.AAC2.0 - 1.2GB](https://www.1tamilmv.world/index.php?/forums/topic/177575-yuvanyuvathi2011tamil480pdvd5ripx264aac20-12gb/&do=findComment&comment=360083)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
