@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Kuru Kuru Macham - Audio Song | Kuppivala | Premnazeer, Ambika, Nilambur Ayisha | M. S. Baburaj](https://www.youtube.com/watch?v=ICiI76iaQNU)
-- [Ammoommakkili Vaayaadi  | Chandralekha | Pooja Batra | Sukanya | Innocent | Nedumudi Venu](https://www.youtube.com/watch?v=OUysij1B3VE)
-- [Pookkari Penne | HanuMan(Malayalam)| Prasanth Varma|Teja Sajja, Amritha |GowraHari, Yogi Sekar, Arun](https://www.youtube.com/watch?v=an0UmIwVTzg)
-- [നഷ്ടങ്ങളും കഷ്ടങ്ങളും നീക്കി മനഃസമാധാനമേകും ഗാനങ്ങൾ |Malayalam Christian Devotional Songs |Kester](https://www.youtube.com/watch?v=2aivP5FeAMQ)
-- [A.R. Rahman, Sarath Santosh - Jalali (Lyric Video [From "Lal Salaam"])](https://www.youtube.com/watch?v=Iir1V-gXX_c)
-- [Kattaadithanalum | Classmates | Vidhu Prathap | Reju Joseph | Ramesh Babu | Cicily | Alex Paul](https://www.youtube.com/watch?v=ErutBn04vf8)
+- [പ്രഭാത പ്രാര്‍ത്ഥന January 30 # Athiravile Prarthana 30th January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=fr9-qkimEys)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=HqXf8IrKWF0)
+- [നിലാത്തിങ്കൾ ചിരി മായും..| കെ ജെ യേശുദാസ് | കെ എസ് ചിത്ര | Shankar Mahadevan | Selected Film songs](https://www.youtube.com/watch?v=1z2KElKsYD4)
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 30th January 24](https://www.youtube.com/watch?v=Cbypf7ZECVA)
+- [29 January 2024](https://www.youtube.com/watch?v=I6RTpYRx2Ww)
+- [Chandanashilayil | Kulam | Bhanupriya | MG Radhakrishnan | KS Chithra | KJ Yesudas |](https://www.youtube.com/watch?v=v8HYADHieHo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
