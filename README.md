@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Maashinu | Amal Shankar | Albin Manjaly | Ajeesh Dasan | Aravinda Krishnan | Swiya](https://www.youtube.com/watch?v=kyrpsnR6VuA)
-- [Ambarappoo Veethiyil Video Song | Irupathaam Noottandu | KJ Yesudas | Shyam | Chunakkara Ramankutty](https://www.youtube.com/watch?v=RHrexYxnOUg)
-- [ഇസ്രായേലും ഈജിപ്റ്റും | Yeshu Raksha Namam #frshajithumpechirayil #shorts #jijithomson #thampixavier](https://www.youtube.com/watch?v=dYC6_M_1_yM)
-- [Vachanamrutham | വചനാമൃതം | Christian Devotional Songs | ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Audio Jukebox](https://www.youtube.com/watch?v=8DwAG9fa-nk)
-- [മനസിനെ ഒരു മായാലോകത്തേക്ക് കൂട്ടികൊണ്ട് പോകുവാൻ കഴിവുള്ള മലയാളസിനിമയിലെ ഉന്മാദഗാനങ്ങൾ !](https://www.youtube.com/watch?v=FvyhPGjGeL0)
-- [Gangayamunakale | Eniyum Puzhayozhukum | G Devarajan | KJ Yesudas | Soman | Lakshmi](https://www.youtube.com/watch?v=MeQ85IpCwKI)
+- [ദൈവം നിന്നെ നടത്തും.  | Rev. Aneesh P Joseph | #shorts #motivationalvideo](https://www.youtube.com/watch?v=BtgpL7xoc-w)
+- [Kanna Aaromalunnikkanna Video Song | Aromalunni | KJ Yesudas | P Susheela | Vayalar | G Devarajan](https://www.youtube.com/watch?v=lzTukPAjm94)
+- [Chenthamara Theno | 916 #haricharan #mjayachandran #shortsfeed #shorts #reels #filmsongs](https://www.youtube.com/watch?v=IRlZ_hKbvQ8)
+- [Vineeth Sreenivasan | Video Jukebox | Evergreen Hit Malayalam Film Songs | Cinema Songs](https://www.youtube.com/watch?v=9HsjPiVHgSU)
+- [Maanmizhi Poovu | Mahasamudram | PV Preetha | M Jayachandran | Kaithapram](https://www.youtube.com/watch?v=4gL-gfnJ9E4)
+- [കുന്നേൽ പള്ളി കുർബാനയ്ക്ക് മലകേറി പോകുമ്പം.. കുരിശായ് ചുമന്നില്ല്യോടാ...  പാപ്പീ.... അപ്പച്ചാ....](https://www.youtube.com/watch?v=sV5Z37qDz98)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
