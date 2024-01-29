@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Marichi &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.7GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177579-marichi-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-27gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=360108)
+- [4554 &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 2.4GB - 1.2GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.world/index.php?/forums/topic/177578-4554-2022-tamil-true-web-dl-1080p-720p-avc-hevc-aac-20-24gb-12gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=360107)
+- [25 Tamil Movies - JC / NF / SS WEB DL - H264 / H265 - DDP5.1 - [2160p &amp; 1080p &amp; 720p - 225GB] [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/136595-25-tamil-movies-jc-nf-ss-web-dl-h264-h265-ddp51-2160p-1080p-720p-225gb-google-drive/&do=findComment&comment=360106)
+- [Aval &lpar;2017&rpar; Tamil 1080p NF WEB-DL DDP 5.1 &lpar;640kbps&rpar; Esubs  -[6.4GB G-DRIVE] - Ninja 360](https://www.1tamilmv.world/index.php?/forums/topic/111181-aval-2017-tamil-1080p-nf-web-dl-ddp-51-640kbps-esubs-64gb-g-drive-ninja-360/&do=findComment&comment=360105)
 - [Mangalavaaram &lpar;2023&rpar; - Original Background Score - DD5.1 + DTSHD5.1 &lpar;Upmixed&rpar; + 16Bit FLAC - 431MB](https://www.1tamilmv.world/index.php?/forums/topic/177582-mangalavaaram-2023-original-background-score-dd51-dtshd51-upmixed-16bit-flac-431mb/&do=findComment&comment=360104)
-- [Marichi &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 5.56GB &amp; 2.89 &amp; 2.96 &amp; 1.77 GB] - ESub &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177581-marichi-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-556gb-289-296-177-gb-esub-direct-download/&do=findComment&comment=360103)
-- [Mathimaran.2023.1080p, 720p .AMZN.WEB-DL.DDP5.1 &lpar; Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177580-mathimaran20231080p-720p-amznweb-dlddp51-direct-download/&do=findComment&comment=360102)
-- [Yuvan.Yuvathi.2011.Tamil.480p.DVD5Rip.x264.AAC2.0 - 1.2GB](https://www.1tamilmv.world/index.php?/forums/topic/177575-yuvanyuvathi2011tamil480pdvd5ripx264aac20-12gb/&do=findComment&comment=360101)
-- [Singam 3 &lpar;2017&rpar; Tamil Bluray - 1080p HQ - x265 HEVC 10bit - &lpar;DDP.5.1&rpar; - 4.2GB - UE](https://www.1tamilmv.world/index.php?/forums/topic/177574-singam-3-2017-tamil-bluray-1080p-hq-x265-hevc-10bit-ddp51-42gb-ue/&do=findComment&comment=360100)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
