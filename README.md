@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Maashinu | Amal Shankar | Albin Manjaly | Ajeesh Dasan | Aravinda Krishnan | Swiya](https://www.youtube.com/watch?v=kyrpsnR6VuA)
+- [Ambarappoo Veethiyil Video Song | Irupathaam Noottandu | KJ Yesudas | Shyam | Chunakkara Ramankutty](https://www.youtube.com/watch?v=RHrexYxnOUg)
 - [ഇസ്രായേലും ഈജിപ്റ്റും | Yeshu Raksha Namam #frshajithumpechirayil #shorts #jijithomson #thampixavier](https://www.youtube.com/watch?v=dYC6_M_1_yM)
 - [Vachanamrutham | വചനാമൃതം | Christian Devotional Songs | ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Audio Jukebox](https://www.youtube.com/watch?v=8DwAG9fa-nk)
 - [മനസിനെ ഒരു മായാലോകത്തേക്ക് കൂട്ടികൊണ്ട് പോകുവാൻ കഴിവുള്ള മലയാളസിനിമയിലെ ഉന്മാദഗാനങ്ങൾ !](https://www.youtube.com/watch?v=FvyhPGjGeL0)
 - [Gangayamunakale | Eniyum Puzhayozhukum | G Devarajan | KJ Yesudas | Soman | Lakshmi](https://www.youtube.com/watch?v=MeQ85IpCwKI)
-- [Kandu Njan | Abhimanyu | Raveendran | M G Sreekumar | Kaithapram #SongOfTheDay](https://www.youtube.com/watch?v=B7jy4X-W6f0)
-- [YESHUVIN NIZHALAKUVAN | #shorts | LIBIN SCARIA | Fr. JUBIN MARIA KALLIDAYIL SDV](https://www.youtube.com/watch?v=D2Y1C2VvgcU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
