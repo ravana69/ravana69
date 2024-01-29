@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nenjile Nenjile | Video Song | 1983 | Shankar Mahadevan | Gopi Sundar | Nivin Pauly | Abrid Shine](https://www.youtube.com/watch?v=l9UYjPBu3mc)
+- [ഒരു ദിവസത്തിന്റെ നന്മകൾ മുഴുവനേകും  ക്രിസ്തീയ ഗാനങ്ങൾ  | Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=-p1aUhHy8G8)
 - [Madhu Old Malayalam Movie Songs |Vellam Remastered Malayalam Songs | K. J. Yesudas, P. Madhuri](https://www.youtube.com/watch?v=4CQTw7MttVY)
 - [Pakal Kinaavil Palavattam | Thattakam | Sreehari | Ranjitha | Jayaraj | Yesudas | Kaithapram](https://www.youtube.com/watch?v=Lv8kzMMeI_Q)
 - [Enne Karuthunnavan #shortsvideo](https://www.youtube.com/watch?v=eWURfrTs7Rc)
 - [മാതാവിൻറെ  പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#kreupasanam  daily prayer for 29](https://www.youtube.com/watch?v=MU2uM4JVZ28)
-- [Japamala 29th of January 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 29th of January 24](https://www.youtube.com/watch?v=E9En4PgR8w4)
-- [ഇന്ന് ജനുവരി 29എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala #santhosham](https://www.youtube.com/watch?v=GyxDPkSE_F4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
