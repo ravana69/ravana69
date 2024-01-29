@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Amrutham &lpar;2001&rpar; Complete S01 &lpar;EP01 - EP313&rpar; Merged ZEE5 WEB-DL - [720p &amp; 576p - AVC - Telugu - 7.5GB - 3.5GB] - x265 [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/175664-amrutham-2001-complete-s01-ep01-ep313-merged-zee5-web-dl-720p-576p-avc-telugu-75gb-35gb-x265-google-drive/&do=findComment&comment=360117)
 - [Marichi &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.7GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177579-marichi-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-27gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=360116)
 - [4554 &lpar;2022&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 2.4GB - 1.2GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.world/index.php?/forums/topic/177578-4554-2022-tamil-true-web-dl-1080p-720p-avc-hevc-aac-20-24gb-12gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=360115)
 - [Thalaikkavasamum 4 Nanbargalum &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - AAC - 2.7GB - 1.4GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.world/index.php?/forums/topic/177572-thalaikkavasamum-4-nanbargalum-2023-tamil-true-web-dl-1080p-720p-avc-hevc-aac-27gb-14gb-900mb-x264-700mb-400mb-250mb/&do=findComment&comment=360114)
 - [Break Up Party &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - AAC - 2GB &amp; 1GB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.world/index.php?/forums/topic/177573-break-up-party-2023-tamil-true-web-dl-1080p-720p-avc-aac-2gb-1gb-x264-700mb-400mb-250mb/&do=findComment&comment=360113)
-- [King of the Lost World &lpar;2005&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 2GB &amp; 800MB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177571-king-of-the-lost-world-2005-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-2gb-800mb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=360112)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
