@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kuru Kuru Macham - Audio Song | Kuppivala | Premnazeer, Ambika, Nilambur Ayisha | M. S. Baburaj](https://www.youtube.com/watch?v=ICiI76iaQNU)
+- [Ammoommakkili Vaayaadi  | Chandralekha | Pooja Batra | Sukanya | Innocent | Nedumudi Venu](https://www.youtube.com/watch?v=OUysij1B3VE)
+- [Pookkari Penne | HanuMan(Malayalam)| Prasanth Varma|Teja Sajja, Amritha |GowraHari, Yogi Sekar, Arun](https://www.youtube.com/watch?v=an0UmIwVTzg)
+- [നഷ്ടങ്ങളും കഷ്ടങ്ങളും നീക്കി മനഃസമാധാനമേകും ഗാനങ്ങൾ |Malayalam Christian Devotional Songs |Kester](https://www.youtube.com/watch?v=2aivP5FeAMQ)
 - [A.R. Rahman, Sarath Santosh - Jalali (Lyric Video [From "Lal Salaam"])](https://www.youtube.com/watch?v=Iir1V-gXX_c)
-- [ദൈവം നിന്നെ നടത്തും.  | Rev. Aneesh P Joseph | #shorts #motivationalvideo](https://www.youtube.com/watch?v=BtgpL7xoc-w)
-- [Kanna Aaromalunnikkanna Video Song | Aromalunni | KJ Yesudas | P Susheela | Vayalar | G Devarajan](https://www.youtube.com/watch?v=lzTukPAjm94)
-- [Chenthamara Theno | 916 #haricharan #mjayachandran #shortsfeed #shorts #reels #filmsongs](https://www.youtube.com/watch?v=IRlZ_hKbvQ8)
-- [Vineeth Sreenivasan | Video Jukebox | Evergreen Hit Malayalam Film Songs | Cinema Songs](https://www.youtube.com/watch?v=9HsjPiVHgSU)
-- [Maanmizhi Poovu | Mahasamudram | PV Preetha | M Jayachandran | Kaithapram](https://www.youtube.com/watch?v=4gL-gfnJ9E4)
+- [Kattaadithanalum | Classmates | Vidhu Prathap | Reju Joseph | Ramesh Babu | Cicily | Alex Paul](https://www.youtube.com/watch?v=ErutBn04vf8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
