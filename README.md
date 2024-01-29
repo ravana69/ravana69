@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [A.R. Rahman, Sarath Santosh - Jalali (Lyric Video [From "Lal Salaam"])](https://www.youtube.com/watch?v=Iir1V-gXX_c)
 - [ദൈവം നിന്നെ നടത്തും.  | Rev. Aneesh P Joseph | #shorts #motivationalvideo](https://www.youtube.com/watch?v=BtgpL7xoc-w)
 - [Kanna Aaromalunnikkanna Video Song | Aromalunni | KJ Yesudas | P Susheela | Vayalar | G Devarajan](https://www.youtube.com/watch?v=lzTukPAjm94)
 - [Chenthamara Theno | 916 #haricharan #mjayachandran #shortsfeed #shorts #reels #filmsongs](https://www.youtube.com/watch?v=IRlZ_hKbvQ8)
 - [Vineeth Sreenivasan | Video Jukebox | Evergreen Hit Malayalam Film Songs | Cinema Songs](https://www.youtube.com/watch?v=9HsjPiVHgSU)
 - [Maanmizhi Poovu | Mahasamudram | PV Preetha | M Jayachandran | Kaithapram](https://www.youtube.com/watch?v=4gL-gfnJ9E4)
-- [കുന്നേൽ പള്ളി കുർബാനയ്ക്ക് മലകേറി പോകുമ്പം.. കുരിശായ് ചുമന്നില്ല്യോടാ...  പാപ്പീ.... അപ്പച്ചാ....](https://www.youtube.com/watch?v=sV5Z37qDz98)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
