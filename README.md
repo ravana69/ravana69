@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Miruthan &lpar;2016&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 3.5GB - 2.4GB - 1.4GB &amp; 950MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177588-miruthan-2016-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-35gb-24gb-14gb-950mb-x264-700mb-400mb-esub/&do=findComment&comment=360124)
+- [Animal &lpar;Tamil&rpar; DELUXE EDITION Original Motion Picture Soundtrack Master Quality 24bit 48kHz - FLAC - Various Artists Musical - 470 MB](https://www.1tamilmv.world/index.php?/forums/topic/177587-animal-tamil-deluxe-edition-original-motion-picture-soundtrack-master-quality-24bit-48khz-flac-various-artists-musical-470-mb/&do=findComment&comment=360123)
 - [Lal Salaam &lpar;2024&rpar; Original Motion Picture Soundtrack Master Quality 24bit - FLAC - A.R. Rahman Musical - 330 MB](https://www.1tamilmv.world/index.php?/forums/topic/177586-lal-salaam-2024-original-motion-picture-soundtrack-master-quality-24bit-flac-ar-rahman-musical-330-mb/&do=findComment&comment=360122)
 - [My Dress-Up Darling S01 EP11 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 250MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177585-my-dress-up-darling-s01-ep11-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-250mb-200mb-esub-google-drive/&do=findComment&comment=360121)
 - [Akebi&#39;s Sailor Uniform S01 EP10 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 300MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177584-akebis-sailor-uniform-s01-ep10-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-300mb-200mb-esub-google-drive/&do=findComment&comment=360120)
-- [50 Tamil Movies - 1080p - x265 HEVC - DD5.1/DD2.0/AAC2.0 - ESub - 75GB [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/109310-50-tamil-movies-1080p-x265-hevc-dd51dd20aac20-esub-75gb-google-drive/&do=findComment&comment=360119)
-- [A Couple of Cuckoos S01 EP12 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 350MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177583-a-couple-of-cuckoos-s01-ep12-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-350mb-200mb-esub-google-drive/&do=findComment&comment=360118)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
