@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oru Devathai Vanthu   Nee Varuvai Ena   S A Rajkumar   Hi Res Audio](https://www.youtube.com/watch?v=aOi7jSInIZg)
+- [En Jeevanadhane | Elizabeth Raju #shorts #malayalamchristiansongs](https://www.youtube.com/watch?v=uktQqFjIpdc)
 - [ELLAM MARANNU NIN | #shorts | Josna Jose | Fr Shaji Thumpechirayil](https://www.youtube.com/watch?v=iYhaO74FTlA)
 - [മാതാവിൻറെ  പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#kreupasanam  daily prayer & songs](https://www.youtube.com/watch?v=nJBKpau0q9w)
 - [Japamala 30th of January 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 30th of January 24](https://www.youtube.com/watch?v=P8mcjUls2cQ)
 - [ഇന്ന് ജനുവരി 30 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  dhukkathi](https://www.youtube.com/watch?v=1sEcnS0HwOc)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=QUy2YHe091g)
-- [പ്രഭാത പ്രാര്‍ത്ഥന January 30 # Athiravile Prarthana 30th January 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=fr9-qkimEys)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
