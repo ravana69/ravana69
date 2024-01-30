@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പാട്ടിനോടുള്ള ഇഷ്ടത്താൽ ഏറെ ഉത്സാഹത്തോടെ ഇരുന്നുകേൾക്കുന്ന സിനിമാഗാനങ്ങൾ | EVERGREEN SONGS MALAYALAM](https://www.youtube.com/watch?v=_pFTKo0IDxc)
+- [Enthinee Jeevitha Vesham | Kazhukan | Sreekumaran Thambi | MK Arjunan | KJ Yesudas | Jayan Songs](https://www.youtube.com/watch?v=2ISE4cvw3wA)
+- [Vilichathenthinu | Gramophone | Vidyasagar | K J Yesudas | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=0zNEvNxnkdM)
 - [Devangane | Kayam #shortsvideo](https://www.youtube.com/watch?v=5VQeDIGOgIc)
 - [Pookkari Penne | HanuMan(Malayalam) #malayalamsongs #tejasajja #hanuman #tipsmalayalam](https://www.youtube.com/watch?v=FeayuktbMb8)
 - [Imbam Audio Jukebox | PS Jayhari | Sreejith Chandran | Deepak Parambol | Lalu Alex | Meera Vasudev](https://www.youtube.com/watch?v=XbF1I1qmcmo)
-- [Madhumasa Mounaragam|Karaoke Video| Rathinirvedam |Shreya Ghoshal |Murugan Kattakkada|M Jayachandran](https://www.youtube.com/watch?v=RUFXh78YtqI)
-- [Udayasooryan | Nrithasaala | K P Brahmanandhan | Prem Nazeer | P Bhaskaran | AB Raj](https://www.youtube.com/watch?v=kd612rOdVFk)
-- [Samvrutha Sunil, Vineeth Old Malayalam Movie Song |Moonaamathoraal Remastered Malayalam Son |Manjari](https://www.youtube.com/watch?v=FHEqKPZnKuY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
