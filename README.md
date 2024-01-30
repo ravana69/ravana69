@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 31st January 24](https://www.youtube.com/watch?v=R4ac8Qk0-Bs)
+- [30 January 2024](https://www.youtube.com/watch?v=LSauhMNttTI)
 - [Ithalazhakil | Innalekalillathe | KS Chithra | Manju Warrier | Biju Menon | Rex Issac](https://www.youtube.com/watch?v=zDf-7MKilHk)
 - [Kozhi Koovum Neram......| Azhagan Movie | Mammootty #shorts](https://www.youtube.com/watch?v=gJ9JvEdRV6c)
 - [G.V. Prakash Kumar, Sid Sriram - Netru Varai (Lyric Video [From "Siren"])](https://www.youtube.com/watch?v=-MDBal_NNXo)
 - [മനസിൽ മോഹമുണർത്തുന്ന നയനങ്ങളാൽ പ്രേക്ഷകഹൃദയം കീഴടക്കിയ നായിക ! HITS OF KAVYA MADHAVAN](https://www.youtube.com/watch?v=G1I28QK5jN4)
-- [Kalapila - Video Song | Jerry | Kottayam Naseer, Pramod Veliyanaadu | Arun Vijay | Zia Ul Haq](https://www.youtube.com/watch?v=MzFRAlAJfxw)
-- [Manchadi Manimuthu | Pothan Vava | MG Sreekumar | Jyotsna | Alex Paul | Vayalar Sarath Chandra Varma](https://www.youtube.com/watch?v=jyjwNxHDos4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
