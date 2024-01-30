@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Anjanadri Malayalam Theme Song | HanuMan (Malayalam) #malayalamsongs #prasanthvarma #hanuman](https://www.youtube.com/watch?v=3FEUx4g9Rc4)
-- [Thumpappookkaattil | Audio Song | Ninnishtam Ennishtam | Mohanlal | Priya KS Chithra |P Jayachandran](https://www.youtube.com/watch?v=h4XoCUp8boE)
-- [Pala Naal - Video Song | Philip's | Hesham Abdul Wahab | Vineeth Sreenivasan | Alfred Kurian](https://www.youtube.com/watch?v=VvoPM7-HMWQ)
-- [പാട്ടിനോടുള്ള ഇഷ്ടത്താൽ ഏറെ ഉത്സാഹത്തോടെ ഇരുന്നുകേൾക്കുന്ന സിനിമാഗാനങ്ങൾ | EVERGREEN SONGS MALAYALAM](https://www.youtube.com/watch?v=_pFTKo0IDxc)
-- [Enthinee Jeevitha Vesham | Kazhukan | Sreekumaran Thambi | MK Arjunan | KJ Yesudas | Jayan Songs](https://www.youtube.com/watch?v=2ISE4cvw3wA)
-- [Vilichathenthinu | Gramophone | Vidyasagar | K J Yesudas | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=0zNEvNxnkdM)
+- [Manchadi Manimuthu | Pothan Vava | MG Sreekumar | Jyotsna | Alex Paul | Vayalar Sarath Chandra Varma](https://www.youtube.com/watch?v=jyjwNxHDos4)
+- [Unni Kumaara Song | Ulsavamelam | KJ Yesudas #shorts](https://www.youtube.com/watch?v=PRD0IJIPRn8)
+- [Kinavinte Minarathil | Adaminte Makan Abu #manoramamusic #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=StqHKz3ZOKI)
+- [Paalerum Nadaya Video Song | Mammootty | Shwetha Menon | Bijibal | TP Rajeevan | Ranjith](https://www.youtube.com/watch?v=kS3EhIpU_CQ)
+- [Oru Penkidaavu | Prajapathi | Jassie Gift | Thej Mervin | Gireesh Puthenchery](https://www.youtube.com/watch?v=_cXJkBR0HV4)
+- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 30th January 2024](https://www.youtube.com/watch?v=1Ez9MyRFExU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
