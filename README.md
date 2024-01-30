@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [G.V. Prakash Kumar, Sid Sriram - Netru Varai (Lyric Video [From "Siren"])](https://www.youtube.com/watch?v=-MDBal_NNXo)
+- [മനസിൽ മോഹമുണർത്തുന്ന നയനങ്ങളാൽ പ്രേക്ഷകഹൃദയം കീഴടക്കിയ നായിക ! HITS OF KAVYA MADHAVAN](https://www.youtube.com/watch?v=G1I28QK5jN4)
 - [Kalapila - Video Song | Jerry | Kottayam Naseer, Pramod Veliyanaadu | Arun Vijay | Zia Ul Haq](https://www.youtube.com/watch?v=MzFRAlAJfxw)
 - [Manchadi Manimuthu | Pothan Vava | MG Sreekumar | Jyotsna | Alex Paul | Vayalar Sarath Chandra Varma](https://www.youtube.com/watch?v=jyjwNxHDos4)
 - [പ്രിയമുള്ളവരേ ബന്ധങ്ങൾ ഏറെ വിലപ്പെട്ടതാണ്.  | Rev. Aneesh P Joseph | #shorts #motivationalvideo](https://www.youtube.com/watch?v=90D_doCk3Bo)
 - [Unni Kumaara Song | Ulsavamelam | KJ Yesudas #shorts](https://www.youtube.com/watch?v=PRD0IJIPRn8)
-- [Kinavinte Minarathil | Adaminte Makan Abu #manoramamusic #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=StqHKz3ZOKI)
-- [Paalerum Nadaya Video Song | Mammootty | Shwetha Menon | Bijibal | TP Rajeevan | Ranjith](https://www.youtube.com/watch?v=kS3EhIpU_CQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
