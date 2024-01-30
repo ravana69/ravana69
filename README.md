@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Anjanadri Malayalam Theme Song | HanuMan (Malayalam) #malayalamsongs #prasanthvarma #hanuman](https://www.youtube.com/watch?v=3FEUx4g9Rc4)
 - [Thumpappookkaattil | Audio Song | Ninnishtam Ennishtam | Mohanlal | Priya KS Chithra |P Jayachandran](https://www.youtube.com/watch?v=h4XoCUp8boE)
 - [Pala Naal - Video Song | Philip's | Hesham Abdul Wahab | Vineeth Sreenivasan | Alfred Kurian](https://www.youtube.com/watch?v=VvoPM7-HMWQ)
 - [പാട്ടിനോടുള്ള ഇഷ്ടത്താൽ ഏറെ ഉത്സാഹത്തോടെ ഇരുന്നുകേൾക്കുന്ന സിനിമാഗാനങ്ങൾ | EVERGREEN SONGS MALAYALAM](https://www.youtube.com/watch?v=_pFTKo0IDxc)
 - [Enthinee Jeevitha Vesham | Kazhukan | Sreekumaran Thambi | MK Arjunan | KJ Yesudas | Jayan Songs](https://www.youtube.com/watch?v=2ISE4cvw3wA)
 - [Vilichathenthinu | Gramophone | Vidyasagar | K J Yesudas | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=0zNEvNxnkdM)
-- [Devangane | Kayam #shortsvideo](https://www.youtube.com/watch?v=5VQeDIGOgIc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
