@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kalapila - Video Song | Jerry | Kottayam Naseer, Pramod Veliyanaadu | Arun Vijay | Zia Ul Haq](https://www.youtube.com/watch?v=MzFRAlAJfxw)
 - [Manchadi Manimuthu | Pothan Vava | MG Sreekumar | Jyotsna | Alex Paul | Vayalar Sarath Chandra Varma](https://www.youtube.com/watch?v=jyjwNxHDos4)
+- [പ്രിയമുള്ളവരേ ബന്ധങ്ങൾ ഏറെ വിലപ്പെട്ടതാണ്.  | Rev. Aneesh P Joseph | #shorts #motivationalvideo](https://www.youtube.com/watch?v=90D_doCk3Bo)
 - [Unni Kumaara Song | Ulsavamelam | KJ Yesudas #shorts](https://www.youtube.com/watch?v=PRD0IJIPRn8)
 - [Kinavinte Minarathil | Adaminte Makan Abu #manoramamusic #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=StqHKz3ZOKI)
 - [Paalerum Nadaya Video Song | Mammootty | Shwetha Menon | Bijibal | TP Rajeevan | Ranjith](https://www.youtube.com/watch?v=kS3EhIpU_CQ)
-- [Oru Penkidaavu | Prajapathi | Jassie Gift | Thej Mervin | Gireesh Puthenchery](https://www.youtube.com/watch?v=_cXJkBR0HV4)
-- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 30th January 2024](https://www.youtube.com/watch?v=1Ez9MyRFExU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
