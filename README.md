@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Pokathe Kariyila Katte Video Song | Rappakal | Mammootty | Afsal | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=OU-zCrsFHR0)
+- [Poomaaname Video Song | Nirakkoottu | KS Chithra | Mammootty | Sumalatha](https://www.youtube.com/watch?v=onjBgeD1Lpg)
+- [Kadukittu Varuthoru | Hallo | Cochin Ibrahim | Sangeetha Prabhu | Alex Paul](https://www.youtube.com/watch?v=cTmBK86WA9c)
 - [ഇൻ ഹരിഹർ നഗറിലെ അടിപൊളി ഗാനങ്ങൾ |  In Harihar Nagar Nonstop Video Song | Siddique Lal | MG Sreekumar](https://www.youtube.com/watch?v=Q52-_jUN7Xs)
 - [Adachitta Vathilil #newchristianvideosong #Adv.Reju Joseph #jojijohns #  #christiandevotionalsongs](https://www.youtube.com/watch?v=PSFWBR55M8Y)
 - [Snehanadhan | Daivasneham Niranja Kristheeya Bhakthiganngal | Audio Jukebox](https://www.youtube.com/watch?v=eczIYsbtAjY)
-- [നീറി നീറി നെഞ്ചകം പാടും രാഗം താളം പല്ലവി | #malayalamsongs | #sureshgopi | #yesudas | #ilayaraja](https://www.youtube.com/watch?v=xFDdL953hj0)
-- [മലയാളികളുടെ മനസിനെ കീഴടക്കിയ അതുല്യ സുന്ദര മാന്ത്രിക ഗാനങ്ങൾ | Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=OUrhQZAU10w)
-- [Manju Peyyana | Chandranudikkunna Dikkil | Vidyasagar| Sujatha Mohan | S Ramesan Nair #SongOfTheDay](https://www.youtube.com/watch?v=a9IkTAhx1EI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
