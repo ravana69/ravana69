@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Paramporul &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.9GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.world/index.php?/forums/topic/177614-paramporul-2024-telugu-true-web-dl-1080p-720p-avc-aac-20-29gb-13gb-x264-700mb-400mb/&do=findComment&comment=360223)
 - [Garadi &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 9.9GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177609-garadi-2023-kannada-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-99gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360222)
 - [Raa Raa Penimiti &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.1GB &amp; 1.1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177597-raa-raa-penimiti-2023-telugu-true-web-dl-1080p-720p-avc-aac-20-21gb-11gb-x264-700mb-400mb-esub/&do=findComment&comment=360221)
 - [The Beekeeper &lpar;2024&rpar; English TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB - 1.1GB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177596-the-beekeeper-2024-english-true-web-dl-1080p-720p-x264-dd51-640kbps-25gb-11gb-400mb-esub/&do=findComment&comment=360220)
 - [Fight to the Finish &lpar;2016&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB]](https://www.1tamilmv.world/index.php?/forums/topic/177611-fight-to-the-finish-2016-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-2gb-1gb-x264-tamil-telugu-hindi-450mb/&do=findComment&comment=360219)
-- [Chaitra - The Beginning of the End &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 5.3GB - 2.6GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.world/index.php?/forums/topic/177613-chaitra-the-beginning-of-the-end-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-aac-20-53gb-26gb-13gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=360218)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
