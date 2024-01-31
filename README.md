@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Pokathe Kariyila Katte Video Song | Rappakal | Mammootty | Afsal | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=OU-zCrsFHR0)
-- [Poomaaname Video Song | Nirakkoottu | KS Chithra | Mammootty | Sumalatha](https://www.youtube.com/watch?v=onjBgeD1Lpg)
-- [Kadukittu Varuthoru | Hallo | Cochin Ibrahim | Sangeetha Prabhu | Alex Paul](https://www.youtube.com/watch?v=cTmBK86WA9c)
-- [ഇൻ ഹരിഹർ നഗറിലെ അടിപൊളി ഗാനങ്ങൾ |  In Harihar Nagar Nonstop Video Song | Siddique Lal | MG Sreekumar](https://www.youtube.com/watch?v=Q52-_jUN7Xs)
-- [Adachitta Vathilil #newchristianvideosong #Adv.Reju Joseph #jojijohns #  #christiandevotionalsongs](https://www.youtube.com/watch?v=PSFWBR55M8Y)
-- [Snehanadhan | Daivasneham Niranja Kristheeya Bhakthiganngal | Audio Jukebox](https://www.youtube.com/watch?v=eczIYsbtAjY)
+- [തണൽ നൽകാൻ കഴിയുന്ന കാലത്തോളം വിലയുണ്ടാകും.  | Rev. Aneesh P Joseph | #shorts #motivationalvideo](https://www.youtube.com/watch?v=hig_yW6sr_4)
+- [Kasavulla Pattuduthu Video Song | Ulsavamelam | Sujatha Mohan | Mohan Sithara | ONV Kurup](https://www.youtube.com/watch?v=xRmAzglmJeM)
+- [Mizhineer - Lyrical Video | Manal Pakshikal | Mithun Jayaraj | Shanavas Shanu,Santhosh,Anjali](https://www.youtube.com/watch?v=LWZA3MZQ6o8)
+- [Sararanthal Minni Nilkkum | Changathipoocha | P Jayachandran | Ouseppachan | Gireesh Puthenchery](https://www.youtube.com/watch?v=k0LLGM_IJ3o)
+- [Mulla Malai Poomalai | Tribal Song | Anjana S Kumar  | Abhijith | Ram Surendar | Viral Folk Songs](https://www.youtube.com/watch?v=fvsmhM-qEnc)
+- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 31st January 2024](https://www.youtube.com/watch?v=9aTaNXmu09E)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
