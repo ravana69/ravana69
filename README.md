@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [SWARGATHIN VATHIL THURANNU | #shorts | KESTER | BLAZAN KAITHARA | HOLY GATE SONG](https://www.youtube.com/watch?v=pUzj_h_c58U)
+- [Karunanidhiye Kalvari Anpe | Wilson Piravom #ytshorts #christianshorts](https://www.youtube.com/watch?v=-8Y-emQ3scU)
 - [അതിമനോഹരമായ പഴയകാല ഗാനങ്ങൾ old christian songs malayalam with lyrics ! daily worship songs malayalam](https://www.youtube.com/watch?v=bkCQSPd-4WQ)
 - [Enne Snehicha Yeshuvin Arikil | Rakshakan | Tomy, Samji, Mithila Christian devotional Song Malayalam](https://www.youtube.com/watch?v=1Aw-SSltfM8)
 - [മാതാവിൻറെ പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#kreupasanam  prayer and songs](https://www.youtube.com/watch?v=csgQCp8l7S4)
 - [Japamala 31st of January 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 31st of January 2024](https://www.youtube.com/watch?v=EhoGfPfBC3Q)
-- [ഇന്ന് ജനുവരി 31 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാ #japamala  mahimayud](https://www.youtube.com/watch?v=F1tK7htFZ7c)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=KvJa9hUOCWQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
