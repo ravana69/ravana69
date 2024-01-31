@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Journey 3: From the Earth to the Moon - First Trailer | Dwayne Johnson | Josh Hutcherson | Vanessa](https://www.1tamilmv.world/index.php?/forums/topic/150696-journey-3-from-the-earth-to-the-moon-first-trailer-dwayne-johnson-josh-hutcherson-vanessa/&do=findComment&comment=360207)
+- [Avatar 3: The Seed Bearer - First Official Trailer | 20th Century Studios | Disney+ | JamesCameron](https://www.1tamilmv.world/index.php?/forums/topic/150695-avatar-3-the-seed-bearer-first-official-trailer-20th-century-studios-disney-jamescameron/&do=findComment&comment=360206)
 - [Goosebumps Duology &lpar;2015 - 2018&rpar; 2160p 4K HDR10 HEVC Multi Original &lpar;DD5.1&rpar; Audios [Telugu+Tamil+Hindi+English] - AC3 - x265 - 9GB - ESubs](https://www.1tamilmv.world/index.php?/forums/topic/177612-goosebumps-duology-2015-2018-2160p-4k-hdr10-hevc-multi-original-dd51-audios-telugutamilhindienglish-ac3-x265-9gb-esubs/&do=findComment&comment=360205)
 - [Migration &lpar;2023&rpar; AMZN WEB DL - H264/H265 - [Hindi + English] - DD5.1 - MSubs - [4K, 1080p &amp; 720p - 9.4GB - 5.4GB - 2.2GB - 900MB] [GDRIVE]](https://www.1tamilmv.world/index.php?/forums/topic/137323-migration-2023-amzn-web-dl-h264h265-hindi-english-dd51-msubs-4k-1080p-720p-94gb-54gb-22gb-900mb-gdrive/&do=findComment&comment=360204)
 - [Fight to the Finish &lpar;2016&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB]](https://www.1tamilmv.world/index.php?/forums/topic/177611-fight-to-the-finish-2016-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-2gb-1gb-x264-tamil-telugu-hindi-450mb/&do=findComment&comment=360203)
-- [Kaadhal &lpar;2004&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0 - 192Kbps&rpar; - 4.5GB - 2.6GB - 1.4GB &amp; 950MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177606-kaadhal-2004-tamil-true-web-dl-1080p-720p-avc-hevc-aac-20-192kbps-45gb-26gb-14gb-950mb-x264-700mb-400mb-esub/&do=findComment&comment=360202)
-- [Garadi &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 9.9GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177609-garadi-2023-kannada-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-99gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360201)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
