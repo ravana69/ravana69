@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Journey 3: From the Earth to the Moon - First Trailer | Dwayne Johnson | Josh Hutcherson | Vanessa](https://www.1tamilmv.world/index.php?/forums/topic/150696-journey-3-from-the-earth-to-the-moon-first-trailer-dwayne-johnson-josh-hutcherson-vanessa/&do=findComment&comment=360207)
-- [Avatar 3: The Seed Bearer - First Official Trailer | 20th Century Studios | Disney+ | JamesCameron](https://www.1tamilmv.world/index.php?/forums/topic/150695-avatar-3-the-seed-bearer-first-official-trailer-20th-century-studios-disney-jamescameron/&do=findComment&comment=360206)
-- [Goosebumps Duology &lpar;2015 - 2018&rpar; 2160p 4K HDR10 HEVC Multi Original &lpar;DD5.1&rpar; Audios [Telugu+Tamil+Hindi+English] - AC3 - x265 - 9GB - ESubs](https://www.1tamilmv.world/index.php?/forums/topic/177612-goosebumps-duology-2015-2018-2160p-4k-hdr10-hevc-multi-original-dd51-audios-telugutamilhindienglish-ac3-x265-9gb-esubs/&do=findComment&comment=360205)
-- [Migration &lpar;2023&rpar; AMZN WEB DL - H264/H265 - [Hindi + English] - DD5.1 - MSubs - [4K, 1080p &amp; 720p - 9.4GB - 5.4GB - 2.2GB - 900MB] [GDRIVE]](https://www.1tamilmv.world/index.php?/forums/topic/137323-migration-2023-amzn-web-dl-h264h265-hindi-english-dd51-msubs-4k-1080p-720p-94gb-54gb-22gb-900mb-gdrive/&do=findComment&comment=360204)
-- [Fight to the Finish &lpar;2016&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB]](https://www.1tamilmv.world/index.php?/forums/topic/177611-fight-to-the-finish-2016-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-2gb-1gb-x264-tamil-telugu-hindi-450mb/&do=findComment&comment=360203)
+- [Dasarathan &lpar;1993&rpar;.Tamil.1080p.HDTV.HEVC.AAC2.0 - 2.4GB](https://www.1tamilmv.world/index.php?/forums/topic/173718-dasarathan-1993tamil1080phdtvhevcaac20-24gb/&do=findComment&comment=360212)
+- [Unraveling the Cosmic Puzzle: Why Doesn&#39;t Radiation Dominate the Universe?](https://www.1tamilmv.world/index.php?/forums/topic/150698-unraveling-the-cosmic-puzzle-why-doesnt-radiation-dominate-the-universe/&do=findComment&comment=360211)
+- [We&#39;ve Never Found Anything Like Our Solar System. Is It a Freak in Space?](https://www.1tamilmv.world/index.php?/forums/topic/150702-weve-never-found-anything-like-our-solar-system-is-it-a-freak-in-space/&do=findComment&comment=360210)
+- [The Twilight Saga: Eternal Dawn - First Trailer | Kristen Stewart, Robert Pattinson, Taylor Lautner](https://www.1tamilmv.world/index.php?/forums/topic/150697-the-twilight-saga-eternal-dawn-first-trailer-kristen-stewart-robert-pattinson-taylor-lautner/&do=findComment&comment=360209)
+- [City Lights and Love Strikes | Taylor Swift Music Video](https://www.1tamilmv.world/index.php?/forums/topic/150711-city-lights-and-love-strikes-taylor-swift-music-video/&do=findComment&comment=360208)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
