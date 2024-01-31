@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Jujutsu Kaisen S02 EP02 BluRay 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 300MB - 250MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177605-jujutsu-kaisen-s02-ep02-bluray-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-300mb-250mb-esub-google-drive/&do=findComment&comment=360183)
+- [Jujutsu Kaisen S02 EP01 WEBRip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 350MB - 250MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177604-jujutsu-kaisen-s02-ep01-webrip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-350mb-250mb-esub-google-drive/&do=findComment&comment=360182)
 - [The Last Airbender &lpar;2010&rpar; &lpar;HD + Original Audios&rpar; - 1080p - AVC - [ Tamil + Telugu + Hindi + English ] &lpar;DDP.5.1&rpar; - 2.9GB - ESub - UE](https://www.1tamilmv.world/index.php?/forums/topic/177577-the-last-airbender-2010-hd-original-audios-1080p-avc-tamil-telugu-hindi-english-ddp51-29gb-esub-ue/&do=findComment&comment=360181)
 - [The Last Airbender &lpar;2010&rpar; &lpar;HD + Original Audios&rpar; - 1080p - AVC - [ Tamil + Telugu + Hindi + English ] &lpar;DDP.5.1&rpar; - 2.9GB - ESub - UE](https://www.1tamilmv.world/index.php?/forums/topic/177577-the-last-airbender-2010-hd-original-audios-1080p-avc-tamil-telugu-hindi-english-ddp51-29gb-esub-ue/&do=findComment&comment=360180)
 - [Animal &lpar;2023&rpar; TRUE WEB-DL - 4K SDR - 2160p HQ - HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - [Tamil + Telugu + Hindi + Malayalam + Kannada] - 21.5GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177591-animal-2023-true-web-dl-4k-sdr-2160p-hq-hevc-dd51-640kbps-tamil-telugu-hindi-malayalam-kannada-215gb-esub/&do=findComment&comment=360179)
-- [The Beekeeper &lpar;2024&rpar; English TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB - 1.1GB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177596-the-beekeeper-2024-english-true-web-dl-1080p-720p-x264-dd51-640kbps-25gb-11gb-400mb-esub/&do=findComment&comment=360178)
-- [Lal Salaam &lpar;2024&rpar; - SOUNDTRACK - A.R.R - DD5.1 + DTSHD5.1 &lpar;Upmixed&rpar; + 24Bit FLAC - 619MB](https://www.1tamilmv.world/index.php?/forums/topic/177603-lal-salaam-2024-soundtrack-arr-dd51-dtshd51-upmixed-24bit-flac-619mb/&do=findComment&comment=360177)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
