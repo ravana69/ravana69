@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [50 Tamil Movies - 1080p - x265 HEVC - DD5.1/DD2.0/AAC2.0 - ESub - 80GB [GDrive]](https://www.1tamilmv.world/index.php?/forums/topic/122143-50-tamil-movies-1080p-x265-hevc-dd51dd20aac20-esub-80gb-gdrive/&do=findComment&comment=360217)
+- [Chaitra - The Beginning of the End &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 5.3GB - 2.6GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.world/index.php?/forums/topic/177613-chaitra-the-beginning-of-the-end-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-aac-20-53gb-26gb-13gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=360216)
 - [Indira &lpar;1995&rpar;.Tamil.1080p.HDTV.HEVC.AAC2.0 - 2.2GB](https://www.1tamilmv.world/index.php?/forums/topic/173849-indira-1995tamil1080phdtvhevcaac20-22gb/&do=findComment&comment=360215)
 - [Kaadhal &lpar;2004&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0 - 192Kbps&rpar; - 4.5GB - 2.6GB - 1.4GB &amp; 950MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177606-kaadhal-2004-tamil-true-web-dl-1080p-720p-avc-hevc-aac-20-192kbps-45gb-26gb-14gb-950mb-x264-700mb-400mb-esub/&do=findComment&comment=360214)
 - [Miruthan &lpar;2016&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 3.5GB - 2.4GB - 1.4GB &amp; 950MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177588-miruthan-2016-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-35gb-24gb-14gb-950mb-x264-700mb-400mb-esub/&do=findComment&comment=360213)
-- [Dasarathan &lpar;1993&rpar;.Tamil.1080p.HDTV.HEVC.AAC2.0 - 2.4GB](https://www.1tamilmv.world/index.php?/forums/topic/173718-dasarathan-1993tamil1080phdtvhevcaac20-24gb/&do=findComment&comment=360212)
-- [Unraveling the Cosmic Puzzle: Why Doesn&#39;t Radiation Dominate the Universe?](https://www.1tamilmv.world/index.php?/forums/topic/150698-unraveling-the-cosmic-puzzle-why-doesnt-radiation-dominate-the-universe/&do=findComment&comment=360211)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
