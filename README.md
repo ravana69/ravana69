@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [THIRAKAL MAYUM | #shorts | New Christian Song | Bobby Xavier | |Nin Ormapolum](https://www.youtube.com/watch?v=_l7Wmh_omfg)
+- [Mohanlal  Super hit  Malayalam Movie Songs | Chenkol Movie Song | Remastered Malayalam Song](https://www.youtube.com/watch?v=LJACVcpl4Ww)
 - [Veera Raja Veera @ARRahman #malayalamsongs #tipsmalayalam #ponniyinselvan #ytshorts](https://www.youtube.com/watch?v=5hZdjCqoEq0)
 - [SWARGATHIN VATHIL THURANNU | #shorts | KESTER | BLAZAN KAITHARA | HOLY GATE SONG](https://www.youtube.com/watch?v=pUzj_h_c58U)
 - [Karunanidhiye Kalvari Anpe | Wilson Piravom #ytshorts #christianshorts](https://www.youtube.com/watch?v=-8Y-emQ3scU)
 - [അതിമനോഹരമായ പഴയകാല ഗാനങ്ങൾ old christian songs malayalam with lyrics ! daily worship songs malayalam](https://www.youtube.com/watch?v=bkCQSPd-4WQ)
-- [Enne Snehicha Yeshuvin Arikil | Rakshakan | Tomy, Samji, Mithila Christian devotional Song Malayalam](https://www.youtube.com/watch?v=1Aw-SSltfM8)
-- [മാതാവിൻറെ പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#kreupasanam  prayer and songs](https://www.youtube.com/watch?v=csgQCp8l7S4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
