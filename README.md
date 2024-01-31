@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Idhaya Kovil &lpar;1985&rpar;.Tamil.720p &amp; 1080p.Web-dl.x264.AAC2.0 - 2GB &amp; 4GB](https://www.1tamilmv.world/index.php?/forums/topic/171520-idhaya-kovil-1985tamil720p-1080pweb-dlx264aac20-2gb-4gb/&do=findComment&comment=360191)
 - [Neninthe &lpar;2008&rpar;.Telugu.1080p.DVD9Rip.x264.DD5.1 448Kbps.ESub - 5GB](https://www.1tamilmv.world/index.php?/forums/topic/177607-neninthe-2008telugu1080pdvd9ripx264dd51-448kbpsesub-5gb/&do=findComment&comment=360190)
 - [Kaadhal &lpar;2004&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0 - 192Kbps&rpar; - 4.5GB - 2.6GB - 1.4GB &amp; 950MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177606-kaadhal-2004-tamil-true-web-dl-1080p-720p-avc-hevc-aac-20-192kbps-45gb-26gb-14gb-950mb-x264-700mb-400mb-esub/&do=findComment&comment=360189)
 - [Miruthan &lpar;2016&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 3.5GB - 2.4GB - 1.4GB &amp; 950MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177588-miruthan-2016-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-35gb-24gb-14gb-950mb-x264-700mb-400mb-esub/&do=findComment&comment=360188)
 - [I Am Legend 2007 Hindi+ English UHD 2160p Blu-ray x265 HDR DTS-HDMA 5.1 [G-Drive]](https://www.1tamilmv.world/index.php?/forums/topic/138744-i-am-legend-2007-hindi-english-uhd-2160p-blu-ray-x265-hdr-dts-hdma-51-g-drive/&do=findComment&comment=360187)
-- [Miruthan &lpar;2016&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 3.5GB - 2.4GB - 1.4GB &amp; 950MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177588-miruthan-2016-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-35gb-24gb-14gb-950mb-x264-700mb-400mb-esub/&do=findComment&comment=360186)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
