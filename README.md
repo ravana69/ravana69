@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manju Peyyana | Chandranudikkunna Dikkil | Vidyasagar| Sujatha Mohan | S Ramesan Nair #SongOfTheDay](https://www.youtube.com/watch?v=a9IkTAhx1EI)
+- [Kodaikanal Travel Guide #shorts #shortsvideo #shortsfeed #tamilnadu #tourism #travel #southindia](https://www.youtube.com/watch?v=7d9J0YRe5us)
+- [Valliyoorkavile Video Song | വിജയശ്രീ | Super Hit Songs | Vijayasree Hits #shorts](https://www.youtube.com/watch?v=WTnVQrw0nE8)
 - [Kannoram Kathoram | Thilothama | Sannidhanandan | Roopa| Engandiyoor Chandrasekharan | Deepak Dev](https://www.youtube.com/watch?v=7LAICxzaxdU)
 - [THIRAKAL MAYUM | #shorts | New Christian Song | Bobby Xavier | |Nin Ormapolum](https://www.youtube.com/watch?v=_l7Wmh_omfg)
 - [Mohanlal  Super hit  Malayalam Movie Songs | Chenkol Movie Song | Remastered Malayalam Song](https://www.youtube.com/watch?v=LJACVcpl4Ww)
-- [Veera Raja Veera @ARRahman #malayalamsongs #tipsmalayalam #ponniyinselvan #ytshorts](https://www.youtube.com/watch?v=5hZdjCqoEq0)
-- [SWARGATHIN VATHIL THURANNU | #shorts | KESTER | BLAZAN KAITHARA | HOLY GATE SONG](https://www.youtube.com/watch?v=pUzj_h_c58U)
-- [Karunanidhiye Kalvari Anpe | Wilson Piravom #ytshorts #christianshorts](https://www.youtube.com/watch?v=-8Y-emQ3scU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
