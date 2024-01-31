@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Philip's - Audio Jukebox | Hesham Abdul Wahab | Vineeth Sreenivasan | Alfred Kurian](https://www.youtube.com/watch?v=sWIt_SQMTJg)
+- [31 January 2024](https://www.youtube.com/watch?v=mMZ3wqMB52I)
+- [തിരക്കേറിയ ജോലിക്കിടയിലും മനസിന് തെല്ല് ആശ്വാസം നൽകുന്ന  സൂപ്പര്ഹിറ്റ്  ക്രിസ്തീയ ഗാനങ്ങൾ](https://www.youtube.com/watch?v=ca2KLcyesWw)
+- [Kai Niraye Snehavumayi  | Akashaganga | Berny Ignatious | K.J Yesudas | Sujatha Mohan | Divya Unni](https://www.youtube.com/watch?v=7_uoArYouc4)
 - [Malaikottai Vaaliban - Making Video | Mohanlal | Lijo Jose Pellissery | In Cinemas Now](https://www.youtube.com/watch?v=jURLMhMo3TM)
 - [തണൽ നൽകാൻ കഴിയുന്ന കാലത്തോളം വിലയുണ്ടാകും.  | Rev. Aneesh P Joseph | #shorts #motivationalvideo](https://www.youtube.com/watch?v=hig_yW6sr_4)
-- [Kasavulla Pattuduthu Video Song | Ulsavamelam | Sujatha Mohan | Mohan Sithara | ONV Kurup](https://www.youtube.com/watch?v=xRmAzglmJeM)
-- [Mizhineer - Lyrical Video | Manal Pakshikal | Mithun Jayaraj | Shanavas Shanu,Santhosh,Anjali](https://www.youtube.com/watch?v=LWZA3MZQ6o8)
-- [Sararanthal Minni Nilkkum | Changathipoocha | P Jayachandran | Ouseppachan | Gireesh Puthenchery](https://www.youtube.com/watch?v=k0LLGM_IJ3o)
-- [Mulla Malai Poomalai | Tribal Song | Anjana S Kumar  | Abhijith | Ram Surendar | Viral Folk Songs](https://www.youtube.com/watch?v=fvsmhM-qEnc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
