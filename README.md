@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nettiyil Poovulla Audio Song Manivathoorile Aayiram Shivaraathrikal Mammootty Suhasini KS Chithra](https://www.youtube.com/watch?v=gKwjGjrjosM)
+- [Innaleyolam |  Video Song | Praise The Lord | Mammootty | Vijay Yesudas| Shweta Mohan | Shan Rahman](https://www.youtube.com/watch?v=SVHvTyysJs0)
 - [Mohanlal  Super hit  Malayalam Movie Songs | Chenkol Movie Song | Remastered Malayalam Song](https://www.youtube.com/watch?v=MBCVD6JR3uY)
 - [Manasa Vaacha Karmana | Jassie Gift #filmsongs #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=CxMpf9cKSuQ)
 - [Niramazhayil Neelimayil | One Man Show | Jayaram | Samyuktha | Mano | Suresh Peters](https://www.youtube.com/watch?v=EmldtItKjEM)
 - [Mulla Malai Poomalai | Anjana s Kumar #folk #tribalsong #naadanpaattu #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=3A2pMcUBeVA)
-- [Manavattiyakunna Thirusabhaye (Kunjadin Rakthathil) | #shorts | Fr Shaji Thumpechirayil](https://www.youtube.com/watch?v=f-M759tD14M)
-- [കെസ്റ്റർ പാടിയ അനശ്വര ഗാനങ്ങൾ  | Christian Devotional Songs Malayalam | Kester | Christian Songs](https://www.youtube.com/watch?v=0Iebrs9B7nQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
