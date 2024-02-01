@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [CHANDRALEKHA Video Jukebox | Priyadarshan | Mohanlal | Gireesh Puthenchery | SP Venkitesh](https://www.youtube.com/watch?v=uM8XMW9yCPk)
 - [ഒത്തിരി സൂപ്പർഹിറ്റുകളിറങ്ങിയ എൺപതുകളിലെ മികച്ചചിത്രങ്ങളിൽനിന്ന് തെരഞ്ഞെടുത്ത മികച്ചഗാനങ്ങൾ!80s Hits](https://www.youtube.com/watch?v=NZ3IRORtHZE)
 - [Swayamvara Chandrike | Chronic Bachelor | Deepak Dev | P Jayachandran | Sujatha Mohan #SongOfTheDay](https://www.youtube.com/watch?v=e5MRoJurUMk)
 - [Nettiyil Poovulla Audio Song Manivathoorile Aayiram Shivaraathrikal Mammootty Suhasini KS Chithra](https://www.youtube.com/watch?v=gKwjGjrjosM)
 - [Innaleyolam |  Video Song | Praise The Lord | Mammootty | Vijay Yesudas| Shweta Mohan | Shan Rahman](https://www.youtube.com/watch?v=SVHvTyysJs0)
 - [Mohanlal  Super hit  Malayalam Movie Songs | Chenkol Movie Song | Remastered Malayalam Song](https://www.youtube.com/watch?v=MBCVD6JR3uY)
-- [Manasa Vaacha Karmana | Jassie Gift #filmsongs #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=CxMpf9cKSuQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
