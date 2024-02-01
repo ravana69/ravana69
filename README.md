@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pindam &lpar;2023&rpar; Telugu TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 5.2GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177629-pindam-2023-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-52gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360271)
 - [Ulagammai &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 5.7GB - 2.8GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177636-ulagammai-2023-tamil-true-web-dl-4k-1080p-720p-avc-dd51-192kbps-57gb-28gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=360270)
 - [Kaiva &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+2.0 - 224Kbps&rpar; - 2.7GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177635-kaiva-2023-kannada-true-web-dl-1080p-720p-avc-dd20-224kbps-27gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=360269)
 - [Aquaman and the Lost Kingdom &lpar;2023&rpar; TRUE WEB-DL - 4K &amp; 1080p - HEVC / AVC - UNTOUCHED - [Tamil + Telugu + Hindi + English&lpar;DD+5.1&lpar;768kbps&rpar; Atmos&rpar;] - DD+5.1&lpar;640kbps&rpar; - 12.5GB &amp; 9.2GB - ESub [GDrive]](https://www.1tamilmv.world/index.php?/forums/topic/177633-aquaman-and-the-lost-kingdom-2023-true-web-dl-4k-1080p-hevc-avc-untouched-tamil-telugu-hindi-englishdd51768kbps-atmos-dd51640kbps-125gb-92gb-esub-gdrive/&do=findComment&comment=360267)
 - [Chaitra - The Beginning of the End &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 5.3GB - 2.6GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.world/index.php?/forums/topic/177613-chaitra-the-beginning-of-the-end-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-aac-20-53gb-26gb-13gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=360266)
-- [EMI [Ee Ammayi] &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - 1.4GB - 650MB &amp; 400MB]](https://www.1tamilmv.world/index.php?/forums/topic/177618-emi-ee-ammayi-2023-tamil-web-dl-1080p-720p-avc-14gb-650mb-400mb/&do=findComment&comment=360265)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
