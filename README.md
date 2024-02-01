@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കെസ്റ്റർ പാടിയ അനശ്വര ഗാനങ്ങൾ  | Christian Devotional Songs Malayalam | Kester | Christian Songs](https://www.youtube.com/watch?v=0Iebrs9B7nQ)
+- [മാതാവിൻറെ  പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mothermarysongs and prayer 1 feb](https://www.youtube.com/watch?v=nr0nm0Swut4)
+- [Japamala 1st of February 2024 # Mathavinte Japamala Prakashathinte Rahasyangal 1st of February 2024](https://www.youtube.com/watch?v=Idgubjm17hI)
 - [ഇന്ന് ഫെബ്രുവരി  01 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  praka](https://www.youtube.com/watch?v=IDEp8LtWM5w)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=McEwmMPSoxk)
 - [രാവിലെ പ്രാര്‍ത്ഥന 1st February # Athiravile Prarthana 1st February 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=BBvKKiMpA1Q)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=_q-kbc2jZJQ)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 1st February 24](https://www.youtube.com/watch?v=nlP4CSwwJ1M)
-- [ചന്ദനത്തെന്നലായ് ഞാൻ നിൻറെ..| കെ ജെ യേശുദാസ് | കെ എസ് ചിത്ര | സുജാത മോഹൻ | Selected Film songs](https://www.youtube.com/watch?v=D7s9fBsRfCg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
