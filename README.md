@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Manchu Mancheera  | Aagneyam | KJ Yesudas | Jayaram | Gautami | #shorts](https://www.youtube.com/watch?v=ZwJ305Vq94s)
-- [CHANDRALEKHA Video Jukebox | Priyadarshan | Mohanlal | Gireesh Puthenchery | SP Venkitesh](https://www.youtube.com/watch?v=uM8XMW9yCPk)
-- [ഒത്തിരി സൂപ്പർഹിറ്റുകളിറങ്ങിയ എൺപതുകളിലെ മികച്ചചിത്രങ്ങളിൽനിന്ന് തെരഞ്ഞെടുത്ത മികച്ചഗാനങ്ങൾ!80s Hits](https://www.youtube.com/watch?v=NZ3IRORtHZE)
-- [Swayamvara Chandrike | Chronic Bachelor | Deepak Dev | P Jayachandran | Sujatha Mohan #SongOfTheDay](https://www.youtube.com/watch?v=e5MRoJurUMk)
-- [Nettiyil Poovulla Audio Song Manivathoorile Aayiram Shivaraathrikal Mammootty Suhasini KS Chithra](https://www.youtube.com/watch?v=gKwjGjrjosM)
-- [Innaleyolam |  Video Song | Praise The Lord | Mammootty | Vijay Yesudas| Shweta Mohan | Shan Rahman](https://www.youtube.com/watch?v=SVHvTyysJs0)
+- [Kannadikkayyil Kalyanam | Pavam Pavam Rajakumaran | Chithra | Johnson | Kaithapram | Sound of Arts](https://www.youtube.com/watch?v=B1qCbLBJMrQ)
+- [ദൈവത്തിനുവേണ്ടി ഒരുപാട് കാര്യങ്ങൾ ചെയ്യുന്നതല്ല പ്രധാനം |  Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=1ASotqyC_bw)
+- [Ellam Daivam Tharunnathalle | Chithra Arun | Rev.Dr. Vincent Variath | Malayalam Christian Songs](https://www.youtube.com/watch?v=GB2A3C5j4fk)
+- [Baashpakudeerame Song | Anarkali | P Susheela #shorts](https://www.youtube.com/watch?v=0J5106-s2T0)
+- [Tharakamalarukal Viriyum | Arabikkatha | Vineeth Sreenivasan | Bijibal | Anil Panachooran](https://www.youtube.com/watch?v=vrce2Vnbf-4)
+- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 1st February 2024](https://www.youtube.com/watch?v=MARMQ4MnxUU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
