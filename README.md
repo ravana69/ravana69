@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 2nd February 24](https://www.youtube.com/watch?v=gLI4o9b7CyE)
 - [Muthumanithooval Tharaam | Kauravar | Mammootty | KJ Yesudas | SP Venkatesh | Kaithapram](https://www.youtube.com/watch?v=7hKtAh0W7os)
 - [1 February 2024](https://www.youtube.com/watch?v=fN8gHcDjTJc)
 - [ഏവർക്കും ഏറെ ഇഷ്ടമുള്ള കേൾക്കാൻ കൊതിച്ച ക്രിസ്തീയ ഗാനങ്ങൾ | Christian Superhit Songs | Chithra Arun](https://www.youtube.com/watch?v=rHaxtUGc0Zo)
 - [Vaakamarathin Kombilirunnoru | July 4 | Sayanora Philip | Ouseppachan | Shibu Chakravarthy](https://www.youtube.com/watch?v=Z7_8n02sN6o)
 - [Kannadikkayyil Kalyanam | Pavam Pavam Rajakumaran | Chithra | Johnson | Kaithapram | Sound of Arts](https://www.youtube.com/watch?v=B1qCbLBJMrQ)
-- [ദൈവത്തിനുവേണ്ടി ഒരുപാട് കാര്യങ്ങൾ ചെയ്യുന്നതല്ല പ്രധാനം |  Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=1ASotqyC_bw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
