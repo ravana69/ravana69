@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Chaitra - The Beginning of the End &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 5.3GB - 2.6GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.world/index.php?/forums/topic/177613-chaitra-the-beginning-of-the-end-2023-tamil-true-web-dl-4k-1080p-720p-avc-hevc-aac-20-53gb-26gb-13gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=360230)
+- [Paramporul &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.9GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.world/index.php?/forums/topic/177614-paramporul-2024-telugu-true-web-dl-1080p-720p-avc-aac-20-29gb-13gb-x264-700mb-400mb/&do=findComment&comment=360229)
 - [Kaaviya Thalaivan &lpar;2014&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 4.2GB - ESub - UE](https://www.1tamilmv.world/index.php?/forums/topic/177619-kaaviya-thalaivan-2014-tamil-true-web-dl-1080p-avc-untouched-dd51-42gb-esub-ue/&do=findComment&comment=360228)
-- [EMI &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - 1.4GB - 650MB &amp; 400MB]](https://www.1tamilmv.world/index.php?/forums/topic/177618-emi-2023-tamil-web-dl-1080p-720p-avc-14gb-650mb-400mb/&do=findComment&comment=360227)
+- [EMI [Ee Ammayi] &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - 1.4GB - 650MB &amp; 400MB]](https://www.1tamilmv.world/index.php?/forums/topic/177618-emi-ee-ammayi-2023-tamil-web-dl-1080p-720p-avc-14gb-650mb-400mb/&do=findComment&comment=360227)
 - [Singapore Saloon &lpar;2024&rpar;.Tamil.1080p.HQ PreDVD.x264.MP3 192Kbps &lpar;AI Cleaned Audio&rpar; - 2.5GB](https://www.1tamilmv.world/index.php?/forums/topic/177617-singapore-saloon-2024tamil1080phq-predvdx264mp3-192kbps-ai-cleaned-audio-25gb/&do=findComment&comment=360226)
-- [[4K60FPS] Animal &lpar;2023&rpar; 2160p SDR NF WEBRip MULTi DDP5.1 ESub H.265 - 42.3 GB | 21.6 GB](https://www.1tamilmv.world/index.php?/forums/topic/177616-4k60fps-animal-2023-2160p-sdr-nf-webrip-multi-ddp51-esub-h265-423-gb-216-gb/&do=findComment&comment=360225)
-- [Blue Star &lpar;2024&rpar;.Tamil.1080p.HQ PreDVD.x264.MP3 192Kbps &lpar;AI Cleaned Audio&rpar; - 3GB](https://www.1tamilmv.world/index.php?/forums/topic/177615-blue-star-2024tamil1080phq-predvdx264mp3-192kbps-ai-cleaned-audio-3gb/&do=findComment&comment=360224)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
