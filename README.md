@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=JyeVgwxC2mM)
 - [പ്രഭാത പ്രാര്‍ത്ഥന February 2 # Athiravile Prarthana 2nd of February 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=J9MkfZjlBfg)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=75QIopZ1vOw)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 2nd February 24](https://www.youtube.com/watch?v=gLI4o9b7CyE)
 - [Muthumanithooval Tharaam | Kauravar | Mammootty | KJ Yesudas | SP Venkatesh | Kaithapram](https://www.youtube.com/watch?v=7hKtAh0W7os)
 - [1 February 2024](https://www.youtube.com/watch?v=fN8gHcDjTJc)
-- [ഏവർക്കും ഏറെ ഇഷ്ടമുള്ള കേൾക്കാൻ കൊതിച്ച ക്രിസ്തീയ ഗാനങ്ങൾ | Christian Superhit Songs | Chithra Arun](https://www.youtube.com/watch?v=rHaxtUGc0Zo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
