@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Melodious Malayalam Film Songs | Super Hit Film Songs | Movie Songs | Cinemapattukal | Video Jukebox](https://www.youtube.com/watch?v=Xhg2fbldzB8)
 - [Manasa Vaacha Karmana |  Manasa Vacha #jassiegift #filmsongs #shortsfeed #shorts #shortsvideo #reels](https://www.youtube.com/watch?v=QnJluRH1PE8)
 - [സ്വപനത്തിൽ സ്‌ഥിരമായി വിരുന്നെത്തുന്ന മലയാളചലച്ചിത്ര ഗാനങ്ങൾ | EVERGREEN HITS MALAYALAM](https://www.youtube.com/watch?v=_sP7t4g09Dk)
 - [SALLAPAM Video Jukebox | Johnson | Kaithapram | KS Chithra | Dileep | Manju Warrier | Evergreen Hits](https://www.youtube.com/watch?v=o2Ef0mo1S_M)
 - [Konchi Konchi | Vismayathumbathu | Ouseppachan | K J Yesudas | Kaithapram #SongOfTheDay](https://www.youtube.com/watch?v=bhqJ49e0pfo)
 - [Pranayamayi Radha | Aami #manjuwarrier #mjayachandran #shreyaghoshal #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=_stH0bJq1UQ)
-- [Mazhaneer Thullikal | Lyrical + Karaoke Video | Beautiful | Unni Menon | Anoop Menon | Ratheesh Vega](https://www.youtube.com/watch?v=cSFuRllplgQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
