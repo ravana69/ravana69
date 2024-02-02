@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mazhaneer Thullikal | Lyrical + Karaoke Video | Beautiful | Unni Menon | Anoop Menon | Ratheesh Vega](https://www.youtube.com/watch?v=cSFuRllplgQ)
 - [Jayaram  Old Malayalam Movie Songs |  Moonaamathoraal  Remastered Malayalam Songs | Yesudas, Chithra](https://www.youtube.com/watch?v=nuITWxMQ6eQ)
 - [Aanandhapuram Diaries | Meena Sagar #latestmalayalam #movieteaser](https://www.youtube.com/watch?v=PjoqxoSY9Xk)
 - [അനശ്വരഗാനം!!! enne oru naalum kai vidaruthe by MG Sreekumar | Prajapathi yagam | lyrical video](https://www.youtube.com/watch?v=HsOuWBDBqtc)
 - [മാതാവിൻറെ  പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mothermarysongs  & prayer Feb 2](https://www.youtube.com/watch?v=ia94xragvgc)
 - [Japamala 2nd of February 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 2nd of February 24](https://www.youtube.com/watch?v=AifA_pQnke8)
-- [ഇന്ന് ഫെബ്രുവരി  02 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  dhukk](https://www.youtube.com/watch?v=ulHDBBk86F8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
