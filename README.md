@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന February 3 # Athiravile Prarthana 3rd of February 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=4Yrl6uy-rfs)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=uS6NXiKXeFE)
 - [ചാന്ദ്നീ ചാന്ദ്നീ ചൈത്രമാസദേവയാമിനീ| കെ ജെ യേശുദാസ് | കെ എസ് ചിത്ര |സുജാത മോഹൻ | Selected Film songs](https://www.youtube.com/watch?v=ydlCokM_W20)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 3rd February 24](https://www.youtube.com/watch?v=57ruqe3NScM)
 - [Ponmulam Thandu moolum  | Chandrolsavam | Mohanlal | Meena | Vidyasagar | KS Chithra](https://www.youtube.com/watch?v=IxZXA0hJgVY)
 - [Swapnasancharini | Koottukudumbam | Vayalar | G Devarajan | P Susheela | B Vasantha | Saradha](https://www.youtube.com/watch?v=krcqFlC7o2Q)
-- [Hits Of Chithra | Malayalam Selected film Songs | Johnson | Raveendran | Mammootty | Sound Of Arts](https://www.youtube.com/watch?v=trS20i9XqsI)
-- [Vethyasthanamoru | Katha Parayumbol | Pradeep Palluruthy | Anil Panachooran | M Jayachandran](https://www.youtube.com/watch?v=wb8hsZ5UG88)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
