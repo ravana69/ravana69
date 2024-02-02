@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Anuraagappuzhavakkil Video Song | English Medium | Pattanakkad Purushothaman | Susmitha](https://www.youtube.com/watch?v=MWzEg9UWEk8)
-- [Pottu Thotta Sundari Video Song | Palunku | Mammootty | Nazriya Nazim | Kaithapram | Mohan Sithara](https://www.youtube.com/watch?v=DshdAqiFSiQ)
-- [Melodious Malayalam Film Songs | Super Hit Film Songs | Movie Songs | Cinemapattukal | Video Jukebox](https://www.youtube.com/watch?v=Xhg2fbldzB8)
-- [Manasa Vaacha Karmana |  Manasa Vacha #jassiegift #filmsongs #shortsfeed #shorts #shortsvideo #reels](https://www.youtube.com/watch?v=QnJluRH1PE8)
-- [സ്വപനത്തിൽ സ്‌ഥിരമായി വിരുന്നെത്തുന്ന മലയാളചലച്ചിത്ര ഗാനങ്ങൾ | EVERGREEN HITS MALAYALAM](https://www.youtube.com/watch?v=_sP7t4g09Dk)
-- [SALLAPAM Video Jukebox | Johnson | Kaithapram | KS Chithra | Dileep | Manju Warrier | Evergreen Hits](https://www.youtube.com/watch?v=o2Ef0mo1S_M)
+- [Vethyasthanamoru | Katha Parayumbol | Pradeep Palluruthy | Anil Panachooran | M Jayachandran](https://www.youtube.com/watch?v=wb8hsZ5UG88)
+- [Swapna Sundari - Lyrical | Vayassethrayayi Muppathi | Sajeer Koppam | Kaithapram | Sibu Sukumaran](https://www.youtube.com/watch?v=zNO4tLqbncc)
+- [അവിടുത്തെ കരങ്ങളിൽ നാം സുരക്ഷിതരാണ്. |  Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=FPfOQLYfNzg)
+- [Aaja Yara Mere | Super Hit Movie Song | Praja | Mohanlal | Ravali - MG Radhakrishnan Hits](https://www.youtube.com/watch?v=yAFV0tbAjn8)
+- [Mazhavil Poovayi |  Iyer In Arabia #vijayyesudas #nithyamammen #shortsfeed #shorts #shortsvideo](https://www.youtube.com/watch?v=fW0GN6VEBWM)
+- [2 February 2024](https://www.youtube.com/watch?v=1i0rLsfYwn0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
