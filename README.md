@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vadakkupatti Ramasamy &lpar;2024&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.world/index.php?/forums/topic/177647-vadakkupatti-ramasamy-2024-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=360353)
 - [Sarkar &lpar;2018&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 3.9GB - ESub - UE](https://www.1tamilmv.world/index.php?/forums/topic/177661-sarkar-2018-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-39gb-esub-ue/&do=findComment&comment=360352)
 - [Ayalaan &lpar;2024&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 3.8GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.world/index.php?/forums/topic/177639-ayalaan-2024-tamil-web-dl-1080p-720p-avc-hevc-aac-20-38gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=360351)
 - [Ulagammai &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 5.7GB - 2.8GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177636-ulagammai-2023-tamil-true-web-dl-4k-1080p-720p-avc-dd51-192kbps-57gb-28gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=360350)
 - [EMI [Ee Ammayi] &lpar;2023&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC - 1.4GB - 650MB &amp; 400MB]](https://www.1tamilmv.world/index.php?/forums/topic/177618-emi-ee-ammayi-2023-tamil-web-dl-1080p-720p-avc-14gb-650mb-400mb/&do=findComment&comment=360349)
-- [Burma Nagar Das [Falaknuma Das] &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; [Tamil + Telugu] - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177634-burma-nagar-das-falaknuma-das-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-20-tamil-telugu-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360348)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
