@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Konchi Konchi | Vismayathumbathu | Ouseppachan | K J Yesudas | Kaithapram #SongOfTheDay](https://www.youtube.com/watch?v=bhqJ49e0pfo)
+- [Pranayamayi Radha | Aami #manjuwarrier #mjayachandran #shreyaghoshal #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=_stH0bJq1UQ)
 - [Mazhaneer Thullikal | Lyrical + Karaoke Video | Beautiful | Unni Menon | Anoop Menon | Ratheesh Vega](https://www.youtube.com/watch?v=cSFuRllplgQ)
 - [Jayaram  Old Malayalam Movie Songs |  Moonaamathoraal  Remastered Malayalam Songs | Yesudas, Chithra](https://www.youtube.com/watch?v=nuITWxMQ6eQ)
+- [Omanathingal Kidavo |  Video Song  | Sandhya Lal | Sajan C R | Famous Lullaby by Irayimman Thampi](https://www.youtube.com/watch?v=hjHjdOmZXdg)
 - [Aanandhapuram Diaries | Meena Sagar #latestmalayalam #movieteaser](https://www.youtube.com/watch?v=PjoqxoSY9Xk)
-- [അനശ്വരഗാനം!!! enne oru naalum kai vidaruthe by MG Sreekumar | Prajapathi yagam | lyrical video](https://www.youtube.com/watch?v=HsOuWBDBqtc)
-- [മാതാവിൻറെ  പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mothermarysongs  & prayer Feb 2](https://www.youtube.com/watch?v=ia94xragvgc)
-- [Japamala 2nd of February 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 2nd of February 24](https://www.youtube.com/watch?v=AifA_pQnke8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
