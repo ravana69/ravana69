@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ayalaan &lpar;2024&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 3.8GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.world/index.php?/forums/topic/177639-ayalaan-2024-tamil-web-dl-1080p-720p-avc-hevc-aac-20-38gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=360290)
 - [[4K] Salaar &lpar;2023&rpar; 2160p NF WEB-DL Multi DDP5.1 Esubs x265 HEVC - 18 GB](https://www.1tamilmv.world/index.php?/forums/topic/177643-4k-salaar-2023-2160p-nf-web-dl-multi-ddp51-esubs-x265-hevc-18-gb/&do=findComment&comment=360289)
 - [Kaiva &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+2.0 - 224Kbps&rpar; - 2.7GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177635-kaiva-2023-kannada-true-web-dl-1080p-720p-avc-dd20-224kbps-27gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=360288)
 - [Salaar: Cease Fire - Part 1 &lpar;2023&rpar; TRUE WEB-DL - 4K UHD - 2160p - HEVC - UNTOUCHED - &lpar;DD+5.1 - 640Kbps &amp; AAC 2.0&rpar; [Tamil + Telugu + Malayalam + Kannada] - 18GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177642-salaar-cease-fire-part-1-2023-true-web-dl-4k-uhd-2160p-hevc-untouched-dd51-640kbps-aac-20-tamil-telugu-malayalam-kannada-18gb-esub/&do=findComment&comment=360287)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [2-2-2024]](https://www.1tamilmv.world/index.php?/forums/topic/177641-movies-collection-all-languages-4k-1080p-720p-576p-480p-2-2-2024/&do=findComment&comment=360286)
-- [Ayalaan &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 3.8GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.world/index.php?/forums/topic/177639-ayalaan-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-20-38gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=360285)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
