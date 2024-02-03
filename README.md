@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കേട്ടിരിക്കാൻ കൊതി തോന്നുന്ന ജനപ്രിയ ഗാനങ്ങൾ | MOST POPULAR SONGS MALAYALAM](https://www.youtube.com/watch?v=pwtRkDngkNg)
+- [Oru Murai Vanthu Paarthaaya- Manichithrathaazhu | M G Radhakrishnan | Chithra |Yesudas #SongOfTheDay](https://www.youtube.com/watch?v=pNYacufCj6s)
+- [Christian Video Songs | KG Markose | Kester | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=NXqRyauEZbg)
+- [ഒരു സ്നേഹസ്പർശം പോൽ ആത്മാവിനെ തൊട്ടുണർത്തിയ അത്രമേൽ സുഖസാന്ദ്രമായ ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=7_DIqnhRmbM)
 - [Neermathalappoo |Lyrical Video| Aami | Shreya Ghoshal |Rafeeque Ahammed|M Jayachandran|Manju Warrier](https://www.youtube.com/watch?v=n65qR3YZ1xw)
 - [Enundodi | Video Song | Celluloid | Sithara Krishnakumar | Prithviraj | M Jayachandran | Kamal](https://www.youtube.com/watch?v=U2bSFlgU3LU)
-- [Samvrutha Sunil Old Malayalam Movie Songs | Moonaamathoraal Remastered Malayalam Songs | Jyotsna](https://www.youtube.com/watch?v=zuJo6kzCvpQ)
-- [Enganu Nee | Kristheeya Bhakthiganangal | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=CFUah8svEkU)
-- [Kannadippuzhayude | Bharya | Jagadhish | Urvashi | Yesudas | Shibu Chakravarthy](https://www.youtube.com/watch?v=z7u3Xs7DbA0)
-- [Philip's - Original Sound Track | Hesham Abdul Wahab | Madhavan, Innocent | Alfred Kurian](https://www.youtube.com/watch?v=1ahsHGDu3Pc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
