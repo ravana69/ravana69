@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ratsasan &lpar;2018&rpar; AMZN WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 9 GB | 2.2 GB](https://www.1tamilmv.world/index.php?/forums/topic/173688-ratsasan-2018-amzn-web-dl-ddp51-esubs-x264-1080p-720p-9-gb-22-gb/&do=findComment&comment=360413)
+- [Ratsasan &lpar;2018&rpar; Tamil SUNNXT WEB-DL – [1080p, 720p, 576p, 480p] – AVC – [DD+5.1 – 192kbps+AAC2.0] – Esubs](https://www.1tamilmv.world/index.php?/forums/topic/173457-ratsasan-2018-tamil-sunnxt-web-dl-%E2%80%93-1080p-720p-576p-480p-%E2%80%93-avc-%E2%80%93-dd51-%E2%80%93-192kbpsaac20-%E2%80%93-esubs/&do=findComment&comment=360412)
+- [Athadu &lpar;2005&rpar; Telugu 1080p iDream DVD9 Ai Upscaled - x264 - &lpar;DD 5.1 - 448kbps&rpar; - Shyam - 14GB - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177686-athadu-2005-telugu-1080p-idream-dvd9-ai-upscaled-x264-dd-51-448kbps-shyam-14gb-esub-google-drive/&do=findComment&comment=360411)
+- [Athadu &lpar;2005&rpar; Telugu 1080p iDream DVD9 Ai Upscaled - x264 - &lpar;DD 5.1 - 448kbps&rpar; - Shyam - 14GB - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177686-athadu-2005-telugu-1080p-idream-dvd9-ai-upscaled-x264-dd-51-448kbps-shyam-14gb-esub-google-drive/&do=findComment&comment=360410)
 - [Athadu &lpar;2005&rpar; Telugu 1080p iDream DVD9 Ai Upscaled - x264 - &lpar;DD 5.1 - 448kbps&rpar; - Shyam - 14GB - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177686-athadu-2005-telugu-1080p-idream-dvd9-ai-upscaled-x264-dd-51-448kbps-shyam-14gb-esub-google-drive/&do=findComment&comment=360409)
-- [Thalaivaa &lpar;2013&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 5.8GB - ESub - GDFlix](https://www.1tamilmv.world/index.php?/forums/topic/177680-thalaivaa-2013-tamil-true-web-dl-1080p-hq-avc-untouched-dd51-58gb-esub-gdflix/&do=findComment&comment=360408)
-- [Aquaman and the Lost Kingdom &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [4K ,1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 7GB - 2.4GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177626-aquaman-and-the-lost-kingdom-2023-hd-original-audios-4k-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-7gb-24gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=360407)
-- [Ayalaan &lpar;2024&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 3.8GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.world/index.php?/forums/topic/177639-ayalaan-2024-tamil-web-dl-1080p-720p-avc-hevc-aac-20-38gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=360406)
-- [Baba Vangas&#39;s Predictions: &#39;2024&#39; The End of Putin&#39;s Era?](https://www.1tamilmv.world/index.php?/forums/topic/150716-baba-vangass-predictions-2024-the-end-of-putins-era/&do=findComment&comment=360405)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
