@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Neermathalappoo |Lyrical Video| Aami | Shreya Ghoshal |Rafeeque Ahammed|M Jayachandran|Manju Warrier](https://www.youtube.com/watch?v=n65qR3YZ1xw)
+- [Enundodi | Video Song | Celluloid | Sithara Krishnakumar | Prithviraj | M Jayachandran | Kamal](https://www.youtube.com/watch?v=U2bSFlgU3LU)
 - [Samvrutha Sunil Old Malayalam Movie Songs | Moonaamathoraal Remastered Malayalam Songs | Jyotsna](https://www.youtube.com/watch?v=zuJo6kzCvpQ)
 - [Enganu Nee | Kristheeya Bhakthiganangal | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=CFUah8svEkU)
 - [Kannadippuzhayude | Bharya | Jagadhish | Urvashi | Yesudas | Shibu Chakravarthy](https://www.youtube.com/watch?v=z7u3Xs7DbA0)
 - [Philip's - Original Sound Track | Hesham Abdul Wahab | Madhavan, Innocent | Alfred Kurian](https://www.youtube.com/watch?v=1ahsHGDu3Pc)
-- [Songs Of The Week | Manoj Christy | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=vXgwyyR12vA)
-- [Japamala 3rd of February 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 3rd of February 24](https://www.youtube.com/watch?v=457lmel10XA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
