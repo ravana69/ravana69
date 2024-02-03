@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Samvrutha Sunil Old Malayalam Movie Songs | Moonaamathoraal Remastered Malayalam Songs | Jyotsna](https://www.youtube.com/watch?v=zuJo6kzCvpQ)
+- [Enganu Nee | Kristheeya Bhakthiganangal | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=CFUah8svEkU)
+- [Kannadippuzhayude | Bharya | Jagadhish | Urvashi | Yesudas | Shibu Chakravarthy](https://www.youtube.com/watch?v=z7u3Xs7DbA0)
+- [Philip's - Original Sound Track | Hesham Abdul Wahab | Madhavan, Innocent | Alfred Kurian](https://www.youtube.com/watch?v=1ahsHGDu3Pc)
 - [Songs Of The Week | Manoj Christy | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=vXgwyyR12vA)
 - [Japamala 3rd of February 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 3rd of February 24](https://www.youtube.com/watch?v=457lmel10XA)
-- [ഇന്ന് ഫെബ്രുവരി  03 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala santh](https://www.youtube.com/watch?v=Acr3n0UDEUs)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=SvgWN-UfjbA)
-- [A. E. I. O. U | Aye Auto | Raveendran | Mohanlal & Sujatha Mohan | Hi-Res Audio](https://www.youtube.com/watch?v=T1cag-gKvkM)
-- [രാവിലെ പ്രാര്‍ത്ഥന February 3 # Athiravile Prarthana 3rd of February 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=4Yrl6uy-rfs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
