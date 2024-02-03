@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [dd](https://www.1tamilmv.world/index.php?/forums/topic/177683-dd/&do=findComment&comment=360394)
+- [Saindhav &lpar;2024&rpar; Telugu TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 17GB - 2.7GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177672-saindhav-2024-telugu-true-web-dl-4k-1080p-720p-avc-dd51-640kbps-17gb-27gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360396)
+- [Ulagammai &lpar;2023&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 5.7GB - 2.8GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177636-ulagammai-2023-tamil-true-web-dl-4k-1080p-720p-avc-dd51-192kbps-57gb-28gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=360395)
+- [The Conqueror &lpar;2019&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Chi&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB]](https://www.1tamilmv.world/index.php?/forums/topic/177683-the-conqueror-2019-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-chi-2gb-1gb-x264-tamil-telugu-hindi-450mb/&do=findComment&comment=360394)
 - [Saba Nayagan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 5.5GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177662-saba-nayagan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-55gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360393)
 - [Saindhav &lpar;2024&rpar; Tamil TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 17GB - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177673-saindhav-2024-tamil-true-web-dl-4k-1080p-720p-avc-dd51-640kbps-17gb-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360392)
-- [Guntur Kaaram &lpar;2024&rpar; - Naakosame Neevunnadhi &lpar;Fight&rpar; 1080p HDTVRip - DUSTIN [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177682-guntur-kaaram-2024-naakosame-neevunnadhi-fight-1080p-hdtvrip-dustin-google-drive/&do=findComment&comment=360391)
-- [Sendhoorapandi &lpar;1993&rpar; Tamil TRUE WEB-DL - 720p - AVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 2.6GB - UE](https://www.1tamilmv.world/index.php?/forums/topic/177681-sendhoorapandi-1993-tamil-true-web-dl-720p-avc-untouched-ddp20-26gb-ue/&do=findComment&comment=360390)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
