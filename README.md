@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Aquaman and the Lost Kingdom &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [4K ,1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 7GB - 2.4GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177626-aquaman-and-the-lost-kingdom-2023-hd-original-audios-4k-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-7gb-24gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=360407)
+- [Ayalaan &lpar;2024&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 3.8GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.world/index.php?/forums/topic/177639-ayalaan-2024-tamil-web-dl-1080p-720p-avc-hevc-aac-20-38gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=360406)
 - [Baba Vangas&#39;s Predictions: &#39;2024&#39; The End of Putin&#39;s Era?](https://www.1tamilmv.world/index.php?/forums/topic/150716-baba-vangass-predictions-2024-the-end-of-putins-era/&do=findComment&comment=360405)
 - [Exploring the Sensational World of &#39;Shallowing&#39;: The Sex Trend You Probably Didn&#39;t Know You Love](https://www.1tamilmv.world/index.php?/forums/topic/150714-exploring-the-sensational-world-of-shallowing-the-sex-trend-you-probably-didnt-know-you-love/&do=findComment&comment=360404)
 - [City Lights and Love Strikes | Taylor Swift Music Video](https://www.1tamilmv.world/index.php?/forums/topic/150711-city-lights-and-love-strikes-taylor-swift-music-video/&do=findComment&comment=360403)
-- [Nostradamus Predictions: &#39;2024&#39; The Beginning of World War III](https://www.1tamilmv.world/index.php?/forums/topic/150717-nostradamus-predictions-2024-the-beginning-of-world-war-iii/&do=findComment&comment=360402)
-- [Journey 3 From the Earth to the Moon &lpar;2024&rpar; Official Ai Trailer | Warner Bros. Pictures](https://www.1tamilmv.world/index.php?/forums/topic/150718-journey-3-from-the-earth-to-the-moon-2024-official-ai-trailer-warner-bros-pictures/&do=findComment&comment=360401)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
