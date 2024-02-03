@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Songs Of The Week | Manoj Christy | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=vXgwyyR12vA)
+- [Japamala 3rd of February 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 3rd of February 24](https://www.youtube.com/watch?v=457lmel10XA)
 - [ഇന്ന് ഫെബ്രുവരി  03 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala santh](https://www.youtube.com/watch?v=Acr3n0UDEUs)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=SvgWN-UfjbA)
 - [A. E. I. O. U | Aye Auto | Raveendran | Mohanlal & Sujatha Mohan | Hi-Res Audio](https://www.youtube.com/watch?v=T1cag-gKvkM)
 - [രാവിലെ പ്രാര്‍ത്ഥന February 3 # Athiravile Prarthana 3rd of February 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=4Yrl6uy-rfs)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=uS6NXiKXeFE)
-- [ചാന്ദ്നീ ചാന്ദ്നീ ചൈത്രമാസദേവയാമിനീ| കെ ജെ യേശുദാസ് | കെ എസ് ചിത്ര |സുജാത മോഹൻ | Selected Film songs](https://www.youtube.com/watch?v=ydlCokM_W20)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
