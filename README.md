@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Anchu Sharangalum|Parinayam|Mohini|Vineeth|](https://www.youtube.com/watch?v=wsYrtEjPStM)
+- [Ente Jeevante Vilayayen | Christian Video Song | P jayachandran | Rajesh Athikayam | Shijo Sebastian](https://www.youtube.com/watch?v=XDLjTxCtW7A)
+- [വീണ്ടും കേൾക്കാൻ മനസിൽ മോഹമുണർത്തിയ എൺപതുകളിലെ നല്ല മെലഡി ഗാനങ്ങൾ ! 80s HITS MALAYALAM](https://www.youtube.com/watch?v=ovyIPNPHjU0)
 - [ജീവിത നൊമ്പരങ്ങളിൽ നിങ്ങൾ തളർന്നിരിക്കയാണോ? |  Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=jgOFdSWfPWc)
 - [Ammaykkoru Ponnum Kudam Song | Ulsavamelam | Sujatha Mohan #shorts](https://www.youtube.com/watch?v=0SCckr2JkeA)
 - [Kokkarakko Poovankozhi | Animation Song #animation #kids #kidsvideo #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=rc4M-cjasPA)
-- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 3rd February 2024](https://www.youtube.com/watch?v=dJCQ3B_LU8s)
-- [Niramazhayil Video Song | One Man Show | Jayaram | Samyuktha Varma | Lal | Sujatha Mohan | Mano](https://www.youtube.com/watch?v=3ur13TomweA)
-- [വിരിഞ്ഞ മലരിതളിൽ  | Mr. Micheal | Prem Nazir | Seema | Jose | #shorts](https://www.youtube.com/watch?v=gRftYNFhdec)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
