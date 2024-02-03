@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Saba Nayagan &lpar;2023&rpar; Tamil True WEB DL - AVC - &lpar;DD5.1 &amp; AAC 2.0&rpar; - [1080p &amp; 720p - 5.5GB - 2.9GB - 1.5GB] - ESub [GDrive]](https://www.1tamilmv.world/index.php?/forums/topic/118245-saba-nayagan-2023-tamil-true-web-dl-avc-dd51-aac-20-1080p-720p-55gb-29gb-15gb-esub-gdrive/&do=findComment&comment=360385)
+- [Gadar.2.Telugu.2023.2160p, 1080p, 720p .AMZN.WEB-DL.DDP5.1  &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177677-gadar2telugu20232160p-1080p-720p-amznweb-dlddp51-direct-download/&do=findComment&comment=360384)
+- [Saindhav &lpar;2024&rpar; &lpar;Telugu, Hindi, Kannada and Tamil &rpar; TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 16.21 GB - 9.11 GB - 5.57 GB - 4.92 GB  &amp; 3.64 GB - ESub &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177676-saindhav-2024-telugu-hindi-kannada-and-tamil-true-web-dl-4k-1080p-720p-avc-dd51-640kbps-1621-gb%C2%A0-911-gb%C2%A0-557-gb-492-gb-364-gb-esub-direct-download/&do=findComment&comment=360383)
 - [Saindhav &lpar;2024&rpar; AMZN WEB DL - AVC - [Telugu + Tamil + Mal] - &lpar;DD+5.1 - 640Kbps &amp; AAC&rpar; - [1080p &amp; 720p - 7.9GB - 3GB - 1.4GB] - ESub [GDrive]](https://www.1tamilmv.world/index.php?/forums/topic/118409-saindhav-2024-amzn-web-dl-avc-telugu-tamil-mal-dd51-640kbps-aac-1080p-720p-79gb-3gb-14gb-esub-gdrive/&do=findComment&comment=360382)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [1-2-2024]](https://www.1tamilmv.world/index.php?/forums/topic/177675-movies-collection-all-languages-4k-1080p-720p-576p-480p-1-2-2024/&do=findComment&comment=360381)
-- [Aquaman and the Lost Kingdom &lpar;2023&rpar; WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10-DV] | 1080p | 720p - 22 GB | 7.5 GB | 4.1 GB](https://www.1tamilmv.world/index.php?/forums/topic/177461-aquaman-and-the-lost-kingdom-2023-web-dl-ddp51-atmos-esubs-2160p-hdr10-dv-1080p-720p-22-gb-75-gb-41-gb/&do=findComment&comment=360380)
-- [Saindhav &lpar;2024&rpar; Telugu TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 17GB - 2.7GB &amp; 1.3GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177672-saindhav-2024-telugu-true-web-dl-4k-1080p-720p-avc-dd51-640kbps-17gb-27gb-13gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360379)
-- [Saindhav &lpar;2024&rpar; Malayalam TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 17GB - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177674-saindhav-2024-malayalam-true-web-dl-4k-1080p-720p-avc-dd51-640kbps-17gb-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=360378)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
