@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manasa Vaacha Karmana |  Manasa Vacha #jassiegift #filmsongs #shortsfeed #shorts #shortsvideo #reels](https://www.youtube.com/watch?v=G-LWpp4sIMQ)
 - [പാട്ടുപെട്ടി | Paattupetti Vol 42 | Malayalam Film Songs | Satyam Audios](https://www.youtube.com/watch?v=Q9wMuheM8UQ)
 - [Padiyum Paranjum | ദക്ഷിണാമൂർത്തിസ്വാമിയുമായുള്ള അഭേദ്യബന്ധം | പാടിയും പറഞ്ഞും |  Sreekumaran Thampi](https://www.youtube.com/watch?v=R0KsZPa6nxw)
 - [Shaaru Shaaru - Audio Song | Super Sharanya | Justin Varghese | Anaswara Rajan | Arjun Ashokan](https://www.youtube.com/watch?v=HQGr09Zxxjk)
 - [ശുദ്ധർ സ്തുതിക്കും വീടേ | ROY PUTHUR &MITHILA|SHINU VARUGHESE #christiandevotionalsongs](https://www.youtube.com/watch?v=r-xbAcHPOWU)
 - [Pathira Paalkadavil | Chenkol | Mohanlal | Surabhi | Yesudas | Johnson | Sibi Malayil](https://www.youtube.com/watch?v=R36QoprexN4)
-- [അമ്മയെൻ പുണ്യം #ജപമാല സംഗീതരൂപത്തിൽ # അതിമനോഹരമായ ഒരു അത്ഭുത സൃഷ്ടി #japamala  malayalam #vachanam](https://www.youtube.com/watch?v=_T35wTATLC0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
