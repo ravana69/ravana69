@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Pichaikkaran &lpar;2016&rpar; - BD50 - AVC - 1080P - DTS HD MA 7.1 &amp; DD - 30GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/120490-pichaikkaran-2016-bd50-avc-1080p-dts-hd-ma-71-dd-30gb-esub/&do=findComment&comment=360425)
-- [Sarkaru Vaari Paata &lpar;2022&rpar; - Video Songs - 4K HEVC - WEB-DL - DDP5.1 [Tam + Tel + Mal] - Esubs](https://www.1tamilmv.world/index.php?/forums/topic/177690-sarkaru-vaari-paata-2022-video-songs-4k-hevc-web-dl-ddp51-tam-tel-mal-esubs/&do=findComment&comment=360424)
-- [Sarkaru Vaari Paata &lpar;2022&rpar; - Video Songs - 4K HEVC - WEB-DL - DDP5.1 [Tam + Tel + Mal] - Esubs](https://www.1tamilmv.world/index.php?/forums/topic/177690-sarkaru-vaari-paata-2022-video-songs-4k-hevc-web-dl-ddp51-tam-tel-mal-esubs/&do=findComment&comment=360423)
-- [Sarkaru Vaari Paata &lpar;2022&rpar; - Video Songs - 1080p - AVC - WEB-DL - DDP5.1 [Tam + Tel + Mal] - Esubs](https://www.1tamilmv.world/index.php?/forums/topic/177689-sarkaru-vaari-paata-2022-video-songs-1080p-avc-web-dl-ddp51-tam-tel-mal-esubs/&do=findComment&comment=360422)
-- [Thalaivaa &lpar;2013&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 5.8GB - ESub - GDFlix](https://www.1tamilmv.world/index.php?/forums/topic/177680-thalaivaa-2013-tamil-true-web-dl-1080p-hq-avc-untouched-dd51-58gb-esub-gdflix/&do=findComment&comment=360421)
+- [BOYS &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.6GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177691-boys-2003-telugu-dvd9-untouched-480p-dd51-448kbps-66gb-esub/&do=findComment&comment=360430)
+- [Doom.2005 DD5.1 Hindi +AAC 2.0 Tamil-Telugu +DD5.1 English Extended 1080P.Bluray HEVC.X265 Msubs [G-Drive]](https://www.1tamilmv.world/index.php?/forums/topic/169396-doom2005-dd51-hindi-aac-20-tamil-telugu-dd51-english-extended-1080pbluray-hevcx265-msubs-g-drive/&do=findComment&comment=360429)
+- [Doom.2005 AAC2.0 Tamil-Telugu +DD5.1 Hindi +DTS English 1080p.BluRay Remux Msub [G-Drive]](https://www.1tamilmv.world/index.php?/forums/topic/169401-doom2005-aac20-tamil-telugu-dd51-hindi-dts-english-1080pbluray-remux-msub-g-drive/&do=findComment&comment=360428)
+- [BOYS &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.6GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177691-boys-2003-telugu-dvd9-untouched-480p-dd51-448kbps-66gb-esub/&do=findComment&comment=360427)
+- [Doom &lpar;2005&rpar; UNRATED EXTENDED 1080p BluRay x265 10bit [Hindi DD2.0 +English DD5.1] 2.65GB - 5.02GB [GDRIVE]](https://www.1tamilmv.world/index.php?/forums/topic/94936-doom-2005-unrated-extended-1080p-bluray-x265-10bit-hindi-dd20-english-dd51-265gb-502gb-gdrive/&do=findComment&comment=360426)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
