@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kannalambili - Audio Song | Super Sharanya | Anaswara Rajan | Justin Varghese | Girish AD](https://www.youtube.com/watch?v=bUS9-Zrvvc0)
+- [Punchirichal Poonilavudikkum Video Song | Sreedevi Malayalam Movie | KJ Yesudas | Kamal Haasan |](https://www.youtube.com/watch?v=LZJz1_ueoI8)
 - [Thulaavarsha Melam | Ashwaradham (1980) | Mankombu Gopalakrishnan | Shyam | K.J.Yesudas | S.Janaki](https://www.youtube.com/watch?v=tldKBNrsi94)
 - [ശശിലേഖേ നീ പുല്‍കി പുല്‍കി ചേരും... #evergreenhits #mohanlalhits #yodhamoviesongs #](https://www.youtube.com/watch?v=NoDqaOkaCu8)
 - [Manasa Vaacha Karmana |  Manasa Vacha #jassiegift #filmsongs #shortsfeed #shorts #shortsvideo #reels](https://www.youtube.com/watch?v=G-LWpp4sIMQ)
 - [പാട്ടുപെട്ടി | Paattupetti Vol 42 | Malayalam Film Songs | Satyam Audios](https://www.youtube.com/watch?v=Q9wMuheM8UQ)
-- [Padiyum Paranjum | ദക്ഷിണാമൂർത്തിസ്വാമിയുമായുള്ള അഭേദ്യബന്ധം | പാടിയും പറഞ്ഞും |  Sreekumaran Thampi](https://www.youtube.com/watch?v=R0KsZPa6nxw)
-- [Shaaru Shaaru - Audio Song | Super Sharanya | Justin Varghese | Anaswara Rajan | Arjun Ashokan](https://www.youtube.com/watch?v=HQGr09Zxxjk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
