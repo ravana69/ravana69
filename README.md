@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pichaikkaran &lpar;2016&rpar; - BD50 - AVC - 1080P - DTS HD MA 7.1 &amp; DD - 30GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/120490-pichaikkaran-2016-bd50-avc-1080p-dts-hd-ma-71-dd-30gb-esub/&do=findComment&comment=360425)
 - [Sarkaru Vaari Paata &lpar;2022&rpar; - Video Songs - 4K HEVC - WEB-DL - DDP5.1 [Tam + Tel + Mal] - Esubs](https://www.1tamilmv.world/index.php?/forums/topic/177690-sarkaru-vaari-paata-2022-video-songs-4k-hevc-web-dl-ddp51-tam-tel-mal-esubs/&do=findComment&comment=360424)
 - [Sarkaru Vaari Paata &lpar;2022&rpar; - Video Songs - 4K HEVC - WEB-DL - DDP5.1 [Tam + Tel + Mal] - Esubs](https://www.1tamilmv.world/index.php?/forums/topic/177690-sarkaru-vaari-paata-2022-video-songs-4k-hevc-web-dl-ddp51-tam-tel-mal-esubs/&do=findComment&comment=360423)
 - [Sarkaru Vaari Paata &lpar;2022&rpar; - Video Songs - 1080p - AVC - WEB-DL - DDP5.1 [Tam + Tel + Mal] - Esubs](https://www.1tamilmv.world/index.php?/forums/topic/177689-sarkaru-vaari-paata-2022-video-songs-1080p-avc-web-dl-ddp51-tam-tel-mal-esubs/&do=findComment&comment=360422)
 - [Thalaivaa &lpar;2013&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 5.8GB - ESub - GDFlix](https://www.1tamilmv.world/index.php?/forums/topic/177680-thalaivaa-2013-tamil-true-web-dl-1080p-hq-avc-untouched-dd51-58gb-esub-gdflix/&do=findComment&comment=360421)
-- [Athadu &lpar;2005&rpar; Telugu 1080p iDream DVD9 Ai Upscaled - x264 - &lpar;DD 5.1 - 448kbps&rpar; - Shyam - 14GB - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177686-athadu-2005-telugu-1080p-idream-dvd9-ai-upscaled-x264-dd-51-448kbps-shyam-14gb-esub-google-drive/&do=findComment&comment=360420)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
