@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പാട്ടുപെട്ടി | Paattupetti Vol 42 | Malayalam Film Songs | Satyam Audios](https://www.youtube.com/watch?v=Q9wMuheM8UQ)
+- [Padiyum Paranjum | ദക്ഷിണാമൂർത്തിസ്വാമിയുമായുള്ള അഭേദ്യബന്ധം | പാടിയും പറഞ്ഞും |  Sreekumaran Thampi](https://www.youtube.com/watch?v=R0KsZPa6nxw)
+- [Shaaru Shaaru - Audio Song | Super Sharanya | Justin Varghese | Anaswara Rajan | Arjun Ashokan](https://www.youtube.com/watch?v=HQGr09Zxxjk)
 - [ശുദ്ധർ സ്തുതിക്കും വീടേ | ROY PUTHUR &MITHILA|SHINU VARUGHESE #christiandevotionalsongs](https://www.youtube.com/watch?v=r-xbAcHPOWU)
 - [Pathira Paalkadavil | Chenkol | Mohanlal | Surabhi | Yesudas | Johnson | Sibi Malayil](https://www.youtube.com/watch?v=R36QoprexN4)
 - [അമ്മയെൻ പുണ്യം #ജപമാല സംഗീതരൂപത്തിൽ # അതിമനോഹരമായ ഒരു അത്ഭുത സൃഷ്ടി #japamala  malayalam #vachanam](https://www.youtube.com/watch?v=_T35wTATLC0)
-- [Mohanlal Super Hit Song Vilkkaanundo | Indrajaalam Remastered  Malayalam Movie Song](https://www.youtube.com/watch?v=6rOYQlyeco4)
-- [Devangane | Kayam #shortsvideo](https://www.youtube.com/watch?v=_0Tjhr86y6I)
-- [എല്ലാം പ്രഭാത പ്രാർത്ഥന ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Christian Songs](https://www.youtube.com/watch?v=dRrhGQ2Mbh8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
