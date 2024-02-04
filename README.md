@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ചിത്രമണിക്കാട്ടിൽ എൻ ഇഷ്ടമലർക്കൂട് | കെ ജെ യേശുദാസ്  | ചിത്ര | P Jayachandran | Selected Film songs](https://www.youtube.com/watch?v=ZNjiVOpi2Ms)
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 5th February 24](https://www.youtube.com/watch?v=PJjO8YTxNJQ)
+- [Manjukuttikal   Welcome to Kodaikanal   C Rajamani   Hi Res Audio](https://www.youtube.com/watch?v=Ap2qQIX8JOQ)
 - [Break Dance | Mookilla Rajyathu | Mukesh | Jagathy | Thilakan | Siddique | KS Chithra | Suchithra](https://www.youtube.com/watch?v=hJGdXW6XtNA)
 - [Christian Melody Songs | Wilson Piravom | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=-3ScdCyaqxw)
 - [വിശ്വാസം എന്നത്  ആശിക്കുന്നതിന്റെ ഉറപ്പും കാണാത്ത കാര്യങ്ങളുടെ നിശ്ചയവുമാകുന്നുRev. Aneesh P Joseph](https://www.youtube.com/watch?v=CI89DCdsthI)
-- [Oru thulli pala thulli Video Song | Sreekrishnapurathu Nakshathrathilakkam | KJ Yesudas | Daleema](https://www.youtube.com/watch?v=zASZJRnvUyQ)
-- [Orupole Chimmum |  Innanu Aa Kalyanam #bijibal #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=GS1t6M2ECWE)
-- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 4th of February 2024](https://www.youtube.com/watch?v=fU2-o8vUBx0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
