@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Rathinirvedam | Evergreen Movie Songs Video Jukebox|Swetha Menon| M Jayachandran |Murugan Kattakkada](https://www.youtube.com/watch?v=Us79OnN-NuY)
 - [Manoj K. Jayan Old Malayalam Movie Songs |  Manjukalavum Kazhinju | Remastered Malayalam Movie Songs](https://www.youtube.com/watch?v=RAAHTCnFKng)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kripasanam #mothermarysongsmalayalam #feb 5th 2024](https://www.youtube.com/watch?v=7gjwv4G5rCY)
 - [Japamala 5th of February 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 5th of February 24](https://www.youtube.com/watch?v=1e7yAlqMMZY)
 - [ഇന്ന് ഫെബ്രുവരി  05.എൻറെ കർത്താവിൻറെ അമ്മയുടെ #ജപമാല  കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala](https://www.youtube.com/watch?v=KhDvseV7RX8)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=tIaw8bRkmoE)
-- [പ്രഭാത പ്രാര്‍ത്ഥന 5th of February # Athiravile Prarthana 5th February 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=qeE00UcqMB8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
