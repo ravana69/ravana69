@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Iron Man Trilogy &lpar;2008-2013&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 6.7GB &amp; 3.9GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 500MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177703-iron-man-trilogy-2008-2013-bluray-original-audios-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-eng-67gb-39gb-x264-tamil-telugu-hindi-500mb-esub/&do=findComment&comment=360496)
+- [HERCULES - Official Main Trailer 2 &lpar;HD&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177710-hercules-official-main-trailer-2-hd/&do=findComment&comment=360494)
 - [Akebi&#39;s Sailor Uniform S01 EP11 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 300MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177709-akebis-sailor-uniform-s01-ep11-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-300mb-200mb-esub-google-drive/&do=findComment&comment=360493)
 - [Radiant S01 EP14 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 400MB - 300MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177708-radiant-s01-ep14-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-400mb-300mb-esub-google-drive/&do=findComment&comment=360492)
 - [Uyire &lpar;1998&rpar; NF WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 6.7 GB | 2 GB](https://www.1tamilmv.world/index.php?/forums/topic/177699-uyire-1998-nf-web-dl-ddp51-esubs-x264-1080p-720p-67-gb-2-gb/&do=findComment&comment=360491)
-- [Radiant S01 EP13 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 250MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177707-radiant-s01-ep13-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-250mb-200mb-esub-google-drive/&do=findComment&comment=360490)
-- [MANASARA &lpar;2010&rpar; Telugu HQ HDTV-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 3.8GB &amp; 2.4GB]](https://www.1tamilmv.world/index.php?/forums/topic/177706-manasara-2010-telugu-hq-hdtv-dl-1080p-720p-avc-aac-20-38gb-24gb/&do=findComment&comment=360489)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
