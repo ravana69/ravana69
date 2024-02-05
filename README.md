@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Poomaname Oru raga Video Song Video Song | Nirakkoottu | Mammootty | Sumalatha | KS Chithra | Shyam](https://www.youtube.com/watch?v=BslnELBH-HE)
+- [Pacha Paayal - Audio Song | Super Sharanya | Anaswara Rajan | Arjun A | Justin Varghese | Girish AD](https://www.youtube.com/watch?v=u7El-2ogGWs)
+- [Anuraagappuzhavakkil | English Medium | Pattanakkad Purushothaman | Susmitha #shorts](https://www.youtube.com/watch?v=tJYq0-NeSnI)
 - [മലയാളികളുടെ  മനസിൽ എന്നും മിന്നി തിളങ്ങിയ മലയാളസിനിമയിലെ നിത്യ സുന്ദരഗാനങ്ങൾ ! EVERGREEN HITS](https://www.youtube.com/watch?v=SiBWf8rs9bQ)
 - [Pavanathmave Aswasadayaka | Aswasamekunna Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=mPFbK-TcHGE)
 - [Marunno Nalla Marunnu | Agnimrigam | Vayalar | G Devarajan | KJ Yesudas | Prem Nazeer | Old is Gold](https://www.youtube.com/watch?v=TczujXn17eg)
-- [Chembarathi Kammalittu  | Anil Panachooran | M Jayachandran | Shreya Ghoshal | Ravisankar](https://www.youtube.com/watch?v=5nIkENisoro)
-- [കമൽഹാസൻ അഭിനയിച്ച പഴയകാല ഹിറ്റ് ഗാനങ്ങൾ | Premabhishekam Movie Video Songs | Kamal Haasan | Sridevi](https://www.youtube.com/watch?v=xZgt7R6cjBc)
-- [Bhasuri  | Rathrimazha #sujatha #rameshnarayanan #srinivas #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=J06urQhfW0k)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
