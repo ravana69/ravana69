@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vallabha &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7.5GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177713-vallabha-2006-telugu-dvd9-untouched-480p-dd51-448kbps-75gb-esub/&do=findComment&comment=360498)
+- [Jai Vijayam &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.5GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.world/index.php?/forums/topic/177712-jai-vijayam-2023-tamil-true-web-dl-1080p-720p-avc-aac-20-25gb-14gb-x264-700mb-400mb-250mb/&do=findComment&comment=360497)
 - [Iron Man Trilogy &lpar;2008-2013&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 6.7GB &amp; 3.9GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 500MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177703-iron-man-trilogy-2008-2013-bluray-original-audios-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-eng-67gb-39gb-x264-tamil-telugu-hindi-500mb-esub/&do=findComment&comment=360496)
 - [Hercules &lpar;2014&rpar; &lpar;Extended BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177711-hercules-2014-extended-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-2gb-1gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=360495)
 - [HERCULES - Official Main Trailer 2 &lpar;HD&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177710-hercules-official-main-trailer-2-hd/&do=findComment&comment=360494)
-- [Akebi&#39;s Sailor Uniform S01 EP11 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 300MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177709-akebis-sailor-uniform-s01-ep11-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-300mb-200mb-esub-google-drive/&do=findComment&comment=360493)
-- [Radiant S01 EP14 BR-Rip 10bit - [1080p - 720p - HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 400MB - 300MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177708-radiant-s01-ep14-br-rip-10bit-1080p-720p-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-400mb-300mb-esub-google-drive/&do=findComment&comment=360492)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
