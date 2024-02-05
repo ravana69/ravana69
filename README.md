@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Metallic Rogue S01 E03 WEBRip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 200MB - 150MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177696-metallic-rogue-s01-e03-webrip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-200mb-150mb-esub-google-drive/&do=findComment&comment=360463)
 - [Lal Salaam &lpar;2024&rpar; Tamil Audio launch TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.9GB - 1.9GB &amp; 600MB]](https://www.1tamilmv.world/index.php?/forums/topic/177694-lal-salaam-2024-tamil-audio-launch-true-web-dl-1080p-720p-avc-29gb-19gb-600mb/&do=findComment&comment=360462)
 - [Saba Nayagan &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 5.5GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177662-saba-nayagan-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-55gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360461)
 - [Saindhav &lpar;2024&rpar; Tamil TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 17GB - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177673-saindhav-2024-tamil-true-web-dl-4k-1080p-720p-avc-dd51-640kbps-17gb-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360460)
 - [Happy Ending &lpar;2024&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.world/index.php?/forums/topic/177655-happy-ending-2024-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=360459)
-- [Yaariyan 2 &lpar;2023&rpar; Hindi HQ HDTV - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.8GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.world/index.php?/forums/topic/177695-yaariyan-2-2023-hindi-hq-hdtv-1080p-720p-avc-aac-20-28gb-13gb-x264-700mb-400mb/&do=findComment&comment=360458)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
