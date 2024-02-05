@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Malai Malai   Chocklet   Deva   Hi Res Audio](https://www.youtube.com/watch?v=mr3IYAis7Aw)
+- [Shaaru In Town - Audio Song | Super Sharanya | Anaswara Rajan | Justin Varghese | Girish AD](https://www.youtube.com/watch?v=mZBNQi9W04c)
+- [Christian Superhit Songs | Kester | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=QY7I0hfzkXA)
 - [ക്ഷതങ്ങളെല്ലാം പുഞ്ചിരിയോടെ നേരിടുക|  Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=g8WHdXNf4dc)
 - [Thaarangal - Video Song | Philip's | Hesham Abdul Wahab | Zeba Tommy | Alfred Kurian](https://www.youtube.com/watch?v=dU6FQ7nJRrI)
 - [Pranaya Gaanam Song | Anarkali | P Susheela | MS Baburaj #shorts](https://www.youtube.com/watch?v=5e63bUjBB9o)
-- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 5th of February 2024](https://www.youtube.com/watch?v=6JEhPuAVzdE)
-- [Poomaname Oru raga Video Song Video Song | Nirakkoottu | Mammootty | Sumalatha | KS Chithra | Shyam](https://www.youtube.com/watch?v=BslnELBH-HE)
-- [Pacha Paayal - Audio Song | Super Sharanya | Anaswara Rajan | Arjun A | Justin Varghese | Girish AD](https://www.youtube.com/watch?v=u7El-2ogGWs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
