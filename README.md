@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളികളുടെ  മനസിൽ എന്നും മിന്നി തിളങ്ങിയ മലയാളസിനിമയിലെ നിത്യ സുന്ദരഗാനങ്ങൾ ! EVERGREEN HITS](https://www.youtube.com/watch?v=SiBWf8rs9bQ)
+- [Pavanathmave Aswasadayaka | Aswasamekunna Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=mPFbK-TcHGE)
+- [Marunno Nalla Marunnu | Agnimrigam | Vayalar | G Devarajan | KJ Yesudas | Prem Nazeer | Old is Gold](https://www.youtube.com/watch?v=TczujXn17eg)
+- [Chembarathi Kammalittu  | Anil Panachooran | M Jayachandran | Shreya Ghoshal | Ravisankar](https://www.youtube.com/watch?v=5nIkENisoro)
+- [കമൽഹാസൻ അഭിനയിച്ച പഴയകാല ഹിറ്റ് ഗാനങ്ങൾ | Premabhishekam Movie Video Songs | Kamal Haasan | Sridevi](https://www.youtube.com/watch?v=xZgt7R6cjBc)
 - [Bhasuri  | Rathrimazha #sujatha #rameshnarayanan #srinivas #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=J06urQhfW0k)
-- [Rathinirvedam | Evergreen Movie Songs Video Jukebox|Swetha Menon| M Jayachandran |Murugan Kattakkada](https://www.youtube.com/watch?v=Us79OnN-NuY)
-- [Manoj K. Jayan Old Malayalam Movie Songs |  Manjukalavum Kazhinju | Remastered Malayalam Movie Songs](https://www.youtube.com/watch?v=RAAHTCnFKng)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kripasanam #mothermarysongsmalayalam #feb 5th 2024](https://www.youtube.com/watch?v=7gjwv4G5rCY)
-- [Japamala 5th of February 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 5th of February 24](https://www.youtube.com/watch?v=1e7yAlqMMZY)
-- [ഇന്ന് ഫെബ്രുവരി  05.എൻറെ കർത്താവിൻറെ അമ്മയുടെ #ജപമാല  കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala](https://www.youtube.com/watch?v=KhDvseV7RX8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
