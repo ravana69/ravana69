@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [80 Tamil Movies - AMZN / SUN NXT / JC / NF / TK WEB DL - H264 / H265 - DD5.1 / DD2.0 - [2160p &amp; 1080p &amp; 720p - 600GB] - Esub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/136729-80-tamil-movies-amzn-sun-nxt-jc-nf-tk-web-dl-h264-h265-dd51-dd20-2160p-1080p-720p-600gb-esub-google-drive/&do=findComment&comment=360503)
 - [Jawan.2023 &lpar;Extended Cut&rpar; Exclusive .2160p, 1080p, 720p .iT.WEB-DL.DD5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177715-jawan2023-extended-cut-exclusive-2160p-1080p-720p-itweb-dldd51-direct-download/&do=findComment&comment=360502)
 - [The.Passenger.2023.1080p, 720p .AMZN.WEB-DL.DUAL.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177714-thepassenger20231080p-720p-amznweb-dldualddp51-direct-download/&do=findComment&comment=360501)
 - [Ayalaan &lpar;2024&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 3.8GB - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - HC-ESub](https://www.1tamilmv.world/index.php?/forums/topic/177639-ayalaan-2024-tamil-web-dl-1080p-720p-avc-hevc-aac-20-38gb-28gb-14gb-850mb-x264-700mb-400mb-250mb-hc-esub/&do=findComment&comment=360500)
 - [80 Tamil Movies - AMZN / SUN NXT / JC / NF / TK WEB DL - H264 / H265 - DD5.1 / DD2.0 - [2160p &amp; 1080p &amp; 720p - 600GB] - Esub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/136729-80-tamil-movies-amzn-sun-nxt-jc-nf-tk-web-dl-h264-h265-dd51-dd20-2160p-1080p-720p-600gb-esub-google-drive/&do=findComment&comment=360499)
-- [Vallabha &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7.5GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177713-vallabha-2006-telugu-dvd9-untouched-480p-dd51-448kbps-75gb-esub/&do=findComment&comment=360498)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
