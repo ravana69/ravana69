@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ente Pranayathin  | Chembada #najimarshad #shortsfeed #shorts #bala #shortsvideo #reels](https://www.youtube.com/watch?v=TUfE0-jj--Q)
 - [Pazhampattu | Video | Kadha Paranja Kadha |  Sithara Krishnakumar  |](https://www.youtube.com/watch?v=MhGItBq7NzI)
 - [Prithviraj Old Malayalam Movie Songs | Krithyam Movie Song | Remastered Malayalam Songs](https://www.youtube.com/watch?v=RSl1mpV2do4)
 - [Mazhavil Poovayi | Iyer In Arabia #vijayyesudas #nithyamammen #shortsfeed #shorts #dhyansreenivasan](https://www.youtube.com/watch?v=F76Z8DYeazE)
 - [Thirunelli Kaadu | Dinarathrangal | Mukesh | Parvathy | Chithra | Mohan Sithara](https://www.youtube.com/watch?v=ErmNjXSSGP4)
 - [Aaru Nee Kanmani | Aanandhapuram Diaries |Video| K S Chithra | Albert Vijayan | Meena |Jaya Jose Raj](https://www.youtube.com/watch?v=W-0oCTebAxg)
-- [Njan Chendena | Bahubali #shortsvideo #manoramamusic](https://www.youtube.com/watch?v=9Xask1CDnO8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
