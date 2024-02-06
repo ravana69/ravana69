@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Gods of Egypt &lpar;2016&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.6GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177720-gods-of-egypt-2016-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-36gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=360540)
 - [Unraveling Ancient Tongues: Ai Ranks the 12 Oldest Living Languages That Shaped Civilization!](https://www.1tamilmv.world/index.php?/forums/topic/159927-unraveling-ancient-tongues-ai-ranks-the-12-oldest-living-languages-that-shaped-civilization/&do=findComment&comment=360539)
 - [Big Bang is not The Beginning of Our Universe — It’s Actually the End of Something Else Entirely](https://www.1tamilmv.world/index.php?/forums/topic/159924-big-bang-is-not-the-beginning-of-our-universe-%E2%80%94-it%E2%80%99s-actually-the-end-of-something-else-entirely/&do=findComment&comment=360538)
 - [Does God Really Exist? Ai Decoding the Existence of the Creator](https://www.1tamilmv.world/index.php?/forums/topic/160338-does-god-really-exist-ai-decoding-the-existence-of-the-creator/&do=findComment&comment=360537)
 - [Hawking&#39;s Unpublished Theory of Nothing:AI Revelation on Existence, Creation &amp; the Eternal &#39;Nothing&#39;](https://www.1tamilmv.world/index.php?/forums/topic/160669-hawkings-unpublished-theory-of-nothingai-revelation-on-existence-creation-the-eternal-nothing/&do=findComment&comment=360536)
-- [Einstein&#39;s Cosmic Belief: Ai Exploring His Unique Connection to God Beyond Religion](https://www.1tamilmv.world/index.php?/forums/topic/161997-einsteins-cosmic-belief-ai-exploring-his-unique-connection-to-god-beyond-religion/&do=findComment&comment=360535)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
