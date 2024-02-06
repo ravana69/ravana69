@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മനുഷ്യനിൽ ആശ്രയിക്കുന്നതിനേക്കാൾ യഹോവയിൽ ആശ്രയിക്കുന്നതാണുനല്ലത് |  Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=z6Ueku2QX7s)
+- [Udayagirikkottayile Video Song | Aromalunni | P Susheela | G Devarajan | Vayalar](https://www.youtube.com/watch?v=77YieU49hY8)
+- [THOOVAL-Video Song | Manal Pakshikal | Mithun Jayaraj | Shanavas Shanu I Santhosh Keezhatoor IAnjali](https://www.youtube.com/watch?v=qK3eqriFBjQ)
+- [Kiliye Kiliye Video Song | Aa Rathri | Mammootty | Poornima | Rohini | Ilayaraja | S Janaki](https://www.youtube.com/watch?v=wcDcPNXVhk4)
+- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 6th of February 2024](https://www.youtube.com/watch?v=bA9gZTEUZBg)
 - [കൂട്ടിൽ നിന്നും മേട്ടിൽ വന്ന പൈങ്കിളിയല്ലേ #mohanlal #thalavattam #hitsongs](https://www.youtube.com/watch?v=1uOKUXp4fA8)
-- [Anjanakanna Vaa Vaa Video Song | Sreedevi Malayalam Movie | P Madhuri](https://www.youtube.com/watch?v=Srj469nsnHQ)
-- [Maname Maduthupokaruthe | #shorts | Praise & Worship Song by Hector Lewis and Rani Hector](https://www.youtube.com/watch?v=9H8mw-pNY60)
-- [Kilippenne | Dosth | Vidyasagar | K J Yesudas | S Ramesan Nair #SongOfTheDay](https://www.youtube.com/watch?v=Mh97gtS2NKg)
-- [മനസ്സിൽ മോഹമുണർത്തുന്ന മലയാളസിനിമാഗാനങ്ങൾ ! SOULFUL MELODY SONGS MALAYALAM | MOVIEWORLD MUSIC](https://www.youtube.com/watch?v=TNrgsFQ6yVU)
-- [Vellathamara Mottu Pole | Thirichadi | Vayalar | KJ Yesudas | P Susheela | Prem Nazir | Sheela](https://www.youtube.com/watch?v=bk_oNzspXkY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
