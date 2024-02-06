@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [അനുഗ്രഹീത ഗായകൻ വിൽ‌സൺ പിറവത്തിന്റെ കേൾക്കാൻ കൊതിക്കുന്ന ഗാനങ്ങൾ |Christian Songs Malayalam](https://www.youtube.com/watch?v=wD74s_Sg5bA)
+- [Pampayarin (Instrumental) - Audio Song | Kunnakudi Vaidyanathan Inst Malayalam Dev | Lord Ayyappa](https://www.youtube.com/watch?v=B76GFEticRY)
 - [Katteda Katteda | Mulla | Manikya Vinayakam | Tippu | Rimi Tomy | Resmi Satheesh | Vidyasagar](https://www.youtube.com/watch?v=O87m90CKI6o)
 - [Oru Manjakkilikoodu | Happy Husbands | Indrajith Sukumaran | Achu Rajamani | Anand Narayanan](https://www.youtube.com/watch?v=IByTihSrBHw)
 - [മനുഷ്യനിൽ ആശ്രയിക്കുന്നതിനേക്കാൾ യഹോവയിൽ ആശ്രയിക്കുന്നതാണുനല്ലത് |  Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=z6Ueku2QX7s)
 - [Udayagirikkottayile Video Song | Aromalunni | P Susheela | G Devarajan | Vayalar](https://www.youtube.com/watch?v=77YieU49hY8)
-- [THOOVAL-Video Song | Manal Pakshikal | Mithun Jayaraj | Shanavas Shanu I Santhosh Keezhatoor IAnjali](https://www.youtube.com/watch?v=qK3eqriFBjQ)
-- [Kiliye Kiliye Video Song | Aa Rathri | Mammootty | Poornima | Rohini | Ilayaraja | S Janaki](https://www.youtube.com/watch?v=wcDcPNXVhk4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
