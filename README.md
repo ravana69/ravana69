@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Njan Chendena | Bahubali #shortsvideo #manoramamusic](https://www.youtube.com/watch?v=9Xask1CDnO8)
+- [Non Stop Maramon Convention Songs | Malayalam Christian Songs | Kester | Sujatha | Shweta Mohan](https://www.youtube.com/watch?v=Mxz6Xgg1sZo)
 - [മാതാവിൻറെ  പ്രാർത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#kreupasanam  prayer and songs 6th](https://www.youtube.com/watch?v=7w_j6XL5I6k)
 - [Japamala 6th of February 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 6th of February 24](https://www.youtube.com/watch?v=lUV_5XuzoBI)
 - [ഇന്ന് ഫെബ്രുവരി 6 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  dhukkam](https://www.youtube.com/watch?v=owqolgaol5k)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=Obmilc42ghI)
-- [രാവിലെ പ്രാര്‍ത്ഥന 6th of February # Athiravile Prarthana 6th February 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=7RAlxWc7Dxc)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=AglBJKaVyik)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
