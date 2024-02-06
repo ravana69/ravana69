@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കൂട്ടിൽ നിന്നും മേട്ടിൽ വന്ന പൈങ്കിളിയല്ലേ #mohanlal #thalavattam #hitsongs](https://www.youtube.com/watch?v=1uOKUXp4fA8)
+- [Anjanakanna Vaa Vaa Video Song | Sreedevi Malayalam Movie | P Madhuri](https://www.youtube.com/watch?v=Srj469nsnHQ)
 - [Maname Maduthupokaruthe | #shorts | Praise & Worship Song by Hector Lewis and Rani Hector](https://www.youtube.com/watch?v=9H8mw-pNY60)
 - [Kilippenne | Dosth | Vidyasagar | K J Yesudas | S Ramesan Nair #SongOfTheDay](https://www.youtube.com/watch?v=Mh97gtS2NKg)
 - [മനസ്സിൽ മോഹമുണർത്തുന്ന മലയാളസിനിമാഗാനങ്ങൾ ! SOULFUL MELODY SONGS MALAYALAM | MOVIEWORLD MUSIC](https://www.youtube.com/watch?v=TNrgsFQ6yVU)
 - [Vellathamara Mottu Pole | Thirichadi | Vayalar | KJ Yesudas | P Susheela | Prem Nazir | Sheela](https://www.youtube.com/watch?v=bk_oNzspXkY)
-- [മനസ്സ് നിറഞ്ഞാസ്വദിക്കുന്ന മലയാളസിനിമയിലെ മനോഹര ഗാനങ്ങൾ | MALAYALAM EVERGREEN SONGS](https://www.youtube.com/watch?v=E_aBa6JEsdg)
-- [ജീവന്റെ ഉറവിടം ക്രിസ്തുവത്രെ | CHRISTIAN DEVOTIONAL | ROY PUTHUR #christiandevotionalsongs](https://www.youtube.com/watch?v=bvlmunQ3yCU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
