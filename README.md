@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Paradesi &lpar;2013&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 3.3GB - ESub - UE](https://www.1tamilmv.world/index.php?/forums/topic/177723-paradesi-2013-tamil-true-web-dl-1080p-avc-untouched-aac20-33gb-esub-ue/&do=findComment&comment=360553)
+- [Cameraman Gangatho Rambabu &lpar;2012&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.8GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177722-cameraman-gangatho-rambabu-2012-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-68gb-esub/&do=findComment&comment=360552)
 - [Leelai &lpar;2012&rpar; Tamil TRUE WEB-DL - 480p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 1.1GB - GDFlix](https://www.1tamilmv.world/index.php?/forums/topic/174658-leelai-2012-tamil-true-web-dl-480p-avc-untouched-aac20-11gb-gdflix/&do=findComment&comment=360551)
 - [Jai Vijayam &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.5GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.world/index.php?/forums/topic/177712-jai-vijayam-2023-tamil-true-web-dl-1080p-720p-avc-aac-20-25gb-14gb-x264-700mb-400mb-250mb/&do=findComment&comment=360550)
 - [Jai Vijayam &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.5GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.world/index.php?/forums/topic/177712-jai-vijayam-2023-tamil-true-web-dl-1080p-720p-avc-aac-20-25gb-14gb-x264-700mb-400mb-250mb/&do=findComment&comment=360549)
-- [Cameraman Gangatho Rambabu &lpar;2012&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.8GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177722-cameraman-gangatho-rambabu-2012-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-68gb-esub/&do=findComment&comment=360548)
-- [Hercules &lpar;2014&rpar; &lpar;Extended BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177711-hercules-2014-extended-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-2gb-1gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=360547)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
