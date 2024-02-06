@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Katteda Katteda | Mulla | Manikya Vinayakam | Tippu | Rimi Tomy | Resmi Satheesh | Vidyasagar](https://www.youtube.com/watch?v=O87m90CKI6o)
+- [Oru Manjakkilikoodu | Happy Husbands | Indrajith Sukumaran | Achu Rajamani | Anand Narayanan](https://www.youtube.com/watch?v=IByTihSrBHw)
 - [മനുഷ്യനിൽ ആശ്രയിക്കുന്നതിനേക്കാൾ യഹോവയിൽ ആശ്രയിക്കുന്നതാണുനല്ലത് |  Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=z6Ueku2QX7s)
 - [Udayagirikkottayile Video Song | Aromalunni | P Susheela | G Devarajan | Vayalar](https://www.youtube.com/watch?v=77YieU49hY8)
 - [THOOVAL-Video Song | Manal Pakshikal | Mithun Jayaraj | Shanavas Shanu I Santhosh Keezhatoor IAnjali](https://www.youtube.com/watch?v=qK3eqriFBjQ)
 - [Kiliye Kiliye Video Song | Aa Rathri | Mammootty | Poornima | Rohini | Ilayaraja | S Janaki](https://www.youtube.com/watch?v=wcDcPNXVhk4)
-- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 6th of February 2024](https://www.youtube.com/watch?v=bA9gZTEUZBg)
-- [കൂട്ടിൽ നിന്നും മേട്ടിൽ വന്ന പൈങ്കിളിയല്ലേ #mohanlal #thalavattam #hitsongs](https://www.youtube.com/watch?v=1uOKUXp4fA8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
