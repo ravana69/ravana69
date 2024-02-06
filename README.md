@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ധനുമാസതിങ്കൾ കൊളുത്തും..| കെ ജെ യേശുദാസ്  | കെ എസ് ചിത്ര | Selected Film songs](https://www.youtube.com/watch?v=K6EyGpeeb3Q)
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 7th February 24](https://www.youtube.com/watch?v=a_My5hlTato)
 - [Kathu Kathoru | Nammal | Jishnu | Siddharth | Mohan Sithara | Bhavana | Suhasini | Renuka](https://www.youtube.com/watch?v=hK5cCK20FEQ)
 - [Akale Nizhalaay Remastered Audio Song Dilliwaala Raajakumaaran Biju Narayanan Arundhathi Ouseppachan](https://www.youtube.com/watch?v=yhOcbUk60AY)
 - [Hrudayamurugi Nee (Revival) - Audio Song | Karutha Pournami | K.J. Yesudas | M.K. Arjunan](https://www.youtube.com/watch?v=M53gswJ7EjQ)
 - [അനുഗ്രഹീത ഗായകൻ വിൽ‌സൺ പിറവത്തിന്റെ കേൾക്കാൻ കൊതിക്കുന്ന ഗാനങ്ങൾ |Christian Songs Malayalam](https://www.youtube.com/watch?v=wD74s_Sg5bA)
-- [Pampayarin (Instrumental) - Audio Song | Kunnakudi Vaidyanathan Inst Malayalam Dev | Lord Ayyappa](https://www.youtube.com/watch?v=B76GFEticRY)
-- [Katteda Katteda | Mulla | Manikya Vinayakam | Tippu | Rimi Tomy | Resmi Satheesh | Vidyasagar](https://www.youtube.com/watch?v=O87m90CKI6o)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
