@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മനസ്സിൽ മോഹമുണർത്തുന്ന മലയാളസിനിമാഗാനങ്ങൾ ! SOULFUL MELODY SONGS MALAYALAM | MOVIEWORLD MUSIC](https://www.youtube.com/watch?v=TNrgsFQ6yVU)
+- [Vellathamara Mottu Pole | Thirichadi | Vayalar | KJ Yesudas | P Susheela | Prem Nazir | Sheela](https://www.youtube.com/watch?v=bk_oNzspXkY)
+- [മനസ്സ് നിറഞ്ഞാസ്വദിക്കുന്ന മലയാളസിനിമയിലെ മനോഹര ഗാനങ്ങൾ | MALAYALAM EVERGREEN SONGS](https://www.youtube.com/watch?v=E_aBa6JEsdg)
+- [ജീവന്റെ ഉറവിടം ക്രിസ്തുവത്രെ | CHRISTIAN DEVOTIONAL | ROY PUTHUR #christiandevotionalsongs](https://www.youtube.com/watch?v=bvlmunQ3yCU)
 - [Ente Pranayathin  | Chembada #najimarshad #shortsfeed #shorts #bala #shortsvideo #reels](https://www.youtube.com/watch?v=TUfE0-jj--Q)
 - [Pazhampattu | Video | Kadha Paranja Kadha |  Sithara Krishnakumar  |](https://www.youtube.com/watch?v=MhGItBq7NzI)
-- [Prithviraj Old Malayalam Movie Songs | Krithyam Movie Song | Remastered Malayalam Songs](https://www.youtube.com/watch?v=RSl1mpV2do4)
-- [Mazhavil Poovayi | Iyer In Arabia #vijayyesudas #nithyamammen #shortsfeed #shorts #dhyansreenivasan](https://www.youtube.com/watch?v=F76Z8DYeazE)
-- [Thirunelli Kaadu | Dinarathrangal | Mukesh | Parvathy | Chithra | Mohan Sithara](https://www.youtube.com/watch?v=ErmNjXSSGP4)
-- [Aaru Nee Kanmani | Aanandhapuram Diaries |Video| K S Chithra | Albert Vijayan | Meena |Jaya Jose Raj](https://www.youtube.com/watch?v=W-0oCTebAxg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
