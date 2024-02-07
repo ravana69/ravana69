@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Gopalaka(രാക്കുയിലിൻ രാഗസദസ്സിൽ )Vinod velyudhan](https://www.youtube.com/watch?v=YaWrgjtPVzM)
-- [Embrace the Romance: Celebrating Valentine's Week Together Jukebox | Malayalam Romantic Hits](https://www.youtube.com/watch?v=eErp-tbYJRU)
-- [Veyilinte  | English Medium | KJ Yesudas | #shorts](https://www.youtube.com/watch?v=lFv2hsN5qNQ)
-- [Poopole Chirikum | Thirichadi | Vayalar | R Sudharsanam | P Susheela | Sheela | Prem Nazir](https://www.youtube.com/watch?v=_Nl8LpzTNgc)
-- [കേൾക്കുംതോറും ഇഷ്ടം കൂടുന്ന മലയാളികൾ ഒന്നടങ്കം  ഏറ്റെടുത്ത ജനപ്രിയ ഗാനങ്ങൾ ! MOST POPULAR SONGS](https://www.youtube.com/watch?v=Ia1pZ6bK5EA)
-- [Enna Thavam Seithanai | Thilakkam |Kavya Madhavan | Dileep | Kaithapram Viswanathan](https://www.youtube.com/watch?v=6RleHga5__U)
+- [Aananda Nadanam | Kamaladalam | KJ Yesudas | Raveendran | Kaithapram](https://www.youtube.com/watch?v=RaSAZF_FFDg)
+- [Nee Pinangalle - Video Song | Jerry | Vineeth Srinivasan, Nithya Mammen | Arun Vijay](https://www.youtube.com/watch?v=Fwrn07aAvHM)
+- [Aalundo Anjaravandi | Amal Antony | Sinto Sunny | Ouseppachan | Pappachan Olivilanu | Film Songs](https://www.youtube.com/watch?v=ptg5LzZCmw8)
+- [Amme Gange Mandaakini Video Song | Ulsavamelam | KJ Yesudas #shorts](https://www.youtube.com/watch?v=QeHHH5SwpxQ)
+- [PARAYUVATHENGANE - VIDEO SONG | Manal Pakshikal | Mithun Jayaraj | Shanavas Shanu,Santhosh,Anjali](https://www.youtube.com/watch?v=ZEo6LGMl68g)
+- [Manasa Vaacha Karmana | Manasa Vacha  #jassiegift #filmsongs #shortsfeed #shorts #shortsvideo #reels](https://www.youtube.com/watch?v=axcy8qJALFA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
