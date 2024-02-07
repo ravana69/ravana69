@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Christian Melody Songs |Wilson Piravom | Joji Johns | Christian Devotional Songs Malayalam | Kester](https://www.youtube.com/watch?v=vJWe1kBz-II)
+- [Prathiphalam | Christian Songs #shorts](https://www.youtube.com/watch?v=FLePBxK283k)
+- [Bhooloka Vaikunda Remastered Sargam Movie Song K  J Yesudas](https://www.youtube.com/watch?v=Ds1_mHvJ3ec)
 - [പരസ്പരം മനസ്സിലാക്കുക എന്നത് സ്നേഹത്തേക്കാൾ വലുതാണ്. |  Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=i4sYob3hd8Q)
 - [Aananda Nadanam | Kamaladalam | KJ Yesudas | Raveendran | Kaithapram](https://www.youtube.com/watch?v=RaSAZF_FFDg)
 - [Nee Pinangalle - Video Song | Jerry | Vineeth Srinivasan, Nithya Mammen | Arun Vijay](https://www.youtube.com/watch?v=Fwrn07aAvHM)
-- [Aalundo Anjaravandi | Amal Antony | Sinto Sunny | Ouseppachan | Pappachan Olivilanu | Film Songs](https://www.youtube.com/watch?v=ptg5LzZCmw8)
-- [Amme Gange Mandaakini Video Song | Ulsavamelam | KJ Yesudas #shorts](https://www.youtube.com/watch?v=QeHHH5SwpxQ)
-- [PARAYUVATHENGANE - VIDEO SONG | Manal Pakshikal | Mithun Jayaraj | Shanavas Shanu,Santhosh,Anjali](https://www.youtube.com/watch?v=ZEo6LGMl68g)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
