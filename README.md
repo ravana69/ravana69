@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Hridhaya Raktham | Samantharapakshikal |Video|Kallara Gopan|Prabha Varma |Dr Vazhamuttom Chandrababu](https://www.youtube.com/watch?v=q44J_GXIZeg)
+- [En Priya | Teslin Shaji | Binoy Cherian | Sabu Kurian | Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=yJMf-kvIQ_M)
+- [I Love You Mummy  | Lyrical + Karaoke  Video | Bhaskar The Rascal | Deepak Dev | Mammootty](https://www.youtube.com/watch?v=ZAkBunOkAic)
 - [Mohanlal Old Malayalam Movie Song | Chandralekha | Remastered Malayalam Movie Song | K. S. Chithra](https://www.youtube.com/watch?v=AeAmoui2PQ4)
 - [Kolamayil Penkodi | Jayasurya | Yesudas | Sujatha | Ouseppachan | Thaha](https://www.youtube.com/watch?v=fPuvpcAqui4)
 - [Aaru Nee Kanmani | Aanandhapuram Diaries | K S Chithra #kschithra #malayalamfilmsongs #shortsfeed](https://www.youtube.com/watch?v=B9Oc-0vKbYk)
-- [Namam Vazhthidam | #shorts | Usha Uthup | Christian Rock Song | Fr Shaji Thumpechirayil](https://www.youtube.com/watch?v=vnQeEYp8YOk)
-- [രാവിലെ കേൾക്കാൻ പറ്റിയ കുറച്ചു നല്ല ഗാനങ്ങൾ #ഇന്ന് ബുധനഴ്ച 7 2 2024 #morningsongsmalayalam christian](https://www.youtube.com/watch?v=G2Y1HbCSijM)
-- [Japamala 7th of February 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 7th of February 2024](https://www.youtube.com/watch?v=JG0de80BmKI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
