@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന 8th of February # Athiravile Prarthana 8th February 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=6hee3LXg0Ik)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=U_94uZkBbt0)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 8th February 24](https://www.youtube.com/watch?v=MysQpBsnpik)
 - [Kaanumbol Paraayamo | Ishtam | Mohan Sithara | Dileep |Navya Nair | KJ Yesudas | KS Chithra](https://www.youtube.com/watch?v=46pxD1g_IGY)
 - [Christian Melody Songs |Wilson Piravom | Joji Johns | Christian Devotional Songs Malayalam | Kester](https://www.youtube.com/watch?v=vJWe1kBz-II)
 - [Prathiphalam | Christian Songs #shorts](https://www.youtube.com/watch?v=FLePBxK283k)
-- [Bhooloka Vaikunda Remastered Sargam Movie Song K  J Yesudas](https://www.youtube.com/watch?v=Ds1_mHvJ3ec)
-- [പരസ്പരം മനസ്സിലാക്കുക എന്നത് സ്നേഹത്തേക്കാൾ വലുതാണ്. |  Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=i4sYob3hd8Q)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
