@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Poopole Chirikum | Thirichadi | Vayalar | R Sudharsanam | P Susheela | Sheela | Prem Nazir](https://www.youtube.com/watch?v=_Nl8LpzTNgc)
+- [കേൾക്കുംതോറും ഇഷ്ടം കൂടുന്ന മലയാളികൾ ഒന്നടങ്കം  ഏറ്റെടുത്ത ജനപ്രിയ ഗാനങ്ങൾ ! MOST POPULAR SONGS](https://www.youtube.com/watch?v=Ia1pZ6bK5EA)
+- [Enna Thavam Seithanai | Thilakkam |Kavya Madhavan | Dileep | Kaithapram Viswanathan](https://www.youtube.com/watch?v=6RleHga5__U)
+- [Manikyakkallaal | Varnapakittu | Vidyasagar, M G Sreekumar, Swarnalatha #SongOfTheDay](https://www.youtube.com/watch?v=a9grBcupCW8)
 - [Mayangoo Nee Sakhi | Living Together #kjyesudas #mjayachandran #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=qGTbNKD38Ls)
 - [Hridhaya Raktham | Samantharapakshikal |Video|Kallara Gopan|Prabha Varma |Dr Vazhamuttom Chandrababu](https://www.youtube.com/watch?v=q44J_GXIZeg)
-- [En Priya | Teslin Shaji | Binoy Cherian | Sabu Kurian | Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=yJMf-kvIQ_M)
-- [I Love You Mummy  | Lyrical + Karaoke  Video | Bhaskar The Rascal | Deepak Dev | Mammootty](https://www.youtube.com/watch?v=ZAkBunOkAic)
-- [Mohanlal Old Malayalam Movie Song | Chandralekha | Remastered Malayalam Movie Song | K. S. Chithra](https://www.youtube.com/watch?v=AeAmoui2PQ4)
-- [Kolamayil Penkodi | Jayasurya | Yesudas | Sujatha | Ouseppachan | Thaha](https://www.youtube.com/watch?v=fPuvpcAqui4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
