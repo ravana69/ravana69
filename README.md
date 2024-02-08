@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Aasai &lpar;1995&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 2.7GB - ESub - UE](https://www.1tamilmv.world/index.php?/forums/topic/177738-aasai-1995-tamil-true-web-dl-1080p-avc-untouched-aac20-27gb-esub-ue/&do=findComment&comment=360643)
+- [Race 2 &lpar;2013&rpar; BluRay - 1080p HQ - AVC - [ Tamil &lpar;AAC2.0&rpar; + Hindi &lpar;DD5.1&rpar; ] - 4.3GB - ESub - UE](https://www.1tamilmv.world/index.php?/forums/topic/177755-race-2-2013-bluray-1080p-hq-avc-tamil-aac20-hindi-dd51-43gb-esub-ue/&do=findComment&comment=360642)
 - [Mr.&amp;.Mrs.Smith.2005.BluRay DD5.1 Tamil-Telugu-Hindi-English 1080p.REMUX.AVC.DTS-HD.MA 5.1 Msubs [G-Drive]](https://www.1tamilmv.world/index.php?/forums/topic/169038-mrmrssmith2005bluray-dd51-tamil-telugu-hindi-english-1080premuxavcdts-hdma-51-msubs-g-drive/&do=findComment&comment=360641)
 - [Thor Trilogy &lpar;2011 - 2023&rpar; BluRay - 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Hindi + Eng] - 6.4GB - 3.8GB &amp; 450MB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/165059-thor-trilogy-2011-2023-bluray-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-eng-64gb-38gb-450mb-esub/&do=findComment&comment=360640)
 - [Rebels of Thupakula Gudem &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.9GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.world/index.php?/forums/topic/177742-rebels-of-thupakula-gudem-2023-telugu-true-web-dl-1080p-720p-avc-aac-20-29gb-13gb-x264-700mb-400mb/&do=findComment&comment=360639)
-- [The Marvels &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 5.2GB - 2.8GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177734-the-marvels-2023-hd-original-audios-4k-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-eng-52gb-28gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=360638)
-- [Mask of the Ninja &lpar;2008&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 2.4GB &amp; 1.4GB | x264 - Tamil Dubbed - 400MB]](https://www.1tamilmv.world/index.php?/forums/topic/177741-mask-of-the-ninja-2008-hd-original-audios-1080p-720p-x264-tamil-eng-24gb-14gb-x264-tamil-dubbed-400mb/&do=findComment&comment=360637)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
