@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [8-2-2024]](https://www.1tamilmv.world/index.php?/forums/topic/177744-movies-collection-all-languages-4k-1080p-720p-576p-480p-8-2-2024/&do=findComment&comment=360609)
 - [[IMAX] The Marvels &lpar;2023&rpar; IMAX DSNP WEB-DL Multi DDP5.1 Esubs - 2160p [HDR10|DoVi] | 1080p - 13.5 GB | 10.6 GB | 6 GB](https://www.1tamilmv.world/index.php?/forums/topic/177743-imax-the-marvels-2023-imax-dsnp-web-dl-multi-ddp51-esubs-2160p-hdr10dovi-1080p-135-gb-106-gb-6-gb/&do=findComment&comment=360608)
 - [The Marvels &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 5.2GB - 2.8GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177734-the-marvels-2023-hd-original-audios-4k-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-eng-52gb-28gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=360607)
 - [Iron Man Trilogy &lpar;2008-2013&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 6.7GB &amp; 3.9GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 500MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177703-iron-man-trilogy-2008-2013-bluray-original-audios-1080p-720p-x264-dd51-192kbps-tamil-telugu-hindi-eng-67gb-39gb-x264-tamil-telugu-hindi-500mb-esub/&do=findComment&comment=360606)
 - [[IMAX] The Marvels &lpar;2023&rpar; IMAX DSNP WEB-DL Multi DDP5.1 Esubs - 2160p [HDR10|DoVi] | 1080p - 13.5 GB | 10.6 GB | 6 GB](https://www.1tamilmv.world/index.php?/forums/topic/177743-imax-the-marvels-2023-imax-dsnp-web-dl-multi-ddp51-esubs-2160p-hdr10dovi-1080p-135-gb-106-gb-6-gb/&do=findComment&comment=360605)
-- [Rebels of Thupakula Gudem &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.9GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.world/index.php?/forums/topic/177742-rebels-of-thupakula-gudem-2023-telugu-true-web-dl-1080p-720p-avc-aac-20-29gb-13gb-x264-700mb-400mb/&do=findComment&comment=360604)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
