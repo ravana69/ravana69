@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മറ്റാരേക്കാളും നിന്നെ അറിയുന്ന ഒരു ദൈവം നിനക്കുണ്ട്. |  Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=2aYzBTCW8sQ)
+- [Kanaka Manimaya Video Song | Ulsavamelam | Sujatha Mohan | Mohan Sithara](https://www.youtube.com/watch?v=z1ZvNfWwK1o)
+- [Aathira Varavai | Thudarkatha | MG Sreekumar | KS Chithra | S P Venkitesh | O N V Kurup](https://www.youtube.com/watch?v=VP1Ke3eTMkg)
+- [Kannil Kannonnu | Chembarathippoo  |  Valentines Day Special #shortsfeed #shorts #malayalamlovesong](https://www.youtube.com/watch?v=LR-fiK3Q1eU)
+- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 8th of February 2024](https://www.youtube.com/watch?v=eGflrIz4ZJs)
 - [Veyilinte oru thooval Video Song | English Medium | Pattanakkad Purushothaman | KJ Yesudas](https://www.youtube.com/watch?v=bm9Sqm1Nip4)
-- [Bhasuri | Karaoke Video | Rathrimazha | Ramesh Narayanan | Kaithapram | Srinivas | Sujatha](https://www.youtube.com/watch?v=UXIpW7pQyoA)
-- [Altharayil Deepanalam Kolutham | Vishudhi Niranja Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=4qQokpGYnYE)
-- [മനസ്സിൽ പ്രണയം കാത്തുസൂക്ഷിക്കുന്നവർക്കായ് മനം കവരും പ്രേമഗാനങ്ങൾ ! EVERGREEN LOVE SONGS | MW MUSIC](https://www.youtube.com/watch?v=WD07wb7KvhI)
-- [സംഗീതാസ്വാദകർ എന്നും കേൾക്കാൻ കൊതിക്കുന്ന മലയാളസിനിമയിലെ സുരഭില ഗാനങ്ങൾ ! EVERGREEN HITS](https://www.youtube.com/watch?v=PeNQjRrMmvU)
-- [Mazhameettum- Chathikkaatha Chanthu | Alex Paul | Jyotsna | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=dVcYlYNKPYg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
