@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [തിരയെഴുതും മണ്ണിൽ ഒരുകാവ്യം..| കെ ജെ യേശുദാസ് | ചിത്ര | P Jayachandran | Selected Film songs](https://www.youtube.com/watch?v=0TovQRTW2tM)
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 9th February 24](https://www.youtube.com/watch?v=l-lL5tKZi9c)
 - [Darling Darling Neeyenikkoru | Darling Darling | Vineeth | Kavya Madhavan | Dileep | Hariharan](https://www.youtube.com/watch?v=rqFaS0GfK4A)
 - [8 February 2024](https://www.youtube.com/watch?v=E_LZOtxkSPk)
 - [Scene Mone X Thalatherichavar - Video Mashup | RDX | Romancham | Sam CS | Sushin Shyam](https://www.youtube.com/watch?v=P88ZXxiIUTA)
 - [എന്നും കേൾക്കാൻ കൊതിക്കുന്ന ക്രിസ്തീയഗാനങ്ങൾ |Christian Superhit Songs | Wilson Piravom | Joji Johns](https://www.youtube.com/watch?v=SjD8wDJWMKY)
-- [Koothambalathil Vecho | Appu | MG Sreekumar | T Sundararajan | Sree Kumaran Thampi](https://www.youtube.com/watch?v=QfWtX0A0PEg)
-- [മറ്റാരേക്കാളും നിന്നെ അറിയുന്ന ഒരു ദൈവം നിനക്കുണ്ട്. |  Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=2aYzBTCW8sQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
