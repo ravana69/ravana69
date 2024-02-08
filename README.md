@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [My Name Is Shruthi &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177771-my-name-is-shruthi-2023-tamil-true-web-dl-1080p-720p-avc-dd51-640kbps-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=360672)
+- [Pindam &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil + Malayalam] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.8GB - 1.4GB &amp; 900MB] - [x264 - 800MB &amp; 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177757-pindam-2023-true-web-dl-1080p-720p-avc-hevc-tamil-malayalam-dd51-192kbps-28gb-14gb-900mb-x264-800mb-450mb-esub/&do=findComment&comment=360671)
+- [My Name Is Shruthi &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177771-my-name-is-shruthi-2023-tamil-true-web-dl-1080p-720p-avc-dd51-640kbps-25gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=360669)
 - [Atharva &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Malayalam + Kannada] - 2.8GB - 6.02GB &amp; 4.98 Gb, 9.15 GB  ]  - ESub &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177762-atharva-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-malayalam-kannada-28gb-602gb-498-gb-915-gb%C2%A0-esub-direct-download/&do=findComment&comment=360660)
 - [Aynabaji.2016.1080p.AMZN.WEB-DL.DDP2.0 &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177761-aynabaji20161080pamznweb-dlddp20-direct-download/&do=findComment&comment=360659)
-- [Kannagi.2023. &lpar;Tamil, Telugu, Hindi &rpar; 1080p.AMZN.WEB-DL.MULTI.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177760-kannagi2023-tamil-telugu-hindi-1080pamznweb-dlmultiddp51-direct-download/&do=findComment&comment=360658)
-- [The.Man.With.the.Iron.Fists.2013.1080p.AMZN.WEB-DL.DUAL.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.world/index.php?/forums/topic/177759-themanwiththeironfists20131080pamznweb-dldualddp51-direct-download/&do=findComment&comment=360657)
-- [Atharva &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Malayalam + Kannada] - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 750MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177758-atharva-2023-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-tamil-malayalam-kannada-28gb-14gb-850mb-x264-750mb-400mb-esub/&do=findComment&comment=360656)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
