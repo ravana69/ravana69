@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [8 February 2024](https://www.youtube.com/watch?v=E_LZOtxkSPk)
 - [Scene Mone X Thalatherichavar - Video Mashup | RDX | Romancham | Sam CS | Sushin Shyam](https://www.youtube.com/watch?v=P88ZXxiIUTA)
 - [എന്നും കേൾക്കാൻ കൊതിക്കുന്ന ക്രിസ്തീയഗാനങ്ങൾ |Christian Superhit Songs | Wilson Piravom | Joji Johns](https://www.youtube.com/watch?v=SjD8wDJWMKY)
 - [Koothambalathil Vecho | Appu | MG Sreekumar | T Sundararajan | Sree Kumaran Thampi](https://www.youtube.com/watch?v=QfWtX0A0PEg)
 - [മറ്റാരേക്കാളും നിന്നെ അറിയുന്ന ഒരു ദൈവം നിനക്കുണ്ട്. |  Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=2aYzBTCW8sQ)
 - [Kanaka Manimaya Video Song | Ulsavamelam | Sujatha Mohan | Mohan Sithara](https://www.youtube.com/watch?v=z1ZvNfWwK1o)
-- [Aathira Varavai | Thudarkatha | MG Sreekumar | KS Chithra | S P Venkitesh | O N V Kurup](https://www.youtube.com/watch?v=VP1Ke3eTMkg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
