@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [സംഗീതാസ്വാദകർ എന്നും കേൾക്കാൻ കൊതിക്കുന്ന മലയാളസിനിമയിലെ സുരഭില ഗാനങ്ങൾ ! EVERGREEN HITS](https://www.youtube.com/watch?v=PeNQjRrMmvU)
+- [Mazhameettum- Chathikkaatha Chanthu | Alex Paul | Jyotsna | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=dVcYlYNKPYg)
 - [Ellam Marakkam Nilave Video Song | Punjabi House | Dileep | Jomol | MG Sreekumar | Sujatha Mohan](https://www.youtube.com/watch?v=xWpTggAyToM)
 - [ഏതോ വാർ‍മുകിലിൻ കിനാവിലെ മുത്തായ് നീ വന്നൂ #malayalamsongs #jayaram #gvenugopal](https://www.youtube.com/watch?v=QX_8lxgOOoU)
 - [Valentines Day Special | Jukebox | Collection of Malayalam Romantic Film Songs #malayalamlovesongs](https://www.youtube.com/watch?v=wUC4CUWrxfc)
 - [Mollywood Electrifying Express: Ultimate Jukebox Experience! | Malayalam Dynamic Tunes Dance Hits](https://www.youtube.com/watch?v=D2GPe70vSps)
-- [Arikin Arikil |  Roy |  Valentines Day Special #shortsfeed #shorts #malayalamromanticsongs](https://www.youtube.com/watch?v=JwbTZMTCyz8)
-- [Siddique Old Malayalam Movie Songs | Malappuram Haji Mahanaya Joji Remastered Malayalam Song](https://www.youtube.com/watch?v=_-AwJvKjh4E)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
