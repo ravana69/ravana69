@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [[IMAX] The Marvels &lpar;2023&rpar; IMAX DSNP WEB-DL Multi DDP5.1 Esubs - 2160p [HDR10|DoVi] | 1080p - 13.5 GB | 10.6 GB | 6 GB](https://www.1tamilmv.world/index.php?/forums/topic/177743-imax-the-marvels-2023-imax-dsnp-web-dl-multi-ddp51-esubs-2160p-hdr10dovi-1080p-135-gb-106-gb-6-gb/&do=findComment&comment=360605)
 - [Rebels of Thupakula Gudem &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.9GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.world/index.php?/forums/topic/177742-rebels-of-thupakula-gudem-2023-telugu-true-web-dl-1080p-720p-avc-aac-20-29gb-13gb-x264-700mb-400mb/&do=findComment&comment=360604)
 - [Mask of the Ninja &lpar;2008&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Eng&rpar; - 2.4GB &amp; 1.4GB | x264 - Tamil Dubbed - 400MB]](https://www.1tamilmv.world/index.php?/forums/topic/177741-mask-of-the-ninja-2008-hd-original-audios-1080p-720p-x264-tamil-eng-24gb-14gb-x264-tamil-dubbed-400mb/&do=findComment&comment=360603)
 - [Godzilla &lpar;1998&rpar; [ 2160p 4K &amp; 1080p Open Matte]  WEBRip  Multi Original Audios [ Telugu &lpar;DD5.1&rpar; + Tamil &lpar;DD5.1&rpar; + Hindi + English] - AC3 - [7GB &amp; 7.5GB]  - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177740-godzilla-1998-2160p-4k-1080p-open-matte-webrip-multi-original-audios-telugu-dd51-tamil-dd51-hindi-english-ac3-7gb-75gb-esub/&do=findComment&comment=360602)
 - [Godzilla &lpar;1998&rpar; [ 2160p 4K &amp; 1080p Open Matte]  WEBRip  Multi Original Audios [ Telugu &lpar;DD5.1&rpar; + Tamil &lpar;DD5.1&rpar; + Hindi + English] - AC3 - [7GB &amp; 7.5GB]  - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177740-godzilla-1998-2160p-4k-1080p-open-matte-webrip-multi-original-audios-telugu-dd51-tamil-dd51-hindi-english-ac3-7gb-75gb-esub/&do=findComment&comment=360601)
-- [Elves &lpar;2018&rpar; &lpar;HD + Original Audio&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0&rpar; &lpar;Tamil + Eng&rpar; - 1.4GB &amp; 850MB | x264 - &lpar;Tamil&rpar; - 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177728-elves-2018-hd-original-audio-1080p-720p-x264-aac-20-tamil-eng-14gb-850mb-x264-tamil-400mb-esub/&do=findComment&comment=360600)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
