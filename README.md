@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Yatra 2 &lpar;2024&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.world/index.php?/forums/topic/177753-yatra-2-2024-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=360631)
 - [Fire Force S01 EP24 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 350MB - 250MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177752-fire-force-s01-ep24-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-350mb-250mb-esub-google-drive/&do=findComment&comment=360630)
 - [Fire Force S01 EP23 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 300MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177751-fire-force-s01-ep23-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-300mb-200mb-esub-google-drive/&do=findComment&comment=360629)
 - [Jorugaa Husharugaa &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177750-jorugaa-husharugaa-2023-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=360628)
 - [Darling in the Franxx S01 E20 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 300MB - 250MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177749-darling-in-the-franxx-s01-e20-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-300mb-250mb-esub-google-drive/&do=findComment&comment=360627)
-- [Darling in the Franxx S01 E19 BR-Rip 10bit - [1080p - 720p - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - 300MB - 200MB] - ESub [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/177748-darling-in-the-franxx-s01-e19-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-300mb-200mb-esub-google-drive/&do=findComment&comment=360626)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
