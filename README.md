@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Altharayil Deepanalam Kolutham | Vishudhi Niranja Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=4qQokpGYnYE)
+- [മനസ്സിൽ പ്രണയം കാത്തുസൂക്ഷിക്കുന്നവർക്കായ് മനം കവരും പ്രേമഗാനങ്ങൾ ! EVERGREEN LOVE SONGS | MW MUSIC](https://www.youtube.com/watch?v=WD07wb7KvhI)
 - [സംഗീതാസ്വാദകർ എന്നും കേൾക്കാൻ കൊതിക്കുന്ന മലയാളസിനിമയിലെ സുരഭില ഗാനങ്ങൾ ! EVERGREEN HITS](https://www.youtube.com/watch?v=PeNQjRrMmvU)
 - [Mazhameettum- Chathikkaatha Chanthu | Alex Paul | Jyotsna | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=dVcYlYNKPYg)
 - [Ellam Marakkam Nilave Video Song | Punjabi House | Dileep | Jomol | MG Sreekumar | Sujatha Mohan](https://www.youtube.com/watch?v=xWpTggAyToM)
 - [ഏതോ വാർ‍മുകിലിൻ കിനാവിലെ മുത്തായ് നീ വന്നൂ #malayalamsongs #jayaram #gvenugopal](https://www.youtube.com/watch?v=QX_8lxgOOoU)
-- [Valentines Day Special | Jukebox | Collection of Malayalam Romantic Film Songs #malayalamlovesongs](https://www.youtube.com/watch?v=wUC4CUWrxfc)
-- [Mollywood Electrifying Express: Ultimate Jukebox Experience! | Malayalam Dynamic Tunes Dance Hits](https://www.youtube.com/watch?v=D2GPe70vSps)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
