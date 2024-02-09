@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [[HDR10-DoVi] Ayalaan &lpar;2024&rpar; SNXT WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p - 13.7 GB | 4.4 GB](https://www.1tamilmv.world/index.php?/forums/topic/177783-hdr10-dovi-ayalaan-2024-snxt-web-dl-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-137-gb-44-gb/&do=findComment&comment=360746)
+- [Captain Miller &lpar;2024&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 19GB - 10GB - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177764-captain-miller-2024-tamil-true-web-dl-4k-1080p-720p-avc-dd51-640kbps-19gb-10gb-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360745)
+- [Ayalaan &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 7.9GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177769-ayalaan-2024-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-atmos-448kbps-79gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360744)
 - [Irumban &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.9GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177779-irumban-2023-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-29gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360743)
 - [[HDR10-DoVi] Ayalaan &lpar;2024&rpar; SNXT WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p - 13.7 GB | 4.4 GB](https://www.1tamilmv.world/index.php?/forums/topic/177783-hdr10-dovi-ayalaan-2024-snxt-web-dl-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-137-gb-44-gb/&do=findComment&comment=360742)
-- [Bang Bang! &lpar;2014&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 2.2GB - ESub - UE](https://www.1tamilmv.world/index.php?/forums/topic/177791-bang-bang-2014-tamil-true-web-dl-1080p-avc-untouched-aac20-22gb-esub-ue/&do=findComment&comment=360730)
-- [Captain Miller &lpar;2024&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 19GB - 10GB - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177764-captain-miller-2024-tamil-true-web-dl-4k-1080p-720p-avc-dd51-640kbps-19gb-10gb-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360729)
-- [Captain Miller &lpar;2024&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 19GB - 10GB - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177764-captain-miller-2024-tamil-true-web-dl-4k-1080p-720p-avc-dd51-640kbps-19gb-10gb-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360728)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
