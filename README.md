@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കഷ്ടതയിൽ കൂടെയിരുന്ന ദൈവം  |  Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=UN1Bxks5tQg)
 - [Shivam Shivada | Paithrukam | KJ Yesudas | Kaithapram | S P Venkitesh](https://www.youtube.com/watch?v=T_IuJszLdSs)
 - [Chakravarthikumaaraa Song | Anarkali |  LR Eeswari | MS Baburaj #shorts](https://www.youtube.com/watch?v=7h9lQoug1YQ)
 - [Themma Themma Themmadikkatte | Rain Rain Come Again | Super Hit Malayalam Movie Song | Jassie Gift](https://www.youtube.com/watch?v=AyhZG_Fy7Hw)
 - [Manju Thullikal | Four  |  Valentines Day Special #shortsfeed #shorts #malayalamromanticsongs #reels](https://www.youtube.com/watch?v=GyWUaXu6Z74)
 - [Mayaatha Maarivillithaa | Ulladakkam | MG Sreekumar | KS Chithra | Ouseppachan | Kaithapram](https://www.youtube.com/watch?v=qNbooZwqtrw)
-- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 9th of February 2024](https://www.youtube.com/watch?v=QCApDe3tydk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
