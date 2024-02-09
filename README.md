@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ezham Baharinte Vathil Thurannole Audio Song Bhavana Prithviraj Manjari Kaithapram](https://www.youtube.com/watch?v=f13JSbzNVAg)
+- [Indulekhe | Thirichadi | Vayalar | R Sudharsanam | KJ Yesudas | P Susheela | Prem Nazir | Sheela](https://www.youtube.com/watch?v=KE9n9jGc-vs)
+- [മധുരസ്മരണകളുണർത്തും മലയാളസിനിമയിലെ ഒരുപിടി സിനിമാഗാനങ്ങൾ | EVERGREEN HIT SONGS MALAYALAM](https://www.youtube.com/watch?v=FLhwUEposqE)
+- [Aromale Ponthoovale | Meenathil Thaliketu | Gireesh Puthenchery | Ousepachan | K J Yesudas](https://www.youtube.com/watch?v=77iBGOYM8Bg)
 - [Thaamarappoovil | Chandralekha | Berny Ignatius | MG Sreekumar | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=OQZlL2T8tFU)
 - [Aaru Nee Kanmani | Aanandhapuram Diaries | K S Chithra #kschithra #malayalamfilmsongs #shortsfeed](https://www.youtube.com/watch?v=__YF2cuvAbQ)
-- [എൻ‌റെ ഓർമയിൽ പൂത്തുനിന്നൊരുമഞ്ഞ മന്ദാരമേ #malayalamsongs #mohanlal #malayalamsongs](https://www.youtube.com/watch?v=KHuTI6Tfvz0)
-- [Kattu Kurinji Poovum Choodi Song | Radha Enna Penkutty | P Jayachandran | Shyam | Devadas](https://www.youtube.com/watch?v=cv6FbwXU0tg)
-- [Kanneerppoovinte | Chenkol(Title Song) | Mohanlal | Thilakan | Sibi Malayil | Johnson](https://www.youtube.com/watch?v=Ygvp0Le8lZ8)
-- [Chollamo | Ole Kanda Naal  |  Valentines Day Special #shortsfeed #shorts #malayalamromanticsongs](https://www.youtube.com/watch?v=BL3EeYXOjPQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
