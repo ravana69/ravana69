@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thaamarappoovil | Chandralekha | Berny Ignatius | MG Sreekumar | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=OQZlL2T8tFU)
+- [Aaru Nee Kanmani | Aanandhapuram Diaries | K S Chithra #kschithra #malayalamfilmsongs #shortsfeed](https://www.youtube.com/watch?v=__YF2cuvAbQ)
+- [എൻ‌റെ ഓർമയിൽ പൂത്തുനിന്നൊരുമഞ്ഞ മന്ദാരമേ #malayalamsongs #mohanlal #malayalamsongs](https://www.youtube.com/watch?v=KHuTI6Tfvz0)
+- [Kattu Kurinji Poovum Choodi Song | Radha Enna Penkutty | P Jayachandran | Shyam | Devadas](https://www.youtube.com/watch?v=cv6FbwXU0tg)
 - [Kanneerppoovinte | Chenkol(Title Song) | Mohanlal | Thilakan | Sibi Malayil | Johnson](https://www.youtube.com/watch?v=Ygvp0Le8lZ8)
 - [Chollamo | Ole Kanda Naal  |  Valentines Day Special #shortsfeed #shorts #malayalamromanticsongs](https://www.youtube.com/watch?v=BL3EeYXOjPQ)
-- [Mukesh Old Malayalam Movie Songs | MalaMalappuram Haji Mahanaya Joji Remastered Malayalam Song](https://www.youtube.com/watch?v=hPUo6HYATvM)
-- [Pularoli | Bhaskar The Rascal #shortsvideo](https://www.youtube.com/watch?v=Tv8fta5AEcs)
-- [അനുഗ്രഹം വാരികോരിയെറിഞ്ഞ ഗാനങ്ങൾ maramon convention songs | maramon 2024 | praise and worship songs](https://www.youtube.com/watch?v=cPnzWcJrXY8)
-- [Japamala 9th of February 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 9th of February 24](https://www.youtube.com/watch?v=9bx3IplMvx8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
