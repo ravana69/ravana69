@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Guntur Kaaram &lpar;2024&rpar; NF WEB DL H264 - [Telugu + Tamil + Hindi + Kannada + Malayalam] DD5.1 - ESub - [1080p &amp; 720p - 2.6GB - 1.4GB][GDRive]](https://www.1tamilmv.world/index.php?/forums/topic/127925-guntur-kaaram-2024-nf-web-dl-h264-telugu-tamil-hindi-kannada-malayalam-dd51-esub-1080p-720p-26gb-14gbgdrive/&do=findComment&comment=360709)
-- [[HDR10-DoVi] Ayalaan &lpar;2024&rpar; SNXT WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p - 13.7 GB | 4.4 GB](https://www.1tamilmv.world/index.php?/forums/topic/177783-hdr10-dovi-ayalaan-2024-snxt-web-dl-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-137-gb-44-gb/&do=findComment&comment=360708)
-- [Guntur Kaaram &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.2GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177767-guntur-kaaram-2024-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-62gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360707)
-- [Captain Miller &lpar;2024&rpar; Tamil SNXT WEB DL - H264/H265 - DDP5.1 - [4K, 1080p &amp; 720p - 12.4GB - 3.6GB - 2.5GB - 1.5GB] [GDRive]](https://www.1tamilmv.world/index.php?/forums/topic/128037-captain-miller-2024-tamil-snxt-web-dl-h264h265-ddp51-4k-1080p-720p-124gb-36gb-25gb-15gb-gdrive/&do=findComment&comment=360706)
-- [Ayalaan &lpar;2024&rpar; Tamil SNXT WEB DL - H264/H265 - &lpar;DD5.1 &amp; AAC2.0&rpar; - ESub - [4K, 1080p &amp; 720p - 8.5GB - 3GB - 1.5GB - 1.4GB] [GDRive]](https://www.1tamilmv.world/index.php?/forums/topic/128044-ayalaan-2024-tamil-snxt-web-dl-h264h265-dd51-aac20-esub-4k-1080p-720p-85gb-3gb-15gb-14gb-gdrive/&do=findComment&comment=360705)
+- [60 Tamil Movies - 720p - BluRay/HDRip - x264 - AVC - DD5.1/AAC - ESub - 85GB [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/136619-60-tamil-movies-720p-blurayhdrip-x264-avc-dd51aac-esub-85gb-google-drive/&do=findComment&comment=360721)
+- [Aaranya Kaandam 2010 Tamil Disney+ Hotstar WEB DL HD x264 AVC [1080p - 1.2GB &amp; 720p - 550MB]](https://www.1tamilmv.world/index.php?/forums/topic/122567-aaranya-kaandam-2010-tamil-disney-hotstar-web-dl-hd-x264-avc-1080p-12gb-720p-550mb/&do=findComment&comment=360720)
+- [Aaranya Kaandam &lpar;2010&rpar; Uncensored HDRip x264 MP4 1.3GB GDRIVE Direct Download Link](https://www.1tamilmv.world/index.php?/forums/topic/131592-aaranya-kaandam-2010-uncensored-hdrip-x264-mp4-13gb-gdrive-direct-download-link/&do=findComment&comment=360719)
+- [Aaranya Kaandam &lpar;2011&rpar; UNCUT Tamil HDRip - 720p - x264 - &lpar;DDP.2.0&rpar; - 1.5GB - HC-ESub - GDFlix](https://www.1tamilmv.world/index.php?/forums/topic/173526-aaranya-kaandam-2011-uncut-tamil-hdrip-720p-x264-ddp20-15gb-hc-esub-gdflix/&do=findComment&comment=360718)
+- [Mithunam &lpar;2012&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.7GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177784-mithunam-2012-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-67gb-esub/&do=findComment&comment=360717)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
