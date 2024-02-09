@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mukesh Old Malayalam Movie Songs | MalaMalappuram Haji Mahanaya Joji Remastered Malayalam Song](https://www.youtube.com/watch?v=hPUo6HYATvM)
+- [Pularoli | Bhaskar The Rascal #shortsvideo](https://www.youtube.com/watch?v=Tv8fta5AEcs)
 - [അനുഗ്രഹം വാരികോരിയെറിഞ്ഞ ഗാനങ്ങൾ maramon convention songs | maramon 2024 | praise and worship songs](https://www.youtube.com/watch?v=cPnzWcJrXY8)
 - [Japamala 9th of February 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 9th of February 24](https://www.youtube.com/watch?v=9bx3IplMvx8)
 - [ഇന്ന് ഫെബ്രുവരി  09 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  dhukk](https://www.youtube.com/watch?v=RVlrCI_TkZU)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=wPt159389Z4)
-- [പ്രഭാത പ്രാര്‍ത്ഥന 9th of February # Athiravile Prarthana 9th February 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=1W6jkxAasV0)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=UJLM33i26Z0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
