@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Thiruchitrambalam &lpar;2022&rpar; Tamil - SNXT WEB-DL - 4K &lpar;DOLBY VISION &amp; HDR10+&rpar; - 2160p - x265 - HEVC - UNTOUCHED - DD+5.1 Atmos &lpar;CBR-448Kbps&rpar; - 12.8GB &amp; 10.4GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/174382-thiruchitrambalam-2022-tamil-snxt-web-dl-4k-dolby-vision-hdr10-2160p-x265-hevc-untouched-dd51-atmos-cbr-448kbps-128gb-104gb-esub/&do=findComment&comment=360699)
+- [Kalyana Ramudu &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.0 - 448Kbps&rpar; - 5.8GB - Supreme DVD](https://www.1tamilmv.world/index.php?/forums/topic/177756-kalyana-ramudu-2003-telugu-dvd9-untouched-480p-dd50-448kbps-58gb-supreme-dvd/&do=findComment&comment=360698)
+- [[HDR10-DoVi] Ayalaan &lpar;2024&rpar; SNXT WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p - 13.7 GB | 4.4 GB](https://www.1tamilmv.world/index.php?/forums/topic/177783-hdr10-dovi-ayalaan-2024-snxt-web-dl-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-137-gb-44-gb/&do=findComment&comment=360697)
 - [Captain Miller &lpar;2024&rpar; AMZN WEB-DL Multi DDP5.1 Esubs - 2160p | 1080p | 720p - 19.1 GB | 11.5 GB | 6.5 GB](https://www.1tamilmv.world/index.php?/forums/topic/177782-captain-miller-2024-amzn-web-dl-multi-ddp51-esubs-2160p-1080p-720p-191-gb-115-gb-65-gb/&do=findComment&comment=360696)
 - [Guntur Kaaram &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.2GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177767-guntur-kaaram-2024-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-62gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360695)
-- [Guntur Kaaram &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.2GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177767-guntur-kaaram-2024-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-62gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360694)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [9-2-2024]](https://www.1tamilmv.world/index.php?/forums/topic/177781-movies-collection-all-languages-4k-1080p-720p-576p-480p-9-2-2024/&do=findComment&comment=360693)
-- [Guntur Kaaram &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6.2GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177767-guntur-kaaram-2024-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-62gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360692)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
