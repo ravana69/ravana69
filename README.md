@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [60 Tamil Movies - 720p - BluRay/HDRip - x264 - AVC - DD5.1/AAC - ESub - 85GB [Google Drive]](https://www.1tamilmv.world/index.php?/forums/topic/136619-60-tamil-movies-720p-blurayhdrip-x264-avc-dd51aac-esub-85gb-google-drive/&do=findComment&comment=360721)
-- [Aaranya Kaandam 2010 Tamil Disney+ Hotstar WEB DL HD x264 AVC [1080p - 1.2GB &amp; 720p - 550MB]](https://www.1tamilmv.world/index.php?/forums/topic/122567-aaranya-kaandam-2010-tamil-disney-hotstar-web-dl-hd-x264-avc-1080p-12gb-720p-550mb/&do=findComment&comment=360720)
-- [Aaranya Kaandam &lpar;2010&rpar; Uncensored HDRip x264 MP4 1.3GB GDRIVE Direct Download Link](https://www.1tamilmv.world/index.php?/forums/topic/131592-aaranya-kaandam-2010-uncensored-hdrip-x264-mp4-13gb-gdrive-direct-download-link/&do=findComment&comment=360719)
-- [Aaranya Kaandam &lpar;2011&rpar; UNCUT Tamil HDRip - 720p - x264 - &lpar;DDP.2.0&rpar; - 1.5GB - HC-ESub - GDFlix](https://www.1tamilmv.world/index.php?/forums/topic/173526-aaranya-kaandam-2011-uncut-tamil-hdrip-720p-x264-ddp20-15gb-hc-esub-gdflix/&do=findComment&comment=360718)
-- [Mithunam &lpar;2012&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.7GB - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177784-mithunam-2012-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-67gb-esub/&do=findComment&comment=360717)
+- [Bang Bang! &lpar;2014&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 2.2GB - ESub - UE](https://www.1tamilmv.world/index.php?/forums/topic/177791-bang-bang-2014-tamil-true-web-dl-1080p-avc-untouched-aac20-22gb-esub-ue/&do=findComment&comment=360730)
+- [Captain Miller &lpar;2024&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 19GB - 10GB - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177764-captain-miller-2024-tamil-true-web-dl-4k-1080p-720p-avc-dd51-640kbps-19gb-10gb-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360729)
+- [Captain Miller &lpar;2024&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 19GB - 10GB - 2.8GB &amp; 1.4GB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177764-captain-miller-2024-tamil-true-web-dl-4k-1080p-720p-avc-dd51-640kbps-19gb-10gb-28gb-14gb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=360728)
+- [My Name Is Shruthi &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB - 1.4GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177771-my-name-is-shruthi-2023-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-25gb-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=360727)
+- [Pindam &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil + Malayalam] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.8GB - 1.4GB &amp; 900MB] - [x264 - 800MB &amp; 450MB] - ESub](https://www.1tamilmv.world/index.php?/forums/topic/177757-pindam-2023-true-web-dl-1080p-720p-avc-hevc-tamil-malayalam-dd51-192kbps-28gb-14gb-900mb-x264-800mb-450mb-esub/&do=findComment&comment=360726)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
