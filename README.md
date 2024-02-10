@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കേൾക്കാൻ കൊതിക്കുന്ന തൊണ്ണൂറുകളിലെ മനം മയക്കുന്ന സിനിമാപാട്ടുകൾ | 90s HITS MALAYALAM](https://www.youtube.com/watch?v=21DdgcX1-zM)
+- [പ്രേക്ഷകമനസുകളിൽ നൊമ്പരമുണർത്തിയ മലയാളസിനിമയിലെ പേരുകേട്ട വിഷാദഗാനങ്ങൾ ! SAD SONGS MALAYALAM](https://www.youtube.com/watch?v=3q--w3eTZ7E)
+- [Pazham Thamizhppaattizhayum | Manichithrathaazhu | M G Radhakrishnan | K J Yesudas #SongOfTheDay](https://www.youtube.com/watch?v=GTzej9mQdNM)
 - [പ്രാവിൻ രൂപമണിഞ്ഞവനെ|CHRISTIAN DEVOTIONAL|ROY PUTHUR| FR LIBIN VARGHESE #christiandevotionalsongs](https://www.youtube.com/watch?v=W70bVCLef4I)
 - [Minna Minni - Audio Song  | Arrows | We Are The One | Malayalam Album Song](https://www.youtube.com/watch?v=hgaLN9Zs8VY)
 - [Anchikonchathedee | Drona | Video Song | Mammootty | Kaithapram | Deepak Dev | Kaniha | Shaji Kailas](https://www.youtube.com/watch?v=hcpJTyNO8uY)
-- [KURISHINTE VAZHIYIL|നോമ്പിനുവേണ്ടി ഒരുങ്ങാം ഈ ഗാനത്തോടൊപ്പം |#shorts #newchristiansong #lent| REEL 1](https://www.youtube.com/watch?v=mD3qSQ-AMos)
-- [Prithviraj Old Malayalam Movie Songs | Krithyam Movie Song | Remastered Malayalam Songs](https://www.youtube.com/watch?v=f_Lkj4FSvj8)
-- [Njanennum Kinavu | Aadya Rathri   |  Valentines Day Special #shortsfeed #shorts #malayalamlovesong](https://www.youtube.com/watch?v=hdjr3bjccZY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
