@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഇന്ന് ഫെബ്രുവരി10എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  santhos](https://www.youtube.com/watch?v=ZQJ2XByk3QY)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=7HTmEJsl3Ps)
 - [രാവിലെ പ്രാര്‍ത്ഥന 10th of February # Athiravile Prarthana 10th February 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=pBqXz71DFJc)
 - [Joshua Sridhar, Naresh Iyer - Mazhai Varum (Lyric Video)](https://www.youtube.com/watch?v=jwFUTYI9O38)
 - [Suzanne D'Mello - Mazhai Varum (Tamil Lyric Video)](https://www.youtube.com/watch?v=86GFZnE5fM8)
 - [A.R. Rahman, Vijay Yesudas - Oor Aayiram Vaanavil (From "99 Songs (Tamil)")](https://www.youtube.com/watch?v=Gnd4CIwN2-M)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=g49C2nPpaLs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
