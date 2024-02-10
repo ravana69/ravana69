@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [10 February 2024](https://www.youtube.com/watch?v=kWmkv0RUBNY)
+- [Valiya Nombu Songs Malayalam | Manoj Christy | Christian Melody Songs | Joji Johns | Lent Songs](https://www.youtube.com/watch?v=LQ9h50z41sU)
+- [ഒരുവട്ടം കൂടി കേൾക്കാൻ മനസ്സ് കൊതിച്ച മലയാളസിനിമാഗാനങ്ങൾ ! FILM SONGS MALAYALAM | MOVIEWORLD MUSIC](https://www.youtube.com/watch?v=ZQMquFbxzbw)
 - [Pulare Poonkodiyil Video Song | Amaram | Mammootty | KJ Yesudas | Lathika | Raveendran | Kaithapram](https://www.youtube.com/watch?v=z1uCrvgXW-M)
 - [Super  10 Songs](https://www.youtube.com/watch?v=-KY9OifHfDw)
 - [Soubhagyam | Pattanapravesham | Satheesh Babu | Cochin Ibrahim | Shyam | Yusufali Kechery](https://www.youtube.com/watch?v=i4W04xOz6T8)
-- [Ottamuri Vakkumayi - Chill Lofi | Romancham | Sushin Shyam | Pradeep Kumar | EternaLove](https://www.youtube.com/watch?v=dJ8prTzBwc8)
-- [അവിശ്വസനീയം ഈ ഗാനം! ithratholam jayam tanna daivathinu sthothram! most popular praise & worship song](https://www.youtube.com/watch?v=95oYFNlpz6w)
-- [നിശബ്ദമായി കടന്നുപോകുന്നതാണ് നല്ലത് | Rev. fr Aneesh pj | #shorts](https://www.youtube.com/watch?v=o-6oGzgYvhw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
