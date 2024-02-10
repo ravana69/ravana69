@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Prithviraj Old Malayalam Movie Songs | Krithyam Movie Song | Remastered Malayalam Songs](https://www.youtube.com/watch?v=f_Lkj4FSvj8)
+- [Njanennum Kinavu | Aadya Rathri   |  Valentines Day Special #shortsfeed #shorts #malayalamlovesong](https://www.youtube.com/watch?v=hdjr3bjccZY)
+- [Pon Veyil Manikacha | Nrithasaala | K J Yesudas | Prem Nazeer | Sreekumaran Thampi](https://www.youtube.com/watch?v=Yub986MkLW0)
 - [Christian Video Songs Malayalam | Surya Narayanan | Alenia | Rithuraj | Christian Superhit Songs](https://www.youtube.com/watch?v=H4F_h4VXjjI)
 - [മെഗാപവർ സോങ് aayirangal veenalum by kester | superhit christian song with lyrics | divine hit](https://www.youtube.com/watch?v=8jZCCbMpe-k)
 - [Japamala 10th of February 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 10th of February 24](https://www.youtube.com/watch?v=CI12-m8Ehpw)
-- [കൃപാസന മാതാവിൻറെ പ്രാർത്ഥനയും  ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#kripasanam  prayer 10 Feb](https://www.youtube.com/watch?v=9s068bGmTRE)
-- [ഇന്ന് ഫെബ്രുവരി10എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  santhos](https://www.youtube.com/watch?v=ZQJ2XByk3QY)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=7HTmEJsl3Ps)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
