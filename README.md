@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Pulare Poonkodiyil Video Song | Amaram | Mammootty | KJ Yesudas | Lathika | Raveendran | Kaithapram](https://www.youtube.com/watch?v=z1uCrvgXW-M)
+- [Super  10 Songs](https://www.youtube.com/watch?v=-KY9OifHfDw)
+- [Soubhagyam | Pattanapravesham | Satheesh Babu | Cochin Ibrahim | Shyam | Yusufali Kechery](https://www.youtube.com/watch?v=i4W04xOz6T8)
+- [Ottamuri Vakkumayi - Chill Lofi | Romancham | Sushin Shyam | Pradeep Kumar | EternaLove](https://www.youtube.com/watch?v=dJ8prTzBwc8)
+- [അവിശ്വസനീയം ഈ ഗാനം! ithratholam jayam tanna daivathinu sthothram! most popular praise & worship song](https://www.youtube.com/watch?v=95oYFNlpz6w)
 - [നിശബ്ദമായി കടന്നുപോകുന്നതാണ് നല്ലത് | Rev. fr Aneesh pj | #shorts](https://www.youtube.com/watch?v=o-6oGzgYvhw)
-- [Chamundeshwari Video Song | Ponnapuram Kotta | KJ Yesudas | Vayalar | G Devarajan](https://www.youtube.com/watch?v=7gX_SQ1-T-8)
-- [MIZHINEER - Video Song | Manal Pakshikal | Mithun Jayaraj | Shanavas Shanu,Santhosh,Anjali](https://www.youtube.com/watch?v=oHN4RvnjvMM)
-- [Pularri Manjin | Lavender  |  Valentines Day Special #shortsfeed #shorts #malayalamromanticsongs](https://www.youtube.com/watch?v=YMRrcMhCgtE)
-- [En Prayanakalam | Alpakalam Mathram | Pr. Muttom Geevarghese #shortsvideo](https://www.youtube.com/watch?v=sdyLlDLONsQ)
-- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 10th of February 2024](https://www.youtube.com/watch?v=k-cH7goc4uQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
