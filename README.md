@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രാവിൻ രൂപമണിഞ്ഞവനെ|CHRISTIAN DEVOTIONAL|ROY PUTHUR| FR LIBIN VARGHESE #christiandevotionalsongs](https://www.youtube.com/watch?v=W70bVCLef4I)
+- [Minna Minni - Audio Song  | Arrows | We Are The One | Malayalam Album Song](https://www.youtube.com/watch?v=hgaLN9Zs8VY)
+- [Anchikonchathedee | Drona | Video Song | Mammootty | Kaithapram | Deepak Dev | Kaniha | Shaji Kailas](https://www.youtube.com/watch?v=hcpJTyNO8uY)
+- [KURISHINTE VAZHIYIL|നോമ്പിനുവേണ്ടി ഒരുങ്ങാം ഈ ഗാനത്തോടൊപ്പം |#shorts #newchristiansong #lent| REEL 1](https://www.youtube.com/watch?v=mD3qSQ-AMos)
 - [Prithviraj Old Malayalam Movie Songs | Krithyam Movie Song | Remastered Malayalam Songs](https://www.youtube.com/watch?v=f_Lkj4FSvj8)
 - [Njanennum Kinavu | Aadya Rathri   |  Valentines Day Special #shortsfeed #shorts #malayalamlovesong](https://www.youtube.com/watch?v=hdjr3bjccZY)
-- [Pon Veyil Manikacha | Nrithasaala | K J Yesudas | Prem Nazeer | Sreekumaran Thampi](https://www.youtube.com/watch?v=Yub986MkLW0)
-- [Christian Video Songs Malayalam | Surya Narayanan | Alenia | Rithuraj | Christian Superhit Songs](https://www.youtube.com/watch?v=H4F_h4VXjjI)
-- [മെഗാപവർ സോങ് aayirangal veenalum by kester | superhit christian song with lyrics | divine hit](https://www.youtube.com/watch?v=8jZCCbMpe-k)
-- [Japamala 10th of February 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 10th of February 24](https://www.youtube.com/watch?v=CI12-m8Ehpw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
