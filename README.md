@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Penne Neeyen - Audio Song | Umaanilayam | Radha Ravi, Shankar, Shanawaz, Silk Smitha |](https://www.youtube.com/watch?v=_HrKpValBWk)
-- [Urakkam Kankalil Video Song | Mahayanam | MG Sreekumar | Mukesh | Jalaja](https://www.youtube.com/watch?v=T4X7WqhUDeg)
-- [കേൾക്കാൻ കൊതിക്കുന്ന തൊണ്ണൂറുകളിലെ മനം മയക്കുന്ന സിനിമാപാട്ടുകൾ | 90s HITS MALAYALAM](https://www.youtube.com/watch?v=21DdgcX1-zM)
-- [പ്രേക്ഷകമനസുകളിൽ നൊമ്പരമുണർത്തിയ മലയാളസിനിമയിലെ പേരുകേട്ട വിഷാദഗാനങ്ങൾ ! SAD SONGS MALAYALAM](https://www.youtube.com/watch?v=3q--w3eTZ7E)
-- [Pazham Thamizhppaattizhayum | Manichithrathaazhu | M G Radhakrishnan | K J Yesudas #SongOfTheDay](https://www.youtube.com/watch?v=GTzej9mQdNM)
-- [പ്രാവിൻ രൂപമണിഞ്ഞവനെ|CHRISTIAN DEVOTIONAL|ROY PUTHUR| FR LIBIN VARGHESE #christiandevotionalsongs](https://www.youtube.com/watch?v=W70bVCLef4I)
+- [നിശബ്ദമായി കടന്നുപോകുന്നതാണ് നല്ലത് | Rev. fr Aneesh pj | #shorts](https://www.youtube.com/watch?v=o-6oGzgYvhw)
+- [Chamundeshwari Video Song | Ponnapuram Kotta | KJ Yesudas | Vayalar | G Devarajan](https://www.youtube.com/watch?v=7gX_SQ1-T-8)
+- [MIZHINEER - Video Song | Manal Pakshikal | Mithun Jayaraj | Shanavas Shanu,Santhosh,Anjali](https://www.youtube.com/watch?v=oHN4RvnjvMM)
+- [Pularri Manjin | Lavender  |  Valentines Day Special #shortsfeed #shorts #malayalamromanticsongs](https://www.youtube.com/watch?v=YMRrcMhCgtE)
+- [En Prayanakalam | Alpakalam Mathram | Pr. Muttom Geevarghese #shortsvideo](https://www.youtube.com/watch?v=sdyLlDLONsQ)
+- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 10th of February 2024](https://www.youtube.com/watch?v=k-cH7goc4uQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
