@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=6og9j1V6APU)
 - [രാവിലെ പ്രാര്‍ത്ഥന 12th of February # Athiravile Prarthana 12th February 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=nEt39BriGCY)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=O7CwkNbMhDs)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 12th February 24](https://www.youtube.com/watch?v=Cl6Tu8bTdKY)
 - [Kilipenne Nilavin | Dhosth | Kunchacko Boban | Dileep | Vidyasagar | KJ Yesudas | Kavya Madhavan](https://www.youtube.com/watch?v=wsHCVaLoXSg)
 - [11 February 2024](https://www.youtube.com/watch?v=z9HTmV2OHsY)
-- [നീണാൾ വാഴുക തിരുസഭയെ | മാർത്തോമൻ പൈതൃക സംഗമം | ROY PUTHUR , REBA ROMY | FR. ANUP EAPEN #royputhur](https://www.youtube.com/watch?v=QoFZd_H1bzk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
