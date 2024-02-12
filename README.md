@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Kunchacko Boban Super Old dance🕺 Performance Avva Avva  Song | #ytshorts #kunchackoboban](https://www.youtube.com/watch?v=S8I0Yp3zw5M)
-- [Maanassalola Marathaka Varnna Audio Song Kingini Thankappan Nair Kannur Rajan KJ Yesudas](https://www.youtube.com/watch?v=oNawr457TXc)
-- [Pinakkamano Ennodinakkamano Video Song | Anandabhadram | Prithviraj | Kavya | MG Sreekumar | Manjari](https://www.youtube.com/watch?v=MYw3erFWkhc)
-- [Ennodenthinee Pinakkam Video Song | Kaliyattam | Kaithapram  | Suresh Gopi | Manju Warrier](https://www.youtube.com/watch?v=1F-0FsgZxPY)
-- [Gothambumaniyil Theliyum Ninroopam | Sneham Thulumbunna Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=KzdaXTkRCjc)
-- [Olichirunne Onnicholichirunne | Janakan  | Suresh Gopi | Kaveri | Priya Lal | Evergreen songs](https://www.youtube.com/watch?v=PESyL9JVvms)
+- [കൂട്ടായ്മകളെന്നത് അപരന് കൂട്ടുനൽകുന്നതാവണം | Rev. Aneesh P Joseph   | #shorts #motivation](https://www.youtube.com/watch?v=WSVaSQJcPMI)
+- [Polika Polika  | Mukalpparappu | Lyrical Video | JP Thavarool | Siby Padiyara | Allen Varghese](https://www.youtube.com/watch?v=fWyppy75ArI)
+- [Thaaram thaaram Video Song | Sreekrishnapurathu Nakshathrathilakkam | KJ Yesudas | Berny Ignatius](https://www.youtube.com/watch?v=gfZueQtcFp8)
+- [കേട്ടാലും കേട്ടാലും മതിവരാത്ത അനുരാഗ ഗാനങ്ങൾ | Malayalam Film Songs](https://www.youtube.com/watch?v=6y2Nd82qSg4)
+- [Oh My Julie | Chattakkari  |  Valentines Day Special #shortsfeed #shorts #malayalamromanticsongs](https://www.youtube.com/watch?v=AIUXD4pqjJk)
+- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 12th of February 2024](https://www.youtube.com/watch?v=W2FRCT250jA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
