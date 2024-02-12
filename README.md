@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [സ്മൃതികൾ ഒരു മൗനരാഗവേലിയേറ്റമായ്‌ | കെ ജെ യേശുദാസ് | കലാഭവൻ മണി | Selected Film songs](https://www.youtube.com/watch?v=wQuvZDAaO6k)
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 13th February 24](https://www.youtube.com/watch?v=3YofWk5l0_A)
 - [Oru Velli Thambalam | Puthukkottayile Puthumanavalan | Jayaram | Aanie | Biju Narayanan](https://www.youtube.com/watch?v=KVQ9Bs0qbZk)
 - [12 February 2024](https://www.youtube.com/watch?v=kohs6iVXWWo)
 - [Sruthiyil - Audio Song | Thrishna | Mammootty, Suhasini, Swapna | Susheela | Shyam](https://www.youtube.com/watch?v=U7HAuYGNT6g)
 - [Christian Superhit Songs | MG Sreekumar |Christian Devotional Songs Malayalam | Sujatha | Joji Johns](https://www.youtube.com/watch?v=biiOAUMQeB4)
-- [Bhagyanattil Pokum Njan | Pr. Muttom Geevarghese | Kester  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=f35ZpFyS3rU)
-- [Mannu Vaanam | Pappachan Olivilanu | Ouseppachan | Sinto Sunny | Amal Antony | Akhila Anand](https://www.youtube.com/watch?v=j-zfKwlQTxQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
