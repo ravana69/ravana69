@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Olichirunne Onnicholichirunne | Janakan  | Suresh Gopi | Kaveri | Priya Lal | Evergreen songs](https://www.youtube.com/watch?v=PESyL9JVvms)
+- [മലയാളികളുടെ പ്രിയപ്പെട്ട വാനമ്പാടി കെ എസ് ചിത്ര ആലപിച്ച അനശ്വരഗാനങ്ങൾ  | KS CHITHRA HITS](https://www.youtube.com/watch?v=EQ0O2DMBGa4)
+- [Darling Darling - Darling Darling | Ouseppachan | Hariharan | S Ramesan Nair #SongOfTheDay](https://www.youtube.com/watch?v=WrySMZpcfiE)
 - [Kunchacko Boban Old Malayalam Movie Hit  Songs | Sathyam Sivam Sundaram Remastered Malayalam Songs](https://www.youtube.com/watch?v=du4AJXVVVeU)
 - [Kuyil Paattil Oonjal Video Song | Aparichithan | Sujatha Mohan | Gireesh Puthenchery | Suresh Peters](https://www.youtube.com/watch?v=ycFsFUTBhOY)
 - [Mohanlal Evergreen Hit Songs | Thacholi Varghese Chekavar Nonstop Video Songs | Mohanlal |KS Chithra](https://www.youtube.com/watch?v=f1fJkPyMHu0)
-- [വിഭൂതി തിരുനാൾ| Ash Monday status|  Kurishinte munnil | #shorts | #christianshorts | #lent](https://www.youtube.com/watch?v=wRhEalveslA)
-- [Malkosinte Gadhgathangal](https://www.youtube.com/watch?v=ddS9UBns3r4)
-- [Manassu Mayakki | Marubhoomi Kadha | Sudeep Kumar | Rimi Tomy | Santhosh Varma|||M.G.Sreekumar](https://www.youtube.com/watch?v=P8VqGIuZc9Y)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
