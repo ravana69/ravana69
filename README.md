@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mannu Vaanam | Pappachan Olivilanu | Ouseppachan | Sinto Sunny | Amal Antony | Akhila Anand](https://www.youtube.com/watch?v=j-zfKwlQTxQ)
 - [കൂട്ടായ്മകളെന്നത് അപരന് കൂട്ടുനൽകുന്നതാവണം | Rev. Aneesh P Joseph   | #shorts #motivation](https://www.youtube.com/watch?v=WSVaSQJcPMI)
 - [Polika Polika  | Mukalpparappu | Lyrical Video | JP Thavarool | Siby Padiyara | Allen Varghese](https://www.youtube.com/watch?v=fWyppy75ArI)
 - [Thaaram thaaram Video Song | Sreekrishnapurathu Nakshathrathilakkam | KJ Yesudas | Berny Ignatius](https://www.youtube.com/watch?v=gfZueQtcFp8)
 - [കേട്ടാലും കേട്ടാലും മതിവരാത്ത അനുരാഗ ഗാനങ്ങൾ | Malayalam Film Songs](https://www.youtube.com/watch?v=6y2Nd82qSg4)
 - [Oh My Julie | Chattakkari  |  Valentines Day Special #shortsfeed #shorts #malayalamromanticsongs](https://www.youtube.com/watch?v=AIUXD4pqjJk)
-- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 12th of February 2024](https://www.youtube.com/watch?v=W2FRCT250jA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
