@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [വിഭൂതി തിരുനാൾ| Ash Monday status|  Kurishinte munnil | #shorts | #christianshorts | #lent](https://www.youtube.com/watch?v=wRhEalveslA)
+- [Malkosinte Gadhgathangal](https://www.youtube.com/watch?v=ddS9UBns3r4)
+- [Manassu Mayakki | Marubhoomi Kadha | Sudeep Kumar | Rimi Tomy | Santhosh Varma|||M.G.Sreekumar](https://www.youtube.com/watch?v=P8VqGIuZc9Y)
 - [Cheruppathil Nammal | Kappiri Thuruthu  |  Valentines Day Special #shortsfeed #shorts #vijayyesudas](https://www.youtube.com/watch?v=tyDTfSbn0S8)
 - [Neelanjana Poovin | Paithrukam | Sureshgopi | Geetha | Bombay Jayasree | Kaithapram](https://www.youtube.com/watch?v=PdgYGIyspWI)
 - [Muththamizhe | Raman Abdullah | Ilaiyaraaja | S.P.B & K.S.Chithra | Hi-Res Audio](https://www.youtube.com/watch?v=qzOEBdPEHY4)
-- [യെഹോവ യിരേ നീ മാത്രം മതി എനിക്ക് yehova yire nee mathram mathi | kester christian video song #hit](https://www.youtube.com/watch?v=OLgFTe_HPgA)
-- [50 Nombu Songs Malayalam Christian devotional # Lenten season Songs Malayalam 2024](https://www.youtube.com/watch?v=e3C7Hm-zoLQ)
-- [Japamala 12th of February 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 12th of February 24](https://www.youtube.com/watch?v=yfDl6BJCavA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
