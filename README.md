@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രണയ ഗാനങ്ങൾ 2024 | Valentine's Day Special Songs | Malayalam Film Songs | Mohanlal, Dileep](https://www.youtube.com/watch?v=eGjyR9FMRMw)
+- [Pranaya Sarovaratheeram - Audio Song | Innale Innu | Premnazeer, Sheela | G. Devarajan](https://www.youtube.com/watch?v=kdI3JlCyfk4)
+- [അനുരാഗപ്പുഴവക്കിൽ | English Medium | Pattanakkad Purushothaman | Susmitha #shorts](https://www.youtube.com/watch?v=jXhawcun3zg)
 - [❤️പ്രണയമെന്ന വികാരത്തിന് ചിറകുകളേകും മധുരസ്വപ്ന ഗാനങ്ങൾ ❤️VALENTINES'S DAY SPECIAL SONGS !](https://www.youtube.com/watch?v=V1PnttB9ZJM)
 - [Kunchacko Boban Old Romantic Song Walking in the Moonlight  #ytshorts #malayalamsongs #melodysongs](https://www.youtube.com/watch?v=T7uN8gks8dw)
 - [സിനിമ കണ്ടിറങ്ങിയ നാൾ മുതൽ എല്ലാദിവസവും കേൾക്കുന്ന സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | EVERGREEN SONGS](https://www.youtube.com/watch?v=ta1vILmgv2Q)
-- [Mizhikalkkinnenthu Velicham - Vismayathumbathu | Ouseppachan | Vijay Yesudas | Sujatha #SongOfTheDay](https://www.youtube.com/watch?v=0WGvzD64FYE)
-- [Shyamambaram Neele Video Song | Artham | Mammootty | KJ Yesudas | Johnson | Kaithapram](https://www.youtube.com/watch?v=75nrXzDEXY0)
-- [Padiyum Paranjum | കർണാടകസംഗീത പഠനം സംഗീതസംവിധായകൻ ആയതിനു ശേഷം  | പാടിയും പറഞ്ഞും |  Ouseppachan](https://www.youtube.com/watch?v=u772hW8qzkw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
