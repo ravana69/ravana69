@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [പ്രണയ ഗാനങ്ങൾ 2024 | Valentine's Day Special Songs | Malayalam Film Songs | Mohanlal, Dileep](https://www.youtube.com/watch?v=eGjyR9FMRMw)
-- [Pranaya Sarovaratheeram - Audio Song | Innale Innu | Premnazeer, Sheela | G. Devarajan](https://www.youtube.com/watch?v=kdI3JlCyfk4)
-- [അനുരാഗപ്പുഴവക്കിൽ | English Medium | Pattanakkad Purushothaman | Susmitha #shorts](https://www.youtube.com/watch?v=jXhawcun3zg)
-- [❤️പ്രണയമെന്ന വികാരത്തിന് ചിറകുകളേകും മധുരസ്വപ്ന ഗാനങ്ങൾ ❤️VALENTINES'S DAY SPECIAL SONGS !](https://www.youtube.com/watch?v=V1PnttB9ZJM)
-- [Kunchacko Boban Old Romantic Song Walking in the Moonlight  #ytshorts #malayalamsongs #melodysongs](https://www.youtube.com/watch?v=T7uN8gks8dw)
-- [സിനിമ കണ്ടിറങ്ങിയ നാൾ മുതൽ എല്ലാദിവസവും കേൾക്കുന്ന സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | EVERGREEN SONGS](https://www.youtube.com/watch?v=ta1vILmgv2Q)
+- [ജീവിതത്തിൽ വരുന്ന പ്രതികൂലങ്ങൾ നമ്മെ തകർക്കാനുള്ളതല്ല. | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=cC81iX_qUj8)
+- [50 Nombu Songs Malayalam Christian devotional # Lenten season Songs Malayalam 2024](https://www.youtube.com/watch?v=EtIiJFZcy-0)
+- [Madhuram Maname - Official Teaser | Ashika Asokan, Suraj Sundar | Ajay Pradeep](https://www.youtube.com/watch?v=PsSQ9JtiD88)
+- [Shwasame | Santhosham  |  Valentines Day Special #shortsfeed #shorts #ksharishankar #nithyamammen](https://www.youtube.com/watch?v=9fcSJWF5u3I)
+- [പ്രണയ മധുരം | Audio Jukebox | Romantic Malayalam Melodies | Malayalam Film Songs | Love Songs](https://www.youtube.com/watch?v=QiowrtdxQv4)
+- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 13th of February 2024](https://www.youtube.com/watch?v=Goa3o63Kt0M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
