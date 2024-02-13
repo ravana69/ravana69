@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഓർമകളിൽ ഓ എൻ വി..| പ്രിയകവിയുടെ ഓർമ്മകൾ നിറഞ്ഞ ഒരുപിടിഗാനങ്ങൾ | കെ ജെ യേശുദാസ് | കെ എസ് ചിത്ര](https://www.youtube.com/watch?v=dGbH0sfb2wI)
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 14th February 24](https://www.youtube.com/watch?v=XUik-6GdRIM)
+- [Saradendu Paadi | Kaliyoonjalu | Dileep | Shobana | Ilayaraja | Mammootty | KJ Yesudas](https://www.youtube.com/watch?v=DF_UcN8EraE)
+- [Jai Ganesh Official Teaser | Ranjith Sankar | Unni Mukundan | Mahima Nambiar](https://www.youtube.com/watch?v=u4w_M2_8nsY)
 - [13 February 2024](https://www.youtube.com/watch?v=uScESYhFkzo)
 - [Kanna Aaromalunnikkanna Video Song | Aromalunni | KJ Yesudas #shorts](https://www.youtube.com/watch?v=qqZArcwPplA)
-- [Singer Of The Week | Abhijith Kollam | Christian Melody Song Malayalam | Joji Johns](https://www.youtube.com/watch?v=RJfFCQZWGCA)
-- [Kalppakappoonchola | Thirichadi | Vayalar | R Sudarsanam | KJ Yesudas | S Janaki | Old is Gold](https://www.youtube.com/watch?v=06c3QuJtxvw)
-- [Dance on the floor ❤  #neelanilave #rdx #ytshorts #shorts](https://www.youtube.com/watch?v=PX-z29XfvSw)
-- [ജീവിതത്തിൽ വരുന്ന പ്രതികൂലങ്ങൾ നമ്മെ തകർക്കാനുള്ളതല്ല. | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=cC81iX_qUj8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
