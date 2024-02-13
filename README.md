@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Shyamambaram Neele Video Song | Artham | Mammootty | KJ Yesudas | Johnson | Kaithapram](https://www.youtube.com/watch?v=75nrXzDEXY0)
 - [Padiyum Paranjum | കർണാടകസംഗീത പഠനം സംഗീതസംവിധായകൻ ആയതിനു ശേഷം  | പാടിയും പറഞ്ഞും |  Ouseppachan](https://www.youtube.com/watch?v=u772hW8qzkw)
 - [Kali Bhadrakali - Audio Song | Marunattil Oro Malayali | Premnazeer, Vijayasri, Adoor Bhasi](https://www.youtube.com/watch?v=kTmEcFOokd4)
 - [KURISHINTE VAZHIYIL |നോമ്പിനുവേണ്ടി ഒരുങ്ങാം ഈ ഗാനത്തോടൊപ്പം|#shorts #newchristiansong #lent |REEL 3](https://www.youtube.com/watch?v=RWl25i006hE)
 - [Anpathu Nalukal | Vibhoothi thirunal | #shorts | Fr Shaji Thumpechirayil | Neenu James](https://www.youtube.com/watch?v=PljmQYGuYuQ)
 - [Kunchacko Boban Old Malayalam Movie Hit  Songs | Sathyam Sivam Sundaram Remastered Malayalam Songs](https://www.youtube.com/watch?v=Dw9Wy_5r2N8)
-- [Smaranakal |  Bhoomiyile Manohara Swakaryam  |  Valentines Day Special #shortsfeed #shorts #lovesong](https://www.youtube.com/watch?v=h6MzjgwKq8M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
