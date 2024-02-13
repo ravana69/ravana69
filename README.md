@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [അനുഗ്രഹം വാരികോരിയെറിഞ്ഞ ഗാനങ്ങൾ maramon convention songs | maramon 2024 | praise and worship songs](https://www.youtube.com/watch?v=ql4PWbLjFoA)
+- [Malkosinte Gadhgathangal Day 2](https://www.youtube.com/watch?v=wd4StpfIA9E)
+- [Daiva Sneham | Christian Devotional Songs Malayalam | MG Sreekumar | Ben E Mohan | Christian Song](https://www.youtube.com/watch?v=Ea4Kujeun_Q)
+- [Japamala 13th of February 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 13th of February 24](https://www.youtube.com/watch?v=Tm-iDtkPvFU)
 - [ഇന്ന് ഫെബ്രുവരി 13 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  dhukk](https://www.youtube.com/watch?v=i5TOx5RXkKw)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=pyaCeY2Uur0)
-- [രാവിലെ പ്രാര്‍ത്ഥന 13th of February # Athiravile Prarthana 13th February 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=GhVDSfax2hE)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=S76n8bNlTy4)
-- [സ്മൃതികൾ ഒരു മൗനരാഗവേലിയേറ്റമായ്‌ | കെ ജെ യേശുദാസ് | കലാഭവൻ മണി | Selected Film songs](https://www.youtube.com/watch?v=wQuvZDAaO6k)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 13th February 24](https://www.youtube.com/watch?v=3YofWk5l0_A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
