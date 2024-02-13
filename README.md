@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oru Thiriyay | Kester #ytshorts #malayalamchristiansongs](https://www.youtube.com/watch?v=HE8bgiaLrEg)
 - [അനുഗ്രഹം വാരികോരിയെറിഞ്ഞ ഗാനങ്ങൾ maramon convention songs | maramon 2024 | praise and worship songs](https://www.youtube.com/watch?v=ql4PWbLjFoA)
 - [Malkosinte Gadhgathangal Day 2](https://www.youtube.com/watch?v=wd4StpfIA9E)
 - [Daiva Sneham | Christian Devotional Songs Malayalam | MG Sreekumar | Ben E Mohan | Christian Song](https://www.youtube.com/watch?v=Ea4Kujeun_Q)
 - [Japamala 13th of February 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 13th of February 24](https://www.youtube.com/watch?v=Tm-iDtkPvFU)
 - [ഇന്ന് ഫെബ്രുവരി 13 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  dhukk](https://www.youtube.com/watch?v=i5TOx5RXkKw)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=pyaCeY2Uur0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
