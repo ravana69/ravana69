@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [❤️പ്രണയമെന്ന വികാരത്തിന് ചിറകുകളേകും മധുരസ്വപ്ന ഗാനങ്ങൾ ❤️VALENTINES'S DAY SPECIAL SONGS !](https://www.youtube.com/watch?v=V1PnttB9ZJM)
+- [Kunchacko Boban Old Romantic Song Walking in the Moonlight  #ytshorts #malayalamsongs #melodysongs](https://www.youtube.com/watch?v=T7uN8gks8dw)
 - [സിനിമ കണ്ടിറങ്ങിയ നാൾ മുതൽ എല്ലാദിവസവും കേൾക്കുന്ന സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | EVERGREEN SONGS](https://www.youtube.com/watch?v=ta1vILmgv2Q)
 - [Mizhikalkkinnenthu Velicham - Vismayathumbathu | Ouseppachan | Vijay Yesudas | Sujatha #SongOfTheDay](https://www.youtube.com/watch?v=0WGvzD64FYE)
 - [Shyamambaram Neele Video Song | Artham | Mammootty | KJ Yesudas | Johnson | Kaithapram](https://www.youtube.com/watch?v=75nrXzDEXY0)
 - [Padiyum Paranjum | കർണാടകസംഗീത പഠനം സംഗീതസംവിധായകൻ ആയതിനു ശേഷം  | പാടിയും പറഞ്ഞും |  Ouseppachan](https://www.youtube.com/watch?v=u772hW8qzkw)
-- [Kali Bhadrakali - Audio Song | Marunattil Oro Malayali | Premnazeer, Vijayasri, Adoor Bhasi](https://www.youtube.com/watch?v=kTmEcFOokd4)
-- [KURISHINTE VAZHIYIL |നോമ്പിനുവേണ്ടി ഒരുങ്ങാം ഈ ഗാനത്തോടൊപ്പം|#shorts #newchristiansong #lent |REEL 3](https://www.youtube.com/watch?v=RWl25i006hE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
