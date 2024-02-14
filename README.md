@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Onnum Parayathe | K S Harisankar | Shinsy Thomas | Dr. Sunil V T #shortsvideo](https://www.youtube.com/watch?v=yeSG_vCg8ig)
-- [Onnum Parayathe | K S Harisankar | Shinsy Thomas | Dr. Sunil V T #shortsvideo](https://www.youtube.com/watch?v=u7n1yojd7Z8)
-- [Poonkaatte Poyi Chollamo | Shyama | Unni Menon | KS Chithra | Raghukumar | Shibu Chakravarthy](https://www.youtube.com/watch?v=ZapKE4U6G1A)
-- [Oru Thira Video Song | Oru Thira Pinneyum Thira Malayalam Movie | KJ Yesudas](https://www.youtube.com/watch?v=jHzU6gZ-ISY)
-- [Mazhaneer Thullikal | Krishnadiya | Shorts  #manoramamusic](https://www.youtube.com/watch?v=yDvZyFfcNN4)
-- [Aarum Kothikkum Ninte Sneham | Kelkkan Kothikkunna Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=yXE4EGcFmsE)
+- [മനുഷ്യാ നീ മണ്ണാകുന്നു. | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=mmAoNAXWIAI)
+- [Ithiri Mullappoo Mottalla Video Song | Kannapanunni | S Janaki | P Bhaskaran | K Raghavan](https://www.youtube.com/watch?v=4FzWmcnecOg)
+- [Kuda Pole Poomanam | Super Hit Malayalam Movie Song | Kaalachakram | Neelam | Ashwathy](https://www.youtube.com/watch?v=_GMZ3mekkNg)
+- [Karimizhi Niraye | Janaki Jaane  |  Valentines Day Special #shortsfeed #shorts #malayalamlovesong](https://www.youtube.com/watch?v=1cEZDGydlgw)
+- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 14th of February 2024](https://www.youtube.com/watch?v=lCpo9A9WIEg)
+- [Nalla Mambooppadam | Orkkuka Vallappozhum | Rajalakshmi | Anand S | M Jayachandran](https://www.youtube.com/watch?v=79LMnpux2R8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
