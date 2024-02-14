@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Japamala 14th of February 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 14th of February 2024](https://www.youtube.com/watch?v=s0dyZfiQPG8)
+- [ഇന്ന് ഫെബ്രുവരി  14 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  mahim](https://www.youtube.com/watch?v=cq4RCuYGfGQ)
+- [ഇന്ന് ഫെബ്രുവരി 14 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala prakas](https://www.youtube.com/watch?v=rvZ56E47wFQ)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=TL5G4W_xIzY)
 - [പ്രഭാത പ്രാര്‍ത്ഥന 14th of February # Athiravile Prarthana 14th February 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=mtmbvZ8NMXU)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=L6T1VHdjGP4)
-- [ഓർമകളിൽ ഓ എൻ വി..| പ്രിയകവിയുടെ ഓർമ്മകൾ നിറഞ്ഞ ഒരുപിടിഗാനങ്ങൾ | കെ ജെ യേശുദാസ് | കെ എസ് ചിത്ര](https://www.youtube.com/watch?v=dGbH0sfb2wI)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 14th February 24](https://www.youtube.com/watch?v=XUik-6GdRIM)
-- [Saradendu Paadi | Kaliyoonjalu | Dileep | Shobana | Ilayaraja | Mammootty | KJ Yesudas](https://www.youtube.com/watch?v=DF_UcN8EraE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
