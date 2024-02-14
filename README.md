@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Onnum Parayathe | K S Harisankar | Shinsy Thomas | Dr. Sunil V T #shortsvideo](https://www.youtube.com/watch?v=yeSG_vCg8ig)
+- [Onnum Parayathe | K S Harisankar | Shinsy Thomas | Dr. Sunil V T #shortsvideo](https://www.youtube.com/watch?v=u7n1yojd7Z8)
+- [Poonkaatte Poyi Chollamo | Shyama | Unni Menon | KS Chithra | Raghukumar | Shibu Chakravarthy](https://www.youtube.com/watch?v=ZapKE4U6G1A)
+- [Oru Thira Video Song | Oru Thira Pinneyum Thira Malayalam Movie | KJ Yesudas](https://www.youtube.com/watch?v=jHzU6gZ-ISY)
 - [Mazhaneer Thullikal | Krishnadiya | Shorts  #manoramamusic](https://www.youtube.com/watch?v=yDvZyFfcNN4)
 - [Aarum Kothikkum Ninte Sneham | Kelkkan Kothikkunna Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=yXE4EGcFmsE)
-- [പ്രിയ ഗായകരുടെ ഇഷ്ടഗാനങ്ങൾ ! EVERGREEN MALAYALAM FILM SONGS | BEST SONGS MALAYALAM](https://www.youtube.com/watch?v=oX546g_iILo)
-- [Come On Girls (The Celebration of Love) (Tamil Lyric Video [From "3 (Tamil)"])](https://www.youtube.com/watch?v=wD8qVWAr9G4)
-- [Kannum Kannum Plus (Tamil Lyric Video [From "100% Kaadhal"])](https://www.youtube.com/watch?v=afJA9A_im9M)
-- [പ്രേക്ഷകഹൃദയം കവർന്ന പ്രണയസല്ലാപ ഗാനങ്ങൾ | LOVE SONGS MALAYALAM  | 90s LOVE SONGS |](https://www.youtube.com/watch?v=nOt9Cviexuc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
