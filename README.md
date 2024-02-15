@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Uyarum Trivarna - Audio Song | Good Luck Sakhi | Keerthy Suresh | Aadhi Pinisetty | DSP](https://www.youtube.com/watch?v=hvEMruvWk-w)
-- [Ennodenthinee Pinakkam | Kaliyattam | Kaithapram  | Suresh Gopi | Manju Warrier | #shorts](https://www.youtube.com/watch?v=2Of8_6AIbxQ)
-- [Palayathinappurathu | Alpakalam Mathram | Pr. Muttom Geevarghese #shortsvideo](https://www.youtube.com/watch?v=ikR0Ff-QHmw)
-- [മലയാളികളുടെ മനസ്സിൽ പ്രണയത്തിന്റെ വിത്തുപാകിയ അനുരാഗലോല നായകന്മാരുടെ ഹിറ്റ് ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=aCryu5qLPTI)
-- [Unnam Marannu Video Song | In Harihar Nagar | MG Sreekumar | Mukesh | Siddique | Jagadish | Ashokan](https://www.youtube.com/watch?v=XQ_mlurcIQQ)
-- [മലയാളസിനിമയുടെ അമരക്കാരൻ മെഗാസ്റ്റാർ മമ്മൂട്ടി അഭിനയിച്ച ചിത്രങ്ങളിലെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=ylKMciR9lWQ)
+- [നോമ്പ് ക്രൂശിതനോടൊപ്പമുള്ള യാത്രയാണ്. | Rev. Aneesh P Joseph | #shorts #motivation #lent](https://www.youtube.com/watch?v=mGAyXc6Am3Q)
+- [OnnamVattam Kandappo Video Song | Chandralekha | MG Sreekumar #shorts](https://www.youtube.com/watch?v=rq5P5gE5VeI)
+- [പ്രണയ മധുരം | Audio Jukebox | Romantic Malayalam Melodies | Malayalam Film Songs | Love Songs](https://www.youtube.com/watch?v=YslOaqDApLU)
+- [Ee Vennilavinte Geetham | Makante Achan | Vineeth Sreenivasan | M Jayachandran | Kaithapram](https://www.youtube.com/watch?v=VzZjGrg7OCc)
+- [UDAYON | ഉടയോൻ | CHRISTIAN DEVOTIONAL | ROY PUTHUR | LIJU RAJAN | ANCIL K JACOB #devotionalsongs](https://www.youtube.com/watch?v=ulplzqrj7D8)
+- [കിലുകിൽ പമ്പരം തിരിയും മാനസംഅറിയാതമ്പിളീ മയങ്ങൂ വാ വാവോ #mohanlal](https://www.youtube.com/watch?v=ZxloBJVYH4I)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
