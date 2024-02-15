@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മേഘ്നകുട്ടിയും കൂട്ടുകാരും തകർത്തുപാടിയ സൂപ്പർഹിറ്റ് ക്രിസ്തീയ ഗാനം..ഉടൻ വരുന്നു..| @MeghnaSumesh](https://www.youtube.com/watch?v=MApdjyDLnJo)
 - [15 February 2024](https://www.youtube.com/watch?v=ER4TyYUMtyE)
+- [En Jeevane | Devadoothan |  Mohanlal | Vidyasagar | Sibi Malayil | Jayachandran | S Janaki](https://www.youtube.com/watch?v=7JlQoZwS4zk)
 - [Chandirane Kayyileduthu | Mahasamudram | Alex | M Jayachandran | Kaithapram | Evergreen hits](https://www.youtube.com/watch?v=S1vuNbarNNY)
 - [ചെറുപ്പകാലം മുതലേ കേട്ട് മനസ്സിൽ പതിഞ്ഞ സൂപ്പർഹിറ്റ് ക്രിസ്തീയഗാനങ്ങൾ  |Old Is Gold |Christian Songs](https://www.youtube.com/watch?v=5Kf2yhdOLOU)
 - [Madhuram Gayathi | Banaras | Shreya Ghoshal | Sudeep Kumar | M Jayachandran |Gireesh Puthanchery](https://www.youtube.com/watch?v=_2mrRqYwK_0)
-- [നോമ്പ് ക്രൂശിതനോടൊപ്പമുള്ള യാത്രയാണ്. | Rev. Aneesh P Joseph | #shorts #motivation #lent](https://www.youtube.com/watch?v=mGAyXc6Am3Q)
-- [OnnamVattam Kandappo Video Song | Chandralekha | MG Sreekumar #shorts](https://www.youtube.com/watch?v=rq5P5gE5VeI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
