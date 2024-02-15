@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളസിനിമയുടെ അമരക്കാരൻ മെഗാസ്റ്റാർ മമ്മൂട്ടി അഭിനയിച്ച ചിത്രങ്ങളിലെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=ylKMciR9lWQ)
+- [Aniyathipraavinu | Aniyathipraavu | Ouseppachan | K S Chithra | S Ramesan Nair #SongOfTheDay](https://www.youtube.com/watch?v=Z5tGxSN_YX8)
 - [Over The Ocean | Kolambi  #rameshnarayanan #filmsongs #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=fHKWBFI0rjo)
 - [Ascharyameyithu | Pr. Muttom Geevarghese | K S Chithra #shorts](https://www.youtube.com/watch?v=t_ovZqBhAi8)
 - [Amme - Audio Song | Edimuzhakkam | Jayan, Lalu Alex, Ratheesh | Shyam](https://www.youtube.com/watch?v=3Mql1woUVVk)
 - [Sridevi Old Superhit song #malayalamsongs #ytshorts #oldmalayalammelodysongs](https://www.youtube.com/watch?v=6zWysJu945E)
-- [Super Stars Singing Film Songs |  Jukebox | സൂപ്പർ താരങ്ങൾ ആലപിച്ച ഹിറ്റ് സിനിമാഗാനങ്ങൾ](https://www.youtube.com/watch?v=a2pcgP6ax5M)
-- [Pavi Caretaker - Official Teaser | Dileep | Johny Antony | Vineeth Kumar](https://www.youtube.com/watch?v=EI-6x_iI8Ks)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
