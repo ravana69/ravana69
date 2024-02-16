@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Karaoke Ente Priyan Yeshurajan | Malayalam Christian Karaoke | Christian Karaoke | Minus Tracks](https://www.youtube.com/watch?v=E7aI6Zb6RpA)
+- [Kando Kando Kadal Kando | Mahasamudram | Mohanlal | Laila | M Jayachandran | G Venugopal |KS Chithra](https://www.youtube.com/watch?v=DkkXk_B89Bo)
 - [7 ஆம் அறிவு - இன்னும் என்ன தோழா தமிழ் பாடல்வரிகள் | ஹாரிஸ் ஜெயராஜ்](https://www.youtube.com/watch?v=jXOLeB7YR0Y)
 - [ஆண்டவன் கட்டளை - வாழ்க்கை ஒரு ஒட்டகம் தமிழ் பாடல்வரிகள்](https://www.youtube.com/watch?v=leutwYH5VWI)
 - [Maa Ooru Ambajipeta Video | Suhas అంబాజీపేట మ్యారేజ్ బ్యాండ్ సొంగ్](https://www.youtube.com/watch?v=iMK3sKKsQdg)
 - [Pazham Thamizh Pattizhayum Video Song | Manichitrathazhu | Mohanlal | KJ Yesudas | MG Radhakrishnan](https://www.youtube.com/watch?v=HmI_OnrUj_k)
-- [Sree Raagamo | Pavithram | Sharreth | K J Yesudas | O N V Kurup | Mohanlal #SongOfTheDay](https://www.youtube.com/watch?v=ebFavWI8GGg)
-- [മലയാളസിനിമയുടെ പ്രതാപകാലത്തെ പ്രധാന ഗായകൻ എം ജി ശ്രീകുമാറിന്റെ ഗാനങ്ങൾ ! MG SREEKUMAR HITS](https://www.youtube.com/watch?v=nGuFueI3k5w)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
