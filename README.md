@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Akasa Ganga - Audio Song | Omanakuttan | S. Janaki | Shyam](https://www.youtube.com/watch?v=xpnDCSs4yyY)
+- [Poochakkaro Manikettunnallo Video Song | Melevaryathe Malakhakkuttikal |  Geetha | Abhirami](https://www.youtube.com/watch?v=5RJB5SIZA2s)
 - [Kasthooriman Malayalam Movie Video Jukebox | Kunchacko Boban | Meera Jasmine | Kaithapram](https://www.youtube.com/watch?v=iz0ccVgfpfU)
 - [Malkosinte Gadhgathangal Day 5](https://www.youtube.com/watch?v=SxAPUSg9SBU)
 - [Karaoke Ente Priyan Yeshurajan | Malayalam Christian Karaoke | Christian Karaoke | Minus Tracks](https://www.youtube.com/watch?v=E7aI6Zb6RpA)
 - [Kando Kando Kadal Kando | Mahasamudram | Mohanlal | Laila | M Jayachandran | G Venugopal |KS Chithra](https://www.youtube.com/watch?v=DkkXk_B89Bo)
-- [7 ஆம் அறிவு - இன்னும் என்ன தோழா தமிழ் பாடல்வரிகள் | ஹாரிஸ் ஜெயராஜ்](https://www.youtube.com/watch?v=jXOLeB7YR0Y)
-- [ஆண்டவன் கட்டளை - வாழ்க்கை ஒரு ஒட்டகம் தமிழ் பாடல்வரிகள்](https://www.youtube.com/watch?v=leutwYH5VWI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
