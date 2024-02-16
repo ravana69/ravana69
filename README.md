@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ക്രൂശിലെ സ്നേഹം ക്ഷമയുടെ ആഴങ്ങൾ പഠിപ്പിക്കുന്നു  | Rev. Aneesh P Joseph | #shorts #motivation #lent](https://www.youtube.com/watch?v=yUlGUIAz9xI)
+- [Hara Hara Sankara Video Song  | Rasikan | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=AYifDA9VN1E)
+- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 16th of February 2024](https://www.youtube.com/watch?v=2oulYjka_1U)
 - [Akasa Ganga - Audio Song | Omanakuttan | S. Janaki | Shyam](https://www.youtube.com/watch?v=xpnDCSs4yyY)
 - [Poochakkaro Manikettunnallo Video Song | Melevaryathe Malakhakkuttikal |  Geetha | Abhirami](https://www.youtube.com/watch?v=5RJB5SIZA2s)
 - [Kasthooriman Malayalam Movie Video Jukebox | Kunchacko Boban | Meera Jasmine | Kaithapram](https://www.youtube.com/watch?v=iz0ccVgfpfU)
-- [Malkosinte Gadhgathangal Day 5](https://www.youtube.com/watch?v=SxAPUSg9SBU)
-- [Karaoke Ente Priyan Yeshurajan | Malayalam Christian Karaoke | Christian Karaoke | Minus Tracks](https://www.youtube.com/watch?v=E7aI6Zb6RpA)
-- [Kando Kando Kadal Kando | Mahasamudram | Mohanlal | Laila | M Jayachandran | G Venugopal |KS Chithra](https://www.youtube.com/watch?v=DkkXk_B89Bo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
