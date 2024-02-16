@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kaathiripoo (Revival) | Aaroodam, S. Janaki Revival Hits | Shyam](https://www.youtube.com/watch?v=yFeGJiaEhmk)
 - [Ullil Vazhan Esho Nadha Nee Promo 02](https://www.youtube.com/watch?v=WV19WYf9Pts)
 - [Prem Nazir Old Malayalam Movie Songs | Chirikkudukka Remastered Malayalam Songs | S. Janaki](https://www.youtube.com/watch?v=FQoQZ2EPyUk)
 - [Entha Johnsa Kallile | Uncle |  Super Stars Singing Film Songs #mammootty #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=OxHK3kRq564)
 - [Snehamam Yeshuve | Rev. Jeevan John | Pr. Gladis Vayalathala #ytshorts  #malayalamchristiansongs](https://www.youtube.com/watch?v=1X6ydvQ43M8)
 - [Ennod Kattum | Christian Devotional Songs Malayalam | KS Chithra | Christian Melody Song](https://www.youtube.com/watch?v=jTO6sxesRGY)
-- [Kurishinte Vazhi 2024 | Way of The Cross Malayalam 2024](https://www.youtube.com/watch?v=uQ2caNgfo5A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
