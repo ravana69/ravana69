@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Cheruthinkal Thoni | Lyrical + Karaoke  Video | Swantham Lekhakan | Anil Panachooran  | Bijibal](https://www.youtube.com/watch?v=K4U3nrzkxtE)
+- [Ullil Vazhan Esho Nadhan Nee | Lini T Lal | Fr. Justin Kaliyaniyil CMI | Christian Devotional Song](https://www.youtube.com/watch?v=WfaXXU5FwvA)
 - [Manjum Madhumariyum Video Song | Puthiya Karukkal | KJ Yesudas | Jayaram | Parvathy | SP Venkitesh](https://www.youtube.com/watch?v=jqzY4DXqBRc)
 - [Prem Nazir, Vidhubala Romantic Old Malayalam Movie Song |Chirikkudukka  Malayalam MovieSong |Yesudas](https://www.youtube.com/watch?v=hJBw9Gko8c0)
 - [Parvanendhuvin | Thurakkatha Vathil | Prem Nazeer | Madhu | Yesudas | K Raghavan](https://www.youtube.com/watch?v=lVcE24gy_xc)
 - [Anweshippin Kandethum - Success Teaser | Tovino Thomas | Darwin Kuriakose](https://www.youtube.com/watch?v=seN8bsAhwlQ)
-- [Neeyenne Thedi Vannu | Kester #ytshorts](https://www.youtube.com/watch?v=wZseEMQpsg8)
-- [Sona Sona | Ben Johnson #shortsvideo #manoramamusic](https://www.youtube.com/watch?v=2VvmFcRj-m4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
