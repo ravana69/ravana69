@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manjum Madhumariyum Video Song | Puthiya Karukkal | KJ Yesudas | Jayaram | Parvathy | SP Venkitesh](https://www.youtube.com/watch?v=jqzY4DXqBRc)
+- [Prem Nazir, Vidhubala Romantic Old Malayalam Movie Song |Chirikkudukka  Malayalam MovieSong |Yesudas](https://www.youtube.com/watch?v=hJBw9Gko8c0)
+- [Parvanendhuvin | Thurakkatha Vathil | Prem Nazeer | Madhu | Yesudas | K Raghavan](https://www.youtube.com/watch?v=lVcE24gy_xc)
 - [Anweshippin Kandethum - Success Teaser | Tovino Thomas | Darwin Kuriakose](https://www.youtube.com/watch?v=seN8bsAhwlQ)
 - [Neeyenne Thedi Vannu | Kester #ytshorts](https://www.youtube.com/watch?v=wZseEMQpsg8)
 - [Sona Sona | Ben Johnson #shortsvideo #manoramamusic](https://www.youtube.com/watch?v=2VvmFcRj-m4)
-- [അതിമനോഹരമായ പഴയകാല ഗാനങ്ങൾ old christian songs malayalam with lyrics ! daily worship songs malayalam](https://www.youtube.com/watch?v=Rrpk183_x1I)
-- [Malkosinte Gadhgathangal day 6](https://www.youtube.com/watch?v=ovc7SSPjWzw)
-- [കൃപാസനം പ്രാർത്ഥന കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kreupasanam prayer for feb 17th #ഇന്ന് ഫെബ്രുവരി](https://www.youtube.com/watch?v=_hjmvYxQGAw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
