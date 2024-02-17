@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Enthinaay Nin | Mizhi Randilum | Indrajith | Ranjith | Raveendran | Kavya Madhavan | KS Chithra](https://www.youtube.com/watch?v=MZoiT7eNtfo)
 - [Mannathi Mannargal | Surieyan | Deva | S.P.B | Hi-Res Audio](https://www.youtube.com/watch?v=rse-cITDxLw)
 - [എത്രകേട്ടാലും മനസ്സ് മടുക്കാത്ത മലയാളചലച്ചിത്രഗാനങ്ങൾ | EVERLOVING FILM SONGS | MOVIEWORLD MUSIC](https://www.youtube.com/watch?v=kznd3e8qJPo)
 - [We knee-d to groove! 💃 #RakkaRakka #Bandra #ytshorts #shorts](https://www.youtube.com/watch?v=suVtCMAZl14)
 - [കാൽവരിയിലെ സ്നേഹം.  | Rev. Aneesh P Joseph | #shorts #motivation #lent](https://www.youtube.com/watch?v=QNmVzVmbJ1Q)
-- [Ezhu Chirakulla Theru Video Song | Anarkali | Vayalar | P Susheela #shorts](https://www.youtube.com/watch?v=xqRMTUK4jAQ)
-- [Bhavayami Paadumente | Meghatheertham | Sharreth | Gireesh Puthenchery | State Award Winning Song](https://www.youtube.com/watch?v=ppfxuf0qkM4)
+- [Gandharajan Poovidarnnu | Calendar | KJ Yesudas | Afzal Yusuf | Anil Panachooran](https://www.youtube.com/watch?v=2Evsn34b-lU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
