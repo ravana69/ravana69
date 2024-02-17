@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ezhu Chirakulla Theru Video Song | Anarkali | Vayalar | P Susheela #shorts](https://www.youtube.com/watch?v=xqRMTUK4jAQ)
+- [Bhavayami Paadumente | Meghatheertham | Sharreth | Gireesh Puthenchery | State Award Winning Song](https://www.youtube.com/watch?v=ppfxuf0qkM4)
+- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 17th of February 2024](https://www.youtube.com/watch?v=nuewE4wG1Qg)
 - [Snehadeepam Koluthi | Sreedevi Malayalam Movie | P Madhuri | Kamal Haasan | Sharada #shorts](https://www.youtube.com/watch?v=DdoShd_QEN4)
 - [Harimuraleeravam Video Song | Aaraam Thampuran | Mohanlal | Manju Warrier | KJ Yesudas | Raveendran](https://www.youtube.com/watch?v=94tDeXtnHYA)
 - [മലയാളി പ്രേക്ഷകർ നെഞ്ചിലേറ്റിയ മലയാളസിനിമയിലെ മനോഹര ഗാനങ്ങൾ ! EVERGREEN HITS MALAYALAM](https://www.youtube.com/watch?v=-Il8Tb3vXtc)
-- [Indupushpam | Vaishali | Bombay Ravi | K S Chithra | O N V Kurup #SongOfTheDay](https://www.youtube.com/watch?v=QEcOgjF0Npw)
-- [Manjin Thooval | Avial #kschithra #unnimenon #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=MMY_4FpMxEg)
-- [Anuragini ithaa en  Oru Kudakkeezhil Poovachal Khader Johnson KJ Yesudas Malayalam Evergreen Hits](https://www.youtube.com/watch?v=zONWaxPhBfc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
