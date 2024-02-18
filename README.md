@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ఆర్య 2 - కరిగే లోగా - తెలుగు లిరికల్ | దేవి శ్రీ ప్రసాద్](https://www.youtube.com/watch?v=di75BlFAlJc)
+- [ఆర్య 2 - ఉప్పెనంత - తెలుగు లిరికల్ | దేవి శ్రీ ప్రసాద్](https://www.youtube.com/watch?v=RS11HiPFeb8)
+- [Vishudhanaya - Audio Song | Pearl View | Prem Nazir, Sharada | K.J. Yesudas | G. Devarajan](https://www.youtube.com/watch?v=iRzstWvK0QY)
+- [എന്നാളും എന്നാളും എന്റേതല്ലേ നീ... #evergreenhits #rasikan #samvruthasunil #movieworldmusic](https://www.youtube.com/watch?v=f_G_-rXXGO0)
+- [Naladamayanthi Kadhayile | Rowdy Ramu | Malayalam Super Hit Movie Song | Ft. Madhu | Jayabharathi](https://www.youtube.com/watch?v=7hw8JLaUF0M)
 - [Malkosinte Gadhgathangal Day 8](https://www.youtube.com/watch?v=K-PDYlCd2Z8)
-- [K. P. Ummer Old Malayalam Movie Songs | Ladies Hostel Movie Song | Remastered Malayalam Songs](https://www.youtube.com/watch?v=MnyMBCc4D00)
-- [Ini Maanathum | Cover Story | Nedumudi Venu | Tabbu | Chithra | Sureshgopi](https://www.youtube.com/watch?v=oTiFYTuPGqc)
-- [Prathiphalam | Christian Songs #shorts](https://www.youtube.com/watch?v=4eEwYi6y_Wo)
-- [Japamala 18th of February 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 18th of February 2024](https://www.youtube.com/watch?v=OmhwOTBFhPg)
-- [ഇന്ന് ഫെബ്രുവരി  18 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  mahim](https://www.youtube.com/watch?v=1y2E7qzI7iM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
