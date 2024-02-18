@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Rithukanyakayude Video Song | Kodungallooramma | P Susheela | Vayalar | K Raghavan](https://www.youtube.com/watch?v=6ujNVaRq_ow)
+- [Punchiri Thanchum | Bicycle Thieves #shankarmahadevan #deepakdev #filmsongs #shortsfeed #shorts](https://www.youtube.com/watch?v=A9H8Hjs7D_c)
+- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 18th of February 2024](https://www.youtube.com/watch?v=enJdSNmbjXE)
 - [Naadangalaay Nee Varoo Video Song |  Ninnishtam Ennishtam | KS Chithra |  P Jayachandran](https://www.youtube.com/watch?v=bj_k_57PSSE)
 - [Meinagam (Revival) - Audio Song | Trishna | S. Janaki | Shyam | Bichu Thirumala](https://www.youtube.com/watch?v=ZmgQGlhSBUA)
 - [Chandana Mukile Video Song | Vellinakshatram | Prithviraj | Meenakshi | KS Chithra | M Jayachandran](https://www.youtube.com/watch?v=pELEeHCFPdg)
-- [ఆర్య 2 - కరిగే లోగా - తెలుగు లిరికల్ | దేవి శ్రీ ప్రసాద్](https://www.youtube.com/watch?v=di75BlFAlJc)
-- [ఆర్య 2 - ఉప్పెనంత - తెలుగు లిరికల్ | దేవి శ్రీ ప్రసాద్](https://www.youtube.com/watch?v=RS11HiPFeb8)
-- [Vishudhanaya - Audio Song | Pearl View | Prem Nazir, Sharada | K.J. Yesudas | G. Devarajan](https://www.youtube.com/watch?v=iRzstWvK0QY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
