@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Malkosinte Gadhgathangal Day 8](https://www.youtube.com/watch?v=K-PDYlCd2Z8)
 - [K. P. Ummer Old Malayalam Movie Songs | Ladies Hostel Movie Song | Remastered Malayalam Songs](https://www.youtube.com/watch?v=MnyMBCc4D00)
 - [Ini Maanathum | Cover Story | Nedumudi Venu | Tabbu | Chithra | Sureshgopi](https://www.youtube.com/watch?v=oTiFYTuPGqc)
 - [Prathiphalam | Christian Songs #shorts](https://www.youtube.com/watch?v=4eEwYi6y_Wo)
 - [Japamala 18th of February 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 18th of February 2024](https://www.youtube.com/watch?v=OmhwOTBFhPg)
 - [ഇന്ന് ഫെബ്രുവരി  18 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  mahim](https://www.youtube.com/watch?v=1y2E7qzI7iM)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=sRMxNaq5uX4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
