@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Madhu Old Malayalam Movie Songs | Velliyazhcha  Remastered Malayalam Songs | K. J. Yesudas](https://www.youtube.com/watch?v=HiXQTdEy-pE)
+- [Jeevan Nalki Snehichu Nee | Maria Kolady | Baby John Kalayanthani  #malayalamchristiansongs #shorts](https://www.youtube.com/watch?v=mgPJZOLzkqM)
+- [Krooshitha | Maria Kolady | Baby John Kalayanthani  #malayalamchristiansongs #shorts](https://www.youtube.com/watch?v=2kiV0FCdMdk)
+- [Adakachakko | Ayyappanum Koshiyum |  Super Stars Singing Film Songs #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=oVqY7N32GDU)
+- [Ithalazhakil Malar | Innalekalillathe | Manju Warrier | Biju Menon | Chithra | Rex Issac](https://www.youtube.com/watch?v=q0gXU-Kb2xM)
 - [KARAOKE | പ്രാവിൻ രൂപമണിഞ്ഞവനെ | DEVOTIONAL |ROY PUTHUR| FR LIBIN VARGHESE #christiandevotionalsongs](https://www.youtube.com/watch?v=bHaJ40-4ye0)
-- [Aaru Nee Kanmani | Aanandhapuram Diaries | K S Chithra #kschithra #malayalamfilmsongs #shortsfeed](https://www.youtube.com/watch?v=Oyv6n0oyBcs)
-- [Mazha Manimukile | Kangaroo #shortsvideo](https://www.youtube.com/watch?v=wNilT8p_v5g)
-- [ഇന്ന് ഫെബ്രുവരി  19 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala santh](https://www.youtube.com/watch?v=qazV0bUp1GQ)
-- [Japamala 19th of February 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 19th of February 24](https://www.youtube.com/watch?v=5fMlRyJvfNc)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=NfHU7TtiMbk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
