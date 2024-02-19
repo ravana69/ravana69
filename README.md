@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഇന്ന് ഫെബ്രുവരി  19 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala santh](https://www.youtube.com/watch?v=qazV0bUp1GQ)
+- [Japamala 19th of February 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 19th of February 24](https://www.youtube.com/watch?v=5fMlRyJvfNc)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=NfHU7TtiMbk)
 - [Malkosinte Gadhgathangal day 9](https://www.youtube.com/watch?v=0AHfzEapdMc)
 - [പ്രഭാത പ്രാര്‍ത്ഥന 19th of February # Athiravile Prarthana 19th February 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=X6IapodYokE)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=_tNLlKcXruk)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 19th February 24](https://www.youtube.com/watch?v=ULKX6Lrjqs0)
-- [Kasthoori Ente Kasthoori | Vishnulokam | Mohanlal | Urvashi | M G Sreekumar | Raveendran](https://www.youtube.com/watch?v=8C5wZIgpbLs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
