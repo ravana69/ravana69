@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [KARAOKE | പ്രാവിൻ രൂപമണിഞ്ഞവനെ | DEVOTIONAL |ROY PUTHUR| FR LIBIN VARGHESE #christiandevotionalsongs](https://www.youtube.com/watch?v=bHaJ40-4ye0)
+- [Aaru Nee Kanmani | Aanandhapuram Diaries | K S Chithra #kschithra #malayalamfilmsongs #shortsfeed](https://www.youtube.com/watch?v=Oyv6n0oyBcs)
 - [Mazha Manimukile | Kangaroo #shortsvideo](https://www.youtube.com/watch?v=wNilT8p_v5g)
 - [ഇന്ന് ഫെബ്രുവരി  19 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala santh](https://www.youtube.com/watch?v=qazV0bUp1GQ)
 - [Japamala 19th of February 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 19th of February 24](https://www.youtube.com/watch?v=5fMlRyJvfNc)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=NfHU7TtiMbk)
-- [Malkosinte Gadhgathangal day 9](https://www.youtube.com/watch?v=0AHfzEapdMc)
-- [പ്രഭാത പ്രാര്‍ത്ഥന 19th of February # Athiravile Prarthana 19th February 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=X6IapodYokE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
