@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Poomanam (Revival) - Audio Song | Etho Oru Swapnam | Prem Nizar | K.J. Yesudas | Salil Chowdhury](https://www.youtube.com/watch?v=26LqEi2f8u8)
 - [Shalabham Vazhimarumaa | Achaneyanenikkishttam | Biju Menon | Lakshmi Gopalaswamy | MG Sreekumar](https://www.youtube.com/watch?v=rKEOgGkDcOY)
 - [Kokkarakko Kokkarakko - Audio Song | Kadathukaran | Sathyan, Ambika | Baburaj](https://www.youtube.com/watch?v=ID5Skg9hSZM)
 - [Anchikonchathadi | Drona 2010 | Rajamani | Vinutha & Sangeetha | Hi-Res Audio](https://www.youtube.com/watch?v=FLefvAf1BVQ)
 - [Yadhukula Murali | Puthiya Mukham | K Krishnakumar | Deepak Dev | Kaithapram](https://www.youtube.com/watch?v=zzvhYVqEgS0)
 - [19 February 2024](https://www.youtube.com/watch?v=t1dmls9oWMk)
-- [മലയാളത്തിലെ സൂപ്പർതാര ചിത്രങ്ങളിലെ തെരെഞ്ഞെടുത്ത ഗാനങ്ങൾ |Mammootty |Mohanlal || Evergreen Songs](https://www.youtube.com/watch?v=n5UGLDoqWbU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
