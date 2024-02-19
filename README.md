@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മരിയൻ സുദിനം | Marian Sudhinam | 2024 February 24 | Fr Shaji Thumpechirayil](https://www.youtube.com/watch?v=tDrdvpH5kTw)
+- [മധുവിധുരാവുകളെ...| Aadyathe Kanmani  | KJ Yesudas | KS Chithra | #shorts](https://www.youtube.com/watch?v=wvMaUi1QLmA)
 - [Priyane | Vismayathumbathu | Ouseppachan | K J Yesudas | Sujatha Mohan | Kaithapram #SongOfTheDay](https://www.youtube.com/watch?v=bfsUdpFhf-I)
 - [Manimukile Video Song | Kuberan | Samyuktha Varma | Swarnalatha| Mohan Sithara | Gireesh Puthenchery](https://www.youtube.com/watch?v=0CN1G8OXXug)
 - [KURISHOLAM SNEHAM | Song of the Cross | #shorts | Fr. Libin Varghese OIC | Maria Kolady](https://www.youtube.com/watch?v=_u9hUHtHe_4)
 - [Annayum Rasoolum | Evergreen Movie Songs Video Jukebox | Fahadh Faasil | Andrea Jeremiah | Anvar Ali](https://www.youtube.com/watch?v=GZZB29kLScw)
-- [Madhu Old Malayalam Movie Songs | Velliyazhcha  Remastered Malayalam Songs | K. J. Yesudas](https://www.youtube.com/watch?v=HiXQTdEy-pE)
-- [Jeevan Nalki Snehichu Nee | Maria Kolady | Baby John Kalayanthani  #malayalamchristiansongs #shorts](https://www.youtube.com/watch?v=mgPJZOLzkqM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
