@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Yadhukula Murali | Puthiya Mukham | K Krishnakumar | Deepak Dev | Kaithapram](https://www.youtube.com/watch?v=zzvhYVqEgS0)
+- [19 February 2024](https://www.youtube.com/watch?v=t1dmls9oWMk)
 - [മലയാളത്തിലെ സൂപ്പർതാര ചിത്രങ്ങളിലെ തെരെഞ്ഞെടുത്ത ഗാനങ്ങൾ |Mammootty |Mohanlal || Evergreen Songs](https://www.youtube.com/watch?v=n5UGLDoqWbU)
 - [കഴിയുമെങ്കിൽ ഈ പാനപാത്രം എന്നിൽ നിന്നും നീക്കണമേ | Rev. Aneesh P Joseph | #shorts #motivation #lent](https://www.youtube.com/watch?v=X_9zvZGQ-Xg)
 - [Everyone's a star when this song plays! 🌟 #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=9mrO1sXOghg)
 - [Mullapoothu Mulavirinju Video Song | Aromalunni | KJ Yesudas #shorts](https://www.youtube.com/watch?v=y5Yn6-T6ukU)
-- [Thumbapoo Kaattil Thane | Evergreen Malayalam Movie Song | Ninnishtam Ennishtam | Mohanlal | Priya](https://www.youtube.com/watch?v=PO7RBP7EQV4)
-- [Kukoo Kukoo Theevandi | Ritu | Jeethu | Rahul Raj | Rafeeq Ahammed](https://www.youtube.com/watch?v=-1BKvZ-mo6o)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
