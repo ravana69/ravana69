@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Malkosinte Gadhgathangal day 9](https://www.youtube.com/watch?v=AX5CnQlcPeM)
+- [Kurishinte Vazhiyil | Chithra Arun | Christian Devotional Songs Malayalam | Joji Johns | Lent Songs](https://www.youtube.com/watch?v=4d2MdwkIIII)
+- [Kurishumayen Esho | #shorts | Thiruvazhi | Fr. Jenny & Justin Kayamkulathusserry | Lent Song](https://www.youtube.com/watch?v=nraF1X54Ekk)
+- [ഇന്ന് ഫെബ്രുവരി  20 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  dhukk](https://www.youtube.com/watch?v=lkkM9A46XD4)
+- [Japamala 20th of February 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 20th of February 24](https://www.youtube.com/watch?v=3DrGEI6Ctr8)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=xNyTLf4gwo0)
-- [രാവിലെ പ്രാര്‍ത്ഥന 20th of February # Athiravile Prarthana 20th February 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=11ZO56_vN-w)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=ymrJnWIQ0e8)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 20th February 24](https://www.youtube.com/watch?v=48_SrLA_FA4)
-- [Poomanam (Revival) - Audio Song | Etho Oru Swapnam | Prem Nizar | K.J. Yesudas | Salil Chowdhury](https://www.youtube.com/watch?v=26LqEi2f8u8)
-- [Shalabham Vazhimarumaa | Achaneyanenikkishttam | Biju Menon | Lakshmi Gopalaswamy | MG Sreekumar](https://www.youtube.com/watch?v=rKEOgGkDcOY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
