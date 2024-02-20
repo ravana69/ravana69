@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nashtaswargangale Audio Song Veenapoovu Sreekumaran Thampi Vidyadharan Master KJ Yesudas](https://www.youtube.com/watch?v=6NS0kFo09go)
+- [Chithirappanthalittu | Darling Darling | Ouseppachan | K J Yesudas | K S Chithra #SongOfTheDay](https://www.youtube.com/watch?v=4SAnSNEQuzw)
+- [Thiri Theliyunnoo | Kristheeya Bhakthiganangal | Malaylam Christian Devotional Songs| Audio Jukebox](https://www.youtube.com/watch?v=ZX7nVH607NE)
 - [Thanuppicha Beerinte | Nee Ko Njaa Cha | Video Song | Prashant Pillai | Gireesh | Sunny Wayne](https://www.youtube.com/watch?v=_IXTUAMwfqo)
 - [Prem Nazir Old Malayalam Movie Songs | Postmane Kananilla Remastered Malayalam Songs](https://www.youtube.com/watch?v=E2xRcZ7Tk0Q)
 - [Chandanamani Video Song | Praja | Mohanlal | MG Sreekumar | Gireesh Puthenchery | MG Radhakrishnan](https://www.youtube.com/watch?v=x2mqDcveA1o)
-- [Malkosinte Gadhgathangal day 9](https://www.youtube.com/watch?v=AX5CnQlcPeM)
-- [Kurishinte Vazhiyil | Chithra Arun | Christian Devotional Songs Malayalam | Joji Johns | Lent Songs](https://www.youtube.com/watch?v=4d2MdwkIIII)
-- [Kurishumayen Esho | #shorts | Thiruvazhi | Fr. Jenny & Justin Kayamkulathusserry | Lent Song](https://www.youtube.com/watch?v=nraF1X54Ekk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
