@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thanuppicha Beerinte | Nee Ko Njaa Cha | Video Song | Prashant Pillai | Gireesh | Sunny Wayne](https://www.youtube.com/watch?v=_IXTUAMwfqo)
+- [Prem Nazir Old Malayalam Movie Songs | Postmane Kananilla Remastered Malayalam Songs](https://www.youtube.com/watch?v=E2xRcZ7Tk0Q)
 - [Chandanamani Video Song | Praja | Mohanlal | MG Sreekumar | Gireesh Puthenchery | MG Radhakrishnan](https://www.youtube.com/watch?v=x2mqDcveA1o)
 - [Malkosinte Gadhgathangal day 9](https://www.youtube.com/watch?v=AX5CnQlcPeM)
 - [Kurishinte Vazhiyil | Chithra Arun | Christian Devotional Songs Malayalam | Joji Johns | Lent Songs](https://www.youtube.com/watch?v=4d2MdwkIIII)
 - [Kurishumayen Esho | #shorts | Thiruvazhi | Fr. Jenny & Justin Kayamkulathusserry | Lent Song](https://www.youtube.com/watch?v=nraF1X54Ekk)
-- [ഇന്ന് ഫെബ്രുവരി  20 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  dhukk](https://www.youtube.com/watch?v=lkkM9A46XD4)
-- [Japamala 20th of February 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 20th of February 24](https://www.youtube.com/watch?v=3DrGEI6Ctr8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
