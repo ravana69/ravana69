@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [அடங்க மறு - சாயாலி தமிழ் பாடல் வரிகள்](https://www.youtube.com/watch?v=edSAfbn85sU)
+- [அனேகன் - தெய்வங்கள் இங்கே தமிழ் பாடல் வரிகள் | ஹாரிஸ் ஜெயராஜ்](https://www.youtube.com/watch?v=h1VCBMipRYw)
+- [Mission Chapter 1 - Achamae Achamae Video | Arun Vijay | G.V.Prakash Kumar](https://www.youtube.com/watch?v=QEPF2kN2nh8)
+- [ജീവിതത്തിലെന്നും വിലപ്പെട്ട മലയാളസിനിമയിലെ അമൂല്യ ഗാനങ്ങൾ ! EVERGREEN HIT SONGS](https://www.youtube.com/watch?v=OskFdkCBcgY)
+- [Neram Poi Nada Kaale | Rowdy Ramu | Bichu Thirumala | Shyam | KJ Yesudas | Madhu | Old is Gold](https://www.youtube.com/watch?v=3o_O_WRZiYw)
 - [Nashtaswargangale Audio Song Veenapoovu Sreekumaran Thampi Vidyadharan Master KJ Yesudas](https://www.youtube.com/watch?v=6NS0kFo09go)
-- [Chithirappanthalittu | Darling Darling | Ouseppachan | K J Yesudas | K S Chithra #SongOfTheDay](https://www.youtube.com/watch?v=4SAnSNEQuzw)
-- [Thiri Theliyunnoo | Kristheeya Bhakthiganangal | Malaylam Christian Devotional Songs| Audio Jukebox](https://www.youtube.com/watch?v=ZX7nVH607NE)
-- [Thanuppicha Beerinte | Nee Ko Njaa Cha | Video Song | Prashant Pillai | Gireesh | Sunny Wayne](https://www.youtube.com/watch?v=_IXTUAMwfqo)
-- [Prem Nazir Old Malayalam Movie Songs | Postmane Kananilla Remastered Malayalam Songs](https://www.youtube.com/watch?v=E2xRcZ7Tk0Q)
-- [Chandanamani Video Song | Praja | Mohanlal | MG Sreekumar | Gireesh Puthenchery | MG Radhakrishnan](https://www.youtube.com/watch?v=x2mqDcveA1o)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
