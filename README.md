@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Raghunandana |HanuMan(Malayalam)|Prasanth Varma,GowraHari, Saicharan,Lokeshwar,Harshavardhan,Kalyana](https://www.youtube.com/watch?v=IMasoWYRGV4)
-- [Jeevane - Audio Song | Sneha Bandham | P. Jayachandran, Krishnachandran | Gangai Amaran](https://www.youtube.com/watch?v=BMoW-pRrMo8)
-- [Andhakaram Full Video Song | Padheyam Movie | Lohithadas | Mammootty |  Chippy](https://www.youtube.com/watch?v=2HTv7gA6FyU)
-- [Poomaname Oru | Nirakkoottu | Mammootty | Sumalatha | Shyam | Chithra | Joshiy](https://www.youtube.com/watch?v=8Ai7FD-WIbQ)
-- [அடங்க மறு - சாயாலி தமிழ் பாடல் வரிகள்](https://www.youtube.com/watch?v=edSAfbn85sU)
-- [அனேகன் - தெய்வங்கள் இங்கே தமிழ் பாடல் வரிகள் | ஹாரிஸ் ஜெயராஜ்](https://www.youtube.com/watch?v=h1VCBMipRYw)
+- [Legs go Gaga!💃 #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=teHK1pZzNz8)
+- [Kadhayoravarthana | Daddy Cool | Hariharan | Bijibal | Anil Panachooran](https://www.youtube.com/watch?v=VbnrHhBK3Yo)
+- [കാൽവരിയിലെ സഹന സ്നേഹത്തെ നെഞ്ചിലേറ്റുന്ന ദിനങ്ങളാണ് നോമ്പ്. | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=htlbHccRK1M)
+- [Kayyethum Doorath | Pappachan Olivilanu | Vineeth Sreenivasan | Ouseppachan | Sinto Sunny | FilmSong](https://www.youtube.com/watch?v=zLJ8HJp8BMY)
+- [Poomaariyil Video Song | Johnnie Walker | Gireesh Puthenchery | KJ Yesudas | KS Chithra](https://www.youtube.com/watch?v=iDId_vzsCjE)
+- [Mele Vellithinkal | Thanmathra  #mohanlal #mohansithara #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=dEGY76LVhsE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
