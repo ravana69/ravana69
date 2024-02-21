@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manushyarakshakkulloru Vachanam | Kristheeya Bhakthiganangal | Christian Devotional Songs |](https://www.youtube.com/watch?v=btU-EuY7GKk)
+- [ഒരുപാട് നാളായി കേൾക്കാൻ മനസ്സ് കൊതിച്ച മനോഹര ഗാനങ്ങൾ | EVERGREEN HITS MALAYALAM](https://www.youtube.com/watch?v=CHZMGq2BLZI)
+- [Advaitham - Audio Song | Line Bus | Madhu Jayabharathy | Unni Menon](https://www.youtube.com/watch?v=BMiPj9VJfLs)
+- [Runway Movie Video Jukebox | Suresh Peters | Gireesh Puthenchery | Kavya | Dileep | Evergreen Hits](https://www.youtube.com/watch?v=gMAVletoIlI)
+- [Pranayatharangam | Gaandharvam | S P Venkitesh | K J Yesudas | K S Chithra #SongOfTheDay](https://www.youtube.com/watch?v=hjd0R81EYWg)
 - [Aadikkarin Manjal | Thapasya #yesudas #kjyesudas #sweetmelody #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=H4y_Di340M0)
-- [Mamboo Pozhikkunna | Ottamandaram | Video Song | Sujatha Mohan | Vinod Mankara | Ramesh Narayanan](https://www.youtube.com/watch?v=mTzKHa3xaFE)
-- [Sembakame Sevappazhake Video Song | Shikkar | Shankar Mahadevan | Malathi Lakshmanan|M Jayachandran](https://www.youtube.com/watch?v=UO7Z_R2UpYE)
-- [Chemparuthin Chelunde | Mukhachithram | Yesudas | Mohan Sithra | Jayaram | Sound of Arts](https://www.youtube.com/watch?v=wtDk3mXquQY)
-- [Bahadoor Rikshaavaala Oh Old Malayalam Movie Songs | Chirikkudukka  Remastered Malayalam Songs](https://www.youtube.com/watch?v=ThyMRrgMCjM)
-- [Mazha Manimukile | Kangaroo #shortsvideo](https://www.youtube.com/watch?v=c9EH__geLWs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
