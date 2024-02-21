@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kakkala kannamma song | Oru Yathramozhi | MG Sreekumar | SP Balasubrahmanyam #shorts](https://www.youtube.com/watch?v=dmT2KALx99g)
+- [Priyanu Maathram Njaan | Robin Hood | Vijay Yesudas | Swetha Mohan | M Jayachandran | Kaithapram](https://www.youtube.com/watch?v=3SZCBUWxu28)
+- [Saraswatha Madhu - Audio Song | Sarapancharam | Jayan, Seema | G. Devarajan](https://www.youtube.com/watch?v=2r092SDyvgI)
 - [Malkosinte Gadhgathangal Day 10](https://www.youtube.com/watch?v=jRx1331OK9s)
 - [Manushyarakshakkulloru Vachanam | Kristheeya Bhakthiganangal | Christian Devotional Songs |](https://www.youtube.com/watch?v=btU-EuY7GKk)
 - [ഒരുപാട് നാളായി കേൾക്കാൻ മനസ്സ് കൊതിച്ച മനോഹര ഗാനങ്ങൾ | EVERGREEN HITS MALAYALAM](https://www.youtube.com/watch?v=CHZMGq2BLZI)
-- [Advaitham - Audio Song | Line Bus | Madhu Jayabharathy | Unni Menon](https://www.youtube.com/watch?v=BMiPj9VJfLs)
-- [Runway Movie Video Jukebox | Suresh Peters | Gireesh Puthenchery | Kavya | Dileep | Evergreen Hits](https://www.youtube.com/watch?v=gMAVletoIlI)
-- [Pranayatharangam | Gaandharvam | S P Venkitesh | K J Yesudas | K S Chithra #SongOfTheDay](https://www.youtube.com/watch?v=hjd0R81EYWg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
