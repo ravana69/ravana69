@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Kakkala kannamma song | Oru Yathramozhi | MG Sreekumar | SP Balasubrahmanyam #shorts](https://www.youtube.com/watch?v=dmT2KALx99g)
-- [Priyanu Maathram Njaan | Robin Hood | Vijay Yesudas | Swetha Mohan | M Jayachandran | Kaithapram](https://www.youtube.com/watch?v=3SZCBUWxu28)
-- [Saraswatha Madhu - Audio Song | Sarapancharam | Jayan, Seema | G. Devarajan](https://www.youtube.com/watch?v=2r092SDyvgI)
-- [Malkosinte Gadhgathangal Day 10](https://www.youtube.com/watch?v=jRx1331OK9s)
-- [Manushyarakshakkulloru Vachanam | Kristheeya Bhakthiganangal | Christian Devotional Songs |](https://www.youtube.com/watch?v=btU-EuY7GKk)
-- [ഒരുപാട് നാളായി കേൾക്കാൻ മനസ്സ് കൊതിച്ച മനോഹര ഗാനങ്ങൾ | EVERGREEN HITS MALAYALAM](https://www.youtube.com/watch?v=CHZMGq2BLZI)
+- [കാൽവരിയിലെ തീചൂളയിലേക്ക്  | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=1mPtzPBuuAI)
+- [Nadhikalil Sundari Yamuna Song | Anarkali | KJ Yesudas | B Vasantha #shorts](https://www.youtube.com/watch?v=3Vcqo4QkPgg)
+- [💙🩵🤍Gopika Vasantham 🤍🩵💙  #humming #kjyesudas #radha #mohanlal #pranayam #love](https://www.youtube.com/watch?v=s17L_JzufLI)
+- [നോമ്പുകാലം പരിശുദ്ധമാകാൻ സഹായിക്കും ഏറ്റവും നല്ല ക്രിസ്തീയ ഗാനങ്ങൾ  |Lent Songs | Christian Songs](https://www.youtube.com/watch?v=Z0GCDl52Ixk)
+- [Mukkutti Chanthaniyunne | Chattambinadu | Vidhu Prathap | Sangeetha | Shruthi | Akhila | Alex Paul](https://www.youtube.com/watch?v=JGblyK6IE5E)
+- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 21st of February 2024](https://www.youtube.com/watch?v=9ri0Vg_S6uI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
