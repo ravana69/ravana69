@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നിഷ്‌കളങ്ക  പ്രേമത്തിന്റെ ശാലീന ഭാവം വിളിച്ചോതിയ എക്കാലത്തെയും മികച്ച പ്രണയഗാനങ്ങൾ LOVE SONGS](https://www.youtube.com/watch?v=yqunXFYbb6s)
 - [22 February 2024](https://www.youtube.com/watch?v=d5L40QzbytM)
 - [Kaineettunnu Saagaram | Aarya 2 | Joby | Devi Sri Prasad | Siju Thuravur](https://www.youtube.com/watch?v=0yPA7X4BxkM)
 - [പിതാവേ എന്റെ ഇഷ്ട്ടം അല്ല നിന്റെ ഇഷ്ട്ടം നിറവേറട്ടെ | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=w8NJ-WwRRzo)
 - [Effortless effort! 💃 #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=RGYNIN6Rezc)
 - [Allimalarkaavile Video Song | Kannapanunni | KJ Yesudas | P Bhaskaran | K Raghavan | Prem Nazir](https://www.youtube.com/watch?v=lJnYlpOorVQ)
-- [Vijanatheeram  | Anwar | Sukhwinder Singh | Blaaze | Gopi Sundar | Rafeeq Ahamad](https://www.youtube.com/watch?v=QKn9-7ODo10)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
