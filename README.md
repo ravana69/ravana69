@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [அம்பிகாபதி - உன்னால் உன்னால் தமிழ் பாடல் வரிகள் | ஏ. ஆர். ரகுமான்](https://www.youtube.com/watch?v=JRpuEPL6ltk)
+- [Kathirum Kothi Pathirum | Man of the Match | M G Sreekumar | Ilayaraja | Biju Menon | Sound of Arts](https://www.youtube.com/watch?v=8NtStl4Bjcc)
+- [அம்பிகாபதி - கலாரசிகா தமிழ் பாடல் வரிகள் | ஏ. ஆர். ரகுமான்](https://www.youtube.com/watch?v=9SXPxZg9jvs)
+- [പഴയസ്മരണകളെ തൊട്ടുണർത്തുന്ന മലയാളസിനിമയിലെ മികവുറ്റ സിനിമാഗാനങ്ങൾ  | EVERGREEN HITS MALAYALAM](https://www.youtube.com/watch?v=l5YKe8ueHZk)
+- [Thathammapperu | Dosth | Vidyasagar | K J Yesudas | Sujatha Mohan | S Ramesan Nair #SongOfTheDay](https://www.youtube.com/watch?v=n1iZfwnOD1w)
 - [Kanniloorumoru | Aanandhapuram Diaries #shaanrahman #soorajsanthosh #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=nPgVNPIQ8Q8)
-- [Award winning Film Songs | Jukebox | ദേശിയ -സംസ്ഥാന അവാർഡുകൾ നേടിയ സിനിമാഗാനങ്ങൾ](https://www.youtube.com/watch?v=PQlTcxPJjIM)
-- [Masam Masam Video Song | Aparichithan | Kavya Madhavan | Manya | Karthika | Gireesh Puthenchery](https://www.youtube.com/watch?v=lBrLu1wJ4o0)
-- [Kunjurangum Koottinullil | Ponnuchami | Sureshgopi | Chithra | Mohan Sithara](https://www.youtube.com/watch?v=jUwlI9zIxBg)
-- [Kannadippuzhayile |  Salam Kashmir |  Super Stars Singing Film Songs  #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=uclcUhXzZfQ)
-- [Prem Nazir, Vidhubala Romantic Old Malayalam Movie Songs | Chirikkudukka Remastered Malayalam Songs](https://www.youtube.com/watch?v=OBJAIVxbYpk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
