@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [ഒരുരാജമല്ലി വിടരുന്നപോലെഇതളെഴുതി മുന്നിലൊരുമുഖം | Aniyathipravu](https://www.youtube.com/watch?v=_LsD91AZtXU)
-- [Neeyenne Thedi Vannu | Kester #ytshorts](https://www.youtube.com/watch?v=jP4YWfY4BNU)
-- [Devi Nin Roopam Video Song | Oru Thira Pinneyum Thira Malayalam Movie | KJ Yesudas](https://www.youtube.com/watch?v=1wvuOg4Z4xo)
-- [Darshanam Nalkoo | Kristheeya Bhakthiganangal | Christian Devotional Songs| Audio Jukebox](https://www.youtube.com/watch?v=pMH2dXTqaAQ)
-- [Elephant Video Stories | Shikkari Shanku | Animation Video | Kids Animation Stories | Balarama](https://www.youtube.com/watch?v=5f0t_poikMk)
-- [அம்பிகாபதி - உன்னால் உன்னால் தமிழ் பாடல் வரிகள் | ஏ. ஆர். ரகுமான்](https://www.youtube.com/watch?v=JRpuEPL6ltk)
+- [പിതാവേ എന്റെ ഇഷ്ട്ടം അല്ല നിന്റെ ഇഷ്ട്ടം നിറവേറട്ടെ | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=w8NJ-WwRRzo)
+- [Effortless effort! 💃 #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=RGYNIN6Rezc)
+- [Allimalarkaavile Video Song | Kannapanunni | KJ Yesudas | P Bhaskaran | K Raghavan | Prem Nazir](https://www.youtube.com/watch?v=lJnYlpOorVQ)
+- [Vijanatheeram  | Anwar | Sukhwinder Singh | Blaaze | Gopi Sundar | Rafeeq Ahamad](https://www.youtube.com/watch?v=QKn9-7ODo10)
+- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 22nd of February 2024](https://www.youtube.com/watch?v=Qyyj9g9GMng)
+- [Jimbilappa Jimbile | Tribal Song | Anjana S Kumar  | Abhijith | Ram Surendar | Viral Folk Songs](https://www.youtube.com/watch?v=o87ZeC6xGZQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
