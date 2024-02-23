@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മുറിക്കപ്പെടുന്നൊരപ്പത്തിലൂടെ Ft. Tomy C Madathil, Samji Arattupuzha, Elizabeth Raju Christian Song](https://www.youtube.com/watch?v=qhHI05FJo2U)
+- [Kanunnu Njan Kalvariyil | Kester | Lent Songs | Christian Melody Songs | Joji Johns | Joby Kavalam](https://www.youtube.com/watch?v=FdWSGIRRhpw)
+- [ഇന്ന് ഫെബ്രുവരി  23.എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamaladhukka](https://www.youtube.com/watch?v=roQ23C3ndlA)
+- [Japamala 23rd of February 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 23rd of February 24](https://www.youtube.com/watch?v=Q2tE7otvzEo)
 - [Malkosinte Gadhgathangal Day 12](https://www.youtube.com/watch?v=-Ezl1szgNQs)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=UhtByuHkY1Y)
-- [രാവിലെ പ്രാര്‍ത്ഥന 23rd of February # Athiravile Prarthana 23rd February 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=KiIHS9Bu6B4)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=t0yym_Zb200)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 23rd February 24](https://www.youtube.com/watch?v=9WDZSFee1Mg)
-- [S P BALASUBRAHMANYAM HITS/CHRISTIAN DEVOTIONAL SONGS/](https://www.youtube.com/watch?v=Il-U7d4yjXA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
