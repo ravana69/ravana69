@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന 24th of February # Athiravile Prarthana 24th February 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=cIPFPSxPnqg)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=t7MP5-D9xHY)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=nWLqEgK8v4I)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 24th February 24](https://www.youtube.com/watch?v=ZrMJR9cTcu0)
 - [23 February 2024](https://www.youtube.com/watch?v=LVFKHNxI_VE)
 - [Ekaanthachandrike | In Harihar Nagar | Mukesh | Siddique | Jagadeesh | Ashokan | Geetha](https://www.youtube.com/watch?v=llmMgb_ycno)
-- [Dhoore Mamara Kombil  | Varnappakittu (1997) |  Vidyasagar |  KS Chithra | Mohanlal | Meena](https://www.youtube.com/watch?v=c1eWSd_Mu3I)
-- [Charm is what you need after all! ✨😎 #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=sY2HP3FnX5I)
-- [ചുടുചോര ചിന്തിയ സ്നേഹം. | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=3slRSsvp9Qg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
