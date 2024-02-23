@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Than Thirunamathinay | Prathiphalam Thanneeduvan | Christian Songs #shorts](https://www.youtube.com/watch?v=NwV4wJZ2vDc)
-- [Velikku Veluppaankaalam | Kaliyattam | Kaithapram | Suresh Gopi | Manju Warrier | #shorts](https://www.youtube.com/watch?v=qmocQ2Cv9Uk)
-- [Naattuvazhiyorathe | Gadhama | KS Chithra | Bennet Veetraag | Rafeeq Ahamed](https://www.youtube.com/watch?v=idmt_PrhYiM)
-- [Panchavarnna | Sallaapam | Johnson | K S Chithra | Kaithapram #SongOfTheDay](https://www.youtube.com/watch?v=gsug-u9U_KI)
-- [മനസ്സിൽ നോവ് പടർത്തുന്ന മലയാളസിനിമയിലെ വിഷാദഗാനങ്ങൾ  | SAD SONGS  MALAYALAM](https://www.youtube.com/watch?v=SiPEQefQkAQ)
-- [Manjin Thereri... | Rowdy Ramu | Ft.Jayabharathi |  Sharada | Malayalam Super Hit Movie Song |](https://www.youtube.com/watch?v=bED7c1RHS6k)
+- [Charm is what you need after all! ✨😎 #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=sY2HP3FnX5I)
+- [ചുടുചോര ചിന്തിയ സ്നേഹം. | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=3slRSsvp9Qg)
+- [Appukutta Thoppikara Video Song | Chandralekha | MG Sreekumar #shorts](https://www.youtube.com/watch?v=rI_5TCp2S0o)
+- [Aarodum Parayuka Vayya  | Award Winning Film Songs | Kolambi #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=sQQC7BbKXeI)
+- [Chenkurinji Poo Penne | Super Hit Malayalam Song | Swastham Grihabharanam | Mukesh | Sukanya](https://www.youtube.com/watch?v=V8T5avl7zfI)
+- [Oru Madhura Kinavin (Retro Mix) - Audio Song | Tejabhai And Family| K.J. Yesudas | Shyam| Deepak Dev](https://www.youtube.com/watch?v=AG84yayvISo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
