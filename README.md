@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Panchavarnna | Sallaapam | Johnson | K S Chithra | Kaithapram #SongOfTheDay](https://www.youtube.com/watch?v=gsug-u9U_KI)
 - [മനസ്സിൽ നോവ് പടർത്തുന്ന മലയാളസിനിമയിലെ വിഷാദഗാനങ്ങൾ  | SAD SONGS  MALAYALAM](https://www.youtube.com/watch?v=SiPEQefQkAQ)
 - [Manjin Thereri... | Rowdy Ramu | Ft.Jayabharathi |  Sharada | Malayalam Super Hit Movie Song |](https://www.youtube.com/watch?v=bED7c1RHS6k)
+- [മേഘ്‌നക്കുട്ടി പാടിയ ഒരടിപൊളി ഗാനം ദാ എത്തി | @MeghnaSumesh @JinoKunnumpurathu | അൾത്താരയിൽ നിന്നും](https://www.youtube.com/watch?v=IJiIQVN8rRI)
 - [Jimbilappa Jimbile |Tribal Song| Anjana Teacher #shortsfeed #shortsvideo #shorts #reels #tribalsong](https://www.youtube.com/watch?v=fSmwvtbtk_0)
 - [Padiyum Paranjum | കഥകളിപദങ്ങൾ പാടി ഉറക്കിയ അമ്മ  | പാടിയും പറഞ്ഞും | Sreekumaran Thampi](https://www.youtube.com/watch?v=O9Q-1oSrc-M)
-- [Vaathilpazhuthilooden Audio Song Idanaazhiyil Oru Kaalocha K J Yesudas ONV Kurupp V Dakshinamoorthy](https://www.youtube.com/watch?v=_ak_wPpB1Xo)
-- [Mazhayurangatha Rathri - Studio Version | Choottu | Sithara Krishnakumar | Samad Ammas | A K Ranjith](https://www.youtube.com/watch?v=TWidkKGlzQE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
