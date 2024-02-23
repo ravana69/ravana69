@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മനസ്സിൽ നോവ് പടർത്തുന്ന മലയാളസിനിമയിലെ വിഷാദഗാനങ്ങൾ  | SAD SONGS  MALAYALAM](https://www.youtube.com/watch?v=SiPEQefQkAQ)
+- [Manjin Thereri... | Rowdy Ramu | Ft.Jayabharathi |  Sharada | Malayalam Super Hit Movie Song |](https://www.youtube.com/watch?v=bED7c1RHS6k)
 - [Jimbilappa Jimbile |Tribal Song| Anjana Teacher #shortsfeed #shortsvideo #shorts #reels #tribalsong](https://www.youtube.com/watch?v=fSmwvtbtk_0)
 - [Padiyum Paranjum | കഥകളിപദങ്ങൾ പാടി ഉറക്കിയ അമ്മ  | പാടിയും പറഞ്ഞും | Sreekumaran Thampi](https://www.youtube.com/watch?v=O9Q-1oSrc-M)
 - [Vaathilpazhuthilooden Audio Song Idanaazhiyil Oru Kaalocha K J Yesudas ONV Kurupp V Dakshinamoorthy](https://www.youtube.com/watch?v=_ak_wPpB1Xo)
 - [Mazhayurangatha Rathri - Studio Version | Choottu | Sithara Krishnakumar | Samad Ammas | A K Ranjith](https://www.youtube.com/watch?v=TWidkKGlzQE)
-- [Shalabham Vazhimaruma Video Song | Achaneyanenikkishtam | Biju Menon | KS Chithra | MG Sreekumar](https://www.youtube.com/watch?v=z9S9N1xS3UA)
-- [Prem Nazir Old Malayalam Movie Songs | Postmaane Kaanaanilla Remastered Malayalam Songs |K.J Yesudas](https://www.youtube.com/watch?v=OjiZl1065Lk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
