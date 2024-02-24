@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thankatheril - Vadhu Doctoraanu | Kannur Rajan, Yesudas, Chithra, Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=E6Oh6_0N00Y)
 - [മലയാളികൾ നെഞ്ചിലേറ്റിയ സുന്ദര മെലഡി ഗാനങ്ങൾ | EVERGREEN MELODY SONGS | MOVIEWORLD MUSIC](https://www.youtube.com/watch?v=FeJisB2xDmQ)
 - [ஆல் இன் ஆல் அழகு ராஜா - உன்ன பார்த்த நேரம் தமிழ் பாடல் வரிகள் | தமன்](https://www.youtube.com/watch?v=Yl8l4w3RHmE)
 - [ஆல் இன் ஆல் அழகு ராஜா - யாருக்கும் சொல்லாம தமிழ் பாடல் வரிகள் | தமன்](https://www.youtube.com/watch?v=O6CzdUV8vRQ)
 - [പ്രേക്ഷക സ്വീകാര്യത നേടിയ തൊണ്ണൂറുകളിലെ പ്രശസ്‌ത ഗാനങ്ങൾ  | 90s HIT SONGS MALAYALAM](https://www.youtube.com/watch?v=vGJ6svobltM)
 - [Ankam Vettan Munnil | Aanandhapuram Diaries #shortsfeed #shortsvideo #shorts #reels #meena](https://www.youtube.com/watch?v=iqQJNcDEaak)
-- [പാട്ടുപെട്ടി | Paattupetti Vol 43 | Malayalam Film Songs | Satyam Audios](https://www.youtube.com/watch?v=Nu_znjGWASU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
