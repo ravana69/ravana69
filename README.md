@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Christian Video Songs Malayalam | Chithra Arun | Christian Superhit Songs | Kester | Joji Johns](https://www.youtube.com/watch?v=SYdGFnmHOZQ)
+- [Malkosinte Gadhgathangal Day 13](https://www.youtube.com/watch?v=VJxDnCMyrGg)
+- [ഇന്ന് ഫെബ്രുവരി  24 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala santh](https://www.youtube.com/watch?v=WlzCGMOqMSw)
+- [Japamala 24th of February 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 24th of February 24](https://www.youtube.com/watch?v=F-i3Oj93dZ8)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=Il9VwDdwu7g)
 - [Naan Koduthatha | Maaveeran | Ilaiyaraaja | K.S.Chithra | Hi-Res Audio](https://www.youtube.com/watch?v=6x1C2oWwlOU)
-- [രാവിലെ പ്രാര്‍ത്ഥന 24th of February # Athiravile Prarthana 24th February 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=cIPFPSxPnqg)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=t7MP5-D9xHY)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=nWLqEgK8v4I)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 24th February 24](https://www.youtube.com/watch?v=ZrMJR9cTcu0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
