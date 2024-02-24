@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നാഥന്റെ പാദങ്ങളിൽ നെഞ്ചുരുകി കരയാം. | Rev. Aneesh P Joseph | #shorts #lent #motivation](https://www.youtube.com/watch?v=4neNxmQkE04)
 - [Minnum Palunkukal Video Song | Johnnie Walker | KJ Yesudas | Gireesh Puthenchery](https://www.youtube.com/watch?v=SHk0ciU4T8Q)
 - [Ingane Oru Nilapakshi Malayalam Movie Video Jukebox | Kunchacko Boban | Sneha | Srividya](https://www.youtube.com/watch?v=9crZcO4WbbI)
 - [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 24th of February 2024](https://www.youtube.com/watch?v=tK6fOcXexVI)
 - [കുരിശിന്റെ വഴിയിലെ മറക്കാനാവാത്ത ഗാനങ്ങൾ | Valiya Nombu Ganangal | Kester | gagul Joseph |Lent Songs](https://www.youtube.com/watch?v=FiPXo0cXics)
 - [Muthaaram Kunnil Video Song | Muthaaramkunnu P.O | K J Yesudas |  Vani Jairam](https://www.youtube.com/watch?v=PmK3prlbOV8)
-- [Thankatheril - Vadhu Doctoraanu | Kannur Rajan, Yesudas, Chithra, Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=E6Oh6_0N00Y)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
