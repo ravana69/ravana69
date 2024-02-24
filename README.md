@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Minnum Palunkukal Video Song | Johnnie Walker | KJ Yesudas | Gireesh Puthenchery](https://www.youtube.com/watch?v=SHk0ciU4T8Q)
+- [Ingane Oru Nilapakshi Malayalam Movie Video Jukebox | Kunchacko Boban | Sneha | Srividya](https://www.youtube.com/watch?v=9crZcO4WbbI)
+- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 24th of February 2024](https://www.youtube.com/watch?v=tK6fOcXexVI)
+- [കുരിശിന്റെ വഴിയിലെ മറക്കാനാവാത്ത ഗാനങ്ങൾ | Valiya Nombu Ganangal | Kester | gagul Joseph |Lent Songs](https://www.youtube.com/watch?v=FiPXo0cXics)
 - [Muthaaram Kunnil Video Song | Muthaaramkunnu P.O | K J Yesudas |  Vani Jairam](https://www.youtube.com/watch?v=PmK3prlbOV8)
 - [Thankatheril - Vadhu Doctoraanu | Kannur Rajan, Yesudas, Chithra, Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=E6Oh6_0N00Y)
-- [മലയാളികൾ നെഞ്ചിലേറ്റിയ സുന്ദര മെലഡി ഗാനങ്ങൾ | EVERGREEN MELODY SONGS | MOVIEWORLD MUSIC](https://www.youtube.com/watch?v=FeJisB2xDmQ)
-- [ஆல் இன் ஆல் அழகு ராஜா - உன்ன பார்த்த நேரம் தமிழ் பாடல் வரிகள் | தமன்](https://www.youtube.com/watch?v=Yl8l4w3RHmE)
-- [ஆல் இன் ஆல் அழகு ராஜா - யாருக்கும் சொல்லாம தமிழ் பாடல் வரிகள் | தமன்](https://www.youtube.com/watch?v=O6CzdUV8vRQ)
-- [പ്രേക്ഷക സ്വീകാര്യത നേടിയ തൊണ്ണൂറുകളിലെ പ്രശസ്‌ത ഗാനങ്ങൾ  | 90s HIT SONGS MALAYALAM](https://www.youtube.com/watch?v=vGJ6svobltM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
