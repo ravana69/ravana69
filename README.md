@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oru Mazha Pakshi Video Song | Kuberan | Dileep | Umashankari | MG Sreekumar | Sujatha Mohan](https://www.youtube.com/watch?v=d2cDFmrXw9Q)
+- [Vennilave | Sagar Alias Jacky Reloaded | Shreya Ghoshal | M.G.Sreekumar | Gopi Sundar | Mohanlal](https://www.youtube.com/watch?v=MtHbBvSdB80)
 - [മേഘ്നകുട്ടിയും കൂട്ടുകാരും പാടിത്തകർത്ത ഒരടിപൊളി ഗാനം ❤️  @MeghnaSumesh   @JinoKunnumpurathu](https://www.youtube.com/watch?v=Qm184b6SgQM)
 - [Kokkarakko Poovankozhi  | Animation Song #animation #kidscartoon #kids #shortsfeed #shortsvideo](https://www.youtube.com/watch?v=xlFf0b7UzOk)
 - [Mareechike Mareechike | Abhinivesham | Yesudas | Ravikumar | Sumithra | Shyam | Sreekumaran Thampi](https://www.youtube.com/watch?v=hs0w1qGN7O8)
 - [Sharada Old Malayalam Movie Songs | Kuttavali | Remastered Malayalam Movie Songs](https://www.youtube.com/watch?v=JZUS0PL-2l8)
-- [Poovarambin Thazhe | Vidyarambham | Sreenivasan | Chithra | Kaithapram | Sound of Arts](https://www.youtube.com/watch?v=7gKVDfSJeNs)
-- [Thavaka Thoomukhathin | Unarvarulka | Pr. Muttom Geevarghese  #malayalamchristiansongs](https://www.youtube.com/watch?v=Z5cEmDAhJyU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
