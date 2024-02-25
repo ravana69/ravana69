@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aadikkalikkeda Kochuraama Video Song | Aromalunni | Raveendran #shorts](https://www.youtube.com/watch?v=xDxs2PphbAc)
+- [Kavithai Paadu | Thendrale Ennai Thodu | Ilaiyaraaja | S.P.B | Hi-Res Audio](https://www.youtube.com/watch?v=xtwbhzMP6DE)
+- [Pularoli Vannu |  Bhaskar the Rascal #mammootty #deepakdev #vijayyesudas #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=5G1qYd7AB7g)
+- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 25th of February 2024](https://www.youtube.com/watch?v=q4LJm4PDCd4)
+- [Christian Superhit Songs |Kester | Christian Devotional Songs Malayalam | Joji Johns | Renjini Jose](https://www.youtube.com/watch?v=65ZfwqWCZzE)
 - [Snehadeepam Koluthi | Sreedevi Malayalam Movie | P Madhuri | #shorts](https://www.youtube.com/watch?v=X0IRZozxe9I)
-- [Pakaliravukal - Audio Song | Kurup | Dulquer Salmaan | Sobhita Dhulipala | Sushin Shyam | Anwar Ali](https://www.youtube.com/watch?v=3MwuDPz9cXM)
-- [Chelodu Thanthrangal | Jeevithamaruvil | Pr. Muttom Geevarghese | Kester  #malayalamchristiansongs](https://www.youtube.com/watch?v=YPsC-yFB4U8)
-- [Arivin Nilave Marayunuvo Nee Audio Song Raajashilpi Bhanupriya ONV Kurup Raveendran KS Chithra](https://www.youtube.com/watch?v=b2eKYOWI-G0)
-- [Gaaname Prema Gaaname... | Malayalam Super Hit Movie Song | Rowdy Ramu | Ft.Madhu, Jayabharathi](https://www.youtube.com/watch?v=T5UKSzFW7XY)
-- [ഇടയന്റെ ഹൃദയത്തിൽ നിറഞ്ഞോരീണം #evergreenhits #movieworldmusic](https://www.youtube.com/watch?v=ABkH4kNtYmE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
