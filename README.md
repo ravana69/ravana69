@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aaramba Ppoo Beevi - Audio Song | S.V. Peer Mohammed | T.K. Ramamoorthy | P.T.Abdurahiman](https://www.youtube.com/watch?v=cPnFY6XfkQM)
 - [നോമ്പുകാല പ്രഭാതഗീതങ്ങൾ | Christian Devotional Songs Malayalam | Kester | Christian Melody Songs](https://www.youtube.com/watch?v=gyYgRjD9obA)
 - [Lyrical Video Ente Priyan Yeshurajan | Sithara Krishnakumar | Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=3qjE7Zfb4Wc)
 - [ഇന്ന് ഫെബ്രുവരി  25 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala mahim](https://www.youtube.com/watch?v=knUZsaJTgyM)
 - [Japamala 25th of February 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 25th of February 2024](https://www.youtube.com/watch?v=ZqPEJ19G4fI)
 - [കൃപാസനം മാതാവിന്റെ  പ്രാർത്ഥനയും ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#kripasanam prayer 25th Feb](https://www.youtube.com/watch?v=Yq_50ofUqqw)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=ntktZEui94M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
