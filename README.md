@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Arivin Nilave Marayunuvo Nee Audio Song Raajashilpi Bhanupriya ONV Kurup Raveendran KS Chithra](https://www.youtube.com/watch?v=b2eKYOWI-G0)
+- [Gaaname Prema Gaaname... | Malayalam Super Hit Movie Song | Rowdy Ramu | Ft.Madhu, Jayabharathi](https://www.youtube.com/watch?v=T5UKSzFW7XY)
+- [ഇടയന്റെ ഹൃദയത്തിൽ നിറഞ്ഞോരീണം #evergreenhits #movieworldmusic](https://www.youtube.com/watch?v=ABkH4kNtYmE)
 - [Parole Kalam | Parole | Video Song | Mammootty | Sharrath Sandith | Aristo Suresh](https://www.youtube.com/watch?v=TrvFlnX2VhU)
 - [Pandimelam Video Song | Rajamanikyam | Mammootty | Gireesh Puthenchery | Pradeep Palluruthy](https://www.youtube.com/watch?v=BgtQu7tAqLE)
 - [Sathyan Old Malayalam Movie Songs | Bharya Remastered Malayalam Songs |  A.M. Rajah,P. Susheela](https://www.youtube.com/watch?v=bFa5j9iQSAA)
-- [Anweshippin Kandethum - Success Teaser 2 | Tovino Thomas | Darwin Kuriakose](https://www.youtube.com/watch?v=iKwVpCqa2o8)
-- [Chithramanikkattil | Symphony | Jayachandran | Deepak Dev | I V Sasi | Speed Audios](https://www.youtube.com/watch?v=0IC1YZMZYJ8)
-- [Aaramba Ppoo Beevi - Audio Song | S.V. Peer Mohammed | T.K. Ramamoorthy | P.T.Abdurahiman](https://www.youtube.com/watch?v=cPnFY6XfkQM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
