@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [அமரகாவியம் - மௌனம் பேசும் தமிழ் பாடல் வரிகள் | ஜிப்ரான்](https://www.youtube.com/watch?v=vteLt_MVBeI)
+- [பில்லா 2 - உனக்குள்ளே மிருகம் தமிழ் பாடல் வரிகள் | யுவன் சங்கர் ராஜா](https://www.youtube.com/watch?v=0n_VJ6A23_Q)
 - [Bhasuri  | Award Winning Film Songs | Rathrimazha #sujatha #srinivas #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=pEWEtEKL7FQ)
 - [Mandarappoove X Kannilu Kannilu - Back2Back | Kumari | Ayisha | Aishwarya Lekshmi | Manju Warrier](https://www.youtube.com/watch?v=M7K8d6iaaaQ)
+- [Kathileeran Video Song | Thankamani | Dileep | William Francis | B T Anil Kumar | Mridula Warrier](https://www.youtube.com/watch?v=QRZ2F8iOYbc)
 - [Madhura Naranga |Evergreen Movie Songs Video Jukebox| Kunchacko Boban | Biju Menon |Sreejith-Saachin](https://www.youtube.com/watch?v=y7mALfncPY8)
-- [Kasthoori Ente Kasthoori Video Song | Vishnulokam | Mohanlal | Urvashi| MG Sreekumar | Sujatha Mohan](https://www.youtube.com/watch?v=A4xz8vWFbKM)
-- [Prem Nazir Old Malayalam Movie Songs | Chirikkudukka Remastered Malayalam Songs | K. J. Yesudas](https://www.youtube.com/watch?v=Z9hQeHC9Yz0)
-- [Kanimullakal Poothath Pole | Thillana Thillana | Krishna | Jomol | Yesudas | Thankaraj](https://www.youtube.com/watch?v=BtvrHExxY78)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
