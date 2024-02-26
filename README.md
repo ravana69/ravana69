@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Ragini Ragaroopini Video Song | Kadha Ithuvare  | KJ Yesudas | KS Chithra |](https://www.youtube.com/watch?v=9aj5T40SOwQ)
-- [Enthanennu Chodikkalle | Ulakam Chuttum Valiban #shortsvideo](https://www.youtube.com/watch?v=nv4soRFdOVo)
-- [Yaaname | Annayum Rasoolum #ytshorts #malayalammoviesongs](https://www.youtube.com/watch?v=X_r--MO-8a0)
-- [Yaaname | Annayum Rasoolum #ytshorts #malayalammoviesongs](https://www.youtube.com/watch?v=DtTSb8gKdO4)
-- [Vande Matharam | Chemistry #ytshorts #malayalammoviesongs](https://www.youtube.com/watch?v=vXwmJB5siVc)
-- [Vande Matharam | Chemistry #ytshorts #malayalammoviesongs](https://www.youtube.com/watch?v=hbMyMb2pzg0)
+- [ക്രൂശിലെ കള്ളന് പറുദീസ ഒരുക്കിയവൻ  | Rev. Aneesh P Joseph |#shorts#lent](https://www.youtube.com/watch?v=zxjQ1wMQW2A)
+- [Aayiram Phanamezhum Video Song | Kannappanunni | KJ Yesudas | K Raghavan | P Bhaskaran | Prem Nazir](https://www.youtube.com/watch?v=YR3QJTXPBQ0)
+- [Mele Manathe | Manikyakkallu | V Devanand | M Jayachandran | Ramesh Kavil](https://www.youtube.com/watch?v=Xnq4aoPVQG4)
+- [Christian Melody Songs | Kester | Wilson Piravom | Holy Communion Songs | Joji Johns|Christian Songs](https://www.youtube.com/watch?v=gEZmPHLjicQ)
+- [താമരപ്പൂങ്കാവനത്തില് താമസിക്കുന്നോളെ | Thamarapoonkavanathil | Sharan Appus](https://www.youtube.com/watch?v=PRv_kiRcHeg)
+- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 26th of February 2024](https://www.youtube.com/watch?v=7kHL6By3L4k)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
