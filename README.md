@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Bhasuri  | Award Winning Film Songs | Rathrimazha #sujatha #srinivas #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=pEWEtEKL7FQ)
+- [Mandarappoove X Kannilu Kannilu - Back2Back | Kumari | Ayisha | Aishwarya Lekshmi | Manju Warrier](https://www.youtube.com/watch?v=M7K8d6iaaaQ)
 - [Madhura Naranga |Evergreen Movie Songs Video Jukebox| Kunchacko Boban | Biju Menon |Sreejith-Saachin](https://www.youtube.com/watch?v=y7mALfncPY8)
 - [Kasthoori Ente Kasthoori Video Song | Vishnulokam | Mohanlal | Urvashi| MG Sreekumar | Sujatha Mohan](https://www.youtube.com/watch?v=A4xz8vWFbKM)
 - [Prem Nazir Old Malayalam Movie Songs | Chirikkudukka Remastered Malayalam Songs | K. J. Yesudas](https://www.youtube.com/watch?v=Z9hQeHC9Yz0)
 - [Kanimullakal Poothath Pole | Thillana Thillana | Krishna | Jomol | Yesudas | Thankaraj](https://www.youtube.com/watch?v=BtvrHExxY78)
-- [Poovarambin Thazhe | Vidyarambham | Sreenivasan | Chithra | Kaithapram | Sound of Arts](https://www.youtube.com/watch?v=Nk4NCv6YXjU)
-- [Unarvarulka Inneram | Pr. Muttom Geevarghese  #malayalamchristiansongs](https://www.youtube.com/watch?v=im6uiJ05LIM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
