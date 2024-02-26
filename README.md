@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ragini Ragaroopini Video Song | Kadha Ithuvare  | KJ Yesudas | KS Chithra |](https://www.youtube.com/watch?v=9aj5T40SOwQ)
 - [Enthanennu Chodikkalle | Ulakam Chuttum Valiban #shortsvideo](https://www.youtube.com/watch?v=nv4soRFdOVo)
-- [Enthanennu Chodikkalle | Ulakam Chuttum Valiban #shortsvideo](https://www.youtube.com/watch?v=jy0T0Dr_GcY)
-- [Vazhivakkil | Annayum Rasoolum #shortsvideo](https://www.youtube.com/watch?v=fgAhwrJ4hAw)
-- [Oru Nalum Piriyathe | Yeshuvinte Divyasannidhyamekunna Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=X6mH68rhoS0)
-- [Aa Pullel Ee Pullel | Badal | G Ajayan | Bijibal | Engandiyoor Chandrasekharan | Soumya Ramakrishnan](https://www.youtube.com/watch?v=AoCXLg3UXns)
-- [அமரகாவியம் - மௌனம் பேசும் தமிழ் பாடல் வரிகள் | ஜிப்ரான்](https://www.youtube.com/watch?v=vteLt_MVBeI)
+- [Yaaname | Annayum Rasoolum #ytshorts #malayalammoviesongs](https://www.youtube.com/watch?v=X_r--MO-8a0)
+- [Yaaname | Annayum Rasoolum #ytshorts #malayalammoviesongs](https://www.youtube.com/watch?v=DtTSb8gKdO4)
+- [Vande Matharam | Chemistry #ytshorts #malayalammoviesongs](https://www.youtube.com/watch?v=vXwmJB5siVc)
+- [Vande Matharam | Chemistry #ytshorts #malayalammoviesongs](https://www.youtube.com/watch?v=hbMyMb2pzg0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
