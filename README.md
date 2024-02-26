@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Christian Morning Prayer Songs | Wilson Piravom | Prabhatha Geethangal | Joji Johns | Melody Songs](https://www.youtube.com/watch?v=JNxxjyL9n9g)
+- [ഇന്ന് ഫെബ്രുവരി  26എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala santho](https://www.youtube.com/watch?v=zmzKA41o6oI)
+- [Japamala 26th of February 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 26th of February 24](https://www.youtube.com/watch?v=Llc2B4DUBDw)
+- [Malkosinte Gadhgathangal Day 15](https://www.youtube.com/watch?v=KLU3-WG6uGo)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=1kH9j0m2A8g)
 - [രാവിലെ പ്രാര്‍ത്ഥന 26th of February # Athiravile Prarthana 26th February 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=gDABHsQGhkg)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=T0EcHrz_-zM)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 26th February 24](https://www.youtube.com/watch?v=zrAwh9YBw5M)
-- [Poomughavathilkkal | Rakkuyilin Ragasadassil | Mammootty | Suhasini | KJ Yesudas](https://www.youtube.com/watch?v=x7jwI1XdEEI)
-- [25 February 2024](https://www.youtube.com/watch?v=2jdDF5yOe_E)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
