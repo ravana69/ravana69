@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [ഇവരോട് ക്ഷമിക്കണമേ എന്ന് പ്രാർത്ഥിക്കുന്ന നാഥൻ. | Rev. Aneesh P Joseph |#shorts#lent](https://www.youtube.com/watch?v=n2MbMXQLlX0)
-- [UDAYA](https://www.youtube.com/watch?v=7H-NmQ8Ztn4)
-- [Thamarapoovil Vazhum Video Song | Chandralekha | MG Sreekumar #shorts](https://www.youtube.com/watch?v=lrWUCicbenw)
-- ['Kaathileeran' from Thankamani - Out now on Saina music !](https://www.youtube.com/watch?v=qkrgR_lkaKQ)
-- [Chakkaramavin | Three Kings | Anoop Sankar | Shwetha Mohan | Ouseppachan | Shibu Chakravarthy](https://www.youtube.com/watch?v=t_onUkjVvAM)
-- [Singer Of The Week | Midhila Michael | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=VGz5tsORBTs)
+- [മേഘ്നകുട്ടിയും കൂട്ടുകാരും പാടിത്തകർത്ത ഒരടിപൊളി ഗാനം ❤️ @MeghnaSumesh @JinoKunnumpurathu](https://www.youtube.com/watch?v=cSiT82mzNPY)
+- [Punnaaga Kombathu | Bhakthajanangalude Sradhakku | Sujatha Mohan | Natesh Sankar | Rafeeq Ahammed](https://www.youtube.com/watch?v=UqkzOZFORBI)
+- [Ponnayyappan - Mele Mele Maamala Lyric | Mohandas | Malayalam Devotional Songs](https://www.youtube.com/watch?v=NPIhd79OLeY)
+- [Ponnayyappan - Poovaninju Makaravilakkin Lyric | Mohandas | Malayalam Devotional Song](https://www.youtube.com/watch?v=k7sSxwuc_88)
+- [Ponnayyappan - Vrischikappulariyil Lyric | Mohandas | Malayalam Devotional Songs](https://www.youtube.com/watch?v=IaSItbN0CzU)
+- [Ponnayyappan - Ezhuveluppinu Njan Paadum Lyric | Mohandas | Malayalam Devotional Song](https://www.youtube.com/watch?v=998WeMAvDmQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
