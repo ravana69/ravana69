@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Swarga Bhagyam | Bhagyanattil | Pr. Muttom Geevarghese | Kester  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=PBjAIOcNfo8)
+- [Maramonnundu | KIds Animation Videos | Thakkudu | Kids Song Videos | Numbers Song Animation Video](https://www.youtube.com/watch?v=KD8I_Bv0UMo)
 - [Papikalkku Punyatheerthame | Kristheeya Bhakthiganangal | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=3daISltZWHE)
+- [Kaalathin Kai Theti Ezhuthiyo | HanuMan(Malayalam)|Prasanth Varma, Teja, Varalakshmi, Anand, Krishna](https://www.youtube.com/watch?v=0lQws3HtQb4)
 - [മലയാളികളുടെ  മനസ്സിൽ തങ്ങിയ ജോൺസൺ മാസ്റ്ററുടെ അനശ്വരഗാനങ്ങൾ | JOHNSON MASTER HITS](https://www.youtube.com/watch?v=uOYv_v3DlqQ)
 - [മലയാളികൾ ഇരുംകൈയും നീട്ടി സ്വീകരിച്ച ജനപ്രിയ ഗാനങ്ങൾ | POPULAR SONGS MALAYALAM](https://www.youtube.com/watch?v=zzTdSXw-GtE)
-- [മലയാളികൾക്ക് ഹിറ്റുകൾ മാത്രം സമ്മാനിച്ച രവീന്ദ്രൻ മാഷിന്റെ മധുര ഗാനങ്ങൾ | RAVEENDRAN HITS MALAYALAM](https://www.youtube.com/watch?v=XGsGxdNiDK4)
-- [Minnadi Minnadi | Lyrical | Karaoke Video | Naran | Mohanlal | Kaithapram | K S Chithra | Deepak Dev](https://www.youtube.com/watch?v=8rsTSUHQHr8)
-- [Kuruvi Paapa Official Trailer | Joshy John | Vineeth | Kailash | Lal Jose | Muktha | Thanha Fathima](https://www.youtube.com/watch?v=i3pOGdvu0X4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
