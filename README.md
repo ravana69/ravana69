@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Minnadi Minnadi | Lyrical | Karaoke Video | Naran | Mohanlal | Kaithapram | K S Chithra | Deepak Dev](https://www.youtube.com/watch?v=8rsTSUHQHr8)
+- [Kuruvi Paapa Official Trailer | Joshy John | Vineeth | Kailash | Lal Jose | Muktha | Thanha Fathima](https://www.youtube.com/watch?v=i3pOGdvu0X4)
+- [Minnana Minnal Video Song | Paayum Puli | Kalabhavan Mani | Ranbha | Sheela Mani | Vidhu Prathap](https://www.youtube.com/watch?v=K9U0CxUysEA)
 - [Prem Nazir Old Malayalam Movie Songs | Mindapennu Remastered Malayalam Song](https://www.youtube.com/watch?v=UFGyWs5gbVI)
 - [Vadakku Vadakku | Urumi | Super Stars Singing Film Songs #prithvirajsukumaran #shortsfeed #shorts](https://www.youtube.com/watch?v=2HspG2-Yymw)
 - [Thirayezhuthum Mannil | Meenakshi Kalyanam | Mukesh |Yesudas | Nadirshah | Speed Audios](https://www.youtube.com/watch?v=UbFeBBheEmQ)
-- [Neeyenne Thedi Vannu | Kester #ytshorts](https://www.youtube.com/watch?v=xfeE0CvZZFA)
-- [Oh Thirayukayano | Madhura Naranga #ytshorts](https://www.youtube.com/watch?v=4A0o91PMH6s)
-- [Marthyapapbharam | Holy Week Songs | Christian Melody Songs | Cicily Chacko | Joji Johns | Kester](https://www.youtube.com/watch?v=ct7sH7v_3Hc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
