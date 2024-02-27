@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Prem Nazir Old Malayalam Movie Songs | Mindapennu Remastered Malayalam Song](https://www.youtube.com/watch?v=UFGyWs5gbVI)
+- [Vadakku Vadakku | Urumi | Super Stars Singing Film Songs #prithvirajsukumaran #shortsfeed #shorts](https://www.youtube.com/watch?v=2HspG2-Yymw)
 - [Thirayezhuthum Mannil | Meenakshi Kalyanam | Mukesh |Yesudas | Nadirshah | Speed Audios](https://www.youtube.com/watch?v=UbFeBBheEmQ)
 - [Neeyenne Thedi Vannu | Kester #ytshorts](https://www.youtube.com/watch?v=xfeE0CvZZFA)
 - [Oh Thirayukayano | Madhura Naranga #ytshorts](https://www.youtube.com/watch?v=4A0o91PMH6s)
 - [Marthyapapbharam | Holy Week Songs | Christian Melody Songs | Cicily Chacko | Joji Johns | Kester](https://www.youtube.com/watch?v=ct7sH7v_3Hc)
-- [ഇന്ന് ഫെബ്രുവരി  27 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala dhukk](https://www.youtube.com/watch?v=8BxfPXbs7hY)
-- [Japamala 25th of February 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 25th of February 24](https://www.youtube.com/watch?v=z19UPU868ZU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
