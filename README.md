@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Papikalkku Punyatheerthame | Kristheeya Bhakthiganangal | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=3daISltZWHE)
 - [മലയാളികളുടെ  മനസ്സിൽ തങ്ങിയ ജോൺസൺ മാസ്റ്ററുടെ അനശ്വരഗാനങ്ങൾ | JOHNSON MASTER HITS](https://www.youtube.com/watch?v=uOYv_v3DlqQ)
 - [മലയാളികൾ ഇരുംകൈയും നീട്ടി സ്വീകരിച്ച ജനപ്രിയ ഗാനങ്ങൾ | POPULAR SONGS MALAYALAM](https://www.youtube.com/watch?v=zzTdSXw-GtE)
 - [മലയാളികൾക്ക് ഹിറ്റുകൾ മാത്രം സമ്മാനിച്ച രവീന്ദ്രൻ മാഷിന്റെ മധുര ഗാനങ്ങൾ | RAVEENDRAN HITS MALAYALAM](https://www.youtube.com/watch?v=XGsGxdNiDK4)
 - [Minnadi Minnadi | Lyrical | Karaoke Video | Naran | Mohanlal | Kaithapram | K S Chithra | Deepak Dev](https://www.youtube.com/watch?v=8rsTSUHQHr8)
 - [Kuruvi Paapa Official Trailer | Joshy John | Vineeth | Kailash | Lal Jose | Muktha | Thanha Fathima](https://www.youtube.com/watch?v=i3pOGdvu0X4)
-- [Minnana Minnal Video Song | Paayum Puli | Kalabhavan Mani | Ranbha | Sheela Mani | Vidhu Prathap](https://www.youtube.com/watch?v=K9U0CxUysEA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
