@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Swarga Bhagyam | Bhagyanattil | Pr. Muttom Geevarghese | Kester  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=PBjAIOcNfo8)
-- [Maramonnundu | KIds Animation Videos | Thakkudu | Kids Song Videos | Numbers Song Animation Video](https://www.youtube.com/watch?v=KD8I_Bv0UMo)
-- [Papikalkku Punyatheerthame | Kristheeya Bhakthiganangal | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=3daISltZWHE)
-- [Kaalathin Kai Theti Ezhuthiyo | HanuMan(Malayalam)|Prasanth Varma, Teja, Varalakshmi, Anand, Krishna](https://www.youtube.com/watch?v=0lQws3HtQb4)
-- [മലയാളികളുടെ  മനസ്സിൽ തങ്ങിയ ജോൺസൺ മാസ്റ്ററുടെ അനശ്വരഗാനങ്ങൾ | JOHNSON MASTER HITS](https://www.youtube.com/watch?v=uOYv_v3DlqQ)
-- [മലയാളികൾ ഇരുംകൈയും നീട്ടി സ്വീകരിച്ച ജനപ്രിയ ഗാനങ്ങൾ | POPULAR SONGS MALAYALAM](https://www.youtube.com/watch?v=zzTdSXw-GtE)
+- [ഇവരോട് ക്ഷമിക്കണമേ എന്ന് പ്രാർത്ഥിക്കുന്ന നാഥൻ. | Rev. Aneesh P Joseph |#shorts#lent](https://www.youtube.com/watch?v=n2MbMXQLlX0)
+- [UDAYA](https://www.youtube.com/watch?v=7H-NmQ8Ztn4)
+- [Thamarapoovil Vazhum Video Song | Chandralekha | MG Sreekumar #shorts](https://www.youtube.com/watch?v=lrWUCicbenw)
+- ['Kaathileeran' from Thankamani - Out now on Saina music !](https://www.youtube.com/watch?v=qkrgR_lkaKQ)
+- [Chakkaramavin | Three Kings | Anoop Sankar | Shwetha Mohan | Ouseppachan | Shibu Chakravarthy](https://www.youtube.com/watch?v=t_onUkjVvAM)
+- [Singer Of The Week | Midhila Michael | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=VGz5tsORBTs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
