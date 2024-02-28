@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [அமரகாவியம் - தேவ தேவதை தமிழ் பாடல் வரிகள் | ஜிப்ரான்](https://www.youtube.com/watch?v=boFmzY6i9eA)
+- [பில்லா 2 - இதயம் தமிழ் பாடல் வரிகள் | யுவன் சங்கர் ராஜா](https://www.youtube.com/watch?v=AK3GfAYT-H0)
+- [Sooryanennoru Nakshathram | Lankadahanam (1971) | Sreekumaran Thampi | M.S.Viswanathan | K.J.Yesudas](https://www.youtube.com/watch?v=z-o9UknETaQ)
+- [Kandu Njan Video Song | Priyadarshan | Mohanlal | MG Sreekumar | Raveendran | Kaithapram | Abhimanyu](https://www.youtube.com/watch?v=ydTQ9sN06yE)
+- [ജീവന്റെ ജീവനായി മനസിൽ കാത്തുസൂക്ഷിക്കുന്ന മലയാളസിനിമയിലെ മനോഹര ഗാനങ്ങൾ | EVERGREEN SONGS](https://www.youtube.com/watch?v=D7B1LeYlvx0)
 - [Poykayil Kulirppoykayil Song Raajashilpi Mohanlal Bhanupriya  KJ Yesudas ONV Kurup Raveendran](https://www.youtube.com/watch?v=bCdikAnk_34)
-- [Kanaakkannil |  Police #ouseppachan #prithvirajsukumaran #bhavana #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=ZRgJkDK47So)
-- [എല്ലാ ഗാനങ്ങളും എൻ്റെ ഹൃദയത്തോട് ചേർന്നു നിൽക്കുന്നവയാണ് | Watch Full video now @sainasouthplus](https://www.youtube.com/watch?v=nwbyT3q--f8)
-- [Kanneer Meghangal | Sachin | Video Song | Shaan Rahman | Manu Manjith  | Santhosh Nair](https://www.youtube.com/watch?v=hx2iD7AgIm8)
-- [Akkare Ninnoru Video Song | Spanish Masala | Dileep | Vidyasagar |Sujatha Mohan |Vineeth Sreenivasan](https://www.youtube.com/watch?v=B-UPFJssLVI)
-- [Thaaram Thaaram Theril | Innocent | Jagathy | Nagama | Yesudas | S P Venkitesh](https://www.youtube.com/watch?v=eQH3tvC1HlY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
