@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [அமரகாவியம் - தேவ தேவதை தமிழ் பாடல் வரிகள் | ஜிப்ரான்](https://www.youtube.com/watch?v=boFmzY6i9eA)
-- [பில்லா 2 - இதயம் தமிழ் பாடல் வரிகள் | யுவன் சங்கர் ராஜா](https://www.youtube.com/watch?v=AK3GfAYT-H0)
-- [Sooryanennoru Nakshathram | Lankadahanam (1971) | Sreekumaran Thampi | M.S.Viswanathan | K.J.Yesudas](https://www.youtube.com/watch?v=z-o9UknETaQ)
-- [Kandu Njan Video Song | Priyadarshan | Mohanlal | MG Sreekumar | Raveendran | Kaithapram | Abhimanyu](https://www.youtube.com/watch?v=ydTQ9sN06yE)
-- [ജീവന്റെ ജീവനായി മനസിൽ കാത്തുസൂക്ഷിക്കുന്ന മലയാളസിനിമയിലെ മനോഹര ഗാനങ്ങൾ | EVERGREEN SONGS](https://www.youtube.com/watch?v=D7B1LeYlvx0)
-- [Poykayil Kulirppoykayil Song Raajashilpi Mohanlal Bhanupriya  KJ Yesudas ONV Kurup Raveendran](https://www.youtube.com/watch?v=bCdikAnk_34)
+- [Ninneyere Drohichu Njan | Maria Kolady | Baby John Kalayanthani  #malayalamchristiansongs #shorts](https://www.youtube.com/watch?v=X9J5V-mJiW8)
+- [BTS from Kannilu Kannilu #KanniluKannilu #Ayisha #ytshorts #shorts](https://www.youtube.com/watch?v=JIQViLzyswo)
+- [Ee Puzhayum Sandhyakalum | Unplugged Version | Indian Rupee | Vijay Yesudas | Shahabaz Aman](https://www.youtube.com/watch?v=yhIX4741MD8)
+- [Chellakkaattin Pallitheril video song | Mimics Parade | KS Chithra | Unni Menon](https://www.youtube.com/watch?v=hw6t9faHMx4)
+- [Manassode Shapamarathil | Elizabeth Raju | Mosa Valsalam Sasthriyar | Malayalam Christian Songs](https://www.youtube.com/watch?v=HOSawQNdSR4)
+- [Kanivinte Nadha | Karunamayanaya Yeshunadhante Manoharamaya Ganangal, Kristheeya Bhakthiganangal](https://www.youtube.com/watch?v=dYk61J-LAUo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
