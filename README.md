@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Ninneyere Drohichu Njan | Maria Kolady | Baby John Kalayanthani  #malayalamchristiansongs #shorts](https://www.youtube.com/watch?v=X9J5V-mJiW8)
-- [BTS from Kannilu Kannilu #KanniluKannilu #Ayisha #ytshorts #shorts](https://www.youtube.com/watch?v=JIQViLzyswo)
-- [Ee Puzhayum Sandhyakalum | Unplugged Version | Indian Rupee | Vijay Yesudas | Shahabaz Aman](https://www.youtube.com/watch?v=yhIX4741MD8)
-- [Chellakkaattin Pallitheril video song | Mimics Parade | KS Chithra | Unni Menon](https://www.youtube.com/watch?v=hw6t9faHMx4)
-- [Manassode Shapamarathil | Elizabeth Raju | Mosa Valsalam Sasthriyar | Malayalam Christian Songs](https://www.youtube.com/watch?v=HOSawQNdSR4)
-- [Kanivinte Nadha | Karunamayanaya Yeshunadhante Manoharamaya Ganangal, Kristheeya Bhakthiganangal](https://www.youtube.com/watch?v=dYk61J-LAUo)
+- [പ്രാണൻ നൽകി വീണ്ടെടുക്കുന്ന ദൈവസ്നേഹം കാൽവരിയിൽ  | Rev. Aneesh P Joseph |#shorts#lent](https://www.youtube.com/watch?v=uI3PjxlzkMI)
+- [Chemmaanappoomancham Video Song | Johnnie Walker | S Janaki | Gireesh Puthenchery | Mammootty](https://www.youtube.com/watch?v=iOzb3G0HWpg)
+- [Kanniloorumoru | Aanandhapuram Diaries #shaanrahman #soorajsanthosh #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=pESiL_w4ts8)
+- [Paarijatha Poo | Nithya Haritha Nayakan | Vishnu Unnikrishnan | Dharmajan Bolgatty | AR Binuraj](https://www.youtube.com/watch?v=P4utCm1-0CM)
+- [ഉറങ്ങുംമുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 28th of February 2024](https://www.youtube.com/watch?v=xnGnsdC6_zg)
+- [Kannodu Kannoram | Slow Version |  Veeraputran | Shreya Ghoshal | Ramesh Narayanan | Rafeeq Ahamad](https://www.youtube.com/watch?v=rDF24ihUYBk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
