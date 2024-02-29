@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഇന്ന് മാർച്ച്  01 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  dhukkka](https://www.youtube.com/watch?v=K_wwtFW9txY)
 - [Morning Prayer 1st of March # Athiravile Prarthana 1st March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=Vu-MPOLzB5w)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=WXs3_C0DASs)
 - [Mathavinodulla Samprakshana Prarthana The Immaculate Heart of Mother Mary Prayer 1st March 24](https://www.youtube.com/watch?v=F5VVYdhMJEk)
 - [29 February 2024](https://www.youtube.com/watch?v=i4NC84xeNbU)
 - [Maane Malaramban | Ayal Kadha Ezhuthukayanu | KJ Yesudas #songoftheday](https://www.youtube.com/watch?v=dTbeygL3zwc)
-- [Angulangale | THANUPP | Latest Movie Song #bijibal #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=IpMIxrNHDrY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
