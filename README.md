@@ -37,7 +37,7 @@
 - [വീണ്ടും വീണ്ടും കേൾക്കാൻ ആഗ്രഹം തോന്നുന്ന മലയാളസിനിമയിലെ സുന്ദര ഗാനങ്ങൾ | EVERGREEN SONGS](https://www.youtube.com/watch?v=PnJCpH_cIAo)
 - [ആദ്യമായി കേട്ടനാൾ തൊട്ട് മനസ്സിൽ കുറിച്ചിട്ട മലയാള ചലച്ചിത്ര ഗാനങ്ങൾ | EVERGREEN HIT SONGS](https://www.youtube.com/watch?v=CV4Ct0GSNVc)
 - [Ankam Vettan Munnil | Aanandhapuram Diaries #shortsfeed #shortsvideo #shorts #reels #meena](https://www.youtube.com/watch?v=xOW0IDpSAYI)
-- [Mollywood DJ Party Hits | Jukebox | D J Savyo | Collection of Super Hit Film songs DJ Remix](https://www.youtube.com/watch?v=_kXG6yAzgEQ)
+- [Cricket Song | Exit | Dhanush Harikumar | Vimaljith Vijayan | Nitin K Siva |](https://www.youtube.com/watch?v=hfjHdcSRdzw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
