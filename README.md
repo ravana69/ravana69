@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Angulangale | THANUPP | Latest Movie Song #bijibal #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=IpMIxrNHDrY)
+- [Poonkatte Poyi Chollamo | Shyama | Mukesh | Nadiya Moidhu | Unni Menon | Raghukumar](https://www.youtube.com/watch?v=lNkcQSge908)
 - [Madhu Balakrishnan - Raamanillathoru](https://www.youtube.com/watch?v=Sb8Kt1Gp6Gk)
 - [Madhu Balakrishnan - Thripprayaarappa](https://www.youtube.com/watch?v=QHlLOfL5nt4)
 - [Madhu Balakrishnan - Bhavayaami](https://www.youtube.com/watch?v=dDlNrXKUG_Y)
 - [Madhu Balakrishnan - Kharadooshanaadhikalum](https://www.youtube.com/watch?v=2F4Uwfb_1fI)
-- [Hey Manohara | Casanovva | Blazee | Gopi Sundar | Pop Shalini | Balu Thankachan | Priya | Feji](https://www.youtube.com/watch?v=-zhxLWa03Cc)
-- [സ്നേഹത്തിന്റെ കുർബാന.| Rev. Aneesh P Joseph | #shorts #lent #motivation](https://www.youtube.com/watch?v=rxnyqCvB8R0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
