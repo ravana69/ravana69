@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Nadanna Sambavam - Official Teaser | Biju Menon, Suraj Venjaramoodu | Vishnu Narayan | Ankit Menon](https://www.youtube.com/watch?v=Gz-oL9oc9VQ)
-- [കാൽവരിമലയിലെ മരക്കുരിശിലേറിയവൻ  | Rev. Aneesh P Joseph | #shorts #lent #motivation](https://www.youtube.com/watch?v=HPyq-D5_kfg)
-- [Neervanjikal Poothu Video Song | Kannappanunni | B Vasantha | K Raghavan | P Bhaskaran | Prem Nazir](https://www.youtube.com/watch?v=Rc4kd851Iag)
-- [Angulangale | THANUPP | Latest Movie Song #bijibal #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=ZlddfcI7hO0)
-- [ലാലേട്ടന്റെ പ്രേമഗാനങ്ങൾ!!! | Super Hit Malayalam Romantic Songs | Mohanlal Hits | Video Jukebox](https://www.youtube.com/watch?v=WmwTa8jjYBw)
-- [Eeshoye Ninne Kananayi Video Song | Christian Devotional Song | Fr Shaji Thumpechirayil |The Passion](https://www.youtube.com/watch?v=NAAfwUt5cXM)
+- [A.R. Rahman, Nakul Abhyankar - Suro Suro (From "Ayalaan (Telugu)")](https://www.youtube.com/watch?v=gdbzFR1vspA)
+- [Ayalaa Ayalaa (Telugu) (From "Ayalaan (Telugu)")](https://www.youtube.com/watch?v=sOcFGJ5IUgQ)
+- [Kadupulo Serisagamayna Pranamu (From "Ambajipeta Marriage Band")](https://www.youtube.com/watch?v=4FQ3Qd06AA4)
+- [Gunde Gaani Mandindante (From "Ambajipeta Marriage Band")](https://www.youtube.com/watch?v=fsUvUwl3tOc)
+- [A.R. Rahman, Sarath Santosh - Vera Level Chinna (From "Ayalaan (Telugu)")](https://www.youtube.com/watch?v=A62phSN4IvA)
+- [Vundipomanne Chotu Kaadu Idi (From "Ambajipeta Marriage Band")](https://www.youtube.com/watch?v=CVY89swRHD8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
