@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഇന്ന് മാർച്ച്  02 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala  santho](https://www.youtube.com/watch?v=q0Kam0rt7vA)
 - [Morning Prayer 2nd of March # Athiravile Prarthana 2nd March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=JL4JEIxqnAs)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=ThF4RVVdFyg)
 - [Mathavinodulla Samprakshana Prarthana The Immaculate Heart of Mother Mary Prayer 2nd March 24](https://www.youtube.com/watch?v=9WyCkI5pSHM)
 - [Vaalinmel Poovum | Pavithram | Mohanlal | Sharreth | Onv Kuruppu | MG Sreekumar](https://www.youtube.com/watch?v=qp-75VZWcsw)
 - [Vinnile Gandharva | Raajaavinte Makan | S P Venkitesh | Unni Menon #songoftheday](https://www.youtube.com/watch?v=HAJZAi2-vX4)
-- [1 March 2024](https://www.youtube.com/watch?v=M20HiR60vdw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
