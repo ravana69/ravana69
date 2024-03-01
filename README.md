@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [En Praanane - Video Song | Chovvazhcha | Ajmal,Ajay Bhupathi| Payal Rajput| Ajaneesh Loknath](https://www.youtube.com/watch?v=TRBcqq1ijhc)
+- [Manohari | Animation Version Song | Bahubali | ബാഹുബലിയിലെ  സൂപ്പർ ഹിറ്റ് ഗാനം അനിമേഷൻ വീഡിയോ](https://www.youtube.com/watch?v=exR1y_SlXJI)
 - [Chellathathe Video Song | Manassinakkare | Jayaram | Sheela | Ilayaraja | KS Chithra |Biju Narayanan](https://www.youtube.com/watch?v=8xFTOHNSwy8)
 - [Prem Nazir Old Malayalam Movie Songs | Ladies Hostel Movie Song | Remastered Malayalam Songs](https://www.youtube.com/watch?v=vgxhc7Vu_P4)
 - [Aakasha Thamara Pole | Yesudas | Mohanlal | Kamal | Raveendran | Sreenivasan](https://www.youtube.com/watch?v=ZcksPGi1hoQ)
 - [Vazhivakkil | Annayum Rasoolum #ytshorts](https://www.youtube.com/watch?v=OxA_Prr-neo)
-- [KARUNAARDRA MARIYAME | MARIAN SONG](https://www.youtube.com/watch?v=jGVIoRI1zoo)
-- [Panchami Raavil | Aanandhapuram Diaries #sujatha #shaanrahman #soorajsanthosh #shortsfeed #shorts](https://www.youtube.com/watch?v=Y7nk9y-ZBTc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
