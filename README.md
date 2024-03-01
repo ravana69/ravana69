@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nilamalare | Diamond Necklace | Nivas | Vidyasagar | Rafeeq Ahammed](https://www.youtube.com/watch?v=tXqYh8YaWNs)
+- [Unarvarulka Inneram | Pr. Muttom Geevarghese  #malayalamchristiansongs](https://www.youtube.com/watch?v=TNv_luJ9RPk)
+- [Chandrakaantham kondu video song | Paadheyam | Kaithapram | KJ Yesudas](https://www.youtube.com/watch?v=EcNA9cDRRTk)
 - [பிரியாணி - எதிர்த்து நில் தமிழ் பாடல் வரிகள் | யுவன் சங்கர் ராஜா](https://www.youtube.com/watch?v=f8nJqHvm1ZU)
 - [கோப்ரா - தும்பி துள்ளல் தமிழ் பாடல் வரிகள் | ஏ. ஆர். ரகுமான்](https://www.youtube.com/watch?v=DdVaKWprTL0)
 - [பிரியாணி - போம் போம் பெண்ணே தமிழ் பாடல் வரிகள் | யுவன் சங்கர் ராஜா](https://www.youtube.com/watch?v=-xabqUn-31A)
-- [ഒരു വട്ടം കൂടി കേൾക്കാൻ കൊതിച്ച  മലയാളസിനിമയിലെ പ്രശസ്തമായ യുഗ്മഗാനങ്ങൾ | BEST DUET SONGS MALAYALAM](https://www.youtube.com/watch?v=q1L3pgVsK4s)
-- [Thiruvabharanam Charthi  | Lankadhahanam(1971) | P Jayachandran | Sreekumaran Tampi | MS Viswanathan](https://www.youtube.com/watch?v=fVuHk1cs2Ss)
-- [Melleyen kannile | Kusrithikkuruppu  | Gireesh Puthenchery | Johnson |  KJ Yesudas | KS Chithra](https://www.youtube.com/watch?v=aPtxwo9KKKQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
