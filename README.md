@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Nilamalare | Diamond Necklace | Nivas | Vidyasagar | Rafeeq Ahammed](https://www.youtube.com/watch?v=tXqYh8YaWNs)
-- [Unarvarulka Inneram | Pr. Muttom Geevarghese  #malayalamchristiansongs](https://www.youtube.com/watch?v=TNv_luJ9RPk)
-- [Chandrakaantham kondu video song | Paadheyam | Kaithapram | KJ Yesudas](https://www.youtube.com/watch?v=EcNA9cDRRTk)
-- [பிரியாணி - எதிர்த்து நில் தமிழ் பாடல் வரிகள் | யுவன் சங்கர் ராஜா](https://www.youtube.com/watch?v=f8nJqHvm1ZU)
-- [கோப்ரா - தும்பி துள்ளல் தமிழ் பாடல் வரிகள் | ஏ. ஆர். ரகுமான்](https://www.youtube.com/watch?v=DdVaKWprTL0)
-- [பிரியாணி - போம் போம் பெண்ணே தமிழ் பாடல் வரிகள் | யுவன் சங்கர் ராஜா](https://www.youtube.com/watch?v=-xabqUn-31A)
+- [Nadanna Sambavam - Official Teaser | Biju Menon, Suraj Venjaramoodu | Vishnu Narayan | Ankit Menon](https://www.youtube.com/watch?v=Gz-oL9oc9VQ)
+- [കാൽവരിമലയിലെ മരക്കുരിശിലേറിയവൻ  | Rev. Aneesh P Joseph | #shorts #lent #motivation](https://www.youtube.com/watch?v=HPyq-D5_kfg)
+- [Neervanjikal Poothu Video Song | Kannappanunni | B Vasantha | K Raghavan | P Bhaskaran | Prem Nazir](https://www.youtube.com/watch?v=Rc4kd851Iag)
+- [Angulangale | THANUPP | Latest Movie Song #bijibal #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=ZlddfcI7hO0)
+- [ലാലേട്ടന്റെ പ്രേമഗാനങ്ങൾ!!! | Super Hit Malayalam Romantic Songs | Mohanlal Hits | Video Jukebox](https://www.youtube.com/watch?v=WmwTa8jjYBw)
+- [Eeshoye Ninne Kananayi Video Song | Christian Devotional Song | Fr Shaji Thumpechirayil |The Passion](https://www.youtube.com/watch?v=NAAfwUt5cXM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
