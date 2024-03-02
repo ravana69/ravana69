@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oro Divasavum | Bhagyanattil | Pr. Muttom Geevarghese | Kester  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=WWQFEcMJ8gQ)
 - [Christian Video Songs Malayalam | Manoj Christy | Kester | Valiya Nombu Geethangal | Joji Johns](https://www.youtube.com/watch?v=jB50uXLffo4)
 - [പഴയകാല പ്രഭാതഗാനങ്ങൾ കേട്ട് പ്രാർത്ഥിച്ചു ഉണരാം daily morning old worship songs with lyrics](https://www.youtube.com/watch?v=VlUyY2ZKweY)
 - [Japamala 2nd of March 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 2nd of March 24](https://www.youtube.com/watch?v=mBIyLX6DdXo)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=g5gGx3rc3Cc)
 - [ഇന്ന് മാർച്ച്  02 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala  santho](https://www.youtube.com/watch?v=q0Kam0rt7vA)
-- [Morning Prayer 2nd of March # Athiravile Prarthana 2nd March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=JL4JEIxqnAs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
