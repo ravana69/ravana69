@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Alayum Kattin Video Song | valsalyam | Mammootty | KJ Yesudas | SP Venkitesh | Kaithapram](https://www.youtube.com/watch?v=vN6Ys4P8jDI)
+- [Thekkini Kolayil | Award Winning Film Songs#kschithra #mohansithara #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=Uz-0TCUYTNc)
+- [Ashubha Mangalakaari - Moombahton Beats | Super Sharanya | Justin Varghese | Nitrixx](https://www.youtube.com/watch?v=9fFrHhWx4CA)
+- [As beautiful as a blue moon!🌙 #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=6-8OgoxvhZE)
 - [Prem Nazir Old Malayalam Movie Songs | College Girl  Remastered Malayalam Songs |  P. Jayachandran](https://www.youtube.com/watch?v=hjHB5t3LAd8)
 - [Thulaminnal Thooval | Sarkar Dada | Jayaram | Navya Nair | Sujatha | M Jayachandran | Speed Audios](https://www.youtube.com/watch?v=64e6q-wlwXU)
-- [Oro Divasavum | Bhagyanattil | Pr. Muttom Geevarghese | Kester  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=WWQFEcMJ8gQ)
-- [Christian Video Songs Malayalam | Manoj Christy | Kester | Valiya Nombu Geethangal | Joji Johns](https://www.youtube.com/watch?v=jB50uXLffo4)
-- [പഴയകാല പ്രഭാതഗാനങ്ങൾ കേട്ട് പ്രാർത്ഥിച്ചു ഉണരാം daily morning old worship songs with lyrics](https://www.youtube.com/watch?v=VlUyY2ZKweY)
-- [Japamala 2nd of March 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 2nd of March 24](https://www.youtube.com/watch?v=mBIyLX6DdXo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
