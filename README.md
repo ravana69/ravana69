@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Paadiyum Paranjum | ഗാനരചയിതാവ് ആവുക ചെറുപത്തിലെയുള്ള ആഗ്രഹം | പാടിയും പറഞ്ഞും |  K Jayakumar](https://www.youtube.com/watch?v=7hT8dMcXysw)
 - [Alayum Kattin Video Song | valsalyam | Mammootty | KJ Yesudas | SP Venkitesh | Kaithapram](https://www.youtube.com/watch?v=vN6Ys4P8jDI)
 - [Thekkini Kolayil | Award Winning Film Songs#kschithra #mohansithara #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=Uz-0TCUYTNc)
 - [Ashubha Mangalakaari - Moombahton Beats | Super Sharanya | Justin Varghese | Nitrixx](https://www.youtube.com/watch?v=9fFrHhWx4CA)
 - [As beautiful as a blue moon!🌙 #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=6-8OgoxvhZE)
 - [Prem Nazir Old Malayalam Movie Songs | College Girl  Remastered Malayalam Songs |  P. Jayachandran](https://www.youtube.com/watch?v=hjHB5t3LAd8)
-- [Thulaminnal Thooval | Sarkar Dada | Jayaram | Navya Nair | Sujatha | M Jayachandran | Speed Audios](https://www.youtube.com/watch?v=64e6q-wlwXU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
