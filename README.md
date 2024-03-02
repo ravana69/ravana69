@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [കിനാവിന്റെ മായാലോകം | Suresh Gopi | Swetha Menon | Romantic Song |#shorts](https://www.youtube.com/watch?v=j9mXscdGubQ)
-- [Angulangale | THANUPP | Latest Movie Song #bijibal #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=Q5vYJIei3lE)
-- [Malkosinte Gadhgathangal Day 20](https://www.youtube.com/watch?v=eeNpA7QSLyU)
-- [കേരളമൊട്ടാകെ അലയടിച്ച തൊണ്ണൂറുകളിലെ ഇന്നും കേൾക്കാൻ കൊതിക്കുന്ന മനോഹര ഗാനങ്ങൾ | 90s HITS](https://www.youtube.com/watch?v=JYOR34Pv6vI)
-- [Aniyathipravu Video Jukebox |  Kunchacko Boban | Shalini | Ouseppachan | S Ramesan Nair](https://www.youtube.com/watch?v=WJL7BRswG3Y)
-- [എക്കാലവും മലയാളികളുടെ മനസ്സിൽ മന്ത്രിക്കുന്ന ഇഷ്ടഗാനങ്ങൾ !  EVERGREEN FAVOURITES SONGS MALAYALAM](https://www.youtube.com/watch?v=0rdHfWsikQE)
+- [Udayagirikkottayile Video Song | Aromalunni | P Susheela #shorts](https://www.youtube.com/watch?v=nx38DLmrqRI)
+- [ENNE NAADU KADATHATTE | CHRISTIAN DEVOTIONAL SONG BY ROY PUTHUR](https://www.youtube.com/watch?v=PZbZP26Xk4Q)
+- [Maranamethunna Nerathu | Spirit | Unni Menon | Shahabaz Aman | Rafeeq Ahammed](https://www.youtube.com/watch?v=uPwZ5Ny7uU8)
+- [ജീവന്റെ വിലയായി മാറിയ ത്യാഗഗീതങ്ങൾ |P Jayachandran | Christian Meldoy Songs |Valiya Nombu Geethangal](https://www.youtube.com/watch?v=s3Dxp83RqQE)
+- [Urangum Munpu Daiva Sannidhiyil # Night Prayer and Worship # Rathri Japam 2nd of March 2024](https://www.youtube.com/watch?v=ze-iKdVfiXY)
+- [Moham Kondu Njan - Unplugged Cover | Sesham Kazhchayil |Johnson|Akshay Nath M S,Christy Aby Varghese](https://www.youtube.com/watch?v=GipFwbCCFpc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
