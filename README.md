@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Rithusankramappakshi paadi Video Song | Rithubhedam | KJ Yesudas | Monisha | Vineeth](https://www.youtube.com/watch?v=8J1sTi8JVp0)
+- [Mazhathulli Palunkukal | Pranayam #vijayyesudas #shreyaghoshal #filmsongs #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=2x17fUmL2DA)
+- [Urangum Munpu Daiva Sannidhiyil # Night Prayer and Worship # Rathri Japam 3rd of March 2024](https://www.youtube.com/watch?v=kpxcpzswtEs)
+- [സഹനങ്ങൾ കുരിശോടു ചേർക്കാൻ ശക്തിയേകും ഗാനങ്ങൾ | Valiya Nombu Geethangal | Wilson Piravom | Joji Johns](https://www.youtube.com/watch?v=9gSITH4gEv0)
+- [മേഘന കുട്ടിയുടെ ഈ മനോഹരമായ ഗാനം വിജയത്തിലെത്തിച്ച ഓരോരുത്തർക്കും നന്ദി...🙏🏻❤️@MeghnaSumesh](https://www.youtube.com/watch?v=Ayf8n-UgdQQ)
 - [Pranaya Sankalpame Video Song | Nirakkoottu | Vani Jairam | Mammootty | Sumalathav](https://www.youtube.com/watch?v=tfAUFd059D8)
-- [பாணா - தாக்குதே கண் தாக்குதே தமிழ் பாடல் வரிகள் | யுவன் சங்கர் ராஜா](https://www.youtube.com/watch?v=X-PSfpoBWJw)
-- [அவன் இவன் - ராசாத்தி தமிழ் பாடல் வரிகள் | யுவன் சங்கர் ராஜா](https://www.youtube.com/watch?v=aIfoBq-5Fp0)
-- [തുലാമഴക്കാലം തീർന്നാൽ സ്വയംവരം ...#evergreenhits #movieworldmusic #dileep #samvruthasunil #harahara](https://www.youtube.com/watch?v=gHucg_OJApE)
-- [Swarga nandini | Lankadhahanam | K.J.Yesudas | M.S.Viswanathan | Sreekumaran Thambi](https://www.youtube.com/watch?v=cFjyAV9ixPo)
-- [Randu Poovithal Chundil Virinju | My Dear Muthachan | Bichu Thirumala | Johnson | KJ Yesudas](https://www.youtube.com/watch?v=DPojtkRz4LU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
