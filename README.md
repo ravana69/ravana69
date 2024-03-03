@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Best of P Jayachandran And Shankar Mahadevan | മലയാള സിനിമ ഗാനങ്ങൾ | Satyam Audios](https://www.youtube.com/watch?v=9yDxHpF73es)
 - [Eerakkombin Mele | Kuttettan | Mammootty | Saritha | Mathu | Yesudas | Raveendran](https://www.youtube.com/watch?v=ccIeHsUBH3k)
 - [Pathinaalam Ravudichathu - Chillhop Mix | Maram | G. Devarajan | Chris Wayne, Aneeshthesia](https://www.youtube.com/watch?v=otY17xlD_m8)
 - [Paadi Thodiyiletho Video Song | Aaram Thamburan | Manju Warrier | KS Chithra | Gireesh Puthenchery](https://www.youtube.com/watch?v=WHOsKjhmiv0)
 - [Prem Nazir Old Malayalam Movie Songs | Mudramothiram  Remastered Malayalam Songs |  K. J. Yesudas](https://www.youtube.com/watch?v=sRevOwvzdm4)
 - [Manohari | Baahubali | Animation song #animation #kidsanimationvideo #shortsfeed #shortsvideo](https://www.youtube.com/watch?v=rXWcA_NHNBE)
-- [Angulangale | THANUPP | Latest Movie Song #shortsfeed #shortsvideo #shorts #bijibal #reels](https://www.youtube.com/watch?v=xnGGjdKGlKw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
