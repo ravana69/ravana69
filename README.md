@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [பாணா - தாக்குதே கண் தாக்குதே தமிழ் பாடல் வரிகள் | யுவன் சங்கர் ராஜா](https://www.youtube.com/watch?v=X-PSfpoBWJw)
+- [அவன் இவன் - ராசாத்தி தமிழ் பாடல் வரிகள் | யுவன் சங்கர் ராஜா](https://www.youtube.com/watch?v=aIfoBq-5Fp0)
+- [തുലാമഴക്കാലം തീർന്നാൽ സ്വയംവരം ...#evergreenhits #movieworldmusic #dileep #samvruthasunil #harahara](https://www.youtube.com/watch?v=gHucg_OJApE)
+- [Swarga nandini | Lankadhahanam | K.J.Yesudas | M.S.Viswanathan | Sreekumaran Thambi](https://www.youtube.com/watch?v=cFjyAV9ixPo)
 - [Randu Poovithal Chundil Virinju | My Dear Muthachan | Bichu Thirumala | Johnson | KJ Yesudas](https://www.youtube.com/watch?v=DPojtkRz4LU)
 - [Best of P Jayachandran And Shankar Mahadevan | മലയാള സിനിമ ഗാനങ്ങൾ | Satyam Audios](https://www.youtube.com/watch?v=9yDxHpF73es)
-- [Eerakkombin Mele | Kuttettan | Mammootty | Saritha | Mathu | Yesudas | Raveendran](https://www.youtube.com/watch?v=ccIeHsUBH3k)
-- [Pathinaalam Ravudichathu - Chillhop Mix | Maram | G. Devarajan | Chris Wayne, Aneeshthesia](https://www.youtube.com/watch?v=otY17xlD_m8)
-- [Paadi Thodiyiletho Video Song | Aaram Thamburan | Manju Warrier | KS Chithra | Gireesh Puthenchery](https://www.youtube.com/watch?v=WHOsKjhmiv0)
-- [Prem Nazir Old Malayalam Movie Songs | Mudramothiram  Remastered Malayalam Songs |  K. J. Yesudas](https://www.youtube.com/watch?v=sRevOwvzdm4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
