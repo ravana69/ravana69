@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Urangum Munpu Daiva Sannidhiyil # Night Prayer and Worship # Rathri Japam 4th of March 2024](https://www.youtube.com/watch?v=PO5f2CUyZ68)
-- [Golden moves!✨ #RakkaRakka #Bandra #ytshorts #shorts](https://www.youtube.com/watch?v=tiWhvYzD5tE)
-- [Bhakthajanapriye | Sreedevi Malayalam Movie | P Susheela | Sharada | #shorts](https://www.youtube.com/watch?v=jDhso3OUyF4)
-- [മലയാള സിനിമാലോകത്തെ വരവേൽക്കാൻ ഖത്തർ മണ്ണ് ഒരുങ്ങി കഴിഞ്ഞു ! mollywoodmagic | mollywoodmagicqatar](https://www.youtube.com/watch?v=G0HiW6nunPc)
-- [റിഹേഴ്സലിനിടയിൽ സ്വാസികയെ എടുത്തുയർത്തി റംസാൻ #swasika #ramzan #mollywoodmagicshow2024 #qatar](https://www.youtube.com/watch?v=BTtZgQGRP6w)
-- [എത്ര കേട്ടാലും മടുപ്പ് തോന്നാത്ത ഏവർക്കും ഒരുപോലെ ഇഷ്ടമുള്ള സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=Rq-Lzy4-k-8)
+- [Neelavana Cholayil - Audio Song | Premabhishekam | K.J. Yesudas Hits | Kamal Haasan, Sridevi](https://www.youtube.com/watch?v=6evKZyEVXxs)
+- [Bale Bale | Mr. Marumakan | Mano | Suresh Peters | Santhosh Varma](https://www.youtube.com/watch?v=2atspDMopfQ)
+- [Cheppadikkaaranalla Song My Dear Muthachan Bichu Thirumala Johnson KS Chithra CO Anto Minmini Jancy](https://www.youtube.com/watch?v=leQyj190EzA)
+- [നിഖിലയുടെ ഹെവി സ്റ്റെപ്പ് കണ്ട്  കണ്ണുതള്ളി ആരാധകർ ! Mollywood Magic | Nikhila Vimal | Qatar Show](https://www.youtube.com/watch?v=_AFiJBYna4c)
+- [ക്രിസ്തു ഇന്നും ക്രൂശുചുമക്കുന്നു.  | Rev. Aneesh P Joseph | #shorts #lent #motivation](https://www.youtube.com/watch?v=TuM6f5xtCEU)
+- [Avanalle Video Song | Doctor Love | Vineeth Sreenivasan | Balu Thankachan #shorts](https://www.youtube.com/watch?v=GMBJL8G11zE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
