@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Salabham Vazhimarumo - Audio Song | Achaneyaanenikkishtam | M.G. Sreekumar, K.S. Chithra](https://www.youtube.com/watch?v=QY9c4aqjymo)
+- [Christian Melody Songs | Biju Narayanan | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=Us8dE2dMlOk)
+- [Ganapathi Bappa Moriya Video Song | Abhimanyu | Mohanlal | MG Sreekumar | Raveendran | Kaithapram |](https://www.youtube.com/watch?v=IrtcNwexkJw)
+- [Akaleyo Nee Akaleyo Video Song | Grandmaster | Mohanlal | Priyamani | Vijay Yesudas | Deepak Dev](https://www.youtube.com/watch?v=15D4SVCVsxQ)
 - [Neelavana Cholayil - Audio Song | Premabhishekam | K.J. Yesudas Hits | Kamal Haasan, Sridevi](https://www.youtube.com/watch?v=6evKZyEVXxs)
 - [Bale Bale | Mr. Marumakan | Mano | Suresh Peters | Santhosh Varma](https://www.youtube.com/watch?v=2atspDMopfQ)
-- [Cheppadikkaaranalla Song My Dear Muthachan Bichu Thirumala Johnson KS Chithra CO Anto Minmini Jancy](https://www.youtube.com/watch?v=leQyj190EzA)
-- [നിഖിലയുടെ ഹെവി സ്റ്റെപ്പ് കണ്ട്  കണ്ണുതള്ളി ആരാധകർ ! Mollywood Magic | Nikhila Vimal | Qatar Show](https://www.youtube.com/watch?v=_AFiJBYna4c)
-- [ക്രിസ്തു ഇന്നും ക്രൂശുചുമക്കുന്നു.  | Rev. Aneesh P Joseph | #shorts #lent #motivation](https://www.youtube.com/watch?v=TuM6f5xtCEU)
-- [Avanalle Video Song | Doctor Love | Vineeth Sreenivasan | Balu Thankachan #shorts](https://www.youtube.com/watch?v=GMBJL8G11zE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
