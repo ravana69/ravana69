@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thennal Vannathum |  Kabooliwala | SP Venkitesh| KS Chithra #SongOfTheDay](https://www.youtube.com/watch?v=sWdy_FP28HQ)
 - [Salabham Vazhimarumo - Audio Song | Achaneyaanenikkishtam | M.G. Sreekumar, K.S. Chithra](https://www.youtube.com/watch?v=QY9c4aqjymo)
 - [Christian Melody Songs | Biju Narayanan | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=Us8dE2dMlOk)
 - [Ganapathi Bappa Moriya Video Song | Abhimanyu | Mohanlal | MG Sreekumar | Raveendran | Kaithapram |](https://www.youtube.com/watch?v=IrtcNwexkJw)
 - [Akaleyo Nee Akaleyo Video Song | Grandmaster | Mohanlal | Priyamani | Vijay Yesudas | Deepak Dev](https://www.youtube.com/watch?v=15D4SVCVsxQ)
 - [Neelavana Cholayil - Audio Song | Premabhishekam | K.J. Yesudas Hits | Kamal Haasan, Sridevi](https://www.youtube.com/watch?v=6evKZyEVXxs)
-- [Bale Bale | Mr. Marumakan | Mano | Suresh Peters | Santhosh Varma](https://www.youtube.com/watch?v=2atspDMopfQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
