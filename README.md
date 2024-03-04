@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [റിഹേഴ്സലിനിടയിൽ സ്വാസികയെ എടുത്തുയർത്തി റംസാൻ #swasika #ramzan #mollywoodmagicshow2024 #qatar](https://www.youtube.com/watch?v=BTtZgQGRP6w)
+- [എത്ര കേട്ടാലും മടുപ്പ് തോന്നാത്ത ഏവർക്കും ഒരുപോലെ ഇഷ്ടമുള്ള സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | SUPERHIT SONGS](https://www.youtube.com/watch?v=Rq-Lzy4-k-8)
+- [Manglish Manglish | Super Stars Singing Film Songs #dulquersalmaan #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=ycV1yjUC17s)
+- [Devesha Yeshupara | Nithya Mammen | P V Joseph | Malayalam Christian Songs | Old Christian Songs](https://www.youtube.com/watch?v=1vXn-Sfcbpo)
 - [Baahubali - The Beginning (Malayalam) | Evergreen Movie Songs Video Jukebox| M M Keeravani |Prabhas](https://www.youtube.com/watch?v=lzN7tcIA2X0)
 - [Sridevi Old Malayalam Movie Songs | Oonjaal  Remastered Malayalam Songs | P. Susheela, P. Madhuri](https://www.youtube.com/watch?v=6KjyleWxUy8)
-- [Omane Neeyoromal | Ganamela | Mukesh | Yesudas | Raveendran | Sound of Arts](https://www.youtube.com/watch?v=MB3hQT7PiHA)
-- [Priyankari | The Thriller #shortsvideo #malayalammoviesongs](https://www.youtube.com/watch?v=knCUO4zTo8g)
-- [Malkosinte Gadhgathangal Day 22](https://www.youtube.com/watch?v=rZDyvlm1qiw)
-- [Prabhatha Geethangal | Manoj Christy | Joji Johns | Christian Morning Prayer Songs | Christian Songs](https://www.youtube.com/watch?v=71OYsSyCr2s)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
