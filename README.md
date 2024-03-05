@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഫൈനൽ റിഹേഴ്സലിനായി ഓടിയെത്തി അർജുൻ അശോക് ! Mollywood Magic | Arjun Ashok](https://www.youtube.com/watch?v=9_2ahpycrxA)
 - [Mahima Nambiar in the limelight!⚡ #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=Ru8QvOMP4l0)
 - [വെറോനിക്ക😇 | Rev. Aneesh P Joseph | #shorts #lent #motivation](https://www.youtube.com/watch?v=hsoGEhazGTc)
 - [Theyyaram Thoomani | Trivandrum Lodge | M Jayachandran | Suchithra | Haricharan | Rafeeq Ahammed](https://www.youtube.com/watch?v=HB8olPENAN0)
 - [Kaarthika Naalallo Video Song | Kannapanunni | LR Eeswari | K Raghavan | P Bhaskaran](https://www.youtube.com/watch?v=0SVOGtTZV78)
 - [Eeran Marumn |  Uncle #mammootty #shreyaghoshal #shortsfeed #shorts #shortsvideo #reels #bijibal](https://www.youtube.com/watch?v=Yg28MbdGItA)
-- [Mamazhakkade|Adiverukal|Video Song|Karthika|](https://www.youtube.com/watch?v=CZzRg6IqQRA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
