@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manathe Velli Vithanicha | Palunku | Mammootty | Nazriya Nazim | Lakshmi Sharma | Mohan Sithara](https://www.youtube.com/watch?v=MZYt1hK-XLI)
+- [സിനിമയിൽ അഭിനയിക്കുന്നതിനേക്കാൾ ത്രില്ല് ഇങ്ങനെയുള്ള ഷോ കളാണെന്ന് ഇടവേള ബാബു ! Mollywood Magic](https://www.youtube.com/watch?v=GgAGJGoX4Kc)
+- [Muthumani Thooval Tharam|  kauravar  |SP Venkitesh|KJ Yesudas  #songoftheday](https://www.youtube.com/watch?v=HkijM-K1Kn8)
 - [ഫൈനൽ റിഹേഴ്സലിനായി ഓടിയെത്തി അർജുൻ അശോക് ! Mollywood Magic | Arjun Ashok](https://www.youtube.com/watch?v=9_2ahpycrxA)
 - [Mahima Nambiar in the limelight!⚡ #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=Ru8QvOMP4l0)
 - [വെറോനിക്ക😇 | Rev. Aneesh P Joseph | #shorts #lent #motivation](https://www.youtube.com/watch?v=hsoGEhazGTc)
-- [Theyyaram Thoomani | Trivandrum Lodge | M Jayachandran | Suchithra | Haricharan | Rafeeq Ahammed](https://www.youtube.com/watch?v=HB8olPENAN0)
-- [Kaarthika Naalallo Video Song | Kannapanunni | LR Eeswari | K Raghavan | P Bhaskaran](https://www.youtube.com/watch?v=0SVOGtTZV78)
-- [Eeran Marumn |  Uncle #mammootty #shreyaghoshal #shortsfeed #shorts #shortsvideo #reels #bijibal](https://www.youtube.com/watch?v=Yg28MbdGItA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
