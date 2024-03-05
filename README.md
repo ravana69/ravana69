@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nakshathram Minnunna video song | Mimics Parade |  Krishnachandran | Unni Menon](https://www.youtube.com/watch?v=G1JuKPMXkxI)
 - [ആട്ടവും പാട്ടുമായി മത്സരച്ചൂടിലാണ് ഓരോ താരങ്ങളും ! Mollywood Magic | Mollywood Magic Qatar](https://www.youtube.com/watch?v=AXchw8TiSmU)
 - [எங்கேயும் காதல் - தீ இல்லை தமிழ் பாடல் வரிகள் | ஹாரிஸ் ஜெயராஜ்](https://www.youtube.com/watch?v=JPre4DfeMts)
 - [எங்கேயும் காதல் - தமிழ் பாடல் வரிகள் | ஹாரிஸ் ஜெயராஜ்](https://www.youtube.com/watch?v=GHiED_mEfkQ)
 - [എല്ലാ മലയാളികൾക്കും ഒരുപോലെ ഇഷ്‌ടമുള്ള ജനപ്രിയ ഗാനങ്ങൾ | MALAYALAM EVERGREEN SONGS](https://www.youtube.com/watch?v=BoME1rsWCAc)
 - [Thanka Manassu Video Song | Rappakal | Mammootty | Sharada | Nayanthara | P Jayachandran| Kaithapram](https://www.youtube.com/watch?v=iS4QI14m5XU)
-- [The Thug Mix - Back2Back Non-Stop Video Songs (Malayalam) | Thalatherichavar | Halaballoo | Thanaro](https://www.youtube.com/watch?v=S9PtD6IcfSw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
