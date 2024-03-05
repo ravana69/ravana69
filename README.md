@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chembarathi Poo | Janaki Jaane | Video | Kailas | Engandiyoor Chandrasekharan | Vaishnav Gireesh](https://www.youtube.com/watch?v=jyGtrjzOszw)
 - [Sathyan Old Malayalam Movie Songs | Velliyazhcha Remastered Malayalam Songs |  S. Janaki, Raveendran](https://www.youtube.com/watch?v=7_W8tb0JwWU)
 - [Chirakulla Cheruppam | Ravanan | Sudheesh | Nishanth Sagar | Vidhu Prathap | Kalbhavan Mani](https://www.youtube.com/watch?v=ohwWu0f5eow)
 - [NISHTAYIL NINE PRASAVICHA | CHRISTIAN DEVOTIONAL | ROY PUTHUR AND TEAM #royputhur](https://www.youtube.com/watch?v=D_YvH5WY2Ao)
+- [Manasa Vacha | Official Teaser 2 | Dileesh Pothan | Prasanth Alexander | Sreekumar Podiyan](https://www.youtube.com/watch?v=T0EitB_KJLY)
 - [Ishaara | Musical Video | Coming Soon...](https://www.youtube.com/watch?v=VASw1lyK0wY)
-- [Puthen Pana | Puliyathappam | Babu Chalakkudy | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=TY0SSuPR4vU)
-- [ജനഹൃദയങ്ങളിൽ കയറിപ്പറ്റിയ അനശ്വരഗാനങ്ങൾ aayirangal veenalum | Kester | malayalam christian songs](https://www.youtube.com/watch?v=JMk0xuL59xw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
