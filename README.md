@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kaattukuyilu Manasukkulae | Thalapathi | Ilaiyaraaja | S.P.B & K.J.Yesudas | Hi-Res Audio](https://www.youtube.com/watch?v=FYhsZ_CqU4c)
+- [Mathavinodulla Samprakshana Prarthana The Immaculate Heart of Mother Mary Prayer 7th March 24](https://www.youtube.com/watch?v=PyaPRV0thsY)
 - [Kudamulla Kammalaninju |  Ee Parakkumthalika |Ouseppachan|KJ Yesudas  #songoftheday](https://www.youtube.com/watch?v=ZD-ijUNy0zY)
 - [6 March 2024](https://www.youtube.com/watch?v=aUEir00v8Fo)
 - [വിലാപത്തിൻ മാറ്റൊലി/ vilapathin mattoli/Christian devotional songs/](https://www.youtube.com/watch?v=5g78bv0tgWU)
 - [ഖത്തർ എയർ പോർട്ടിലെത്തിയ സിനിമാതാരങ്ങൾ ! Mollywood Magic | Anarkkali | Swasika |](https://www.youtube.com/watch?v=qsOf9bTtbZE)
-- [കുരിശിലെ സഹനവഴികളിൽ | Rev. Aneesh P Joseph | #shorts #lent #motivation](https://www.youtube.com/watch?v=ZQScPyrz92U)
-- [Oro Poovilum Video Song | T. P. Balagopalan M. A.| K. J.Yesudas | Mohanlal | Shobhana #shorts](https://www.youtube.com/watch?v=gx9_zpo3Y40)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
