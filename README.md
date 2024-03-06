@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ishara Musical Video... Releasing Soon...](https://www.youtube.com/watch?v=SySa5mmOUAE)
+- [Malkosinte Gadhgathangal Day 24](https://www.youtube.com/watch?v=-qZgjd7jIkw)
 - [Christian Superhit Songs | Manoj Christy | Christian Songs Malayalam | Joji Johns | Melody Songs](https://www.youtube.com/watch?v=ARivoyLE4hQ)
 - [ഇന്ന് മാർച്ച്  6 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala Mahimayu](https://www.youtube.com/watch?v=KY61nNdBKNo)
 - [Japamala 6th of March 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 6th of March 2024](https://www.youtube.com/watch?v=DhbvM_k1YJo)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=q5qV_qcwfFQ)
-- [Neela Nilave | RDX (Robert Dony Xavier) | Sam C.S | Kapil Kapilan | Hi-Res Audio](https://www.youtube.com/watch?v=NcuVHV-Isag)
-- [Morning Prayer 6th of March # Athiravile Prarthana 6th March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=f_u-0T4bu9U)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
