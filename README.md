@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kalivattam Kanavattam | Achaneyanenikkishttam | Biju Menon | Lakshmi Gopalaswamy | MG Sreekumar](https://www.youtube.com/watch?v=TcHfyACV0MA)
+- [മാരക ലുക്കിൽ എയർ പോർട്ടിൽ വന്നിറങ്ങിയ താരങ്ങൾ ! Mollywood Magic | Anarkkali | Swasika |Priya Varier](https://www.youtube.com/watch?v=5HgfDELLx-4)
+- [Pranaya Sankalpame | Nirakkoottu | Vani Jairam | Mammootty | Sumalathav | #shorts](https://www.youtube.com/watch?v=s3veGaN63GI)
+- [Aa Nadiyoram | Left Right Left | Sachin Warrier | Anna Katharina | Gopi Sundar | Rafeeq Ahamed](https://www.youtube.com/watch?v=AG4JiwEY8MU)
 - [Suresh Bobbili, Sid Sriram - Ohho Puththadi Bommaa (From "Thika Maka Thanda")](https://www.youtube.com/watch?v=7TzmntD08Cs)
 - [Thikamaka Thanda - Paramesha Video | Venkat l Suresh Bobbili | Ramakrishna, Harikrishna](https://www.youtube.com/watch?v=vC06WWWXqDA)
-- [Suresh Bobbili, Sindhuja Srinivasan - Ramasakkani (From "Thika Maka Thanda")](https://www.youtube.com/watch?v=YiNo_VW_cIM)
-- [Thikamaka Thanda - Thopule Veellu Video | Venkat l Suresh Bobbili | Ramakrishna](https://www.youtube.com/watch?v=uHgWZTjuNKQ)
-- [Thikamaka Thanda - Eduru Chusthunna Video | Venkat l Suresh Bobbili | Ramakrishna](https://www.youtube.com/watch?v=94whx6dsyRw)
-- [Nandi Nandi En Daivame | Kedharnath | Kathukutty | Charles Jacob | Malayalam Christian Songs](https://www.youtube.com/watch?v=GwXUUpmMgcI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
