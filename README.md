@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Raaghaveeyam - Kadavalloor Lyric | T.S. Radhakrishanan | Malayalam Devotional Songs](https://www.youtube.com/watch?v=_n5TT8HNbrk)
-- [Raaghaveeyam - Aadhikaviyude Lyric | T.S. Radhakrishanan | Malayalam Devotional Song](https://www.youtube.com/watch?v=RB9_z9DokW0)
-- [Raaghaveeyam - Sowmithriyaai Ninte Lyric | T.S. Radhakrishanan | Devotional Songs](https://www.youtube.com/watch?v=dkxnTzM-084)
-- [Raaghaveeyam - Bhoomikannye Seethe Lyric | T.S. Radhakrishanan | Devotional Songs](https://www.youtube.com/watch?v=BtCNcUYajb0)
-- [Raaghaveeyam - Vilwadhrinaatha Nin Lyric | T.S. Radhakrishanan | Devotional Songs](https://www.youtube.com/watch?v=0G82PuBLn0o)
-- [ചിത്രമ്മയുടെ ഇഷ്ടഗാനങ്ങൾ | Hits of KS Chithra | Superhits of K S Chithra | Malayalam Film Songs](https://www.youtube.com/watch?v=sGo6dFyiAm0)
+- [Suresh Bobbili, Sid Sriram - Ohho Puththadi Bommaa (From "Thika Maka Thanda")](https://www.youtube.com/watch?v=7TzmntD08Cs)
+- [Thikamaka Thanda - Paramesha Video | Venkat l Suresh Bobbili | Ramakrishna, Harikrishna](https://www.youtube.com/watch?v=vC06WWWXqDA)
+- [Suresh Bobbili, Sindhuja Srinivasan - Ramasakkani (From "Thika Maka Thanda")](https://www.youtube.com/watch?v=YiNo_VW_cIM)
+- [Thikamaka Thanda - Thopule Veellu Video | Venkat l Suresh Bobbili | Ramakrishna](https://www.youtube.com/watch?v=uHgWZTjuNKQ)
+- [Thikamaka Thanda - Eduru Chusthunna Video | Venkat l Suresh Bobbili | Ramakrishna](https://www.youtube.com/watch?v=94whx6dsyRw)
+- [Nandi Nandi En Daivame | Kedharnath | Kathukutty | Charles Jacob | Malayalam Christian Songs](https://www.youtube.com/watch?v=GwXUUpmMgcI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
