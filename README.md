@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നമുക്കു പാർക്കാൻ മുന്തിരിത്തോപ്പുകൾ Video Jukebox | Mohanlal | Yesudas | Johnson | Evergreen Songs](https://www.youtube.com/watch?v=x8k7vbzjaD0)
+- [Kanneerumayi Njan | Kristheeya Bhakthiganangal | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=EsGLD7ulKAg)
+- [Kezhaman Kannale Video Song | Abraham & Lincoln | Kalabhavan Mani | Rimi Tomy | Ouseppachan](https://www.youtube.com/watch?v=PCttSB2zNC8)
+- [Ragangal raginikal Video Song  | Kshamichu Ennoru Vaakku | Joshiy | KS Chithra](https://www.youtube.com/watch?v=zr7pG3y7z-c)
 - [എപ്പോഴും മനസ്സിൽ തങ്ങി നിൽക്കുന്ന മലയാളസിനിമയിലെ സുന്ദരഗാനങ്ങൾ ! EVERGREEN SONGS MALAYALAM](https://www.youtube.com/watch?v=-mJRr5xpcIg)
 - [Saranamayam - Sarvathra Manikanda Naamasangeerthanam Lyric | Kaithapram Damodaran](https://www.youtube.com/watch?v=UVkC0tY0qn0)
-- [Saranaprabha - Kanneraai Maarumbozhum Lyric | P.K. Kesavan | Devotional Songs](https://www.youtube.com/watch?v=wP61Z36BM1E)
-- [Saraswatham - Panjendriyangalilum Lyric | Chandramana Narayanan | Devotional Songs](https://www.youtube.com/watch?v=kYDMINwWAtI)
-- [Saranamayam - Manikandanaamam Lyric | Kaithapram Damodaran | Devotional Songs](https://www.youtube.com/watch?v=BexmeFn58v0)
-- [டாக்டர் - நெஞ்சமே தமிழ் பாடல் வரிகள் | அனிருத்](https://www.youtube.com/watch?v=5eWYMgfAMxY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
