@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [She's so beautiful |  Mollywood DJ Party Hits #deepakdev #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=ze3Kn_ydzpg)
 - [Tharattupattukal | Malayalam Lullaby Film Songs |Jukebox |സൂപ്പർഹിറ്റ് മലയാളം സിനിമ താരാട്ടുപാട്ടുകൾ](https://www.youtube.com/watch?v=7QjA6x_1M68)
 - [Varuvaanillarumee Video Song | Manichitrathazhu | Shobana | KS Chithra | MG Radhakrishnan](https://www.youtube.com/watch?v=bP5QZn97SyU)
 - [Manikkuyile Karaoke with Lyrics|  Vaalkannadi | Karaoke Video | Kalabhavan Mani | M. Jayachandran](https://www.youtube.com/watch?v=Q0YReUT08FE)
 - [Anaadhi Yugangalaay | Karaoke with Lyrics | Lavender | Karaoke Video | Vijay Yesudas | Deepak Dev](https://www.youtube.com/watch?v=Vs526Oi9DwA)
 - [M. G. Soman Old Malayalam Movie Songs | Oonjaal Remastered Malayalam Songs | P. Jayachandran](https://www.youtube.com/watch?v=F8FZ9Cogq3M)
-- [Lathiri Poothiri Punchiri | Nokketha Doorath Kannumnattu | Nadiya Moidu | Jerry Amaldev | Chithra](https://www.youtube.com/watch?v=uh6r8gMWVRs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
