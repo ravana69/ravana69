@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Malkosinte Gadhgathangal Day 25](https://www.youtube.com/watch?v=_sQ5ULVdklQ)
+- [Olakkam Chodumaayi | 1983 | Shorts #shorts](https://www.youtube.com/watch?v=V3vQ9pkiHZY)
+- [Krooshitha | Maria Kolady | Baby John Kalayanthani  #malayalamchristiansongs #shorts](https://www.youtube.com/watch?v=rBuTwLkSbJ8)
+- [Devesha Yeshupara | Nithya Mammen | Shorts  #manoramachristiandevotionalsongs #ytshorts #reels](https://www.youtube.com/watch?v=lrMluuf3inY)
+- [Devesha Yeshupara | Nithya Mammen | Shorts  #manoramachristiandevotionalsongs #ytshorts #reels](https://www.youtube.com/watch?v=NoZi7AjwI_E)
 - [ഈ ഗാനങ്ങൾ കേട്ടാൽ അത്ഭുതം സംഭവിക്കും ഉറപ്പ്  | Christian Devotional Songs Malayalam | Kester](https://www.youtube.com/watch?v=EuyV0-FQFlM)
-- [ഇന്ന് മാർച്ച്  7 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala prakasha](https://www.youtube.com/watch?v=ZkeSh90PVeE)
-- [Japamala 7th of March 2024 # Mathavinte Japamala Prakashathinte Rahasyangal 7th of March 24](https://www.youtube.com/watch?v=3ynuGzKGsiI)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=fuRYPoJIWR8)
-- [Morning Prayer 7th of March # Athiravile Prarthana 7th March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=eamaYqScYVk)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=Ck93uGlfW1o)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
