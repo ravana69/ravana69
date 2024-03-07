@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [നമുക്കു പാർക്കാൻ മുന്തിരിത്തോപ്പുകൾ Video Jukebox | Mohanlal | Yesudas | Johnson | Evergreen Songs](https://www.youtube.com/watch?v=x8k7vbzjaD0)
-- [Kanneerumayi Njan | Kristheeya Bhakthiganangal | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=EsGLD7ulKAg)
-- [Kezhaman Kannale Video Song | Abraham & Lincoln | Kalabhavan Mani | Rimi Tomy | Ouseppachan](https://www.youtube.com/watch?v=PCttSB2zNC8)
-- [Ragangal raginikal Video Song  | Kshamichu Ennoru Vaakku | Joshiy | KS Chithra](https://www.youtube.com/watch?v=zr7pG3y7z-c)
-- [എപ്പോഴും മനസ്സിൽ തങ്ങി നിൽക്കുന്ന മലയാളസിനിമയിലെ സുന്ദരഗാനങ്ങൾ ! EVERGREEN SONGS MALAYALAM](https://www.youtube.com/watch?v=-mJRr5xpcIg)
-- [Saranamayam - Sarvathra Manikanda Naamasangeerthanam Lyric | Kaithapram Damodaran](https://www.youtube.com/watch?v=UVkC0tY0qn0)
+- [കുരിശിന്റെ സഹനവഴികളിൽ നെഞ്ചുപൊട്ടിനിൽക്കുന്ന ഒരമ്മയുണ്ട് | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=lNXUW7sy4BA)
+- [Vayassethrayayi Muppathi - Official Teaser | Prashant Murali, Chithra Nair | Vineeth Sreenivasan](https://www.youtube.com/watch?v=tmdPIdfXmeU)
+- [Maane Video Song | Ayal Kadha Ezhuthukayanu | K. J. Yesudas | Mohanlal | Nandini](https://www.youtube.com/watch?v=24QquQPBTEA)
+- [Aarodum Aararodum | Bhaiyya Bhaiyya | P Jayachandran | Vidyasagar | Murukan Kattakada](https://www.youtube.com/watch?v=Z1uHy1rdsAg)
+- [Christian Superhit Songs | Midhila Michael | Christian Melody Songs Malayalam | Valiya Nombu Songs](https://www.youtube.com/watch?v=zL15VNGEuhY)
+- [Etho Tharattin Video Song | Jana Gana Mana | Prithviraj | Suraj | Dijo Jose Antony | Jakes Bejoy](https://www.youtube.com/watch?v=eQ9wqSIOtV0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
