@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manjakkiliyude Moolippaatunde |  Kanmadam |Raveendran|Gireesh Puthenchery | KJ Yesudas#SongOfTheDay](https://www.youtube.com/watch?v=hVDAOggOmQM)
+- [A beautiful family!💕 #EnRojaNeeye #Kushi #VijayDeverakonda #Samantha #ytshorts #shorts](https://www.youtube.com/watch?v=mQ_apy3TrrU)
 - [Malarkodipole - Audio Song | Vishukkani | Prem Nazir, Sharada | S. Janaki | Salil Chowdhury](https://www.youtube.com/watch?v=VJ0bKaQs-_s)
 - [Manimukile Nee | Kuberan | Dileep | Samyuktha Varma | Swarnalatha | Mohan Sithara](https://www.youtube.com/watch?v=5cv9vRpfe8M)
 - [Onnum Mindathe Nee Onnum Kelkkathe | Onnum Mindathe | KJ Yesudas | Anil Johnson | V R Santhosh](https://www.youtube.com/watch?v=e3b7b7WQSoo)
 - [കുരിശിന്റെ സഹനവഴികളിൽ നെഞ്ചുപൊട്ടിനിൽക്കുന്ന ഒരമ്മയുണ്ട് | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=lNXUW7sy4BA)
-- [Vayassethrayayi Muppathi - Official Teaser | Prashant Murali, Chithra Nair | Vineeth Sreenivasan](https://www.youtube.com/watch?v=tmdPIdfXmeU)
-- [Maane Video Song | Ayal Kadha Ezhuthukayanu | K. J. Yesudas | Mohanlal | Nandini](https://www.youtube.com/watch?v=24QquQPBTEA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
