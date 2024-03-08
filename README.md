@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thumbayum Thulasiyum | Megham | Ouseppachan | K S Chithra | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=XSpbajguzCk)
 - [1 Malakodi Pole F](https://www.youtube.com/watch?v=P4Onp1lvdOo)
 - [Yettuparayumbol Papangalokkeyum | Thulasimala Vol.02 | Yesudas | Mohandas | Sound of Arts](https://www.youtube.com/watch?v=fIkV9TFcGa0)
 - [Graceful moves!💃 #Chellakuruvikku #Antony #shorts #ytshorts](https://www.youtube.com/watch?v=6r8DeXAWoDw)
 - [നമ്മെ ചേർത്ത് പിടിക്കാൻ ഒരാളുണ്ടാകും.❤️| Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=7g1x2wUES9E)
 - [Mazhamukile | Saaradhi | Najim Arshad | Mridula Warrier | Gopi Sundar | BK Harinarayanan](https://www.youtube.com/watch?v=4CPqve_lVnk)
-- [Nakshatra Rajyathe Raajavo Video Song | T. P. Balagopalan M. A | K. J. Yesudas #shorts](https://www.youtube.com/watch?v=LbqdvpI1KaU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
