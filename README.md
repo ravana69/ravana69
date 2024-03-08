@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Poomaaname | Nirakkoottu | KS Chithra | Mammootty | Sumalatha | #shorts](https://www.youtube.com/watch?v=r4HlOH2fF2c)
-- [Paahiparamporule | Vadakkumnathan | Biju Menon | Kaviyoor Ponnamma | Raveendran | Mohanlal](https://www.youtube.com/watch?v=vb3C2s6TWd8)
-- [Thumpi penne Vaa Vaa | Dhruvam | Mammootty |Jayaram |S P venkitesh | K J Yesudas | Evergreen Songs](https://www.youtube.com/watch?v=-ibipTQD-6s)
-- [Njan Varunnu Kroosinkal | Riya Das | T. Koshy | Malayalam Christian Songs](https://www.youtube.com/watch?v=yFMAgVmP52c)
-- [Kettille Kettille Video Song | Pokkiri Raja | Mammootty | Prithviraj | Shriya Saran | Jassie Gift](https://www.youtube.com/watch?v=KW5VbmefP9Y)
-- [ദാ വീണ്ടും വരുന്നു മേഘ്നകുട്ടിയും കൂട്ടുകാരും...❤️ ഒരടിപൊളി തമിഴ് ഗാനവുമായി 💃🕺 | @MeghnaSumesh](https://www.youtube.com/watch?v=tEviqLjDH-g)
+- [Mazhamukile | Saaradhi | Najim Arshad | Mridula Warrier | Gopi Sundar | BK Harinarayanan](https://www.youtube.com/watch?v=4CPqve_lVnk)
+- [Nakshatra Rajyathe Raajavo Video Song | T. P. Balagopalan M. A | K. J. Yesudas #shorts](https://www.youtube.com/watch?v=LbqdvpI1KaU)
+- [Udurajamukhi Video Song | Abraham & Lincoln | Manjari | Ouseppachan | Balachandran Chullikkad](https://www.youtube.com/watch?v=udoVyKyzifg)
+- [ജനലക്ഷങ്ങൾ ഹൃദയത്തിൽ സൂക്ഷിക്കുന്ന ഏറ്റവും നല്ല ഈസ്റ്റര് ഗാനങ്ങൾ |Easter Special Songs |Kester](https://www.youtube.com/watch?v=0dNLKmfJ-4M)
+- [Hridayathin Niramaai | 100 Days Of Love | Vijay Yesudas | Mrudula Warrier | Govind Menon](https://www.youtube.com/watch?v=X0oXZmwqpbI)
+- [Urangum Munpu Daiva Sannidhiyil # Night Prayer and Worship # Rathri Japam 8th of March 2024](https://www.youtube.com/watch?v=ULA2EyRD9p4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
