@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Jwaalamukhikal Video song  | Paadheyam | Kaithapram | KJ Yesudas](https://www.youtube.com/watch?v=6Mi2O_z_e3k)
 - [Kandaka Sani | Mothathi Kozhappa | Anwar Sadath |Satheesh Viswa | Sony P Jose |Vipin Lal | Film Song](https://www.youtube.com/watch?v=8-y0crnzQAA)
 - [Novumida Nenjil Video Song | Kashmeeram | MG Sreekumar | MG Radhakrishnan | Gireesh Puthenchery](https://www.youtube.com/watch?v=25llZgXUS9M)
 - [Chilu Chilu Chilanka | Dance Party | BijiBal | Santhosh Varma | Sangeetha Sreekanth | Sohan Seenulal](https://www.youtube.com/watch?v=o4HdbntDxsI)
 - [கோப்ரா - தரங்கிணி தமிழ் பாடல் வரிகள் | ஏ. ஆர். ரகுமான்](https://www.youtube.com/watch?v=lPl9rcK5nPA)
 - [எதிர்நீச்சல் - உன் பார்வையில் தமிழ் பாடல் வரிகள் | அனிருத்](https://www.youtube.com/watch?v=QMlmfl8ZAEY)
-- [മലയാളസിനിമ സമ്മാനിച്ച പ്രശസ്ത ഗായകർ പാടിയ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=WIlvBMxL0MA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
