@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Novumida Nenjil Video Song | Kashmeeram | MG Sreekumar | MG Radhakrishnan | Gireesh Puthenchery](https://www.youtube.com/watch?v=25llZgXUS9M)
+- [கோப்ரா - தரங்கிணி தமிழ் பாடல் வரிகள் | ஏ. ஆர். ரகுமான்](https://www.youtube.com/watch?v=lPl9rcK5nPA)
+- [எதிர்நீச்சல் - உன் பார்வையில் தமிழ் பாடல் வரிகள் | அனிருத்](https://www.youtube.com/watch?v=QMlmfl8ZAEY)
+- [മലയാളസിനിമ സമ്മാനിച്ച പ്രശസ്ത ഗായകർ പാടിയ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=WIlvBMxL0MA)
 - [Rathrimazha | Ramesh Narayanan | Gayathri | Sugathakumari  | Meera Jasmin | Lenin Rajendran](https://www.youtube.com/watch?v=kmQaj1ezLtk)
 - [Prem Nazir Old Malayalam Movie Songs | Aaradimanninte Janmi Remastered Malayalam Songs | Yesudas](https://www.youtube.com/watch?v=2skbYPTbBkE)
-- [Sadhyathan Ambalathil | Abhinivesham | Yesudas | Ravikumar | Sreekumaran Thampi](https://www.youtube.com/watch?v=fti6Kd5aIY0)
-- [Midumidu midukkan | Animation Song #animation #kidsanimationvideo #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=uc4O7PswAms)
-- [Ezhupatho Ereyayal | Christian Devotional Reels | Shorts  #christiansongsmalayalamdevotional](https://www.youtube.com/watch?v=GoPG2Yns_2g)
-- [Pinneyum Ninnile | Oneway Ticket #shortsvideo  #manoramamusic](https://www.youtube.com/watch?v=Q6d5AQydQtY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
