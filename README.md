@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Pulare Poonkodiyil | Amaram | Mammootty | Maathu | Raveendran | Yesudas | Bharathan](https://www.youtube.com/watch?v=uDCdgJgj6UA)
 - [Manjukaalam | Megham | K J Yesudas | Sujatha Mohan | Ouseppachan | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=-iCDIdpHkmI)
 - [Mounathin Idanaazhiyil Malootty Audio Song  Pazhavila Ramesan Johnson KJ Yesudas  Sujatha Mohan](https://www.youtube.com/watch?v=rcL4VhMJQ_k)
 - [9 March 2024](https://www.youtube.com/watch?v=8kf9mZTw1IA)
 - [അപമാനങ്ങളും പരിഹാസങ്ങളും നിറഞ്ഞുനിൽക്കുന്ന കാൽവരിയാത്ര | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=G2GJLIsQYtQ)
 - [Kadha Parayum | Manasa Vacha |Video| Vijay Yesudas | Rafeeq Ahamed | Sunilkumar P KSreekumar Podiyan](https://www.youtube.com/watch?v=vURIYmQGfBY)
-- [Thaliraninju Malaraninju Video Song | Sanchari | KJ Yesudas | S Janaki](https://www.youtube.com/watch?v=5zqRE4Vy4QI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
