@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Prem Nazir Old Malayalam Movie Songs | Aaradimanninte Janmi Remastered Malayalam Songs | Yesudas](https://www.youtube.com/watch?v=2skbYPTbBkE)
+- [Sadhyathan Ambalathil | Abhinivesham | Yesudas | Ravikumar | Sreekumaran Thampi](https://www.youtube.com/watch?v=fti6Kd5aIY0)
 - [Midumidu midukkan | Animation Song #animation #kidsanimationvideo #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=uc4O7PswAms)
 - [Ezhupatho Ereyayal | Christian Devotional Reels | Shorts  #christiansongsmalayalamdevotional](https://www.youtube.com/watch?v=GoPG2Yns_2g)
 - [Pinneyum Ninnile | Oneway Ticket #shortsvideo  #manoramamusic](https://www.youtube.com/watch?v=Q6d5AQydQtY)
 - [Christian Video Songs | Gagul Joseph | Midhila Michael | Joji Johns | Christian Melody Songs](https://www.youtube.com/watch?v=MZaqaaSH5Vc)
-- [Japamala 9th of March 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 9th of March 24](https://www.youtube.com/watch?v=h62cTbBJUqM)
-- [ഇന്ന് മാർച്ച്  9 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  santhosh](https://www.youtube.com/watch?v=Wcd9wagXK2I)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
