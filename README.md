@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Punchirichal Poonilavudikkum | Sreedevi Malayalam Movie | KJ Yesudas | Kamal Haasan | #shorts](https://www.youtube.com/watch?v=RCkTB8bMq7I)
-- [Manassoru Mashithandu | Super Stars Singing Film Songs #shortsfeed #sureshgopi #shorts #shortsvideo](https://www.youtube.com/watch?v=nCEPWPxZhuI)
-- [Onnaam Malakeri Video Song | Kalyanaraman | Dileep | Navya Nair | Berny Ignatius | Kaithapram](https://www.youtube.com/watch?v=dcbmntaQqDI)
-- [Paadiyum Paranjum | യേശുദാസിനെ കണ്ടിട്ടും മിണ്ടാനാവാതെ നിന്നകുട്ടി |പാടിയും പറഞ്ഞും | M Jayachandran](https://www.youtube.com/watch?v=AVCg3YBOvts)
-- [Nenjile | Lyrical video | Oru Kattil Oru Muri | Raghunath Paleri | Ankit Menon | 123Musix](https://www.youtube.com/watch?v=9w1duMFN-zg)
-- [Madhu Old Malyalalam Romantic Song |  Bheekara Nimishangal | Remastered Malayalam Song](https://www.youtube.com/watch?v=m9xBbdEjuDg)
+- [Thaliraninju Malaraninju Video Song | Sanchari | KJ Yesudas | S Janaki #shorts](https://www.youtube.com/watch?v=Or9lf3Rm_VQ)
+- [Sreeraagamo|Pavithram|Mohanlal|Shobhana|](https://www.youtube.com/watch?v=A47_4rOP-gs)
+- [Best Melodies of All Time |Audience Favourite Songs | Evergreen Malayalam Hits | KJ Yesudas](https://www.youtube.com/watch?v=GiiQ8nm97yI)
+- [Urangum Munpu Daiva Sannidhiyil # Night Prayer and Worship # Rathri Japam 10th of March 2024](https://www.youtube.com/watch?v=s_t7bDJ9CUw)
+- [Christian Superhit Songs | Kester | Valiya Nombu Geethangal | Joji Johns| Lent Songs](https://www.youtube.com/watch?v=FIOyhzbdP3o)
+- [Krooshil Kandu Njan | Shorts #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=eq9LH79NVtc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
