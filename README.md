@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Paadiyum Paranjum | യേശുദാസിനെ കണ്ടിട്ടും മിണ്ടാനാവാതെ നിന്നകുട്ടി |പാടിയും പറഞ്ഞും | M Jayachandran](https://www.youtube.com/watch?v=AVCg3YBOvts)
+- [Nenjile | Lyrical video | Oru Kattil Oru Muri | Raghunath Paleri | Ankit Menon | 123Musix](https://www.youtube.com/watch?v=9w1duMFN-zg)
 - [Madhu Old Malyalalam Romantic Song |  Bheekara Nimishangal | Remastered Malayalam Song](https://www.youtube.com/watch?v=m9xBbdEjuDg)
 - [UNNATHATHIL OSANNA..... 🎶മേഘ്നക്കുട്ടിയുടെ പുതിയ തകർപ്പൻ തമിഴ് ക്രിസ്ത്യൻ ഗാനം... ആസ്വദിക്കൂ...](https://www.youtube.com/watch?v=ZM3eco5Oolg)
 - [Katte Katte | Celluloid  #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=hLBEAvgxNJg)
 - [Nira Thinkale | My Big Father #shortsvideo  #manoramamusic](https://www.youtube.com/watch?v=YCNRKRAn6kc)
-- [എങ്ങനെ മറക്കാൻ പറ്റും ഈ ക്രിസ്തീയ ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Christian Songs](https://www.youtube.com/watch?v=G8dZNp8uI8c)
-- [Malkosinte Gadhgathangal Day 28](https://www.youtube.com/watch?v=tX2QiUCHHFU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
