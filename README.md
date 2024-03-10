@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Katte Katte | Celluloid  #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=hLBEAvgxNJg)
 - [Nira Thinkale | My Big Father #shortsvideo  #manoramamusic](https://www.youtube.com/watch?v=YCNRKRAn6kc)
 - [എങ്ങനെ മറക്കാൻ പറ്റും ഈ ക്രിസ്തീയ ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Christian Songs](https://www.youtube.com/watch?v=G8dZNp8uI8c)
 - [Malkosinte Gadhgathangal Day 28](https://www.youtube.com/watch?v=tX2QiUCHHFU)
 - [ഇന്ന് മാർച്ച്  10 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  mahimay](https://www.youtube.com/watch?v=Pw1uAArQofs)
 - [Japamala 10th of March 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 10th of March 2024](https://www.youtube.com/watch?v=5pcJyuWF5Ms)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=QqLC0I_Zvwg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
