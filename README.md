@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Ente uyiraayi nee maari Video Song  | Kshamichu Ennoru Vaakku | KS Chithra | Unni Menon](https://www.youtube.com/watch?v=wpQetvjxb_Y)
-- [Popular Hits of Shreya Ghoshal | മലയാള സിനിമ ഗാനങ്ങൾ | Malayalam Film Songs | Satyam Audios](https://www.youtube.com/watch?v=INqBolaEUms)
-- [Iniyonnu Paadu Hridayame| Golandharavaartha | Johnson | ONV Kurupp | Yesudas | Mammooty | Shobana](https://www.youtube.com/watch?v=o802wtvqt8c)
-- [Panchavadiyile Mayaseethayo - Lankaadahanam(1971) | P Jayachandran | Prem Nazeer | Vijayasree](https://www.youtube.com/watch?v=5LK2cIBquzU)
-- [Raappadithan Video Song | Daisy | Sonia | KS Chithra | Shyam | P Bhaskaran](https://www.youtube.com/watch?v=4HWsXdUwMfA)
-- [Daiveeka Sannidhyam |Christian Devotional Songs | Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=RRPVxQGNPxM)
+- [ഉയർച്ചയുടെ ദിനങ്ങളുണ്ടെന്ന് ഓർമിപ്പിക്കുന്ന കാൽവരി. | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=OKon3BqqKQw)
+- [Ee Dharani - Audio Song | Dasara (Malayalam) | Nani, Keerthy Suresh | Santhosh Narayanan](https://www.youtube.com/watch?v=4qzznUOdyDg)
+- [Aakasha Thamara Pole Video Song | Ayal Kadha Ezhthukayanu | KJ Yesudas | Mohanlal](https://www.youtube.com/watch?v=atew1KGL4iY)
+- [Karineela Kannilenthadi |Chakkaramuthu #vineethsreenivasan #sujatha #shortsfeed #shortsvideo #reels](https://www.youtube.com/watch?v=6IzQ9guQZqc)
+- [കേട്ടവരെല്ലാം ഹൃദയത്തിൽ ഏറ്റെടുത്ത ഏറ്റവും പുതിയ പീഢാനുഭവഗാനങ്ങൾ| Easter Special Songs 2024 | Kester](https://www.youtube.com/watch?v=h3x-2kKZ6DM)
+- [Urangum Munpu Daiva Sannidhiyil # Night Prayer and Worship # Rathri Japam 11th of March 2024](https://www.youtube.com/watch?v=RQjNtSL9k5A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
