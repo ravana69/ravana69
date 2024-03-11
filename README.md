@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Raappadithan Video Song | Daisy | Sonia | KS Chithra | Shyam | P Bhaskaran](https://www.youtube.com/watch?v=4HWsXdUwMfA)
+- [Daiveeka Sannidhyam |Christian Devotional Songs | Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=RRPVxQGNPxM)
+- [கோப்ரா - உயிர் உருகுதே தமிழ் பாடல் வரிகள் | ஏ. ஆர். ரகுமான்](https://www.youtube.com/watch?v=59kP-t5J_sA)
+- [குரு - மையா மையா தமிழ் பாடல் வரிகள் | ஏ. ஆர். ரகுமான்](https://www.youtube.com/watch?v=0tLSKoVSJa0)
+- [പാപികളെ തേടിവന്ന | #shortvideo | Fr. Shaji Thumpechirayil | Kester | Rose Mary](https://www.youtube.com/watch?v=oQjceTbFP2k)
 - [Marannuvo Poomakale | Chakkaramuthu | Sujatha | M Jayachandran | Gireesh Puthencherry | Dileep](https://www.youtube.com/watch?v=zMDbtYzqHlo)
-- [Devavahini Theera | Nruthasala | Prem Nazeer | V Dakshinamoorthy | Yesudas |](https://www.youtube.com/watch?v=qSJdzMtZtDI)
-- [M. G. Soman Old Malayalam Movie Song | Aval Viswasthayayirunnu Remastered MalayalamSong | Yesudas |](https://www.youtube.com/watch?v=bcTubhxHXPA)
-- [Udurajamukhi Mrugarajakadi | Abraham And Lincoln | A Pramod Papanic Approach | Manjari | Ouseppachan](https://www.youtube.com/watch?v=a0WkJOKl1N8)
-- [Deenanukamba | Thilothama #manoramamusic #ytshorts](https://www.youtube.com/watch?v=HN1ENQ0QH8U)
-- [My Heart | Chattakkari #ytshorts  #manoramamusic](https://www.youtube.com/watch?v=crmoqHQNlho)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
