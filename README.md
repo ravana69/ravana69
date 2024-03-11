@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ente uyiraayi nee maari Video Song  | Kshamichu Ennoru Vaakku | KS Chithra | Unni Menon](https://www.youtube.com/watch?v=wpQetvjxb_Y)
+- [Popular Hits of Shreya Ghoshal | മലയാള സിനിമ ഗാനങ്ങൾ | Malayalam Film Songs | Satyam Audios](https://www.youtube.com/watch?v=INqBolaEUms)
 - [Iniyonnu Paadu Hridayame| Golandharavaartha | Johnson | ONV Kurupp | Yesudas | Mammooty | Shobana](https://www.youtube.com/watch?v=o802wtvqt8c)
 - [Panchavadiyile Mayaseethayo - Lankaadahanam(1971) | P Jayachandran | Prem Nazeer | Vijayasree](https://www.youtube.com/watch?v=5LK2cIBquzU)
 - [Raappadithan Video Song | Daisy | Sonia | KS Chithra | Shyam | P Bhaskaran](https://www.youtube.com/watch?v=4HWsXdUwMfA)
 - [Daiveeka Sannidhyam |Christian Devotional Songs | Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=RRPVxQGNPxM)
-- [கோப்ரா - உயிர் உருகுதே தமிழ் பாடல் வரிகள் | ஏ. ஆர். ரகுமான்](https://www.youtube.com/watch?v=59kP-t5J_sA)
-- [குரு - மையா மையா தமிழ் பாடல் வரிகள் | ஏ. ஆர். ரகுமான்](https://www.youtube.com/watch?v=0tLSKoVSJa0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
