@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [80s 90s Malayalam Hits Best Melodies of All Time  Audience Favourite Songs  Evergreen Malayalam Hits](https://www.youtube.com/watch?v=SZlLneH0FCY)
+- [മലയാളസിനിമയിലെ പ്രകമ്പനം കൊള്ളിച്ച നിത്യ സുന്ദര സിനിമാഗാനങ്ങൾ ! MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=C8BCUfE00d0)
+- [വീണ്ടും വീണ്ടും കേൾക്കാൻ മനസ്സ് വെമ്പുന്ന ഒരു പിടി നല്ല ഗാനങ്ങൾ ! EVER LOVING MALAYALAM SONGS](https://www.youtube.com/watch?v=muY62NQWkD4)
 - [Manathoru Pontharakam Video Song | Pranaya Nilavu | Dileep | Mohini | KS Chithra | Berny Ignatius](https://www.youtube.com/watch?v=GSJWCNpUh14)
 - [OTHIRI NOMBARAM (St Joseph's Day) | #shorts | Fr Shaji Thumpechirayil | NEETHIMAN](https://www.youtube.com/watch?v=udENNanwvw8)
 - [കെസ്റ്ററിനെ പോലും കരയിപ്പിച്ച  നോമ്പ് ഗാനങ്ങൾ | Kester Hits | #kestersongs](https://www.youtube.com/watch?v=3ABiGrwMoTU)
-- [Omane | Boyy Friennd | Video Song | Vinayan | M.Jayachandran | Sujatha | Nishad | R K Damodaran](https://www.youtube.com/watch?v=A6HgNL1Utx0)
-- [Sathyan Old Malayalam Movie Song | Bheekara Nimishangal | Remastered Malayalam Movie Song](https://www.youtube.com/watch?v=-sWuYkrdorQ)
-- [Vellaram kannulla Vellimoonga | Animation video #animation #shorts #shortsfeed #shortsvideo #reels](https://www.youtube.com/watch?v=_Q40pEFA89g)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
