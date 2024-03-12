@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kanneeral | Christian Songs | Christian Melody Song | KG Markose | Anil Paravoor | Joji Johans](https://www.youtube.com/watch?v=PIB4jomp9Wo)
+- [Japamala 12th of March 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 12th of March 24](https://www.youtube.com/watch?v=NACWKu3jEQg)
+- [ഇന്ന്  മാർച്ച്  12 #ജപമാല പ്രാർത്ഥന കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #ജപമാല എത്രയോ ശക്തമായ പ്രാർത്ഥന](https://www.youtube.com/watch?v=GUMh_M-grPg)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=b2GQ0DxLCZM)
 - [Morning Prayer 12th of March # Athiravile Prarthana 12th March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=n2hN90kk8UQ)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=iLSlbNgob-I)
-- [Malkosinte Gadhgathangal Day 30](https://www.youtube.com/watch?v=axiTjs1BCSc)
-- [Mathavinodulla Samprakshana Prarthana The Immaculate Heart of Mother Mary Prayer 12th March 24](https://www.youtube.com/watch?v=VUKK8qSK62Q)
-- [Etho Nidhrathan | Ayal Kadha Ezhuthukayanu |  Raveendran | KJ Yesudas #SongOfTheDay](https://www.youtube.com/watch?v=tMoKOFd8rqc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
