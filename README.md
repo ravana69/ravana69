@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കെസ്റ്ററിനെ പോലും കരയിപ്പിച്ച  നോമ്പ് ഗാനങ്ങൾ | Kester Hits | #kestersongs](https://www.youtube.com/watch?v=3ABiGrwMoTU)
+- [Omane | Boyy Friennd | Video Song | Vinayan | M.Jayachandran | Sujatha | Nishad | R K Damodaran](https://www.youtube.com/watch?v=A6HgNL1Utx0)
 - [Sathyan Old Malayalam Movie Song | Bheekara Nimishangal | Remastered Malayalam Movie Song](https://www.youtube.com/watch?v=-sWuYkrdorQ)
 - [Vellaram kannulla Vellimoonga | Animation video #animation #shorts #shortsfeed #shortsvideo #reels](https://www.youtube.com/watch?v=_Q40pEFA89g)
 - [Kumkuma Malarukalo|Jagadeesh|Sunitha|Mukha Mudra|](https://www.youtube.com/watch?v=verC1JPzgGo)
 - [Kaypulla Vellam Kudicheedilum | Azhalerum | Pr. Muttom Geevarghese | Kester #shortvideo](https://www.youtube.com/watch?v=QNVkWYsKFao)
-- [Marakurishil Moonnanikalil | #shorts | Kester | Fr Cyriac Kottayil | Kurishile Karunyam](https://www.youtube.com/watch?v=veoexyqiIBk)
-- [Mausam | Innu Muthal #shortsvideo  #manoramamusic](https://www.youtube.com/watch?v=-QQI5qHEPqs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
