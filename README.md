@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Prem Nazir Old Malayalam Movie Songs | Aaradimanninte Janmi Movie Song | Remastered Malayalam Songs](https://www.youtube.com/watch?v=9wkr0_tGCZU)
+- [Paalnilaavinum |  Kabooliwala | SP Venkitesh |  KJ Yesudas #SongOfTheDay](https://www.youtube.com/watch?v=ZcguzX5lE0c)
 - [Ezhupatho Ereyayal | Christian Devotional #shortsvideo](https://www.youtube.com/watch?v=NSmOgLNS2xo)
 - [Kinginikattu | Mallu Singh #shortsvideo  #manoramamusic](https://www.youtube.com/watch?v=lvFs3X26ci4)
 - [ഈശോയുടെ പീഡാ സഹനത്തിൽ പങ്കാളികളാവാൻ പ്രേരണയേകും ക്രിസ്തീയ ഗാനങ്ങൾ  |Joseph Mathew Padinjarathara |](https://www.youtube.com/watch?v=HwN9N5G_yMs)
 - [ഇന്ന്  മാർച്ച്  13 #  എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala](https://www.youtube.com/watch?v=Jfa3VESu_6w)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=iZTYX58_2Rk)
-- [Morning Prayer 13th of March # Athiravile Prarthana 13th March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=w8gIb7gAb_g)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
