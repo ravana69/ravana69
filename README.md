@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Nilayolangal |Album Promo Video| M T Vasudevan Nair | P C Aravindan | Jithesh Narayanan | നിളയോളങ്ങൾ](https://www.youtube.com/watch?v=qYJiAMvxmAQ)
-- [Sangeetha Marathaka Haram Video Song | Malayalam Movie Songs | S Janaki | Zarina Wahab | Jose](https://www.youtube.com/watch?v=d0VX5UWFHUc)
-- [Poomeyyil Manmadanoru | Uthara Chemmeen | KS Chithra | KS Binu Anand | Prabhakaran Narukara](https://www.youtube.com/watch?v=IP3Q1NIi_nA)
-- [Manushya Vedanikkunnennullam | നോമ്പുകാല ഗാനങ്ങൾ | Christain Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=C68y8r44dAI)
-- [Best Melodies of All Time  Audience Favourite Songs  Evergreen Malayalam Hits KJ Yesudas VOL 2](https://www.youtube.com/watch?v=y2LHJIS4t4w)
-- [Ponnin Valakilukki Video Song | Njangal santhushtaranu Song | Jayaram | Abhirami | Ouseppachan](https://www.youtube.com/watch?v=0tbmsYug6xI)
+- [നല്ല കള്ളൻ  | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=bvP9MeqqZ4U)
+- [Kamaneeya Malarmeni Video Song | Sanchari | P Susheela | B Vasantha | Vani Jairam](https://www.youtube.com/watch?v=QyQQFVlSQ20)
+- [Singaari Bolona | Super Hit Malayalam Adipoli Song | Shinkari Bolona | Lal | Manya - Mano Hits](https://www.youtube.com/watch?v=ukKEfjzHWhE)
+- [Johny Mone Johnee | Mollywood DJ Party Hits #dulquersalmaan #gopisundar #shorts #shortsfeed](https://www.youtube.com/watch?v=qEG4J9HwKt8)
+- [Ravilum pakalilum | മനസിന് ഉണർവേകുന്ന മനോഹര ഗാനം | #shorts #christianshorts #christianwhatsappstatus](https://www.youtube.com/watch?v=cOgmmOho2S8)
+- [Monjathi Monjathi | Saigal Padukayanu | Madhu Balakrishnan | Shreya Ghoshal | M Jayachandran](https://www.youtube.com/watch?v=c3Q5AS92ahE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
