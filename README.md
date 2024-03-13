@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Her sparkling eyes!👀✨ #Chellakuruvikku #Antony #shorts #ytshorts](https://www.youtube.com/watch?v=zUTWykM5NR8)
+- [Saarangi Maarilaniyum | HD Video | Pavakkoothu | Jayaram | Johnson l Unni Menon | Renjini Menon](https://www.youtube.com/watch?v=cO25xGHgdZc)
 - [നല്ല കള്ളൻ  | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=bvP9MeqqZ4U)
 - [Kamaneeya Malarmeni Video Song | Sanchari | P Susheela | B Vasantha | Vani Jairam](https://www.youtube.com/watch?v=QyQQFVlSQ20)
 - [Singaari Bolona | Super Hit Malayalam Adipoli Song | Shinkari Bolona | Lal | Manya - Mano Hits](https://www.youtube.com/watch?v=ukKEfjzHWhE)
 - [Johny Mone Johnee | Mollywood DJ Party Hits #dulquersalmaan #gopisundar #shorts #shortsfeed](https://www.youtube.com/watch?v=qEG4J9HwKt8)
-- [Ravilum pakalilum | മനസിന് ഉണർവേകുന്ന മനോഹര ഗാനം | #shorts #christianshorts #christianwhatsappstatus](https://www.youtube.com/watch?v=cOgmmOho2S8)
-- [Monjathi Monjathi | Saigal Padukayanu | Madhu Balakrishnan | Shreya Ghoshal | M Jayachandran](https://www.youtube.com/watch?v=c3Q5AS92ahE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
