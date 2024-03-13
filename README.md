@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Innale Ente Nenjile |Lyrical+Karaoke Video| Balettan | Mohanlal |  Jayachandran | Girish Puthenchery](https://www.youtube.com/watch?v=gIAVMnybtxM)
 - [Etho Nadiyude Theerathil | Kochu Themmadi | Mammootty | P.Madhuri | G.Devarajan | P Bhaskaran](https://www.youtube.com/watch?v=5Jsoj8CsQCg)
 - [Prem Nazir Old Malayalam Movie Songs | Aaradimanninte Janmi Movie Song | Remastered Malayalam Songs](https://www.youtube.com/watch?v=9wkr0_tGCZU)
 - [Paalnilaavinum |  Kabooliwala | SP Venkitesh |  KJ Yesudas #SongOfTheDay](https://www.youtube.com/watch?v=ZcguzX5lE0c)
 - [Ezhupatho Ereyayal | Christian Devotional #shortsvideo](https://www.youtube.com/watch?v=NSmOgLNS2xo)
 - [Kinginikattu | Mallu Singh #shortsvideo  #manoramamusic](https://www.youtube.com/watch?v=lvFs3X26ci4)
-- [ഈശോയുടെ പീഡാ സഹനത്തിൽ പങ്കാളികളാവാൻ പ്രേരണയേകും ക്രിസ്തീയ ഗാനങ്ങൾ  |Joseph Mathew Padinjarathara |](https://www.youtube.com/watch?v=HwN9N5G_yMs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
