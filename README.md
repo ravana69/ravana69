@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nilayolangal |Album Promo Video| M T Vasudevan Nair | P C Aravindan | Jithesh Narayanan | നിളയോളങ്ങൾ](https://www.youtube.com/watch?v=qYJiAMvxmAQ)
+- [Sangeetha Marathaka Haram Video Song | Malayalam Movie Songs | S Janaki | Zarina Wahab | Jose](https://www.youtube.com/watch?v=d0VX5UWFHUc)
+- [Poomeyyil Manmadanoru | Uthara Chemmeen | KS Chithra | KS Binu Anand | Prabhakaran Narukara](https://www.youtube.com/watch?v=IP3Q1NIi_nA)
 - [Manushya Vedanikkunnennullam | നോമ്പുകാല ഗാനങ്ങൾ | Christain Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=C68y8r44dAI)
 - [Best Melodies of All Time  Audience Favourite Songs  Evergreen Malayalam Hits KJ Yesudas VOL 2](https://www.youtube.com/watch?v=y2LHJIS4t4w)
 - [Ponnin Valakilukki Video Song | Njangal santhushtaranu Song | Jayaram | Abhirami | Ouseppachan](https://www.youtube.com/watch?v=0tbmsYug6xI)
-- [Neerazhi Penninte | Kizhakkan Pathrose | O.N.V. | S.P. Venkitesh | K.J.Yesudas | K.S.Chithra](https://www.youtube.com/watch?v=XCaX7zXzjWk)
-- [Kombil Kilukkum Ketti | Karimbana | AT Ummer | Bichu Thirumala | KJ Yesudas |Loving Memmory Of Jayan](https://www.youtube.com/watch?v=Ta3MJg6LRjw)
-- [Muthani Mani Viralal - Attakatha (2013) | Vijay Yesudas | Radhika Thilak | Gireesh Puthencheri](https://www.youtube.com/watch?v=7vMJoJqVPt8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
