@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈശോയുടെ പീഡാ സഹനത്തിൽ പങ്കാളികളാവാൻ പ്രേരണയേകും ക്രിസ്തീയ ഗാനങ്ങൾ  |Joseph Mathew Padinjarathara |](https://www.youtube.com/watch?v=HwN9N5G_yMs)
+- [ഇന്ന്  മാർച്ച്  13 #  എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala](https://www.youtube.com/watch?v=Jfa3VESu_6w)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=iZTYX58_2Rk)
 - [Morning Prayer 13th of March # Athiravile Prarthana 13th March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=w8gIb7gAb_g)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=oMo9ZwBrHKc)
 - [Malkosinte Gadhgathangal Day 31](https://www.youtube.com/watch?v=NyaIjCqmyHo)
-- [Mathavinodulla Samprakshana Prarthana The Immaculate Heart of Mother Mary Prayer 13th March 24](https://www.youtube.com/watch?v=1TKpQcNRgkM)
-- [ഇളമാൻ മിഴിയിൽ..| കെ ജെ യേശുദാസ് | K S Chitra | Sujatha Mohan | Selected Film songs](https://www.youtube.com/watch?v=G5DBl_LpHrM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
