@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Yaamangal Melle Chollum | Cover Story | Sharreth | Tabbu | Chithra | Sureshgopi | MG Sreekumar](https://www.youtube.com/watch?v=bUYl14a76xM)
+- [സങ്കടങ്ങൾ ഏറ്റെടുക്കുന്ന ഗാനങ്ങൾ | KESTER SONGS #KESTERHITS](https://www.youtube.com/watch?v=c2_IRsL-dQw)
+- [Margazhiye Mallikaye| Megham |Ouseppachan | M. G. Sreekumar | Srinivas, K. S. Chithra #SongOfTheDay](https://www.youtube.com/watch?v=zTbR5RDjOOY)
 - [13 March 2024](https://www.youtube.com/watch?v=V6pXz1yTi4E)
 - [Chinna Chindhura - Audio Song | Dasara (Malayalam) | Nani, Keerthy Suresh | Santhosh Narayanan](https://www.youtube.com/watch?v=aCNw9Pyu5qk)
 - [Her sparkling eyes!👀✨ #Chellakuruvikku #Antony #shorts #ytshorts](https://www.youtube.com/watch?v=zUTWykM5NR8)
-- [Saarangi Maarilaniyum | HD Video | Pavakkoothu | Jayaram | Johnson l Unni Menon | Renjini Menon](https://www.youtube.com/watch?v=cO25xGHgdZc)
-- [നല്ല കള്ളൻ  | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=bvP9MeqqZ4U)
-- [Kamaneeya Malarmeni Video Song | Sanchari | P Susheela | B Vasantha | Vani Jairam](https://www.youtube.com/watch?v=QyQQFVlSQ20)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
