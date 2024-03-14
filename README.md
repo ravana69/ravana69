@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Katte Katte | Celluloid  #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=UCOVF1aMvZY)
+- [Kathoramaro | Namboothiri Yuvavu #shortsvideo  #manoramamusic](https://www.youtube.com/watch?v=VzMX4e3wdKU)
 - [അതിമനോഹരമായ പഴയകാല ഗാനങ്ങൾ old christian songs malayalam with lyrics ! daily worship songs malayalam](https://www.youtube.com/watch?v=Bvj4wXFQxjI)
 - [കുരിശിൻ വഴിയിലെ സഹനം Feat. Nishad , Tomy, Samji New Christian devotional Song Malayalam](https://www.youtube.com/watch?v=rFVZ313Pabg)
 - [വിശ്വാസം കൈവെടിയാതെ നിങ്ങൾ ഈ ഗാനങ്ങളോടൊപ്പം പ്രാർത്ഥിക്കു | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=G8M-gJEpIMI)
 - [Japamala 14th of March 2024 # Mathavinte Japamala Prakashathinte Rahasyangal 14th of March 24](https://www.youtube.com/watch?v=BP9Ua3myLBY)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=iUWNGj53ces)
-- [Malkosinte Gadhgathangal Day 32](https://www.youtube.com/watch?v=7fs95Sc6POA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
