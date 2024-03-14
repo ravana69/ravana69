@@ -37,7 +37,7 @@
 - [Uthama Snehithare | നോമ്പുകാല ഗാനങ്ങൾ | Christian Devotional Songs | ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ](https://www.youtube.com/watch?v=b0Zi5RWwFe0)
 - [മനസിലെന്നും വർണ്ണ പൂക്കാലം  തീർക്കും മനം കവരുന്ന മലയാളസിനിമാ ഗാനങ്ങൾ ! MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=M23EoogqppY)
 - [വരികൾകൊണ്ട് മായാജാലം തീർത്ത്  ജനഹൃദയം കീഴടക്കിയ ഗാനരചയിതാവ് ! HITS OF GIREESH PUTHENCHERY](https://www.youtube.com/watch?v=ATAFw4NuppU)
-- [Santhosh Narayanan, S.J. Surya - ஒன்னு ரெண்டு தமிழ் பாடல் வரிகள் | சந்தோஷ் நாராயணன்](https://www.youtube.com/watch?v=-S4AT9ePVck)
+- [Ithratholam Yahova Sahayichu | Kedarnath | D. Ajithkumar | Malayalam Christian Songs](https://www.youtube.com/watch?v=tGH4ECktKwg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
