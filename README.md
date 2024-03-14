@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മനസിലെന്നും വർണ്ണ പൂക്കാലം  തീർക്കും മനം കവരുന്ന മലയാളസിനിമാ ഗാനങ്ങൾ ! MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=M23EoogqppY)
+- [വരികൾകൊണ്ട് മായാജാലം തീർത്ത്  ജനഹൃദയം കീഴടക്കിയ ഗാനരചയിതാവ് ! HITS OF GIREESH PUTHENCHERY](https://www.youtube.com/watch?v=ATAFw4NuppU)
 - [Santhosh Narayanan, S.J. Surya - ஒன்னு ரெண்டு தமிழ் பாடல் வரிகள் | சந்தோஷ் நாராயணன்](https://www.youtube.com/watch?v=-S4AT9ePVck)
 - [தேசிங்கு ராஜா - அம்மாடி அம்மாடி தமிழ் பாடல் வரிகள் | டி. இமான்](https://www.youtube.com/watch?v=aDl0cCMihFs)
 - [ആലിലത്താലിയുമായ്‌ വരു നീതിങ്കളേ ഇതിലെ ഇതിലെ Aalilathaliyumai | Mizhi Randilum | Kavya madhavan](https://www.youtube.com/watch?v=CqAvEKuzf_o)
 - [Folk Malayalam Film Songs  | Jukebox  | നാടൻപാട്ട് സിനിമാഗാനങ്ങൾ #naadanpattukal #folksong](https://www.youtube.com/watch?v=OrjDIe8Nawg)
-- [Aalilathaliyumai Varu Nee Video Song | Mizhi Randilum | Kavya madhavan | Indrajith | P Jayachandran](https://www.youtube.com/watch?v=wVj3iwcXRu8)
-- [You are meant to Thrive, not just Survive! |  lyric video "Neram" from JaiGanesh](https://www.youtube.com/watch?v=Lc_u1R8PeqM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
