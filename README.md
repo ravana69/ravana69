@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Santhosh Narayanan, S.J. Surya - ஒன்னு ரெண்டு தமிழ் பாடல் வரிகள் | சந்தோஷ் நாராயணன்](https://www.youtube.com/watch?v=-S4AT9ePVck)
+- [தேசிங்கு ராஜா - அம்மாடி அம்மாடி தமிழ் பாடல் வரிகள் | டி. இமான்](https://www.youtube.com/watch?v=aDl0cCMihFs)
+- [ആലിലത്താലിയുമായ്‌ വരു നീതിങ്കളേ ഇതിലെ ഇതിലെ Aalilathaliyumai | Mizhi Randilum | Kavya madhavan](https://www.youtube.com/watch?v=CqAvEKuzf_o)
 - [Folk Malayalam Film Songs  | Jukebox  | നാടൻപാട്ട് സിനിമാഗാനങ്ങൾ #naadanpattukal #folksong](https://www.youtube.com/watch?v=OrjDIe8Nawg)
 - [Aalilathaliyumai Varu Nee Video Song | Mizhi Randilum | Kavya madhavan | Indrajith | P Jayachandran](https://www.youtube.com/watch?v=wVj3iwcXRu8)
 - [You are meant to Thrive, not just Survive! |  lyric video "Neram" from JaiGanesh](https://www.youtube.com/watch?v=Lc_u1R8PeqM)
-- [Thenurum Ragam | Uyire Unakkaga | Laxmikant-Pyarelal | S.Janaki | Hi-Res Audio](https://www.youtube.com/watch?v=LidBByT2WrI)
-- [M. G. Soman Old Malayalam Movie Song| Aval Viswasthayayirunnu Remastered MalayalamSong |Vani Jairam](https://www.youtube.com/watch?v=7Wzhdl9aS_4)
-- [Harimuraleeravam | Aaram Thampuran | Mohanlal | Manju Warrier | Yesudas | Raveendran](https://www.youtube.com/watch?v=9UbJqXBkNW0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
