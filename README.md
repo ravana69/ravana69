@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Punchirichal Poonilavudikkum | Sreedevi Malayalam Movie | KJ Yesudas | Kamal Haasan | #shorts](https://www.youtube.com/watch?v=N_pCFjep-e8)
-- [മാർത്തോമ്മൻ സിംഹാസനം | A  SYMPHONY  ON  HISTORY | #christiandevotionalsongs #royputhur](https://www.youtube.com/watch?v=Mj5YfAZAMPQ)
-- [Uthama Snehithare | നോമ്പുകാല ഗാനങ്ങൾ | Christian Devotional Songs | ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ](https://www.youtube.com/watch?v=b0Zi5RWwFe0)
-- [മനസിലെന്നും വർണ്ണ പൂക്കാലം  തീർക്കും മനം കവരുന്ന മലയാളസിനിമാ ഗാനങ്ങൾ ! MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=M23EoogqppY)
-- [വരികൾകൊണ്ട് മായാജാലം തീർത്ത്  ജനഹൃദയം കീഴടക്കിയ ഗാനരചയിതാവ് ! HITS OF GIREESH PUTHENCHERY](https://www.youtube.com/watch?v=ATAFw4NuppU)
-- [Ithratholam Yahova Sahayichu | Kedarnath | D. Ajithkumar | Malayalam Christian Songs](https://www.youtube.com/watch?v=tGH4ECktKwg)
+- [സന്തോഷങ്ങളിൽ കൂടെ ഉള്ളവർ സങ്കടങ്ങളിൽ കൂടെ കണ്ടില്ലെന്നിരിക്കും | Rev. Aneesh P Joseph| #shorts #lent](https://www.youtube.com/watch?v=f3Y2l95_Svk)
+- [Oru Kattil Oru Muri Official Teaser | Shanavas K Bavakutty | Hakeem Sha | Poornima Indhrajith](https://www.youtube.com/watch?v=zcRDXeNiK8w)
+- [Kamaneeya Malarmeni Video Song | Sanchari | P Susheela | B Vasantha | Vani Jairam #shorts](https://www.youtube.com/watch?v=7QFfrsEYY7E)
+- [Katte Katte | Award Winning Film Songs #shortsfeed #shortsvideo #shorts #reels #vaikomvijayalakshmi](https://www.youtube.com/watch?v=qPHqj2_KaCU)
+- [Va Va Manoranjini | Butterflies | Mohanlal | Aishwarya | M G Sreekumar | Raveendran](https://www.youtube.com/watch?v=sU3knxu4LyI)
+- [Palayam PC - Full Album | Palayam PC | Kottayam Ramesh, Rahul Madhav, Jaffer Idukki | Abin Thej](https://www.youtube.com/watch?v=d722b8sPnNQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
