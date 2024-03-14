@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Punchirichal Poonilavudikkum | Sreedevi Malayalam Movie | KJ Yesudas | Kamal Haasan | #shorts](https://www.youtube.com/watch?v=N_pCFjep-e8)
+- [മാർത്തോമ്മൻ സിംഹാസനം | A  SYMPHONY  ON  HISTORY | #christiandevotionalsongs #royputhur](https://www.youtube.com/watch?v=Mj5YfAZAMPQ)
+- [Uthama Snehithare | നോമ്പുകാല ഗാനങ്ങൾ | Christian Devotional Songs | ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ](https://www.youtube.com/watch?v=b0Zi5RWwFe0)
 - [മനസിലെന്നും വർണ്ണ പൂക്കാലം  തീർക്കും മനം കവരുന്ന മലയാളസിനിമാ ഗാനങ്ങൾ ! MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=M23EoogqppY)
 - [വരികൾകൊണ്ട് മായാജാലം തീർത്ത്  ജനഹൃദയം കീഴടക്കിയ ഗാനരചയിതാവ് ! HITS OF GIREESH PUTHENCHERY](https://www.youtube.com/watch?v=ATAFw4NuppU)
 - [Santhosh Narayanan, S.J. Surya - ஒன்னு ரெண்டு தமிழ் பாடல் வரிகள் | சந்தோஷ் நாராயணன்](https://www.youtube.com/watch?v=-S4AT9ePVck)
-- [தேசிங்கு ராஜா - அம்மாடி அம்மாடி தமிழ் பாடல் வரிகள் | டி. இமான்](https://www.youtube.com/watch?v=aDl0cCMihFs)
-- [ആലിലത്താലിയുമായ്‌ വരു നീതിങ്കളേ ഇതിലെ ഇതിലെ Aalilathaliyumai | Mizhi Randilum | Kavya madhavan](https://www.youtube.com/watch?v=CqAvEKuzf_o)
-- [Folk Malayalam Film Songs  | Jukebox  | നാടൻപാട്ട് സിനിമാഗാനങ്ങൾ #naadanpattukal #folksong](https://www.youtube.com/watch?v=OrjDIe8Nawg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
