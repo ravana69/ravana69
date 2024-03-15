@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manjaninja Madhumasam | Nruthashala | Prem Nazeer | S Janaki | Dakshinamoorthy](https://www.youtube.com/watch?v=J7ucvnLDDVA)
+- [Ini Manathum Nakshatra Pookalam | Cover Story | Tabu | KS Chithra | Gireesh Puthenchery | Sharreth](https://www.youtube.com/watch?v=6bfJ0HNqv6U)
 - [Sheela Old Malayalam Movie Songs | Bheekara Nimishangal Remastered Malayalam Songs | P. Susheela](https://www.youtube.com/watch?v=29hzgaA_KLc)
 - [Enente Chankile |  Red Salute |  Folk Film Songs #kalabhavanmani #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=FljPo1YpNTo)
 - [Malkosinte Gadhgathangal Day 33](https://www.youtube.com/watch?v=-y5OT0QsEoY)
 - [Yeshuve Rakshadayaka Karaoke | Karaoke with Lyrics | Malayalam Christian Songs Karaoke](https://www.youtube.com/watch?v=FT7SR0pHv-8)
-- [Krooshitha | Maria Kolady | Baby John Kalayanthani  #malayalamchristiansongs #shorts](https://www.youtube.com/watch?v=v5o-K0ZY8Ls)
-- [Ithiri Chakkara Nulli | Seniors #shortsvideo  #manoramamusic](https://www.youtube.com/watch?v=enw9GbrJyT8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
