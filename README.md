@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Nature and her beauty!✨ #Chellakuruvikku #Antony #shorts #ytshorts](https://www.youtube.com/watch?v=-8YQaHqPUoM)
-- [Pranaya Sarovaram |Album Video| Sreekumaran Thampi | P Jayachandran | Haripad Sudheesh | Balu R Nair](https://www.youtube.com/watch?v=2mzkL5TbG68)
-- [Arabikadaloru Manavalan Song | Bhargavi Nilayam |Madhu | Neelavelicham| K J Yesudas | Tovino #shorts](https://www.youtube.com/watch?v=Z8LZtLKkB-o)
-- [Nilayolangal | Video Song | M T Vasudevan Nair |  P C Aravindan | Jithesh Narayanan | നിളയോളങ്ങൾ](https://www.youtube.com/watch?v=9HviN0_iUCA)
-- [Kanakanilave | Kauravar | Malayalam Super Hit Song | Mammootty | Anju - SP Venkitesh Hits](https://www.youtube.com/watch?v=QaEqZc-iZL0)
-- [Karimparakalkkullilum | Karimbana | Bichu Thirumala | AT Ummer | S Janaki | Jayan Old Film Songs](https://www.youtube.com/watch?v=gA0Kn3yYpUQ)
+- [Kaathilaaro | Salt Mango Tree | Sithara Krishnakumar | Midhun Jayaraj | Hesham Abdul Wahab](https://www.youtube.com/watch?v=kGenGQl0l4M)
+- [Kuppivala Video Song | Ayal Kadha Ezhuthukayanu | M. G. Sreekumar | Sujatha Mohan | Mohanlal](https://www.youtube.com/watch?v=uW9ic5E5kdk)
+- [YESUVE EN DAIVAME | #shorts | Kester | Fr Shaji Thumpechirayil | Prince of Heaven](https://www.youtube.com/watch?v=K2ZXbM6t6Ew)
+- [Enne Arinja Daivame | Nombukala Ganangal | Christian Devotional Songs | Kristheeya Bhakthiganangal](https://www.youtube.com/watch?v=ME6TSqJjq-8)
+- [Kaamini Mullakal | HD Video | Pavakkoothu | Jayaram | Johnson l  KS Chithra |  K Jayakumar](https://www.youtube.com/watch?v=Lizig__AVGI)
+- [Sahiba | Anarkali | Hariharan | Vidyasagar | Rajeev Nair | Sachy](https://www.youtube.com/watch?v=xIFiy07egHY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
