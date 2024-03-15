@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nature and her beauty!✨ #Chellakuruvikku #Antony #shorts #ytshorts](https://www.youtube.com/watch?v=-8YQaHqPUoM)
+- [Pranaya Sarovaram |Album Video| Sreekumaran Thampi | P Jayachandran | Haripad Sudheesh | Balu R Nair](https://www.youtube.com/watch?v=2mzkL5TbG68)
 - [Arabikadaloru Manavalan Song | Bhargavi Nilayam |Madhu | Neelavelicham| K J Yesudas | Tovino #shorts](https://www.youtube.com/watch?v=Z8LZtLKkB-o)
 - [Nilayolangal | Video Song | M T Vasudevan Nair |  P C Aravindan | Jithesh Narayanan | നിളയോളങ്ങൾ](https://www.youtube.com/watch?v=9HviN0_iUCA)
 - [Kanakanilave | Kauravar | Malayalam Super Hit Song | Mammootty | Anju - SP Venkitesh Hits](https://www.youtube.com/watch?v=QaEqZc-iZL0)
 - [Karimparakalkkullilum | Karimbana | Bichu Thirumala | AT Ummer | S Janaki | Jayan Old Film Songs](https://www.youtube.com/watch?v=gA0Kn3yYpUQ)
-- [Thazhampookal | Kandu Kandarinju | Shyam | Chunakkara Ramankutti | Unnimenon | Malayalam Film Songs](https://www.youtube.com/watch?v=E5nwS2i2uJg)
-- [எதிர்நீச்சல் - பூமி என்ன சுத்துதே தமிழ் பாடல் வரிகள் | அனிருத்](https://www.youtube.com/watch?v=vxckVoS5jw8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
