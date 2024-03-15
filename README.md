@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Tharattu - Audio Song | Kumari | Aishwarya Lekshmi | Nirmal Sahadev | Manikandan Ayyappa](https://www.youtube.com/watch?v=CmPE5zIdVBU)
 - [15 March 2024](https://www.youtube.com/watch?v=MZrI1jxABR4)
 - [അവൻ നമ്മുടെ അതിക്രമങ്ങൾ നിമിത്തം മുറിവേറ്റു. | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=tRvLFEG2AzE)
 - [Kaathilaaro | Salt Mango Tree | Sithara Krishnakumar | Midhun Jayaraj | Hesham Abdul Wahab](https://www.youtube.com/watch?v=kGenGQl0l4M)
 - [Kuppivala Video Song | Ayal Kadha Ezhuthukayanu | M. G. Sreekumar | Sujatha Mohan | Mohanlal](https://www.youtube.com/watch?v=uW9ic5E5kdk)
 - [YESUVE EN DAIVAME | #shorts | Kester | Fr Shaji Thumpechirayil | Prince of Heaven](https://www.youtube.com/watch?v=K2ZXbM6t6Ew)
-- [Enne Arinja Daivame | Nombukala Ganangal | Christian Devotional Songs | Kristheeya Bhakthiganangal](https://www.youtube.com/watch?v=ME6TSqJjq-8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
