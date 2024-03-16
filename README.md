@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [എത്ര കേട്ടാലും മടുപ്പ് തോന്നാത്ത അത്രമേൽ പ്രിയമുള്ള ഗാനങ്ങൾ ! EVERLOVING SONGS MALAYALAM | MW MUSIC](https://www.youtube.com/watch?v=BUTzLS008-g)
 - [മലയാളികളുടെ മനം കവർന്ന പാട്ടുകൾ Evergreen Malayalam Hits 90s Hits](https://www.youtube.com/watch?v=XbPTRTBWX78)
 - [കലഹങ്ങൾ അവസാനിക്കുന്നത് ക്ഷമയെന്ന പുണ്യത്തിന്റെ പിൻബലത്തിലാണ്.. | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=n3XmUiQvt50)
 - [Nee vaada themmadi Video Song | Rasikan | Vidhu Prathap | Vidyasagar #shorts](https://www.youtube.com/watch?v=8Q9umsVPyqA)
 - [Husnul Jamaalinepol Video Song | Pathaka | MG Sreekumar | Jyotsna Radhakrishnan | Navya Nair](https://www.youtube.com/watch?v=hB9OZGGrmvQ)
 - [Karukare Karuthoru | Super Stars Singing Film Songs #mohanlal #mjayachandran #shortsfeed #shorts](https://www.youtube.com/watch?v=NOwUZjeHkUA)
-- [DOOREYA KALVARI | LATEST LENTEN SONG 2024| PEEDITHAN | KESTER | MOBET RAJAN | Fr. MATHEWS KUZHIVILA](https://www.youtube.com/watch?v=wpi3DhDS6xs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
