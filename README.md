@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [G.V. Prakash Kumar, Saindhavi - இரவாக நீ தமிழ் பாடல் வரிகள் | ஜி.வி.பிரகாஷ்](https://www.youtube.com/watch?v=PIgt4_UiU6Q)
+- [இறைவி - மனிதி தமிழ் பாடல் வரிகள் | சந்தோஷ் நாராயணன்](https://www.youtube.com/watch?v=JrzgW9r4_fE)
 - [Romancham Title Track - Audio Song | Sushin Shyam | Johnpaul George Productions | Jithu Madhavan](https://www.youtube.com/watch?v=nfsbUpvjuCM)
 - [Chalanam Chalanam | URUMI | Prithiviraj | Prabhudeva | Vidya Balan | Rafeeq Ahammed | Deepak Dev](https://www.youtube.com/watch?v=ryRqJ5EIJMk)
 - [M.G.Soman Old Malayalam Movie Song |Aval Viswasthayayirunnu Remastered Malayalam Song | Vani Jairam](https://www.youtube.com/watch?v=I2enOciz_Ys)
 - [Aadyavasanthame Video Song | Vishnulokam | Mohanlal | Shanthi Krishna | KS Chithra | Raveendran](https://www.youtube.com/watch?v=nKSiNIj7CT8)
-- [Paadiyum Paranjum | പതിനാറു വയസ്സിനകം മുന്നൂറു കവിതകൾ  | പാടിയും പറഞ്ഞും | Sreekumaran Thampi](https://www.youtube.com/watch?v=BrOYMMwKzC8)
-- [Ezhupatho Ereyayal | Christian Devotional #shorts](https://www.youtube.com/watch?v=nZtIgcxFw-k)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
