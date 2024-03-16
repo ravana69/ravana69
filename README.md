@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [M.G.Soman Old Malayalam Movie Song |Aval Viswasthayayirunnu Remastered Malayalam Song | Vani Jairam](https://www.youtube.com/watch?v=I2enOciz_Ys)
+- [Aadyavasanthame Video Song | Vishnulokam | Mohanlal | Shanthi Krishna | KS Chithra | Raveendran](https://www.youtube.com/watch?v=nKSiNIj7CT8)
 - [Paadiyum Paranjum | പതിനാറു വയസ്സിനകം മുന്നൂറു കവിതകൾ  | പാടിയും പറഞ്ഞും | Sreekumaran Thampi](https://www.youtube.com/watch?v=BrOYMMwKzC8)
 - [Ezhupatho Ereyayal | Christian Devotional #shorts](https://www.youtube.com/watch?v=nZtIgcxFw-k)
 - [Vaakinullile Vingum | Ozhimuri #shortsvideo  #manoramamusic](https://www.youtube.com/watch?v=85GSlZtBrag)
 - [Christian Video Songs Malayalam | Alenia Mol | Kester | Valiya Nombu Geethangal | Joji Johns](https://www.youtube.com/watch?v=EqJ_oJq3I3Q)
-- [Japamala 16th of March 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 16th of March 24](https://www.youtube.com/watch?v=tTX1E2ChjZY)
-- [ഇന്ന്  മാർച്ച്  16#ജപമാല പ്രാർത്ഥന കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #ജപമാല എത്രയോ ശക്തമായ പ്രാർത്ഥന](https://www.youtube.com/watch?v=ghwCGlOJNfU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
