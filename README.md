@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vaakinullile Vingum | Ozhimuri #shortsvideo  #manoramamusic](https://www.youtube.com/watch?v=85GSlZtBrag)
+- [Christian Video Songs Malayalam | Alenia Mol | Kester | Valiya Nombu Geethangal | Joji Johns](https://www.youtube.com/watch?v=EqJ_oJq3I3Q)
+- [Japamala 16th of March 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 16th of March 24](https://www.youtube.com/watch?v=tTX1E2ChjZY)
+- [ഇന്ന്  മാർച്ച്  16#ജപമാല പ്രാർത്ഥന കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #ജപമാല എത്രയോ ശക്തമായ പ്രാർത്ഥന](https://www.youtube.com/watch?v=ghwCGlOJNfU)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=T4nX5a7xXDA)
 - [Malkosinte Gadhgathangal Day 34](https://www.youtube.com/watch?v=3bVFcIT4LlI)
-- [Morning Prayer 16th of March # Athiravile Prarthana 16th March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=PxBrNDyjyqI)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=_zEkxE6FjZU)
-- [ഓരോ വരിയിലും ഒരായിരം ഭാവങ്ങൾ | മലയാളചലച്ചിത്രഗാനങ്ങൾ | കെ ജെ യേശുദാസ് | Remastered Movie songs](https://www.youtube.com/watch?v=JJKsMehhVOo)
-- [Mathavinodulla Samprakshana Prarthana The Immaculate Heart of Mother Mary Prayer 16th March 24](https://www.youtube.com/watch?v=N0c75Dp1Sio)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
