@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Paadiyum Paranjum | പതിനാറു വയസ്സിനകം മുന്നൂറു കവിതകൾ  | പാടിയും പറഞ്ഞും | Sreekumaran Thampi](https://www.youtube.com/watch?v=BrOYMMwKzC8)
+- [Ezhupatho Ereyayal | Christian Devotional #shorts](https://www.youtube.com/watch?v=nZtIgcxFw-k)
 - [Vaakinullile Vingum | Ozhimuri #shortsvideo  #manoramamusic](https://www.youtube.com/watch?v=85GSlZtBrag)
 - [Christian Video Songs Malayalam | Alenia Mol | Kester | Valiya Nombu Geethangal | Joji Johns](https://www.youtube.com/watch?v=EqJ_oJq3I3Q)
 - [Japamala 16th of March 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 16th of March 24](https://www.youtube.com/watch?v=tTX1E2ChjZY)
 - [ഇന്ന്  മാർച്ച്  16#ജപമാല പ്രാർത്ഥന കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #ജപമാല എത്രയോ ശക്തമായ പ്രാർത്ഥന](https://www.youtube.com/watch?v=ghwCGlOJNfU)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=T4nX5a7xXDA)
-- [Malkosinte Gadhgathangal Day 34](https://www.youtube.com/watch?v=3bVFcIT4LlI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
