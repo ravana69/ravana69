@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഓർമകളുണർത്തുന്ന കളിലെ ഗാനങ്ങൾ | Memorable melodies of 90's | മലയാളചലച്ചിത്രഗാനങ്ങൾ | കെ ജെ യേശുദാസ്](https://www.youtube.com/watch?v=lfw5oAhcOCQ)
+- [Mathavinodulla Samprakshana Prarthana The Immaculate Heart of Mother Mary Prayer 18th March 24](https://www.youtube.com/watch?v=DRJelWgPZ8w)
 - [Vidyasagar Melodies | Jukebox | Devadoothan | Summer In Bethlehem | Suresh Gopi | Mohanlal](https://www.youtube.com/watch?v=Y2fKeRubrpU)
 - [17 March 2024](https://www.youtube.com/watch?v=xq8f4kuf6lA)
 - [കുരിശിൽ മരിച്ച യേശുവിനോട് ചേർന്ന് ആ സഹനങ്ങൾ ഏറ്റുവാങ്ങാൻ ശക്തിയേകും ഗാനങ്ങൾ | Easter Special Songs](https://www.youtube.com/watch?v=uJNMBFTPEDU)
 - [Kandu Njan| Abhimanyu|Raveendran| MG Sreekumar | Kaithapram #SongOfTheDay](https://www.youtube.com/watch?v=UBqLCG8IBQ8)
-- [പ്രാണൻ പോകുവോളം എന്നെ സ്നേഹിക്കുന്ന നാഥൻ  | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=zcL1ssaG5oc)
-- [Ivide Manushyanenthu Vila Video Song | Sanchari | KJ Yesudas | Yusufali Kecheri](https://www.youtube.com/watch?v=dwKVgdCMoVA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
