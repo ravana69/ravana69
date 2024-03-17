@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=-bXCv3GtQRI)
+- [Malkosinte Gadhgathangal Day 36](https://www.youtube.com/watch?v=ayH5MvlfKMc)
 - [Morning Prayer 18th of March # Athiravile Prarthana 18th March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=8xhPR7FlweM)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=Q36WbJQ6POQ)
 - [പ്രഭാതവേളകൾ  ധന്യമാക്കുന്ന അസുലഭ സുന്ദര ഗാനങ്ങൾ |Morning Prayer Songs |Hits Of Joji Johns](https://www.youtube.com/watch?v=ILoRAQP3KhE)
 - [ഓർമകളുണർത്തുന്ന കളിലെ ഗാനങ്ങൾ | Memorable melodies of 90's | മലയാളചലച്ചിത്രഗാനങ്ങൾ | കെ ജെ യേശുദാസ്](https://www.youtube.com/watch?v=lfw5oAhcOCQ)
-- [Mathavinodulla Samprakshana Prarthana The Immaculate Heart of Mother Mary Prayer 18th March 24](https://www.youtube.com/watch?v=DRJelWgPZ8w)
-- [Vidyasagar Melodies | Jukebox | Devadoothan | Summer In Bethlehem | Suresh Gopi | Mohanlal](https://www.youtube.com/watch?v=Y2fKeRubrpU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
