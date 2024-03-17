@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രാണൻ പോകുവോളം എന്നെ സ്നേഹിക്കുന്ന നാഥൻ  | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=zcL1ssaG5oc)
 - [Ivide Manushyanenthu Vila Video Song | Sanchari | KJ Yesudas | Yusufali Kecheri](https://www.youtube.com/watch?v=dwKVgdCMoVA)
 - [Kaakkaala Kannama | Oru Yaathraamozhi | Super Hit Malayalam Movie Song |Ft. Sivaji Ganesan, Mohanlal](https://www.youtube.com/watch?v=rCVrBeQOG20)
 - [Urangum Munpu Daiva Sannidhiyil # Night Prayer and Worship # Rathri Japam 17th of March 2024](https://www.youtube.com/watch?v=niV8radcfgI)
 - [Sindhoora Vaanil | HD Video | Bhoomiyile Rajakkanmar | S. P. Venkatesh  | Unni Menon l](https://www.youtube.com/watch?v=hRui526vnaI)
 - [Undying love!💕 #Chellakuruvikku #Antony #shorts #ytshorts](https://www.youtube.com/watch?v=Jv4SNT5oAMs)
-- [Krooshitha | Maria Kolady | Baby John Kalayanthani  #malayalamchristiansongs #shorts](https://www.youtube.com/watch?v=YiwjIy673h4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
