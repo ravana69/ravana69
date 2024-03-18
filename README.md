@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thathum Thathakal | Kadha | Prithviraj | Kavya Madhavan | Ouseppachan | Asha.G.Menon](https://www.youtube.com/watch?v=FkLnQ6et2oQ)
+- [Katturumbinu Kalyanam Video Song | KJ Yesudas | KS Chithra | Berny Ignatius| Priyam #shorts](https://www.youtube.com/watch?v=VD4wB8t6Mp4)
+- [Chanthu Kudanjoru | Chaanthupottu | Vidyasagar | Vayalar Sarathchandra Varma |  | #SongOfTheDay](https://www.youtube.com/watch?v=ouihZSY8YAQ)
+- [മലബാർ ഫുഡ്‌സ്  ഇനി വീനസ്റ്  എന്നറിയപ്പെടും !](https://www.youtube.com/watch?v=_MvpQrZPbf8)
 - [Shararanthal Thiri Thanu - Sleep Lofi | Kayalum Kayarum | K.V. Mahadevan | K.J. Yesudas |Chris Wayne](https://www.youtube.com/watch?v=svweHxP8Sr0)
 - [ജീവന്റെ അപ്പം   | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=n_ZHav2rKwk)
-- [Maane Video Song | Ayal Kadha Ezhuthukayanu | K. J. Yesudas | Mohanlal | Nandini #shorts](https://www.youtube.com/watch?v=azNcjMAWd5w)
-- [ജീവിതക്കുരിശുകൾ ചുമക്കാൻ ശക്തിയേകും ക്രിസ്തീയ ഗാനങ്ങൾ |Easter Special Songs |Kester |Joji Johns](https://www.youtube.com/watch?v=vtyP2JM88sw)
-- [Urangum Munpu Daiva Sannidhiyil # Night Prayer and Worship # Rathri Japam 18th of March 2024](https://www.youtube.com/watch?v=gz1oxrpKU9Q)
-- [Stylish and elegant!✨ #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=6hXb6n_R7pY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
