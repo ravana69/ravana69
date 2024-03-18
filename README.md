@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Morning Prayer 19th of March # Athiravile Prarthana 19th March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=yPoXfCrlAEE)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=yy7YTNQHm1Y)
 - [Aathi Vadayile | Sindhu Nathi Poo | Soundaryan | K.J.Yesudas & Asha Latha | Hi-Res Audio](https://www.youtube.com/watch?v=O4-kcrSRVo0)
 - [Mathavinodulla Samprakshana Prarthana The Immaculate Heart of Mother Mary Prayer 19th March 24](https://www.youtube.com/watch?v=FgJoHVnrJYA)
 - [18 March 2024](https://www.youtube.com/watch?v=8YjAO7qLVd8)
 - [Thathum Thathakal | Kadha | Prithviraj | Kavya Madhavan | Ouseppachan | Asha.G.Menon](https://www.youtube.com/watch?v=FkLnQ6et2oQ)
-- [Katturumbinu Kalyanam Video Song | KJ Yesudas | KS Chithra | Berny Ignatius| Priyam #shorts](https://www.youtube.com/watch?v=VD4wB8t6Mp4)
-- [Chanthu Kudanjoru | Chaanthupottu | Vidyasagar | Vayalar Sarathchandra Varma |  | #SongOfTheDay](https://www.youtube.com/watch?v=ouihZSY8YAQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
