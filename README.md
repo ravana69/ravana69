@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ജീവന്റെ അപ്പം   | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=n_ZHav2rKwk)
+- [Maane Video Song | Ayal Kadha Ezhuthukayanu | K. J. Yesudas | Mohanlal | Nandini #shorts](https://www.youtube.com/watch?v=azNcjMAWd5w)
+- [ജീവിതക്കുരിശുകൾ ചുമക്കാൻ ശക്തിയേകും ക്രിസ്തീയ ഗാനങ്ങൾ |Easter Special Songs |Kester |Joji Johns](https://www.youtube.com/watch?v=vtyP2JM88sw)
+- [Urangum Munpu Daiva Sannidhiyil # Night Prayer and Worship # Rathri Japam 18th of March 2024](https://www.youtube.com/watch?v=gz1oxrpKU9Q)
 - [Stylish and elegant!✨ #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=6hXb6n_R7pY)
 - [Pookkunnitha Mulla Video Song | Vajram | Mammootty | P Jayachandran | Ouseppachan | Kumaranasan](https://www.youtube.com/watch?v=ii_2cbJbqMA)
-- [JayaJaya JayaJaya Kristhurajane | നോമ്പുകാല ഗാനങ്ങൾ  | Christian Devotional Songs| Audio Jukebox](https://www.youtube.com/watch?v=V_C2OQM2KDI)
-- [Kanakanilave | Kauravar | Malayalam Super Hit Song | Mammootty | Anju - SP Venkitesh Hits](https://www.youtube.com/watch?v=yJBzAc3WwGU)
-- [Velli Nila Thullikalo | Varnapakittu | Mohanlal | Meena | Gireesh Puthenchery | Vidyasagar](https://www.youtube.com/watch?v=mTRCaHBv2wY)
-- [Kathirola Thumbi  | Mayaponman | Mohan Sithara | S Ramesan Nair | MG Sreekumar | KS Chithra](https://www.youtube.com/watch?v=UQoOTnSkyyE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
