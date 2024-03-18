@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [JayaJaya JayaJaya Kristhurajane | നോമ്പുകാല ഗാനങ്ങൾ  | Christian Devotional Songs| Audio Jukebox](https://www.youtube.com/watch?v=V_C2OQM2KDI)
+- [Kanakanilave | Kauravar | Malayalam Super Hit Song | Mammootty | Anju - SP Venkitesh Hits](https://www.youtube.com/watch?v=yJBzAc3WwGU)
+- [Velli Nila Thullikalo | Varnapakittu | Mohanlal | Meena | Gireesh Puthenchery | Vidyasagar](https://www.youtube.com/watch?v=mTRCaHBv2wY)
+- [Kathirola Thumbi  | Mayaponman | Mohan Sithara | S Ramesan Nair | MG Sreekumar | KS Chithra](https://www.youtube.com/watch?v=UQoOTnSkyyE)
+- [വി. യൗസേപ്പ്  പിതാവിന്റെ മരണ തിരുനാൾ | Fr. Shaji Thumpechirayil](https://www.youtube.com/watch?v=4OY9sMacVvA)
 - [Omane | Boy Friend | Malayalam Lullaby Film Songs #sujatha #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=5SUHQOm82eA)
-- [கொரில்லா - யாரடியோ தமிழ் பாடல் வரிகள்](https://www.youtube.com/watch?v=0-vnFFl4fZk)
-- [கோலி சோடா - ஆல் யுவர் ட்யூடி தமிழ் பாடல் வரிகள்](https://www.youtube.com/watch?v=07D7ihWt5-s)
-- [Chattakkari  | Evergreen Movie Songs Video Jukebox | Shreya Ghoshal | M Jayachandran | Shamna Kasim](https://www.youtube.com/watch?v=1KNllWt6SmQ)
-- [Sheela Old Malayalam Movie Songs | Aaradimanninte Janmi Remastered Malayalam Songs | S. Janaki](https://www.youtube.com/watch?v=bu_GEaeZYqY)
-- [Cape Town | Nalla Thozhan | Naveen Madhav | Dileep Babu | Sivaraj | Dileep Kumar | Latest Film Songs](https://www.youtube.com/watch?v=mdehgE7ZqMQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
