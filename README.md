@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Omane | Boy Friend | Malayalam Lullaby Film Songs #sujatha #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=5SUHQOm82eA)
+- [கொரில்லா - யாரடியோ தமிழ் பாடல் வரிகள்](https://www.youtube.com/watch?v=0-vnFFl4fZk)
+- [கோலி சோடா - ஆல் யுவர் ட்யூடி தமிழ் பாடல் வரிகள்](https://www.youtube.com/watch?v=07D7ihWt5-s)
 - [Chattakkari  | Evergreen Movie Songs Video Jukebox | Shreya Ghoshal | M Jayachandran | Shamna Kasim](https://www.youtube.com/watch?v=1KNllWt6SmQ)
 - [Sheela Old Malayalam Movie Songs | Aaradimanninte Janmi Remastered Malayalam Songs | S. Janaki](https://www.youtube.com/watch?v=bu_GEaeZYqY)
 - [Cape Town | Nalla Thozhan | Naveen Madhav | Dileep Babu | Sivaraj | Dileep Kumar | Latest Film Songs](https://www.youtube.com/watch?v=mdehgE7ZqMQ)
-- [Raavirulin Vazhiyoram Video Song | Achan Kombathu Amma Varampathu | Malayalam Movie Songs](https://www.youtube.com/watch?v=dXUPow5SlmI)
-- [Japamala 18th of March 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 18th of March 24](https://www.youtube.com/watch?v=ZcHK191mnhI)
-- [ഇന്ന്  മാർച്ച്  18#എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#ജപമാല #japamala](https://www.youtube.com/watch?v=-9bNhXAs3-Q)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
