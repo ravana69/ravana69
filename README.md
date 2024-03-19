@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aaro Viral Neetti Video Song | Pranayavarnangal | Vidyasagar | Gireesh Puthenchery | KJ Yesudas](https://www.youtube.com/watch?v=Prtyqn2Bybs)
 - [Enente Chankile | Video | Red Salute | Kalabhavan Mani | Satheesh Varma | Alex Paul | Vinod Vinayan](https://www.youtube.com/watch?v=vkKs_0iTLoM)
 - [ബിരിയാണി പുറത്തു നിന്ന് വന്ന വിഭവമാണ് !](https://www.youtube.com/watch?v=1cDMimb5GjI)
 - [Bandra - Video Jukebox | Dileep, Tamannaah | Sam C.S | Shankar Mahadevan, Nakshathra](https://www.youtube.com/watch?v=_2IqVXTrDTA)
 - [Ilammanjin Kulirumay | Ninnishtam Ennishtam | Mohanlal | Priya | Yesudas | Kannur Rajan](https://www.youtube.com/watch?v=Q-bfBtaAx08)
 - [Madhu Old Malayalam Movie Songs | Bheekara Nimishangal Remastered Malayalam Songs | L. R. Eeswari](https://www.youtube.com/watch?v=hFSdwq24LkI)
-- [Ellam Daivam Tharunnathalle | Chithra Arun #shortsvideo  #christiansongsmalayalamdevotional](https://www.youtube.com/watch?v=6fQlVL9BxII)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
