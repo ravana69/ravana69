@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Manatharilennum | Kaliyil Alpam Karyam | Raveendran Master | Sathyan Anthikkad | KJ Yesudas](https://www.youtube.com/watch?v=N0oyAC-W--4)
-- [കേട്ട് കേട്ട് ഇനിയും കൊതി തീരാത്ത മലയാളസിനിമയിലെ തരളിതഗാനങ്ങൾ ! FAVOURITE SONGS MALAYALAM](https://www.youtube.com/watch?v=ja76cTf6jBQ)
-- [Kazhchayekam Kasayil | നോമ്പുകാല ഗാനങ്ങൾ | ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Christian Devotional Songs|](https://www.youtube.com/watch?v=E61brhIWsrQ)
-- [Aaro Viral Neetti Video Song | Pranayavarnangal | Vidyasagar | Gireesh Puthenchery | KJ Yesudas](https://www.youtube.com/watch?v=Prtyqn2Bybs)
-- [Enente Chankile | Video | Red Salute | Kalabhavan Mani | Satheesh Varma | Alex Paul | Vinod Vinayan](https://www.youtube.com/watch?v=vkKs_0iTLoM)
-- [ബിരിയാണി പുറത്തു നിന്ന് വന്ന വിഭവമാണ് !](https://www.youtube.com/watch?v=1cDMimb5GjI)
+- [Chiriyo Chiri | Action Hero Biju | Vineeth Sreenivasan | Vaikom Vijayalakshmi | Jerry Amal Dev](https://www.youtube.com/watch?v=hdMxWf3Zrms)
+- [ക്രൂശിലൂടെ നമ്മെ മാറോടണച്ച നിത്യ സ്നേഹം  | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=JinYSTm0XGc)
+- [Karukaruppinte Video Song | Kuruvi Paapa |Joshy John | Yunuseo | Sayanora | Vineeth | Muktha](https://www.youtube.com/watch?v=KrIkBeWEMs8)
+- [Onnam Kombathe | Karaoke with Lyrics | Ottamandaram | Shweta Mohan | Vinod Mankara | Ramesh Narayan](https://www.youtube.com/watch?v=diMbvHSVyY4)
+- [Nee vaada themmadi Video Song | Rasikan | Vidhu Prathap | Vidyasagar | Dileep | Abi](https://www.youtube.com/watch?v=1RUqnIpGs-I)
+- [Dayana Dayana |  Mollywood DJ Party Hits #dileep #gopisundar #shankarmahadevan #shortsfeed #shorts](https://www.youtube.com/watch?v=h_VW0TGQqdc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
