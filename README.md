@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oru Kili Pattu Moolave | Vadakkumnathan | Mohanlal | Padmapriya | Raveendran | Gireesh Puthanchery](https://www.youtube.com/watch?v=DTxjA-gDsWA)
 - [Paikkurumbiye Meykkum | Gramophone | Vidyasagar | Sujatha Mohan | Balram #SongOfTheDay](https://www.youtube.com/watch?v=ixCFLrtGOvg)
 - [Palavattam Pookkalam Video Song | Mohanlal | KJ Yesudas | MG Radhakrishnan | Madhu Muttom | Fazil](https://www.youtube.com/watch?v=MkaeUOTRQ7I)
 - [Padicha Pulla - Poongaatre Ithu Lyric | Arjun, Seetha | Ilaiyaraaja](https://www.youtube.com/watch?v=rPViGxvABe4)
 - [Ilaiyaraaja, K.J. Yesudas, K.S. Chithra - Maalaigal Idam (Lyric Video)](https://www.youtube.com/watch?v=ajXtHpJlPTE)
 - [Ilaiyaraaja, S.P. Balasubrahmanyam, K.S. Chithra - Pallaviye Charanam (Lyric Video)](https://www.youtube.com/watch?v=-hOtv73LaEU)
-- [Ilaiyaraaja, S.P. Balasubrahmanyam, S. Janaki - Vaanin Devi (Lyric Video)](https://www.youtube.com/watch?v=eJI6OgZXnKI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
