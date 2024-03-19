@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Morning Prayer 20th of March # Athiravile Prarthana 20th March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=gTvoAQ74Z_o)
+- [Malkosinte Gadhgathangal Day 38](https://www.youtube.com/watch?v=jheb0gFOujs)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=KkkIvzoEirE)
 - [Mathavinodulla Samprakshana Prarthana The Immaculate Heart of Mother Mary Prayer 20th March 24](https://www.youtube.com/watch?v=ol5a4eptoPI)
 - [Oru Kili Pattu Moolave | Vadakkumnathan | Mohanlal | Padmapriya | Raveendran | Gireesh Puthanchery](https://www.youtube.com/watch?v=DTxjA-gDsWA)
 - [Yaahe Neeyen Daivam | Libin Scaria #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=tmFOzYsWuhA)
-- [Paikkurumbiye Meykkum | Gramophone | Vidyasagar | Sujatha Mohan | Balram #SongOfTheDay](https://www.youtube.com/watch?v=ixCFLrtGOvg)
-- [Palavattam Pookkalam Video Song | Mohanlal | KJ Yesudas | MG Radhakrishnan | Madhu Muttom | Fazil](https://www.youtube.com/watch?v=MkaeUOTRQ7I)
-- [Padicha Pulla - Poongaatre Ithu Lyric | Arjun, Seetha | Ilaiyaraaja](https://www.youtube.com/watch?v=rPViGxvABe4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
