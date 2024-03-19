@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [HITS OF MANOJ KRISHNAN/CHRISTIAN DEVOTIONAL SONGS/OWN MEDIA MUSIC COLLECTION/](https://www.youtube.com/watch?v=xoePs0NTsXs)
+- [Your story is better than the original!✨ #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=Doqnvq40mjQ)
 - [Chiriyo Chiri | Action Hero Biju | Vineeth Sreenivasan | Vaikom Vijayalakshmi | Jerry Amal Dev](https://www.youtube.com/watch?v=hdMxWf3Zrms)
 - [ക്രൂശിലൂടെ നമ്മെ മാറോടണച്ച നിത്യ സ്നേഹം  | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=JinYSTm0XGc)
 - [Karukaruppinte Video Song | Kuruvi Paapa |Joshy John | Yunuseo | Sayanora | Vineeth | Muktha](https://www.youtube.com/watch?v=KrIkBeWEMs8)
 - [Onnam Kombathe | Karaoke with Lyrics | Ottamandaram | Shweta Mohan | Vinod Mankara | Ramesh Narayan](https://www.youtube.com/watch?v=diMbvHSVyY4)
-- [Nee vaada themmadi Video Song | Rasikan | Vidhu Prathap | Vidyasagar | Dileep | Abi](https://www.youtube.com/watch?v=1RUqnIpGs-I)
-- [Dayana Dayana |  Mollywood DJ Party Hits #dileep #gopisundar #shankarmahadevan #shortsfeed #shorts](https://www.youtube.com/watch?v=h_VW0TGQqdc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
