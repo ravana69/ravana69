@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [OSANA SONG | OLIVEENTHAL | ROY PUTHUR | SREYA ANNA JOSEPH #greatlent #osana](https://www.youtube.com/watch?v=lHuw09Tb2SQ)
+- [Malamakkal | Folk Song Cover | Kalleli Apooppan | Sajid Thentral | Prem C Prathap  | Band KAAVA](https://www.youtube.com/watch?v=sceqzSe5qWE)
 - [Kannadi Koodum Kootti | Pranayavarnangal | Vidyasagar | Gireesh Puthenchery | KJ Yesudas| KS Chithra](https://www.youtube.com/watch?v=YC3ujn41g-I)
 - [M.G.Soman Old Malayalam Movie Songs | Aval Viswasthayayirunnu Remastered Malayalam Songs | Ambili](https://www.youtube.com/watch?v=bucuM7W4yys)
 - [Sharadindu Malardeepa - Rendition | Ulkadal | M.B. Sreenivasan | P.Jayachandran, Chitra Narayan](https://www.youtube.com/watch?v=qMDwMF6k-NY)
 - [Janmandarangalil | Award Winning Film Songs #karthik #shortsfeed #shortsvideo #unnimukundan #shorts](https://www.youtube.com/watch?v=CBzWARoiXZg)
-- [Pinneyum Ninnile | Oneway Ticket #shortsvideo #manoramamusic](https://www.youtube.com/watch?v=ie_Banyu4ek)
-- [Japamala 20th of March 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 20th of March 24](https://www.youtube.com/watch?v=xk2sCo2tJ6M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
