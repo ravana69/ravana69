@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [OSANA SONG | OLIVEENTHAL | ROY PUTHUR | SREYA ANNA JOSEPH #greatlent #osana](https://www.youtube.com/watch?v=lHuw09Tb2SQ)
-- [Malamakkal | Folk Song Cover | Kalleli Apooppan | Sajid Thentral | Prem C Prathap  | Band KAAVA](https://www.youtube.com/watch?v=sceqzSe5qWE)
-- [Kannadi Koodum Kootti | Pranayavarnangal | Vidyasagar | Gireesh Puthenchery | KJ Yesudas| KS Chithra](https://www.youtube.com/watch?v=YC3ujn41g-I)
-- [M.G.Soman Old Malayalam Movie Songs | Aval Viswasthayayirunnu Remastered Malayalam Songs | Ambili](https://www.youtube.com/watch?v=bucuM7W4yys)
-- [Sharadindu Malardeepa - Rendition | Ulkadal | M.B. Sreenivasan | P.Jayachandran, Chitra Narayan](https://www.youtube.com/watch?v=qMDwMF6k-NY)
-- [Janmandarangalil | Award Winning Film Songs #karthik #shortsfeed #shortsvideo #unnimukundan #shorts](https://www.youtube.com/watch?v=CBzWARoiXZg)
+- [En Jeevan Paaduthu - Aan Pillai Enraal Meesai Lyric | Karthik, Saranya | Ilaiyaraaja](https://www.youtube.com/watch?v=q19cidW3TO8)
+- [En Jeevan Paaduthu - Katti Vechukko Lyric | Karthik, Saranya | Ilaiyaraaja](https://www.youtube.com/watch?v=fbSqQuT_29A)
+- [En Jeevan Paaduthu - Engirundho Azhaikkum Lyric | Karthik, Saranya | Ilaiyaraaja](https://www.youtube.com/watch?v=iQerBFlt9aQ)
+- [En Jeevan Paaduthu - Kaadhal Vaanile Lyric | Karthik, Saranya | Ilaiyaraaja](https://www.youtube.com/watch?v=O73Ok697Yq0)
+- [Karimedu Karuvaayan - Aha Silukku Thavani Lyric | Vijayakanth, Nalini | Ilaiyaraaja](https://www.youtube.com/watch?v=hfTtYTwUZyw)
+- [December Pookal - Nooraandu Kaalam Lyric | Mohan, Revathi | Ilaiyaraaja](https://www.youtube.com/watch?v=jj7VpTuZA8A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
