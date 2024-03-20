@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [ഡിജിറ്റൽ മാർക്കറ്റിങ്ലേക്ക് പോവാതെ ഇപ്പഴും പത്രം വായിക്കുന്നവരുണ്ട് | #shorts #digitalmarketing](https://www.youtube.com/watch?v=_86pbZFkLbA)
-- [Sreeraagamo Thedunnu | onv kurup | K J Yesudas | Mohanlal | Shobana - Pavithram #songoftheday](https://www.youtube.com/watch?v=g2C1TZ0XV7o)
-- [Thamarapoovil Vazhum Video Song | Gireesh Puthenchery | Berny Ignatius | MG Sreekumar | Chandralekha](https://www.youtube.com/watch?v=VFqLzU2b7kQ)
-- [20 March 2024](https://www.youtube.com/watch?v=6D9pmmHc3xw)
-- [Unnai Ninaikave | Jay Jay | Bharadwaj | Reshmi | Hi-Res Audio](https://www.youtube.com/watch?v=UL8DVgjJfWw)
-- [Papathin Vazhiye.#holycommunionsongs #annababy #jojijohns #christianvideosongs](https://www.youtube.com/watch?v=ARdoRO_ddWg)
+- [Morning Prayer 21st of March # Athiravile Prarthana 21st March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=jCzB1Jt5Q9w)
+- [Malkosinte Gadhgathangal Day 39](https://www.youtube.com/watch?v=SQa9h2Aknhg)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=ymCZ4LIE8TE)
+- [Vaanaththil Irunthu | Vellaiya Thevan | Ilaiyaraaja | Arunmozhi & Uma Ramanan | Hi-Res Audio](https://www.youtube.com/watch?v=-QTpdwYvlmU)
+- [എത്ര കേട്ടാലും മടുക്കാത്ത പാട്ടുകൾ  |മലയാളചലച്ചിത്രഗാനങ്ങൾ | കെ ജെ യേശുദാസ് | Remastered Movie songs](https://www.youtube.com/watch?v=Y76zzm5UKdg)
+- [Mathavinodulla Samprakshana Prarthana The Immaculate Heart of Mother Mary Prayer 21st March 24](https://www.youtube.com/watch?v=AVN7b_5l_pI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
