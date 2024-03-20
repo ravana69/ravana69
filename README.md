@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Oh Snehame | Christian Video Song | Anna Baby | Stephy John | Joji Johns | Holy Communion Song](https://www.youtube.com/watch?v=HT9jXMdPIps)
-- [പൂവിളി പൂവിളി പൊന്നോണമായി  #malayalamsongs #nazeer #evergreenhits #oldsongs](https://www.youtube.com/watch?v=aLFhJSKv5g8)
-- [Watch Neeye Uyire - Happy New Year | Music #sainamusic #shorts](https://www.youtube.com/watch?v=ysjwD9RFGz0)
-- [Pranayam Vilambum | Karimbana | Jayan |Seema | Evergreen Malayalam Film Songs | K J Yesudas](https://www.youtube.com/watch?v=MGBlagJWeyI)
-- [Ramayana Katte | Abhimanyu  | Mohanlal | Geetha | Raveendran | Kaithapram | K.S. Chithra](https://www.youtube.com/watch?v=5YwY7I4ruaE)
-- [Marikulirin  | Kauravar | Kaithapram | SP Venkitesh | Yesudas |  Chithra | Evergreen Songs](https://www.youtube.com/watch?v=0gJUnh3WcgE)
+- [മറ്റാരെക്കാലും അവനറിയാം നിന്റെ വേദനയുടെ ആഴം   | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=y5e7vLIKals)
+- [En Nadhane....#jojijohns #divyakarunyageetham #annababy #christianvideosong #stephyjohn](https://www.youtube.com/watch?v=iQjJ4x2ox4M)
+- [Kanmani Kunjinu | Chennai Koottam | KS Chithra | Sajan K Ram | Manoj Manayil](https://www.youtube.com/watch?v=R61I8t6lmxI)
+- [Kuppivala Video Song | Ayal Kadha Ezhuthukayanu | M. G. Sreekumar | Sujatha Mohan | Mohanlal #shorts](https://www.youtube.com/watch?v=lLCK5fYjde0)
+- [ARADHICHEEDUM NJAN ENNIL | PONPANI | LIBIN ZACHARIA | Fr. JOJO THALIKASTHANAM CMI | SIBYCHEN IRITTY](https://www.youtube.com/watch?v=l8FUR8fp1oY)
+- [Nanmakal Kaividathe Jeevikkam | നോമ്പുകാല ഗാനങ്ങൾ | Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=jklarBZzS_U)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
