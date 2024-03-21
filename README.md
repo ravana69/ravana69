@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നൊമ്പരമുണർത്തിയ ഈസ്റ്റർ ഗാനങ്ങൾ | Valiya Nombu Geethangal | Kester | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=M_bASutQHrY)
+- [രാവിലെ കേൾക്കാൻ ഏറ്റവും നല്ല ഗാനങ്ങൾ daily worship songs | christian devotional songs malayalam](https://www.youtube.com/watch?v=LXFV3MpMQho)
+- [ഇന്ന് മാർച്ച്  21 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  prakash](https://www.youtube.com/watch?v=VXO3xw3mZTU)
+- [Japamala 21st of March 2024 # Mathavinte Japamala Prakashathinte Rahasyangal 21st of March 24](https://www.youtube.com/watch?v=6vuwLpCaLHc)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=o8OilBG7Fv4)
 - [Morning Prayer 21st of March # Athiravile Prarthana 21st March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=jCzB1Jt5Q9w)
-- [Malkosinte Gadhgathangal Day 39](https://www.youtube.com/watch?v=SQa9h2Aknhg)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=ymCZ4LIE8TE)
-- [Vaanaththil Irunthu | Vellaiya Thevan | Ilaiyaraaja | Arunmozhi & Uma Ramanan | Hi-Res Audio](https://www.youtube.com/watch?v=-QTpdwYvlmU)
-- [എത്ര കേട്ടാലും മടുക്കാത്ത പാട്ടുകൾ  |മലയാളചലച്ചിത്രഗാനങ്ങൾ | കെ ജെ യേശുദാസ് | Remastered Movie songs](https://www.youtube.com/watch?v=Y76zzm5UKdg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
