@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vaanchikkunne Neril Kaanan | Maria Kolady #shortsvideo #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=Cf-pP7RThUc)
+- [Nira Thinkale | My Big Father #shortsvideo  #manoramamusic](https://www.youtube.com/watch?v=MbiP_I1L-88)
 - [നൊമ്പരമുണർത്തിയ ഈസ്റ്റർ ഗാനങ്ങൾ | Valiya Nombu Geethangal | Kester | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=M_bASutQHrY)
 - [രാവിലെ കേൾക്കാൻ ഏറ്റവും നല്ല ഗാനങ്ങൾ daily worship songs | christian devotional songs malayalam](https://www.youtube.com/watch?v=LXFV3MpMQho)
 - [ഇന്ന് മാർച്ച്  21 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  prakash](https://www.youtube.com/watch?v=VXO3xw3mZTU)
 - [Japamala 21st of March 2024 # Mathavinte Japamala Prakashathinte Rahasyangal 21st of March 24](https://www.youtube.com/watch?v=6vuwLpCaLHc)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=o8OilBG7Fv4)
-- [Morning Prayer 21st of March # Athiravile Prarthana 21st March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=jCzB1Jt5Q9w)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
