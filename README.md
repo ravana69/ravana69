@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thalathil Vellameduthu with Lyrics | Pesaha - Maundy Thursday | #shorts | Fr Abel CMI](https://www.youtube.com/watch?v=Rfti75Edi-Y)
+- [ഹൃദയം കീഴടക്കും  നിത്യഹരിത ഗാനങ്ങൾ  80s 90s Evergreen Malayalam Hits Vol 2](https://www.youtube.com/watch?v=gRjemS_IEVE)
 - [Aanandam Paramanandam Ente Kudumbam ( Pathos) | Pulliman | Sharreth | Vijesh](https://www.youtube.com/watch?v=PEv3YL5gf4w)
 - [Nakshathram Minnunna | HD Video | Mimics Parade | Johnson | Unni Menon](https://www.youtube.com/watch?v=dtn5qPb8uSw)
 - [പരിസരം മറന്നു പോകും ഈ ഗാനങ്ങൾ കേട്ടാൽ!!! | Super Hit Malayalam Movie Songs | Video Jukebox](https://www.youtube.com/watch?v=Eq9UkGn_2MM)
 - [ആ ഹൃദയത്തിൽ എനിക്കും ഒരു ഇടമുണ്ട്  | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=CCKKjh2tf08)
-- [Raakk - Video Song | Malaikottai Vaaliban | Mohanlal | Lijo Jose Pellissery | Prashant Pillai](https://www.youtube.com/watch?v=lQOtMGgE7wA)
-- [Shyaamadharaniyil Video Song | Sanchari | KJ Yesudas | Yusufali Kecheri](https://www.youtube.com/watch?v=3ooR-Pgo-Hw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
