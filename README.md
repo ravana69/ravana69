@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Varamanjaladiya Ravinte(Duet) | Pranayavarnangal | Biju Menon | Manju Warrier | Sujatha | Vidyasagar](https://www.youtube.com/watch?v=SFjEZdQZqdU)
-- [ചെറുകിട വ്യവസായം തുടങ്ങുന്നവരോട് പറയാനുള്ളത്  Mujeeb Rahman |  Kemi Veneers](https://www.youtube.com/watch?v=csPWsjrs6ag)
-- [എത്ര വലിയ തിരക്കുകൾക്കിടയിലും മനസ്സ് ശാന്തമാക്കുന്ന മറക്കാനാവാത്ത മെലഡി ഗാനങ്ങൾ ! MELODY SONGS](https://www.youtube.com/watch?v=bFKfpky0pEY)
-- [Aathmavin Priyanadhanaradhana | നോമ്പുകാല ഗാനങ്ങൾ | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=Cpe0--Ql84k)
-- [Omane Thankame Video Song | Mizhi Randilum | Dileep | Kavya | KJ Yesudas | Sujatha Mohan| Raveendran](https://www.youtube.com/watch?v=1Quz7_jUX_s)
-- [Kavidhai Paadum Alaigal - Unnaikaanamal Lyric | Rajmohan, Janani | Ilaiyaraaja](https://www.youtube.com/watch?v=SH5B8jrsM5g)
+- [Aanandam Paramanandam Ente Kudumbam ( Pathos) | Pulliman | Sharreth | Vijesh](https://www.youtube.com/watch?v=PEv3YL5gf4w)
+- [Nakshathram Minnunna | HD Video | Mimics Parade | Johnson | Unni Menon](https://www.youtube.com/watch?v=dtn5qPb8uSw)
+- [പരിസരം മറന്നു പോകും ഈ ഗാനങ്ങൾ കേട്ടാൽ!!! | Super Hit Malayalam Movie Songs | Video Jukebox](https://www.youtube.com/watch?v=Eq9UkGn_2MM)
+- [ആ ഹൃദയത്തിൽ എനിക്കും ഒരു ഇടമുണ്ട്  | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=CCKKjh2tf08)
+- [Raakk - Video Song | Malaikottai Vaaliban | Mohanlal | Lijo Jose Pellissery | Prashant Pillai](https://www.youtube.com/watch?v=lQOtMGgE7wA)
+- [Shyaamadharaniyil Video Song | Sanchari | KJ Yesudas | Yusufali Kecheri](https://www.youtube.com/watch?v=3ooR-Pgo-Hw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
