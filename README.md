@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Sthothrageethathin Rathri (Pesaha) | #shorts | #frshajithumpechirayil | Biju Narayanan](https://www.youtube.com/watch?v=TF6vByXyKdk)
-- [YERSUHSHALEMILE | OSANA SONG | PALM SUNDAY SONG | ROY PUTHUR | SREYA JOSEPH | #royputhur #greatlent](https://www.youtube.com/watch?v=BFc-kF9jCFU)
-- [Ennum Nenjile Gaanangal | Jukebox | Evergreen Songs by Gireesh Puthenchery | Malayalam Film Songs](https://www.youtube.com/watch?v=xxCan8OMXps)
-- [Njan Varunnu Kroosinkal Karaoke | Christian Songs Karaoke | Karaoke with Lyrics Video](https://www.youtube.com/watch?v=TiCwIk_qSQ0)
-- [Jayabharathi Old Malayalam Movie Songs | Aarum Anyaralla Remastered Malayalam Songs | Vani Jairam](https://www.youtube.com/watch?v=vGXxKA2bK_g)
-- [Unarunaroo Janma | Innalekalillathe | Biju Menon | Manju Warrier | Chithra | Sreevidya](https://www.youtube.com/watch?v=q-UZRpSrlQc)
+- [Kavidhai Paadum Alaigal - Unnaikaanamal Lyric | Rajmohan, Janani | Ilaiyaraaja](https://www.youtube.com/watch?v=SH5B8jrsM5g)
+- [Kavidhai Paadum Alaigal - Kanne En Lyric | Rajmohan, Janani | Ilaiyaraaja](https://www.youtube.com/watch?v=vLBv5nx9Or0)
+- [Kavidhai Paadum Alaigal - Saamiya Vendikkittu Lyric | Rajmohan, Janani | Ilaiyaraaja](https://www.youtube.com/watch?v=tOKMREmtZnU)
+- [Kavidhai Paadum Alaigal - Kaatrum Poovum Lyric | Rajmohan, Janani | Ilaiyaraaja](https://www.youtube.com/watch?v=rgILaBYG_Tc)
+- [Karimedu Karuvaayan - Othaiyila Kanni Ponnu Lyric | Vijayakanth, Nalini | Ilaiyaraaja](https://www.youtube.com/watch?v=lQ__F3z8T7g)
+- [Karimedu Karuvaayan - Thakkali Pazhampola Lyric | Vijayakanth, Nalini | Ilaiyaraaja](https://www.youtube.com/watch?v=L7I7eIvkoTY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
