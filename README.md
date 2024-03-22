@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=NYPy2eTJn7A)
 - [നിങ്ങൾ കേട്ടുപഴകിയ തൊണ്ണൂറുകളിലെ ഗാനങ്ങൾ |Melodies of 90's | മലയാളചലച്ചിത്രഗാനങ്ങൾ | കെ ജെ യേശുദാസ്](https://www.youtube.com/watch?v=aIbui3aBfBA)
 - [Morning Prayer 23rd of March # Athiravile Prarthana 23rd March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=twhjhSyPvOk)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=oSB_Zqe9-SI)
 - [Mathavinodulla Samprakshana Prarthana The Immaculate Heart of Mother Mary Prayer 23rd March 24](https://www.youtube.com/watch?v=WDaYzEevS5I)
 - [PESAHA | RAHASYAM RAHASYAM.| ROY PUTHUR | MITHILA | Maundy Thursday SONG | #greatlent](https://www.youtube.com/watch?v=SzbkctIdFTo)
-- [Banger from across the world!✨ #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=EsXG_cgOoQw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
