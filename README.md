@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nalla Muthassiyamma |Oru Muthassikkadha | Vineeth | Nirosha |Ouseppachan MG Sreekumar|Sujatha Mohan](https://www.youtube.com/watch?v=5Jdlz8J6nZE)
+- [Mazhavil Kodiyil | Aniyan Bava Chettan Bava | Jayaram | SP Venkitesh | Biju Narayanan | K.S Chithra](https://www.youtube.com/watch?v=fVD2Az9GrSI)
+- [Ragardramayi | Thirakkil Alpa Samayam | Chunakkara | Shyam | KJ Yesudas | Malayalam Movie Songs](https://www.youtube.com/watch?v=WTq2NHWaGVY)
 - [Ilaiyaraaja, S. Janaki - Kannukkulle (Lyric Video)](https://www.youtube.com/watch?v=xqhaS85xScY)
 - [Ilaiyaraaja, S.P. Balasubrahmanyam, K.S. Chithra - Neruppu Neruppu (Lyric Video)](https://www.youtube.com/watch?v=ontp5E4EDfo)
 - [Vettaveli Pottalila Lyric | Vijayakanth, Nalini, Viji | Ilaiyaraaja](https://www.youtube.com/watch?v=t9_Lx0nZy2w)
-- [Nalla Naal - Othaiyila Penngudhirai Lyric | Vijayakanth, Nalini, Viji | Ilaiyaraaja](https://www.youtube.com/watch?v=ynmkiHJF960)
-- [Ilaiyaraaja, P. Susheela - Aaraaro Paada (Female) (Lyric Video)](https://www.youtube.com/watch?v=hRrZ7c2sZN4)
-- [Ilaiyaraaja, K.J. Yesudas - Ellam Theriyum (Lyric Video)](https://www.youtube.com/watch?v=wvTZDu59Wio)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
