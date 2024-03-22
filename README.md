@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Mausam | Innu Muthal #shortsvideo  #manoramamusic](https://www.youtube.com/watch?v=mYYJrybuSOU)
-- [Japamala 22nd of March 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 22nd of March 24](https://www.youtube.com/watch?v=vcNuOBrndYw)
-- [ഇന്ന് മാർച്ച്  22 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala dhukkat](https://www.youtube.com/watch?v=RMmmrXAAO3E)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=NjWzqeHuyCA)
-- [Morning Prayer 22nd of March # Athiravile Prarthana 22nd March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=YRcc5l4Pq_Q)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=dqbNWcQGQtQ)
+- [Ilaiyaraaja, S. Janaki - Kannukkulle (Lyric Video)](https://www.youtube.com/watch?v=xqhaS85xScY)
+- [Ilaiyaraaja, S.P. Balasubrahmanyam, K.S. Chithra - Neruppu Neruppu (Lyric Video)](https://www.youtube.com/watch?v=ontp5E4EDfo)
+- [Vettaveli Pottalila Lyric | Vijayakanth, Nalini, Viji | Ilaiyaraaja](https://www.youtube.com/watch?v=t9_Lx0nZy2w)
+- [Nalla Naal - Othaiyila Penngudhirai Lyric | Vijayakanth, Nalini, Viji | Ilaiyaraaja](https://www.youtube.com/watch?v=ynmkiHJF960)
+- [Ilaiyaraaja, P. Susheela - Aaraaro Paada (Female) (Lyric Video)](https://www.youtube.com/watch?v=hRrZ7c2sZN4)
+- [Ilaiyaraaja, K.J. Yesudas - Ellam Theriyum (Lyric Video)](https://www.youtube.com/watch?v=wvTZDu59Wio)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
