@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Songs Of The Week | Kester | Christian Melody Songs | Holy Week Songs | Joji Johns |](https://www.youtube.com/watch?v=NqGUX6VR8G8)
 - [Kuruvi Paapa Audio Jukebox | Pradeep Tom | Joshy John | Yunuseo | Vineeth | Muktha](https://www.youtube.com/watch?v=u6_HikioXIc)
 - [Oshana Geethangal # Hosanna Ganangal # Palm Sunday Songs Malayalam 2024](https://www.youtube.com/watch?v=pothB5CbsKE)
 - [Maamaramo Poomaramo Video Song | Ponni | P Madhuri |  Kamal Haasan | Lakshmi | Malayalam Movie Songs](https://www.youtube.com/watch?v=S2vonUd6jiY)
 - [നമ്മുടെ ഹൃദയനൊമ്പരമറിയുന്നവൻ  | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=LiX1iQRhCUs)
 - [Pramani | Pramani |  Anwar Sadath | M Jayachandran | Gireesh Puthenchery](https://www.youtube.com/watch?v=O6p9Qg9tzF0)
-- [Maarimazhaye Video Song | Rasikan | Karthik | Veena | Vidyasagar | Gireesh Puthenchery #shorts](https://www.youtube.com/watch?v=jGJQZUK8nrA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
