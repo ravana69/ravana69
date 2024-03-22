@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Thalarunna Manasil...#holyweeksongs #lentsongs #kester #jojijohns #christianvideosongs](https://www.youtube.com/watch?v=p85LRJFINmM)
-- [Sakraril Munnil.... #holyweeksongs #kestersongs #jojijohns #chiristian #christiandevotionalsongs](https://www.youtube.com/watch?v=IkeUM1-vLKw)
-- [𝐈𝐭𝐡𝐮 𝐍𝐢𝐧𝐠𝐚𝐥𝐨𝐝𝐮𝐥𝐥𝐚 𝐒𝐧𝐞𝐡𝐚𝐦 | #𝐬𝐡𝐨𝐫𝐭𝐬 | 𝐊𝐞𝐬𝐭𝐞𝐫 | 𝐏𝐞𝐬𝐚𝐡𝐚 𝐒𝐨𝐧𝐠 | 𝐅𝐫 𝐒𝐡𝐚𝐣𝐢 𝐓𝐡𝐮𝐦𝐩𝐞𝐜𝐡𝐢𝐫𝐚𝐲𝐢𝐥](https://www.youtube.com/watch?v=ol7W2FWjXoM)
-- [വിഷമ ഘട്ടത്തിൽ എനിക്ക് ധൈര്യം തന്നത് എന്റെ അമ്മയാണ് ! Venust Pappadam | Praveen](https://www.youtube.com/watch?v=I100S4exv8k)
-- [SNEHATHIN KOODASHAYAYI | ATHMAGURO (ആത്മഗുരോ) | Latest Pesaha Song 2024| Rohan Thomas Ayyer | Kester](https://www.youtube.com/watch?v=xHxt393MQco)
-- [Unthanin Paadal Ennai | Rakkayi Koyil | Ilaiyaraaja | Mano & Uma Ramanan | Hi-Res Audio](https://www.youtube.com/watch?v=vFc7ezL7jUo)
+- [Kuruvi Paapa Audio Jukebox | Pradeep Tom | Joshy John | Yunuseo | Vineeth | Muktha](https://www.youtube.com/watch?v=u6_HikioXIc)
+- [Oshana Geethangal # Hosanna Ganangal # Palm Sunday Songs Malayalam 2024](https://www.youtube.com/watch?v=pothB5CbsKE)
+- [Maamaramo Poomaramo Video Song | Ponni | P Madhuri |  Kamal Haasan | Lakshmi | Malayalam Movie Songs](https://www.youtube.com/watch?v=S2vonUd6jiY)
+- [നമ്മുടെ ഹൃദയനൊമ്പരമറിയുന്നവൻ  | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=LiX1iQRhCUs)
+- [Pramani | Pramani |  Anwar Sadath | M Jayachandran | Gireesh Puthenchery](https://www.youtube.com/watch?v=O6p9Qg9tzF0)
+- [Maarimazhaye Video Song | Rasikan | Karthik | Veena | Vidyasagar | Gireesh Puthenchery #shorts](https://www.youtube.com/watch?v=jGJQZUK8nrA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
