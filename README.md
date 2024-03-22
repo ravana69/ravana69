@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Japamala 22nd of March 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 22nd of March 24](https://www.youtube.com/watch?v=vcNuOBrndYw)
+- [ഇന്ന് മാർച്ച്  22 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala dhukkat](https://www.youtube.com/watch?v=RMmmrXAAO3E)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=NjWzqeHuyCA)
 - [Morning Prayer 22nd of March # Athiravile Prarthana 22nd March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=YRcc5l4Pq_Q)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=dqbNWcQGQtQ)
 - [Mathavinodulla Samprakshana Prarthana The Immaculate Heart of Mother Mary Prayer 22nd March 24](https://www.youtube.com/watch?v=RmgcfitZsFI)
-- [21 March 2024](https://www.youtube.com/watch?v=o5zgLaTWi8Q)
-- [Nettiyil Poovulla Video Song | Mammootty | Suhasini | KJ Yesudas | ONV Kurup | MB Sreenivasan](https://www.youtube.com/watch?v=27s8HZLiF30)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
