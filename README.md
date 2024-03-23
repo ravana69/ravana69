@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Allimalarkavil Video Song | Mohanlal | Urvashi | MG Sreekumar | ONV Kurup | MG Radhakrishnan](https://www.youtube.com/watch?v=zyaTtC62z50)
+- [Kai Kottu Penne| Karumaadikkuttan|Mohan Sithara|  Kalabhavan Mani  | Yusufali Kecheri #SongOfTheDay](https://www.youtube.com/watch?v=sr5XDonqDEE)
 - [23 March 2024](https://www.youtube.com/watch?v=t84YcFecV4w)
 - [മലയാളികളെ മോഹിപ്പിച്ച  എൺപതുകളിലെ സുന്ദരമെലഡി ഗാനങ്ങൾ | 80s HITS](https://www.youtube.com/watch?v=rSDyXuMHpzQ)
 - [Chellakkatin Pallitheril | HD Video | Mimics Parade | Johnson | Unni Menon | K S Chithra](https://www.youtube.com/watch?v=tJKxNGeQJss)
 - [Vinnile Malakhamar | ഓശാന തിരുന്നാൾ ആശംസകൾ | #shorts | #christianshorts | #lent | #jesuslove](https://www.youtube.com/watch?v=V47_JERUZyg)
-- [Oshana Geethangal | ഓശാന ഞായർ | Blessed Palm Sunday | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=vYN3wKPK3sY)
-- [Ponnum Mederi Chinga | Eshtadanam | K S Chithra  | Suma Menon | Speed Audios](https://www.youtube.com/watch?v=lXPkgcPE2ss)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
