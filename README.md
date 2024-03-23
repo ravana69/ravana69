@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Ellam Daivam Tharunnathalle | Chithra Arun #shortsvideo  #christiansongsmalayalamdevotional](https://www.youtube.com/watch?v=bfaVXR5kzGw)
-- [Kakke Kakke | Chakkaramuthu #ytshorts #filmsongs](https://www.youtube.com/watch?v=nTgxWJzBssQ)
-- [Madhuramee | കൊഴുക്കട്ട ശനി | #shorts | #christianshorts | #lent | #jesus #whatsappstatus](https://www.youtube.com/watch?v=Thi8oiWn-y8)
-- [Christian Video Songs Malayalam | Shibu Antony | Frankilin Prasad | Holy Week Songs | Joji Johns](https://www.youtube.com/watch?v=PIdlv0dZgEI)
-- [പട്ടുതൂവാല ഞാൻ  Feat. Rajalakshmi , Tomy, Samji New Christian devotional Song Malayalam](https://www.youtube.com/watch?v=6xyrDwBUKnA)
-- [ഇന്ന് മാർച്ച്  23എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala  santhos](https://www.youtube.com/watch?v=ZbqAesGhIlw)
+- [Un Kannil Neer Vazhinthaal - Malare Malare Lyric | Rajinikanth, Madhavi | Ilaiyaraaja](https://www.youtube.com/watch?v=y5qrd11GvBM)
+- [Annai Thaalaattu Paada Lyric | Mohan, Raadha, Urvashi | Ilaiyaraaja](https://www.youtube.com/watch?v=yggezSIEmNo)
+- [Odakkuzhal - Kaanathe Poya Peethambaram Lyric | Vidyadharan | Devotional Songs](https://www.youtube.com/watch?v=vhoeJlp_b9E)
+- [Ilaiyaraaja, P. Susheela - Aasai Idhazh Osai Lyric | Aasaithambi, Vanishree | Ilaiyaraaja](https://www.youtube.com/watch?v=vrUbbaMzSsQ)
+- [Ilaiyaraaja, K.S. Chithra - Pazhaiya Kanavai Lyric | Pandiyan | Ilaiyaraaja](https://www.youtube.com/watch?v=oI5P77QOU5w)
+- [Villali Veeran - Evideyaanente Daivam Lyric | T.S. Radhakrishnan | Devotional Songs](https://www.youtube.com/watch?v=pMrWMlLuA5w)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
