@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chellakkatin Pallitheril | HD Video | Mimics Parade | Johnson | Unni Menon | K S Chithra](https://www.youtube.com/watch?v=tJKxNGeQJss)
+- [Vinnile Malakhamar | ഓശാന തിരുന്നാൾ ആശംസകൾ | #shorts | #christianshorts | #lent | #jesuslove](https://www.youtube.com/watch?v=V47_JERUZyg)
+- [Oshana Geethangal | ഓശാന ഞായർ | Blessed Palm Sunday | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=vYN3wKPK3sY)
+- [Ponnum Mederi Chinga | Eshtadanam | K S Chithra  | Suma Menon | Speed Audios](https://www.youtube.com/watch?v=lXPkgcPE2ss)
 - [ദൈവത്തിന് നമ്മോടുള്ള സ്നേഹത്തിന്റെ ആഴം  | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=wbbst41yX6k)
 - [Marathakaraavin Karayil Title Song | Ayaal Kadhayezhthukayaanu | KJ Yesudas | Kaithapram |Raveendran](https://www.youtube.com/watch?v=i1N8Y3gNUtU)
-- [OSHANA PADUVIN NADHANE VAZHTHUVIN | SONG FOR PALM SUNDAY | OSHANA SONG | BOBBY XAVIER](https://www.youtube.com/watch?v=Hog1gk0aXtM)
-- [Thanuppicha Beerinte |  Nee Ko Njaa Cha #shortsfeed #shortsvideo #shorts #reels #malayalamfilmsongs](https://www.youtube.com/watch?v=33BJNhvQZm4)
-- [chattavrinadiyil #lentsongs #manojchristy #jojijohns #valiyanombugeethangal #jojijohnschristiansongs](https://www.youtube.com/watch?v=P0N3vfyknBo)
-- [papathe orthu  #lentsongs #manojchristy #jojijohns #valiyanombugeethangal #jojijohnschristiansongs](https://www.youtube.com/watch?v=hCeMTTJ9gJw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
