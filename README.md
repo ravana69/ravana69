@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Shinkaarakrishna Varu Malayalam Romantic Song | Ingane Oru Nilapakshi #kunchakkoboban #chithra](https://www.youtube.com/watch?v=T_dkOqvwV5Y)
-- [Urangum Munpu Daiva Sannidhiyil # Night Prayer and Worship # Rathri Japam 23rd of March 2024](https://www.youtube.com/watch?v=QyRs0EXf4Lo)
-- [ALTHARAYIL NINNUM | #kester @ZionClassics@JinoKunnumpurathu #malayalamchristiansong @KesterHits](https://www.youtube.com/watch?v=EJmDE4aK_x8)
-- [Ammoommakkili Vaayaadi | അമ്മുമ്മക്കിളി വായാടി | Chandralekha Evergreen Hits | Mohanlal | KS Chithra](https://www.youtube.com/watch?v=vhC2TF7DsyI)
-- [Dharma Yudham Arambham | Official Promo | Shaju Sreedhar, Santhosh Keezhattoor | Sajil Raj](https://www.youtube.com/watch?v=XvsZH7yQpP0)
-- [മലയാളസിനിമയിലെ ഇതിഹാസതാരങ്ങൾ അഭിനയിച്ച ജനപ്രിയഗാനങ്ങൾ  ! MAMMOOTTY - MOHANLAL HITS | MW MUSIC](https://www.youtube.com/watch?v=_2l8ED_HaUk)
+- [ദൈവത്തിന് നമ്മോടുള്ള സ്നേഹത്തിന്റെ ആഴം  | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=wbbst41yX6k)
+- [Marathakaraavin Karayil Title Song | Ayaal Kadhayezhthukayaanu | KJ Yesudas | Kaithapram |Raveendran](https://www.youtube.com/watch?v=i1N8Y3gNUtU)
+- [OSHANA PADUVIN NADHANE VAZHTHUVIN | SONG FOR PALM SUNDAY | OSHANA SONG | BOBBY XAVIER](https://www.youtube.com/watch?v=Hog1gk0aXtM)
+- [Thanuppicha Beerinte |  Nee Ko Njaa Cha #shortsfeed #shortsvideo #shorts #reels #malayalamfilmsongs](https://www.youtube.com/watch?v=33BJNhvQZm4)
+- [chattavrinadiyil #lentsongs #manojchristy #jojijohns #valiyanombugeethangal #jojijohnschristiansongs](https://www.youtube.com/watch?v=P0N3vfyknBo)
+- [papathe orthu  #lentsongs #manojchristy #jojijohns #valiyanombugeethangal #jojijohnschristiansongs](https://www.youtube.com/watch?v=hCeMTTJ9gJw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
