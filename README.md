@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=NYPy2eTJn7A)
-- [നിങ്ങൾ കേട്ടുപഴകിയ തൊണ്ണൂറുകളിലെ ഗാനങ്ങൾ |Melodies of 90's | മലയാളചലച്ചിത്രഗാനങ്ങൾ | കെ ജെ യേശുദാസ്](https://www.youtube.com/watch?v=aIbui3aBfBA)
-- [Morning Prayer 23rd of March # Athiravile Prarthana 23rd March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=twhjhSyPvOk)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=oSB_Zqe9-SI)
-- [Mathavinodulla Samprakshana Prarthana The Immaculate Heart of Mother Mary Prayer 23rd March 24](https://www.youtube.com/watch?v=WDaYzEevS5I)
-- [PESAHA | RAHASYAM RAHASYAM.| ROY PUTHUR | MITHILA | Maundy Thursday SONG | #greatlent](https://www.youtube.com/watch?v=SzbkctIdFTo)
+- [Madhuramee | കൊഴുക്കട്ട ശനി | #shorts | #christianshorts | #lent | #jesus #whatsappstatus](https://www.youtube.com/watch?v=Thi8oiWn-y8)
+- [Christian Video Songs Malayalam | Shibu Antony | Frankilin Prasad | Holy Week Songs | Joji Johns](https://www.youtube.com/watch?v=PIdlv0dZgEI)
+- [പട്ടുതൂവാല ഞാൻ  Feat. Rajalakshmi , Tomy, Samji New Christian devotional Song Malayalam](https://www.youtube.com/watch?v=6xyrDwBUKnA)
+- [ഇന്ന് മാർച്ച്  23എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala  santhos](https://www.youtube.com/watch?v=ZbqAesGhIlw)
+- [Japamala 23rd of March 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 23rd of March 24](https://www.youtube.com/watch?v=AvY_LyBAQhk)
+- [Malkosinte Gadhgathangal Day 41](https://www.youtube.com/watch?v=xTnEtMy2ZJE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
