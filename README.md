@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കുരുത്തോലപെരുന്നാൾ | Rev. Aneesh P Joseph | #shorts #lent #osana](https://www.youtube.com/watch?v=BDCYavYoPeg)
+- [Aakasha Thamara Pole Video Song | Ayal Kadha Ezhthukayanu | Mohanlal | KJ Yesudas #shorts](https://www.youtube.com/watch?v=-t0mKuYEgUQ)
+- [𝐄𝐄𝐒𝐇𝐎 𝐍𝐀𝐃𝐇𝐀𝐍 𝐆𝐀𝐆𝐔𝐋𝐓𝐇𝐀𝐘𝐈𝐋 | #shorts | ഈശോനാഥൻ ഗാഗുൽത്തായിൽ..| 𝐆𝐨𝐨𝐝 𝐅𝐫𝐢𝐝𝐚𝐲 𝐒𝐨𝐧𝐠 | 𝐁𝐨𝐛𝐛𝐲 𝐗𝐚𝐯𝐢𝐞𝐫 & 𝐌𝐚𝐫𝐢𝐚](https://www.youtube.com/watch?v=FwD3_xnHviY)
+- [Urangum Munpu Daiva Sannidhiyil # Night Prayer and Worship # Rathri Japam 24th of March 2024](https://www.youtube.com/watch?v=IszAbzkw3pk)
 - [സ്വർഗീയനായ മണവാളാതെ | Rahasyam Rahasyam | ROY PUTHUR | MITHILA #greatlent #maundythursday](https://www.youtube.com/watch?v=yIVkRtPwUzg)
 - [Ekanthathe Ninte Dweepil - Novemberinte Nashtam(1982) | Jency | Poovachal Khader | Evergreen Songs](https://www.youtube.com/watch?v=74H6OS0sBlM)
-- [നീയില്ലാതില്ലെൻ രാത്രികൾ.... #everlastingmalayalammelodysongs #dileep #samvruthasunil](https://www.youtube.com/watch?v=aa4jWPWw7k8)
-- [Japanil Kalyanaraman - Theme Music Lyric | Kamal Haasan, Radha | Ilaiyaraaja](https://www.youtube.com/watch?v=vwE5snHhgJ0)
-- [Moondram Pirai - Kanne Kalaimaane Lyric | Kamal Haasan, Sridevi | Ilaiyaraaja](https://www.youtube.com/watch?v=uWJiUQrOTfo)
-- [Paasa Mazhai - Oru Paattu (Pathos) Lyric | Mohan | Ilaiyaraaja](https://www.youtube.com/watch?v=gBUQqdyZg8Y)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
