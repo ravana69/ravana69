@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kinginikattu | Mallu Singh #shortsvideo #manoramamusic](https://www.youtube.com/watch?v=Tn1SR55Gun4)
 - [ഓശാന തൊട്ട് ഈസ്റ്റർ വരെ | Holy Week Songs Malayalam | Joji Johns | Kester | Valiya Nombu Geethangal](https://www.youtube.com/watch?v=MlBfABT09SM)
 - [Oshana Geethangal # Hosanna Ganangal # Palm Sunday Songs Malayalam 2024](https://www.youtube.com/watch?v=Joz0oia6nP8)
 - [ഇന്ന് മാർച്ച്  24#എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala mahimay](https://www.youtube.com/watch?v=7LEPeUjw9eU)
 - [Japamala 24th of March 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 24th of March 2024](https://www.youtube.com/watch?v=hzxs7xMMd9s)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=thmGzBMncGs)
-- [Oshana Nayar Song Shorts | Palm Sunday Song Shorts](https://www.youtube.com/watch?v=RoCXC7iX_us)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
