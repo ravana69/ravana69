@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ekanthathe Ninte Dweepil - Novemberinte Nashtam(1982) | Jency | Poovachal Khader | Evergreen Songs](https://www.youtube.com/watch?v=74H6OS0sBlM)
+- [നീയില്ലാതില്ലെൻ രാത്രികൾ.... #everlastingmalayalammelodysongs #dileep #samvruthasunil](https://www.youtube.com/watch?v=aa4jWPWw7k8)
 - [Japanil Kalyanaraman - Theme Music Lyric | Kamal Haasan, Radha | Ilaiyaraaja](https://www.youtube.com/watch?v=vwE5snHhgJ0)
 - [Moondram Pirai - Kanne Kalaimaane Lyric | Kamal Haasan, Sridevi | Ilaiyaraaja](https://www.youtube.com/watch?v=uWJiUQrOTfo)
 - [Paasa Mazhai - Oru Paattu (Pathos) Lyric | Mohan | Ilaiyaraaja](https://www.youtube.com/watch?v=gBUQqdyZg8Y)
 - [Japanil Kalyanaraman - Kadhal Un Leelaya Lyric | Kamal Haasan, Radha | Ilaiyaraaja](https://www.youtube.com/watch?v=frInS2Li_lk)
-- [Japanil Kalyanaraman - Radhe En Radhe Lyric | Kamal Haasan, Radha | Ilaiyaraaja](https://www.youtube.com/watch?v=uOUpI8hnvN0)
-- [Paasa Mazhai - Aayiram Poovum Undu Lyric | Mohan | Ilaiyaraaja](https://www.youtube.com/watch?v=S6CF-f38p5Y)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
