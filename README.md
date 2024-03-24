@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Morning Prayer 25th of March # Athiravile Prarthana 25th March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=_2qDDE20HbI)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=ON1oxl83NLo)
+- [മനംകുളിർക്കെ കേൾക്കാൻ മധുരമനോഹരഗാനങ്ങൾ|മലയാളചലച്ചിത്രഗാനങ്ങൾ |കെ ജെ യേശുദാസ് |Remastered Movie songs](https://www.youtube.com/watch?v=mUtol9pKa08)
 - [Mathavinodulla Samprakshana Prarthana The Immaculate Heart of Mother Mary Prayer 25th March 24](https://www.youtube.com/watch?v=k2dVy-uCLlQ)
 - [Malkosinte Gadhgathangal Day 43](https://www.youtube.com/watch?v=s5wWPBJq27k)
 - [Manikka kammal | Vajram | Mammootty | Vasundara Das | Aravind | Ouseppachan | Sujatha Mohan](https://www.youtube.com/watch?v=u2UjGop8sYE)
-- [24 March 2024](https://www.youtube.com/watch?v=0Kx42c7LZC8)
-- [Nenjudukkinte | Karumaadikkuttan|Mohan Sithara|  Kalabhavan Mani  | Yusufali Kecheri #SongOfTheDay](https://www.youtube.com/watch?v=gPAiZHx_UXk)
-- [Shalabham Vazhimaruma | Video Song |  S Ramesan Nair | MG Radhakrishnan | KS Chithra | MG Sreekumar](https://www.youtube.com/watch?v=Bmc3fyRWcl0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
