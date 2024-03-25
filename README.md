@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [EESHO MISHIHAYUDE VYAKULAMERUM  - Fr. SHAJI THUMPECHIRAYIL SHORT HOLYWEEK](https://www.youtube.com/watch?v=d0kZPc9pAXE)
-- [PESAHAYAL PESAHA | പെസഹായാൽ പെസഹാടിനെ നീക്കിയ മിശിഹാ | Roy Puthur #greatlent #maundythursday](https://www.youtube.com/watch?v=r82QUiQsgMs)
-- [Kattile Kannan | Animation Video #kattilekannan #animation #malayalamcartoon #shorts #shortsfeed](https://www.youtube.com/watch?v=l9tItz10q94)
-- [ALTHARAYIL NINNUM | #kester  #malayalamchristiansong  #shorts  | REEL 2](https://www.youtube.com/watch?v=3fCKEiQ7B28)
-- [Manikuyile | Film Song  Animation Version | സൂപ്പർ ഹിറ്റ് മലയാള സിനിമാഗാനം അനിമേഷൻ രൂപത്തിൽ](https://www.youtube.com/watch?v=pfgtw-T3K4s)
-- [𝐏𝐚𝐝𝐡𝐚𝐦 𝐊𝐚𝐳𝐡𝐮𝐤𝐢 | #𝐬𝐡𝐨𝐫𝐭𝐬 | 𝐏𝐞𝐬𝐚𝐡𝐚 𝐒𝐨𝐧𝐠 | 𝐅𝐫.𝐒𝐡𝐚𝐣𝐢 𝐓𝐡𝐮𝐦𝐩𝐞𝐜𝐡𝐢𝐫𝐚𝐲𝐢𝐥 | 𝐁𝐨𝐛𝐛𝐲 𝐗𝐚𝐯𝐢𝐞𝐫](https://www.youtube.com/watch?v=ERhPLlaP1TQ)
+- [M.G. Sreekumar - Ganapathi Sahajaa](https://www.youtube.com/watch?v=v008o40Vy0s)
+- [Madhu Balakrishnan - Raadhayariyum Gaadhayariyum](https://www.youtube.com/watch?v=qs--wx0H8vE)
+- [இரண்டாம் உலகம் - கனிமொழியே தமிழ் பாடல் வரிகள் | ஹாரிஸ் ஜெயராஜ்](https://www.youtube.com/watch?v=odvAeyWgnzI)
+- [Madhu Balakrishnan - Oru Mulamthandu](https://www.youtube.com/watch?v=rkKYEMdY9NE)
+- [Kandal Chirikatha |Oru Muthassi Kadha |Ouseppachan | MG Sreekumar | Sujatha Mohan |Vineeth | Nirosha](https://www.youtube.com/watch?v=66I3fMOkltY)
+- [Madhu Balakrishnan - Chethi Mandharam Thulasi](https://www.youtube.com/watch?v=mSeq4Sj4l3M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
