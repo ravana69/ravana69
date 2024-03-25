@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vaanchikkunne Neril Kaanan | Maria Kolady #shortsvideo #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=ydiWK71HjNY)
+- [Kathoramaro | Namboothiri Yuvavu #shortsvideo  #manoramamusic](https://www.youtube.com/watch?v=gDpNURKxdVU)
 - [Puthen Pana | Ammakanya Manithante | Jessy Anto | Christian Devotional Songs | Holy Week Songs](https://www.youtube.com/watch?v=Rp0n_5fGpG8)
 - [സഹനത്തിന്റെ ഗാഗുൽത്താ Trailer](https://www.youtube.com/watch?v=YyOZ8RMoers)
 - [ഇന്ന് മാർച്ച്  25 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  santhos](https://www.youtube.com/watch?v=8d-TOvcOM9I)
 - [Japamala 25th of March 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 25th of March 24](https://www.youtube.com/watch?v=9m1kdy6KACQ)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=TMTT50xcTwE)
-- [Twining and shining!✨ #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=rC2IUgDKgFs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
