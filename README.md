@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Morning Prayer 26th of March # Athiravile Prarthana 26th March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=LO79ItewABY)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=YpFaI0NwZVY)
+- [Pottu Thotta Sundari | Palunku | Mammootty | Nazriya Nazim | Lakshmi Sharma | Mohan Sithara](https://www.youtube.com/watch?v=prEA8q0OQ6g)
+- [Mathavinodulla Samprakshana Prarthana The Immaculate Heart of Mother Mary Prayer 26th March 24](https://www.youtube.com/watch?v=W4HSkR8g0ak)
 - [Dreams come true!✨ #KiliyeKiliye #AaRaathri #Ilayaraja #SJanaki #shorts #ytshorts](https://www.youtube.com/watch?v=iR_iMkDYWOk)
 - [Viral Thottal |  Phantom | Deva | P Jayachandran | K.S Chithra | Gireesh Puthenchery #songoftheday](https://www.youtube.com/watch?v=RMet9SXa6PQ)
-- [Allikalil Azhakalayo Video Song | Mohanlal | Gireesh Puthenchery | MG Sreekumar | Sujatha Mohan](https://www.youtube.com/watch?v=4vmoPN2xGi0)
-- [Mutharam Kunnil | HD Video  | Mutharamkunnu PO | KJ Yesudas | Vani Jayaram | Chunakkara Ramankutty](https://www.youtube.com/watch?v=n9NZJUPxmI4)
-- [ചിങ്കാരകിന്നാരം ചിരിച്ചു കൊഞ്ചുന്നമണിക്കുരുന്നേ വാ പുന്നാരം പുന്നാരം #mohanlal | Minnaram](https://www.youtube.com/watch?v=WuJ2izZQKW4)
-- [Ithile Thozhee | Elsamma Enna Aankutty | Vijay Yesudas | Swetha Mohan | Rajamani | Rafeeq Ahammed](https://www.youtube.com/watch?v=Vb7z8GFQb8w)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
