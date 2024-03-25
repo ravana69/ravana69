@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Viral Thottal |  Phantom | Deva | P Jayachandran | K.S Chithra | Gireesh Puthenchery #songoftheday](https://www.youtube.com/watch?v=RMet9SXa6PQ)
+- [Allikalil Azhakalayo Video Song | Mohanlal | Gireesh Puthenchery | MG Sreekumar | Sujatha Mohan](https://www.youtube.com/watch?v=4vmoPN2xGi0)
 - [Mutharam Kunnil | HD Video  | Mutharamkunnu PO | KJ Yesudas | Vani Jayaram | Chunakkara Ramankutty](https://www.youtube.com/watch?v=n9NZJUPxmI4)
 - [ചിങ്കാരകിന്നാരം ചിരിച്ചു കൊഞ്ചുന്നമണിക്കുരുന്നേ വാ പുന്നാരം പുന്നാരം #mohanlal | Minnaram](https://www.youtube.com/watch?v=WuJ2izZQKW4)
 - [Ithile Thozhee | Elsamma Enna Aankutty | Vijay Yesudas | Swetha Mohan | Rajamani | Rafeeq Ahammed](https://www.youtube.com/watch?v=Vb7z8GFQb8w)
 - [NADHA KOODE VASICHALUM | HOLY WEEK SHORT | Fr. SHAJI THUMPECHIRAYIL | EASTER REEL](https://www.youtube.com/watch?v=6Fhjb5GSOOk)
-- [25 March 2024](https://www.youtube.com/watch?v=XFcUc8CHgME)
-- [നിൻ തിരുശരീരത്തിലെ ഓരോ മുറിപ്പാടുകളും എൻ പാപങ്ങളാണല്ലോ. | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=qVsJPmzIuA0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
