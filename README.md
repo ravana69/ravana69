@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chinkara Kinnaram | ചിങ്കാരകിന്നാരം | Evergreen hit song | Minnaram | Mohanlal | Shobana](https://www.youtube.com/watch?v=2d2EFzPrUhY)
+- [Arikilo Akaleyo - Novemberinte Nashtam (1982) | K S Chithra | Poovachal Khader | M.G Radhakrishnan](https://www.youtube.com/watch?v=JcG8I9pbwT8)
+- [Kadhali vanavum Kaadum | Thirakkil Alpa Samayam | Shyam | KJ Yesudas | Mammootty](https://www.youtube.com/watch?v=bH2WUtPlga8)
 - [M.G. Sreekumar - Ganapathi Sahajaa](https://www.youtube.com/watch?v=v008o40Vy0s)
 - [Madhu Balakrishnan - Raadhayariyum Gaadhayariyum](https://www.youtube.com/watch?v=qs--wx0H8vE)
 - [இரண்டாம் உலகம் - கனிமொழியே தமிழ் பாடல் வரிகள் | ஹாரிஸ் ஜெயராஜ்](https://www.youtube.com/watch?v=odvAeyWgnzI)
-- [Madhu Balakrishnan - Oru Mulamthandu](https://www.youtube.com/watch?v=rkKYEMdY9NE)
-- [Kandal Chirikatha |Oru Muthassi Kadha |Ouseppachan | MG Sreekumar | Sujatha Mohan |Vineeth | Nirosha](https://www.youtube.com/watch?v=66I3fMOkltY)
-- [Madhu Balakrishnan - Chethi Mandharam Thulasi](https://www.youtube.com/watch?v=mSeq4Sj4l3M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
