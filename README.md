@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Vaanchikkunne Neril Kaanan | Maria Kolady #shortsvideo #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=ydiWK71HjNY)
-- [Kathoramaro | Namboothiri Yuvavu #shortsvideo  #manoramamusic](https://www.youtube.com/watch?v=gDpNURKxdVU)
-- [Puthen Pana | Ammakanya Manithante | Jessy Anto | Christian Devotional Songs | Holy Week Songs](https://www.youtube.com/watch?v=Rp0n_5fGpG8)
-- [സഹനത്തിന്റെ ഗാഗുൽത്താ Trailer](https://www.youtube.com/watch?v=YyOZ8RMoers)
-- [ഇന്ന് മാർച്ച്  25 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  santhos](https://www.youtube.com/watch?v=8d-TOvcOM9I)
-- [Japamala 25th of March 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 25th of March 24](https://www.youtube.com/watch?v=9m1kdy6KACQ)
+- [EESHO MISHIHAYUDE VYAKULAMERUM  - Fr. SHAJI THUMPECHIRAYIL SHORT HOLYWEEK](https://www.youtube.com/watch?v=d0kZPc9pAXE)
+- [PESAHAYAL PESAHA | പെസഹായാൽ പെസഹാടിനെ നീക്കിയ മിശിഹാ | Roy Puthur #greatlent #maundythursday](https://www.youtube.com/watch?v=r82QUiQsgMs)
+- [Kattile Kannan | Animation Video #kattilekannan #animation #malayalamcartoon #shorts #shortsfeed](https://www.youtube.com/watch?v=l9tItz10q94)
+- [ALTHARAYIL NINNUM | #kester  #malayalamchristiansong  #shorts  | REEL 2](https://www.youtube.com/watch?v=3fCKEiQ7B28)
+- [Manikuyile | Film Song  Animation Version | സൂപ്പർ ഹിറ്റ് മലയാള സിനിമാഗാനം അനിമേഷൻ രൂപത്തിൽ](https://www.youtube.com/watch?v=pfgtw-T3K4s)
+- [𝐏𝐚𝐝𝐡𝐚𝐦 𝐊𝐚𝐳𝐡𝐮𝐤𝐢 | #𝐬𝐡𝐨𝐫𝐭𝐬 | 𝐏𝐞𝐬𝐚𝐡𝐚 𝐒𝐨𝐧𝐠 | 𝐅𝐫.𝐒𝐡𝐚𝐣𝐢 𝐓𝐡𝐮𝐦𝐩𝐞𝐜𝐡𝐢𝐫𝐚𝐲𝐢𝐥 | 𝐁𝐨𝐛𝐛𝐲 𝐗𝐚𝐯𝐢𝐞𝐫](https://www.youtube.com/watch?v=ERhPLlaP1TQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
