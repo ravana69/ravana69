@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Chinkara Kinnaram | ചിങ്കാരകിന്നാരം | Evergreen hit song | Minnaram | Mohanlal | Shobana](https://www.youtube.com/watch?v=2d2EFzPrUhY)
-- [Arikilo Akaleyo - Novemberinte Nashtam (1982) | K S Chithra | Poovachal Khader | M.G Radhakrishnan](https://www.youtube.com/watch?v=JcG8I9pbwT8)
-- [Kadhali vanavum Kaadum | Thirakkil Alpa Samayam | Shyam | KJ Yesudas | Mammootty](https://www.youtube.com/watch?v=bH2WUtPlga8)
-- [M.G. Sreekumar - Ganapathi Sahajaa](https://www.youtube.com/watch?v=v008o40Vy0s)
-- [Madhu Balakrishnan - Raadhayariyum Gaadhayariyum](https://www.youtube.com/watch?v=qs--wx0H8vE)
-- [இரண்டாம் உலகம் - கனிமொழியே தமிழ் பாடல் வரிகள் | ஹாரிஸ் ஜெயராஜ்](https://www.youtube.com/watch?v=odvAeyWgnzI)
+- [നിൻ തിരുശരീരത്തിലെ ഓരോ മുറിപ്പാടുകളും എൻ പാപങ്ങളാണല്ലോ. | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=qVsJPmzIuA0)
+- [Madabhara Mizhiyoram - Video Song | Malaikottai Vaaliban | Mohanlal, Lijo Jose | Prashant Pillai](https://www.youtube.com/watch?v=vi0zAZe7HRs)
+- [Karppoora Deepam Thelinju Video Song | Sanchari | KJ Yesudas | Sujatha Mohan](https://www.youtube.com/watch?v=5Zkteu5BRQ8)
+- [Pinne Ennodonnum | Shikkar | K J Yesudas | Latha R Krishna | M Jayachandran | Gireesh Puthanchery](https://www.youtube.com/watch?v=rN9sjQXFS64)
+- [Aanakkallan |  Mollywood DJ Party Hits #avial #shortsfeed #shortsvideo #shorts #reels #keralaband](https://www.youtube.com/watch?v=JxS1TtIqoyw)
+- [Yeshuve Ninne Sweekarikkanayi | Nombukala Ganangal | Malayalam Christian Devotional Songs |](https://www.youtube.com/watch?v=894uDuqhWWs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
