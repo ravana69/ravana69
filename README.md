@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [PASSION WEEK SONGS | പീഡാനുഭവ ഗീതങ്ങൾ | ROY PUTHUR & TEAM #greatlent #goodfriday #maundythursday](https://www.youtube.com/watch?v=Vso3UsFJKYc)
+- [𝐍𝐉𝐀𝐍𝐄𝐍 𝐏𝐈𝐓𝐇𝐀𝐕𝐈𝐍𝐓𝐄 𝐏𝐀𝐊𝐊𝐀𝐋 | #shorts | 𝐆𝐨𝐨𝐝 𝐅𝐫𝐢𝐝𝐚𝐲 𝐒𝐨𝐧𝐠𝐬 (𝐃𝐮𝐤𝐤𝐚 𝐕𝐞𝐥𝐥𝐢) | 𝐅𝐫 𝐀𝐛𝐞𝐥 𝐂𝐌𝐈 | 𝐁𝐨𝐛𝐛𝐲 𝐗𝐚𝐯𝐢𝐞𝐫](https://www.youtube.com/watch?v=aw7m4WqVUyk)
 - [ശ്രോതാക്കളുടെ ഹൃദയം കീഴടക്കിയ മലയാളസിനിമയിലെ വിസ്‌മയഗാനങ്ങൾ ! MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=IrcqK_gCmSs)
 - [Kandal Chirikkatha -Oru Muthassikkatha(1987) |MG Sreekumar |Sujatha |Shibu Chakravarthy |Ouseppachan](https://www.youtube.com/watch?v=AWzz4z8AU8o)
 - [கோவா - இது வரை தமிழ் பாடல் வரிகள் | யுவன் சங்கர் ராஜா](https://www.youtube.com/watch?v=rYT9j8cGvFA)
 - [தசாவதாரம் - முகுந்தா முகுந்தா தமிழ் பாடல் வரிகள்](https://www.youtube.com/watch?v=sbthL5JCOJM)
-- [ஜெமினிகணேசனும் சுருளிராஜனும் - கண்மணி தமிழ் பாடல் வரிகள் | டி. இமான்](https://www.youtube.com/watch?v=aR_dtHl63YE)
-- [𝐍𝐈𝐓𝐇𝐘𝐀𝐏𝐈𝐓𝐇𝐀𝐕𝐄 𝐍𝐉𝐀𝐍𝐆𝐀𝐋𝐔𝐃𝐄𝐘𝐔𝐌 | #shorts | 𝐊𝐀𝐑𝐔𝐍𝐀𝐊𝐎𝐍𝐓𝐇𝐀 | 𝐅𝐫. 𝐒𝐇𝐀𝐉𝐈 𝐓𝐇𝐔𝐌𝐏𝐄𝐂𝐇𝐈𝐑𝐀𝐘𝐈𝐋 𝐒𝐇𝐎𝐑𝐓 | 𝐊𝐄𝐒𝐓𝐄𝐑](https://www.youtube.com/watch?v=AiBVZhUfVcE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
