@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Prem Nazir Old Malayalam Movie Songs | Muttathe Mulla Remastered Malayalam Song |  K. J. Yesudas](https://www.youtube.com/watch?v=A6rKiSePODw)
-- [Anchikonchathedee | Drona #mammootty #kaniha #shortsfeed #shortsvideo #shorts #reels #deepakdev](https://www.youtube.com/watch?v=qodUl60pWaQ)
-- [Ithiri Chakkara Nulli | Seniors #shortsvideo  #manoramamusic](https://www.youtube.com/watch?v=7qEEKnySHjk)
-- [ഇന്ന് മാർച്ച്  26 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala dhukkat](https://www.youtube.com/watch?v=D6mUsxjp0AQ)
-- [Japamala 26th of March 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 26th of March 24](https://www.youtube.com/watch?v=9YiFzeOTWWQ)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=Ld5AJ3i3bnE)
+- [கோவா - இது வரை தமிழ் பாடல் வரிகள் | யுவன் சங்கர் ராஜா](https://www.youtube.com/watch?v=rYT9j8cGvFA)
+- [தசாவதாரம் - முகுந்தா முகுந்தா தமிழ் பாடல் வரிகள்](https://www.youtube.com/watch?v=sbthL5JCOJM)
+- [ஜெமினிகணேசனும் சுருளிராஜனும் - கண்மணி தமிழ் பாடல் வரிகள் | டி. இமான்](https://www.youtube.com/watch?v=aR_dtHl63YE)
+- [𝐍𝐈𝐓𝐇𝐘𝐀𝐏𝐈𝐓𝐇𝐀𝐕𝐄 𝐍𝐉𝐀𝐍𝐆𝐀𝐋𝐔𝐃𝐄𝐘𝐔𝐌 | #shorts | 𝐊𝐀𝐑𝐔𝐍𝐀𝐊𝐎𝐍𝐓𝐇𝐀 | 𝐅𝐫. 𝐒𝐇𝐀𝐉𝐈 𝐓𝐇𝐔𝐌𝐏𝐄𝐂𝐇𝐈𝐑𝐀𝐘𝐈𝐋 𝐒𝐇𝐎𝐑𝐓 | 𝐊𝐄𝐒𝐓𝐄𝐑](https://www.youtube.com/watch?v=AiBVZhUfVcE)
+- [ശ്രീരാഗമോ തേടുന്നു നീ | Sreeraagamo Thedunnu | Pavithram | Mohanlal | Shobana | Sreevidhya](https://www.youtube.com/watch?v=JZ3ZFsppmcc)
+- [Snehathin Koodhashayayi.. #shorts #pesaha2024 #maundythursday](https://www.youtube.com/watch?v=5UNBH38nifE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
