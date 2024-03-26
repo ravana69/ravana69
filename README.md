@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [O Priye | Kunchacko Boban | Shalini | KJ Yesudas | Ouseppachan | S Ramesan Nair](https://www.youtube.com/watch?v=eQ3Bf9kHu6c)
+- [Moovanthi Thazhvarayil | Raveendran | Gireesh Puthenchery l KJ Yesudas #songoftheday](https://www.youtube.com/watch?v=M-bSxGxytik)
 - [26 March 2024](https://www.youtube.com/watch?v=A__PpZo5GvQ)
 - [PUTHRAN THAMBURAN |#abhijithkollam | ANTONY PAUL KEERAMPILLY | VINEESH ISSAC #shorts | REEL 1](https://www.youtube.com/watch?v=E6LVA139idM)
 - [A long forgotten vibe!🌟 #KiliyeKiliye #AaRaathri #Ilayaraja #SJanaki #shorts #ytshorts](https://www.youtube.com/watch?v=k7abqVbXAeI)
 - [Daivasneham | നോമ്പുകാല ഗാനങ്ങൾ | Christian Devotional Songs | ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ |Audio Jukebox](https://www.youtube.com/watch?v=MZyZ9_P3LOU)
-- [എത്ര കേട്ടാലും മതിവരാത്ത സിനിമ ഗാനങ്ങൾ 80s 90s Malayalam Hits Vol 2](https://www.youtube.com/watch?v=-LKt6W4n42k)
-- [Kinavile Janalakal | Pranchiyettan & the Saint | Franco | Ouseppachan | Shibu Chakravarthy](https://www.youtube.com/watch?v=W52s_-SHz8U)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
