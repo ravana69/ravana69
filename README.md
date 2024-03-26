@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Malkosinte Gadhgathangal Day 45](https://www.youtube.com/watch?v=mmoyjRsXutg)
+- [Mathavinodulla Samprakshana Prarthana The Immaculate Heart of Mother Mary Prayer 27th March 24](https://www.youtube.com/watch?v=Fu2L2tYQjIU)
 - [Kezhaman Kannale Kurathi | Abraham And Lincoln | A Pramod Papanic Approach | Manjari | Ouseppachan](https://www.youtube.com/watch?v=x0NPa5k4TCY)
 - [O Priye | Kunchacko Boban | Shalini | KJ Yesudas | Ouseppachan | S Ramesan Nair](https://www.youtube.com/watch?v=eQ3Bf9kHu6c)
 - [Moovanthi Thazhvarayil | Raveendran | Gireesh Puthenchery l KJ Yesudas #songoftheday](https://www.youtube.com/watch?v=M-bSxGxytik)
 - [26 March 2024](https://www.youtube.com/watch?v=A__PpZo5GvQ)
-- [PUTHRAN THAMBURAN |#abhijithkollam | ANTONY PAUL KEERAMPILLY | VINEESH ISSAC #shorts | REEL 1](https://www.youtube.com/watch?v=E6LVA139idM)
-- [A long forgotten vibe!🌟 #KiliyeKiliye #AaRaathri #Ilayaraja #SJanaki #shorts #ytshorts](https://www.youtube.com/watch?v=k7abqVbXAeI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
