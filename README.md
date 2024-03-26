@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [#happybirthdayprakashraj #malayalamsongs #tipsmalayalam #ps1malayalam #arrahman](https://www.youtube.com/watch?v=IiNHTaKNHN8)
-- [Raghunandana From HanuMan(Malayalam) #malayalamsongs #tejasajja #prasanthvarma #hanuman](https://www.youtube.com/watch?v=IH0DFf0hGhc)
-- [Yeshuve | Arjunan Master | K S Chithra #shortsvideo  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=ohzWPnq3b5c)
-- [Yeshuve | Arjunan Master | K S Chithra #shortsvideo  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=67Jry3Az-vI)
-- [Yeshuve | Arjunan Master | K S Chithra #shortsvideo  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=HWLjjgmGcGw)
-- [PASSION WEEK SONGS | പീഡാനുഭവ ഗീതങ്ങൾ | ROY PUTHUR & TEAM #greatlent #goodfriday #maundythursday](https://www.youtube.com/watch?v=Vso3UsFJKYc)
+- [Kinavile Janalakal | Pranchiyettan & the Saint | Franco | Ouseppachan | Shibu Chakravarthy](https://www.youtube.com/watch?v=W52s_-SHz8U)
+- [നീ ഇവരിൽ അധികമായി എന്നെ സ്നേഹിക്കുന്നുവോ.?   | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=UCAWJeMHb6w)
+- [അടുത്ത സുഹൃത്തിനെപോൽ കൂടെകൊണ്ടുനടക്കുന്ന  മലയാളത്തിലെ മനം നിറയ്ക്കും ഗാനങ്ങൾ |Evergreen Melody Songs](https://www.youtube.com/watch?v=WHtdfnh_y78)
+- [Sinkarappenninte Video Song | Ponni | P Leela | P Madhuri | Malayalam Movie Songs | G Devarajan](https://www.youtube.com/watch?v=b2XkFSsl1sA)
+- [Thotturummi Video Song | Rasikan | Sujatha Mohan | Vidyasagar | Gireesh Puthenchery #shorts](https://www.youtube.com/watch?v=MSwS4Gmrgzc)
+- [Urangum Munpu Daiva Sannidhiyil # Night Prayer and Worship # Rathri Japam 26th of March 2024](https://www.youtube.com/watch?v=ScYznwVYxAw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
