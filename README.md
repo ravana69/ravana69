@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Theli neeru Thirayunna | Franklin Panoor | Mithila michael | Christian Devotional Song](https://www.youtube.com/watch?v=0_PTLkEsXys)
-- [Iniyum Mizhikal | Video Song | Ben Johnson |  Kalabhavan Mani | Sujatha | Deepak Dev | Kaithapram](https://www.youtube.com/watch?v=PGeibsbpoI4)
-- [Gopike Hridayam Oru Video Song | Nandanam | Navya Nair | KJ Yesudas| Gireesh Puthenchery| Raveendran](https://www.youtube.com/watch?v=ol53RjwdnGU)
-- [Vennila Vennila | Parthan Kanda Paralokam | Jayaram | Sreedevika | Kaithapram | Unni Menon](https://www.youtube.com/watch?v=kLkC0ZUdCoY)
-- [Nalla Thozhan | Cape Town | Naveen Madhav #shortsvideo #filmsongs](https://www.youtube.com/watch?v=heRnrUSr9Mg)
-- [Nalla Thozhan | Cape Town | Naveen Madhav #shortsvideo #filmsongs](https://www.youtube.com/watch?v=XUJ_j37crvE)
+- [Ohm Muruga - Verum Charam Lyric | M.G. Radhakrishnan | Malayalam Devotional Songs](https://www.youtube.com/watch?v=xmyi_0-S1Sg)
+- [Villali Veeran - Ormayil Vrischikam Lyric | T.S. Radhakrishnan | Devotional Songs](https://www.youtube.com/watch?v=djsuy1483Sc)
+- [Ohm Muruga - Thruthudi Chenda Lyric | M.G. Radhakrishnan | Devotional Songs](https://www.youtube.com/watch?v=i9kLQWxoERs)
+- [Ohm Muruga - Neelam Kolam Lyric | M.G. Radhakrishnan | Malayalam Devotional Songs](https://www.youtube.com/watch?v=PJ7CGvuB6HU)
+- [Ohm Muruga - Kaduneelappeeli Lyric | M.G. Radhakrishnan | Devotional Songs](https://www.youtube.com/watch?v=VcQsVRDXdBA)
+- [Odakkuzhal - Sidhanmar Dhyanathil Lyric | Vidyadharan | Malayalam Devotional Songs](https://www.youtube.com/watch?v=83Mxwi07GVY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
