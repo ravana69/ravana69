@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nalla Thozhan | Cape Town | Naveen Madhav #shortsvideo #filmsongs](https://www.youtube.com/watch?v=XUJ_j37crvE)
+- [Nalla Thozhan | Cape Town | Naveen Madhav #shortsvideo #filmsongs](https://www.youtube.com/watch?v=rlPpVsraGng)
+- [Nalla Thozhan | Cape Town | Naveen Madhav #shortsvideo #filmsongs](https://www.youtube.com/watch?v=HCwSJgUJiCo)
+- [Nalla Thozhan | Cape Town | Naveen Madhav #shortsvideo #filmsongs](https://www.youtube.com/watch?v=7Jld3EAWdjU)
+- [Jayabharathi Old Malayalam Movie Songs | Vadhu Doctoraanu Remastered Malayalam Songs | K.J.Yesudas](https://www.youtube.com/watch?v=HtAwmJlZ-hs)
 - [വെള്ളിയതാം നാൾ | GOOD FRIDAY SONG | ROY PUTHUR | REBA ROMY #goodfriday #greatlent #royputhur](https://www.youtube.com/watch?v=wiiERRjH4Mw)
-- [ഇന്ന് മാർച്ച്  27എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala mahimayu](https://www.youtube.com/watch?v=Yy94mdqfTlg)
-- [Japamala 27th of March 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 27th of March 2024](https://www.youtube.com/watch?v=U0Dj8ZupTiw)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=or-VbcgyEbM)
-- [Megam Karukkuthu | Ananda Ragam | Ilaiyaraaja | K.J.Yesudas & S.Janaki | Hi-Res Audio](https://www.youtube.com/watch?v=KgTKrAUAXwg)
-- [Morning Prayer 27th of March # Athiravile Prarthana 27th March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=50njNrgYMew)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
