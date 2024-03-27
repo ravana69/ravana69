@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ALTHARAYIL NINNUM | #kester  #malayalamchristiansong  #shorts  | REEL 3](https://www.youtube.com/watch?v=vNGk8v9zPH8)
+- [Malaikottai Vaaliban Title Music (Audio) | Malaikottai Vaaliban |Mohanlal,Lijo Jose |Prashant Pillai](https://www.youtube.com/watch?v=OMDuy9aFYok)
+- [Lokam Niranjavane | New Easter Video Song | Sreya Jayadeep | Joji Johns | Arun Das Puthiyavila](https://www.youtube.com/watch?v=PPznwVY_vrA)
 - [A stunning recreation of a masterpiece!🌟 #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=tPgjru3k1dc)
 - [Thalathil Vellameduthu  Feat Ninoy & Athul Team # Pesaha Vyazham Song # Maundy Thursday Song](https://www.youtube.com/watch?v=ZM7hrJOGvaY)
 - [ക്രിസ്തു ഒരുക്കിയ വിരുന്നുമേശ | പെസഹാതിരുന്നാൾ | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=Bs6AwCs_mxg)
-- [Narayanaya Nama - Naamam Japikka Naam Lyric | K.M. Udayan | Malayalam Devotional Songs](https://www.youtube.com/watch?v=5u1EljS5qoA)
-- [Madhu Balakrishnan - Kannanam Unniye](https://www.youtube.com/watch?v=Dpu1DbxY9Gc)
-- [Madhu Balakrishnan - Santhanagopala](https://www.youtube.com/watch?v=xc3WqwwCma8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
