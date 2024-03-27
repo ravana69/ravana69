@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [സഹനത്തിൻ്റെ ഗാഗുൽത്താ | യേശുവേ... സ്നേഹ നായകാ...അകലരുതേ ഒരു നാളും നീ.. | Feat. Evugin, Jibin TS](https://www.youtube.com/watch?v=QsBza7fIjoQ)
+- [Nasrayan | Saritha Ram #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=yAPZ5ni7mew)
+- [Nasrayan | Saritha Ram #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=DkM4C9PDS0I)
+- [Nasrayan | Saritha Ram #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=3_Iz8SJxanw)
 - [Ohm Muruga - Verum Charam Lyric | M.G. Radhakrishnan | Malayalam Devotional Songs](https://www.youtube.com/watch?v=xmyi_0-S1Sg)
 - [Villali Veeran - Ormayil Vrischikam Lyric | T.S. Radhakrishnan | Devotional Songs](https://www.youtube.com/watch?v=djsuy1483Sc)
-- [Ohm Muruga - Thruthudi Chenda Lyric | M.G. Radhakrishnan | Devotional Songs](https://www.youtube.com/watch?v=i9kLQWxoERs)
-- [Ohm Muruga - Neelam Kolam Lyric | M.G. Radhakrishnan | Malayalam Devotional Songs](https://www.youtube.com/watch?v=PJ7CGvuB6HU)
-- [Ohm Muruga - Kaduneelappeeli Lyric | M.G. Radhakrishnan | Devotional Songs](https://www.youtube.com/watch?v=VcQsVRDXdBA)
-- [Odakkuzhal - Sidhanmar Dhyanathil Lyric | Vidyadharan | Malayalam Devotional Songs](https://www.youtube.com/watch?v=83Mxwi07GVY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
