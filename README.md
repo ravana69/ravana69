@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Elohi Elohi Lama Sabakthani | #short | Holy Week Song | Kester | Mobet Rajan | Good Friday Song](https://www.youtube.com/watch?v=Jlfm7Hlm1CA)
-- [Devesha Yeshupara Karaoke | Christian Songs Karaoke | Karaoke with Lyrics Video](https://www.youtube.com/watch?v=xPix196LMY0)
-- [Pakalin Pavanil | Traffic | Sithara Krishnakumar | Vineeth Sreenivasan | Mejo Joseph](https://www.youtube.com/watch?v=C10EBGsdXkg)
-- [സഹനത്തിൻ്റെ ഗാഗുൽത്താ | യേശുവേ... സ്നേഹ നായകാ...അകലരുതേ ഒരു നാളും നീ.. | Feat. Evugin, Jibin TS](https://www.youtube.com/watch?v=QsBza7fIjoQ)
-- [Nasrayan | Saritha Ram #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=yAPZ5ni7mew)
-- [Nasrayan | Saritha Ram #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=DkM4C9PDS0I)
+- [A stunning recreation of a masterpiece!🌟 #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=tPgjru3k1dc)
+- [Thalathil Vellameduthu  Feat Ninoy & Athul Team # Pesaha Vyazham Song # Maundy Thursday Song](https://www.youtube.com/watch?v=ZM7hrJOGvaY)
+- [ക്രിസ്തു ഒരുക്കിയ വിരുന്നുമേശ | പെസഹാതിരുന്നാൾ | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=Bs6AwCs_mxg)
+- [Narayanaya Nama - Naamam Japikka Naam Lyric | K.M. Udayan | Malayalam Devotional Songs](https://www.youtube.com/watch?v=5u1EljS5qoA)
+- [Madhu Balakrishnan - Kannanam Unniye](https://www.youtube.com/watch?v=Dpu1DbxY9Gc)
+- [Madhu Balakrishnan - Santhanagopala](https://www.youtube.com/watch?v=xc3WqwwCma8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
