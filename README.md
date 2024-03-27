@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Gopike Hridayam Oru Video Song | Nandanam | Navya Nair | KJ Yesudas| Gireesh Puthenchery| Raveendran](https://www.youtube.com/watch?v=ol53RjwdnGU)
+- [Vennila Vennila | Parthan Kanda Paralokam | Jayaram | Sreedevika | Kaithapram | Unni Menon](https://www.youtube.com/watch?v=kLkC0ZUdCoY)
+- [Nalla Thozhan | Cape Town | Naveen Madhav #shortsvideo #filmsongs](https://www.youtube.com/watch?v=heRnrUSr9Mg)
 - [Nalla Thozhan | Cape Town | Naveen Madhav #shortsvideo #filmsongs](https://www.youtube.com/watch?v=XUJ_j37crvE)
+- [Nalla Thozhan | Cape Town | Naveen Madhav #shortsvideo #filmsongs](https://www.youtube.com/watch?v=ez29fyNwFRo)
 - [Nalla Thozhan | Cape Town | Naveen Madhav #shortsvideo #filmsongs](https://www.youtube.com/watch?v=rlPpVsraGng)
-- [Nalla Thozhan | Cape Town | Naveen Madhav #shortsvideo #filmsongs](https://www.youtube.com/watch?v=HCwSJgUJiCo)
-- [Nalla Thozhan | Cape Town | Naveen Madhav #shortsvideo #filmsongs](https://www.youtube.com/watch?v=7Jld3EAWdjU)
-- [Jayabharathi Old Malayalam Movie Songs | Vadhu Doctoraanu Remastered Malayalam Songs | K.J.Yesudas](https://www.youtube.com/watch?v=HtAwmJlZ-hs)
-- [വെള്ളിയതാം നാൾ | GOOD FRIDAY SONG | ROY PUTHUR | REBA ROMY #goodfriday #greatlent #royputhur](https://www.youtube.com/watch?v=wiiERRjH4Mw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
