@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Elohi Elohi Lama Sabakthani | #short | Holy Week Song | Kester | Mobet Rajan | Good Friday Song](https://www.youtube.com/watch?v=Jlfm7Hlm1CA)
+- [Devesha Yeshupara Karaoke | Christian Songs Karaoke | Karaoke with Lyrics Video](https://www.youtube.com/watch?v=xPix196LMY0)
+- [Pakalin Pavanil | Traffic | Sithara Krishnakumar | Vineeth Sreenivasan | Mejo Joseph](https://www.youtube.com/watch?v=C10EBGsdXkg)
 - [സഹനത്തിൻ്റെ ഗാഗുൽത്താ | യേശുവേ... സ്നേഹ നായകാ...അകലരുതേ ഒരു നാളും നീ.. | Feat. Evugin, Jibin TS](https://www.youtube.com/watch?v=QsBza7fIjoQ)
 - [Nasrayan | Saritha Ram #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=yAPZ5ni7mew)
 - [Nasrayan | Saritha Ram #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=DkM4C9PDS0I)
-- [Nasrayan | Saritha Ram #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=3_Iz8SJxanw)
-- [Ohm Muruga - Verum Charam Lyric | M.G. Radhakrishnan | Malayalam Devotional Songs](https://www.youtube.com/watch?v=xmyi_0-S1Sg)
-- [Villali Veeran - Ormayil Vrischikam Lyric | T.S. Radhakrishnan | Devotional Songs](https://www.youtube.com/watch?v=djsuy1483Sc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
