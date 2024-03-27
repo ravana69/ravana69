@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [MAUNDY THURSDAY SONG | കാൽകഴുകൽ ശുശ്രൂഷാ ഗീതങ്ങൾ | ROY PUTHUR | #goodfriday #greatlent #royputhur](https://www.youtube.com/watch?v=7Z5XhJHBM0M)
 - [Allikalil Azhakalayo | Praja | Mohanlal | MG Sreekumar | Aishwarya | Kochin Haneefa | Sujatha Mohan](https://www.youtube.com/watch?v=Svx-1ThYUH4)
 - [Kannil Umma | Vineeth | Sandhya | Sujatha Mohan | Vidhu Prathap | Vidyasagar | Gireesh Puthenchery](https://www.youtube.com/watch?v=xIdAzhEH9sY)
 - [Athazhameshayil | പെസഹാ വ്യാഴം | പെസഹാതിരുന്നാൾ |Maundy Thursday |#shorts #christianshorts #lent](https://www.youtube.com/watch?v=bUC8qwwXMWQ)
 - [Karukavayal Kuruvi... | Dhruvam | Shibu Chakravarthy l KS Chithra | G Venugopal #songoftheday](https://www.youtube.com/watch?v=74c9y48aiJE)
 - [27 March 2024](https://www.youtube.com/watch?v=pFgOmysr24Y)
-- [Tharalitha Raavil | HD Video | Sooryamaanasam | MM Keeravani | Kaithapram | KJ Yesudas](https://www.youtube.com/watch?v=Xa3yDGK59fM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
