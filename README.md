@@ -36,8 +36,8 @@
 - [NEERUMENTE PRANANIL | RONI JOSEPH | PAVITHRAN AMACHAL | @JinoKunnumpurathu #christiansongs](https://www.youtube.com/watch?v=fkopO_9BYjc)
 - [Karale Nin Kai Pidichal Video Song| Devadoothan | Vidyasagar | KJ Yesudas| Preetha Kannan|Kaithapram](https://www.youtube.com/watch?v=8CyS3c0zw2c)
 - [Devesha Yeshupara Karaoke | Christian Songs Karaoke | Karaoke with Lyrics Video](https://www.youtube.com/watch?v=wGPVPERIMYE)
+- [Kandalum Kalvariyil | Sithara Krishnakumar | Malayalam Christian Songs | Good Friday Songs](https://www.youtube.com/watch?v=oaHjCyq7Fi4)
 - [Jayabharathi Old Malayalam Movie Songs | Aarum Anyaralla Remastered Malayalam Songs | P.Jayachandran](https://www.youtube.com/watch?v=sKCoMfZUpnE)
-- [Chakkitharavum Kunjungalum | Vedalakshmi #animation #animationvideo #kidscartoon #kidscartoon](https://www.youtube.com/watch?v=gEGudjIYOMQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
