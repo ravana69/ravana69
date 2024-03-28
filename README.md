@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [No പ്രകൃതി Only വികൃതി | Malayalee From India | Nivin Pauly | Dhyan Sreenivasan](https://www.youtube.com/watch?v=h_OsI7r0Asc)
 - [മലയാളികളെന്നും ഹൃദയത്തിൽ  സൂക്ഷിക്കുന്ന നിത്യമനോഹര ഹൃദയഗീതങ്ങൾ ! MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=D68G3Dbt_Cs)
 - [GOOD FRIDAY | ദുഃഖ വെള്ളി | ROY PUTHUR #greatlent #goodfriday #jesuschrist](https://www.youtube.com/watch?v=Ye1FmDHAEaM)
 - [ഒരു ജന്മം മുഴുവൻ കേട്ടാസ്വദിക്കാൻ കൊതി തോന്നുന്ന മലയാളസിനിമയിലെ  മനോഹര ഗാനങ്ങൾ ! SUPERHIT SONGS](https://www.youtube.com/watch?v=xJASRgi9VUU)
 - [Malkosinte Gadhgathangal Day 46](https://www.youtube.com/watch?v=9EMlPnprW6M)
 - [NEERUMENTE PRANANIL | RONI JOSEPH | PAVITHRAN AMACHAL | @JinoKunnumpurathu #christiansongs](https://www.youtube.com/watch?v=fkopO_9BYjc)
-- [Karale Nin Kai Pidichal Video Song| Devadoothan | Vidyasagar | KJ Yesudas| Preetha Kannan|Kaithapram](https://www.youtube.com/watch?v=8CyS3c0zw2c)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
