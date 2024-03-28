@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Jayabharathi Old Malayalam Movie Songs | Aarum Anyaralla Remastered Malayalam Songs | P.Jayachandran](https://www.youtube.com/watch?v=sKCoMfZUpnE)
+- [Chakkitharavum Kunjungalum | Vedalakshmi #animation #animationvideo #kidscartoon #kidscartoon](https://www.youtube.com/watch?v=gEGudjIYOMQ)
 - [എളിമയുടെ മാതൃക ലോകത്തിനുകാട്ടിയ പെസഹാവ്യാഴ ഗീതങ്ങൾ  | Maundy Thursday Songs | Easter Songs](https://www.youtube.com/watch?v=q7IFyaPBGkc)
 - [ഇന്ന് മാർച്ച്  28എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala praksaha](https://www.youtube.com/watch?v=gEhEkY6qWAU)
 - [Thalathil Vellameduthu  Feat Ninoy & Athul Team # Pesaha Vyazham Song # Maundy Thursday Song](https://www.youtube.com/watch?v=JTsTPxNttdM)
 - [Japamala 28th of March 2024 # Mathavinte Japamala Prakashathinte Rahasyangal 28th of March 24](https://www.youtube.com/watch?v=LZhlVFaYk5I)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=4t8aTAOXSSM)
-- [Morning Prayer 28th of March # Athiravile Prarthana 28th March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=3wg0Mq7gAzw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
