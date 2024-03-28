@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [യേശുനാഥന്റെ കുരിശുമരണത്തെ ഓർത്തു  ലോകമെങ്ങും ധ്യാനിക്കുന്ന പരിശുദ്ധ ഗാനങ്ങൾ](https://www.youtube.com/watch?v=ZK6w78tAl4Y)
+- [എവർഗ്രീൻ പ്രണയനായകൻ കുഞ്ചാക്കോ ബോബന്റെ ഇഷ്ടഗാനങ്ങൾ | HITS OF KUNCHACKO BOBAN | MOVIEWORLD MUSIC](https://www.youtube.com/watch?v=ZB4cBZscf18)
+- [Krooshitha Roopathil | Good Friday Status | Dhukka Velli Whatsapp Status  |#shorts #jesus](https://www.youtube.com/watch?v=pot0co1JKGo)
+- [Good Friday Songs Malayalam # Dhukha Velliyazhcha Ganangal Malayalam Christian songs # Ninoy & Athul](https://www.youtube.com/watch?v=ESlbaI3Miss)
 - [PUTHRAN THAMBURAN |#abhijithkollam | ANTONY PAUL KEERAMPILLY | VINEESH ISSAC #shorts | REEL 2](https://www.youtube.com/watch?v=stoYx_ZIBJg)
 - [ANGUDOORE Kalvariyil - GOOD FRIDAY SONG SHORT | Fr. SHAJI THUMPECHIRAYIL](https://www.youtube.com/watch?v=gW8Ln59ihHU)
-- [ANGUDOORE KALVARIYIL |Fr. SHAJI THUMPECHIRAYIL |STAR SINGER ARAVIND DILEEP NAIR |Fr. ROJAN PURACKAL](https://www.youtube.com/watch?v=KIBGOj6kzIU)
-- [Thenum Vayambum - Lofi | Thenum Vayambum | Raveendran | S. Janaki | EternaLove](https://www.youtube.com/watch?v=vt_VEyfuiv4)
-- [Naadayaloru | Manikyakkallu | Sherdin | M Jayachandran | Anil Panachooran](https://www.youtube.com/watch?v=paawFP1PvgE)
-- [പെസഹാതിരുന്നാൾ |പെസഹ വ്യാഴം| Maundy Thursday |#shorts | Rev. Aneesh P Joseph |#christianshorts #lent](https://www.youtube.com/watch?v=2NwV85_cnk0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
