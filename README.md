@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Ithu Jeevante Danam | Pesaha Vyazham | Pesaha Ganangal | Christian Devotional Songs | Audio Jukebox](https://www.youtube.com/watch?v=TpvGc70Wo5I)
-- [No പ്രകൃതി Only വികൃതി | Malayalee From India | Nivin Pauly | Dhyan Sreenivasan](https://www.youtube.com/watch?v=h_OsI7r0Asc)
-- [Taarapadham | R. Ravisankar | Fr. Cheriyan Kuniyanthodath | Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=l3uR2twXVnw)
-- [മലയാളികളെന്നും ഹൃദയത്തിൽ  സൂക്ഷിക്കുന്ന നിത്യമനോഹര ഹൃദയഗീതങ്ങൾ ! MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=D68G3Dbt_Cs)
-- [GOOD FRIDAY | ദുഃഖ വെള്ളി | ROY PUTHUR #greatlent #goodfriday #jesuschrist](https://www.youtube.com/watch?v=Ye1FmDHAEaM)
-- [ഒരു ജന്മം മുഴുവൻ കേട്ടാസ്വദിക്കാൻ കൊതി തോന്നുന്ന മലയാളസിനിമയിലെ  മനോഹര ഗാനങ്ങൾ ! SUPERHIT SONGS](https://www.youtube.com/watch?v=xJASRgi9VUU)
+- [Thenum Vayambum - Lofi | Thenum Vayambum | Raveendran | S. Janaki | EternaLove](https://www.youtube.com/watch?v=vt_VEyfuiv4)
+- [Naadayaloru | Manikyakkallu | Sherdin | M Jayachandran | Anil Panachooran](https://www.youtube.com/watch?v=paawFP1PvgE)
+- [പെസഹാതിരുന്നാൾ |പെസഹ വ്യാഴം| Maundy Thursday |#shorts | Rev. Aneesh P Joseph |#christianshorts #lent](https://www.youtube.com/watch?v=2NwV85_cnk0)
+- [Nakshatra Rajyathe Raajavo Video Song | T. P. Balagopalan M. A | K. J. Yesudas | Mohanlal #shorts](https://www.youtube.com/watch?v=k1LByH-7kss)
+- [Chinkaariyam Poonkuyilum #animation #animationsong #kidsanimation #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=SJmpNruqhD8)
+- [Dance away your problems!💃 #KanniluKannilu #Ayisha #ytshorts #shorts](https://www.youtube.com/watch?v=cv7myrnke1c)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
