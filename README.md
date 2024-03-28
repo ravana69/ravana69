@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ARIMATHYAA NAATTIL | അരിമത്യാ നാട്ടിൽ | ROY PUTHUR | REBA ROMY #greatlent #royputhur](https://www.youtube.com/watch?v=cKdVyE507SM)
 - [Chakinakathoru Novunde | Christian Video Song | Joby Kavalam | Joji Johns | Surya Narayanan](https://www.youtube.com/watch?v=8hFIYBDNHqQ)
 - [Madhu Balakrishnan - Ini Enikkoru Janmam](https://www.youtube.com/watch?v=-F54kDGlOE8)
 - [Madhu Balakrishnan - Chottanikkara Bhairavi](https://www.youtube.com/watch?v=-snQ2H8v6T0)
 - [Madhu Balakrishnan - Kalkkanda Swanabhashini](https://www.youtube.com/watch?v=KBYtv3BRc8M)
 - [Madhu Balakrishnan - Moovandhi Kunkumam](https://www.youtube.com/watch?v=IV3EswrsUnA)
-- [Madhu Balakrishnan - Sankarane Sankariyaal](https://www.youtube.com/watch?v=iIHJhPb4zP8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
