@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [PUTHRAN THAMBURAN |#abhijithkollam | ANTONY PAUL KEERAMPILLY | VINEESH ISSAC #shorts | REEL 2](https://www.youtube.com/watch?v=stoYx_ZIBJg)
+- [ANGUDOORE Kalvariyil - GOOD FRIDAY SONG SHORT | Fr. SHAJI THUMPECHIRAYIL](https://www.youtube.com/watch?v=gW8Ln59ihHU)
+- [ANGUDOORE KALVARIYIL |Fr. SHAJI THUMPECHIRAYIL |STAR SINGER ARAVIND DILEEP NAIR |Fr. ROJAN PURACKAL](https://www.youtube.com/watch?v=KIBGOj6kzIU)
 - [Thenum Vayambum - Lofi | Thenum Vayambum | Raveendran | S. Janaki | EternaLove](https://www.youtube.com/watch?v=vt_VEyfuiv4)
 - [Naadayaloru | Manikyakkallu | Sherdin | M Jayachandran | Anil Panachooran](https://www.youtube.com/watch?v=paawFP1PvgE)
 - [പെസഹാതിരുന്നാൾ |പെസഹ വ്യാഴം| Maundy Thursday |#shorts | Rev. Aneesh P Joseph |#christianshorts #lent](https://www.youtube.com/watch?v=2NwV85_cnk0)
-- [Nakshatra Rajyathe Raajavo Video Song | T. P. Balagopalan M. A | K. J. Yesudas | Mohanlal #shorts](https://www.youtube.com/watch?v=k1LByH-7kss)
-- [Chinkaariyam Poonkuyilum #animation #animationsong #kidsanimation #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=SJmpNruqhD8)
-- [Dance away your problems!💃 #KanniluKannilu #Ayisha #ytshorts #shorts](https://www.youtube.com/watch?v=cv7myrnke1c)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
