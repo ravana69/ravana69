@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഒരു ദുഃഖവെള്ളിസന്ദേശം Good Friday Message By Sonychen CMI & Fr Juby Maniyamkeril CMI | Dhukhavelli](https://www.youtube.com/watch?v=YkzbMaarJw4)
 - [Morning Prayer 29th of March # Athiravile Prarthana 29th March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=JOyFurPCzz4)
 - [Malkosinte Gadhgathangal Day 47](https://www.youtube.com/watch?v=87dwGvBBe7g)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=rZRellt0MwU)
 - [Mathavinodulla Samprakshana Prarthana The Immaculate Heart of Mother Mary Prayer 29th March 24](https://www.youtube.com/watch?v=m_U34qRavfU)
 - [28 March 2024](https://www.youtube.com/watch?v=gNxRFypXTCU)
-- [ARIMATHYAA NAATTIL | അരിമത്യാ നാട്ടിൽ | ROY PUTHUR | REBA ROMY #greatlent #royputhur](https://www.youtube.com/watch?v=cKdVyE507SM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
