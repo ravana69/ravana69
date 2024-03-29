@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Japamala 29th of March 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 29th of March 24](https://www.youtube.com/watch?v=-wxMowQlNhI)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=bMBMObgt-hY)
-- [Puthiya Kurishinte Vazhi Good Friday 2024 |  New Way of The Cross Malayalam Dhukhavelli 2024](https://www.youtube.com/watch?v=o72pn2PXTHM)
-- [ഒരു ദുഃഖവെള്ളിസന്ദേശം Good Friday Message By Sonychen CMI & Fr Juby Maniyamkeril CMI | Dhukhavelli](https://www.youtube.com/watch?v=YkzbMaarJw4)
-- [Morning Prayer 29th of March # Athiravile Prarthana 29th March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=JOyFurPCzz4)
-- [Malkosinte Gadhgathangal Day 47](https://www.youtube.com/watch?v=87dwGvBBe7g)
+- [Prem Nazir, Jayabharathi Old Malayalam Movie Song |Ladies Hostel Remastered Malayalam Song | Yesudas](https://www.youtube.com/watch?v=WCQAwNCmdfM)
+- [Sayippe Sayippe  | Ghazals & Quawali Film Songs #ghazal #quawali #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=vbG_ZNjmRZM)
+- [Devesha Yeshupara | Nithya Mammen | Shorts  #manoramachristiandevotionalsongs #ytshorts #reels](https://www.youtube.com/watch?v=S_r7a4hnyJA)
+- [Devesha Yeshupara | Nithya Mammen | Shorts  #manoramachristiandevotionalsongs #ytshorts #reels](https://www.youtube.com/watch?v=ZuulXQLR31Q)
+- [Devesha Yeshupara | Nithya Mammen | Shorts  #manoramachristiandevotionalsongs #ytshorts #reels](https://www.youtube.com/watch?v=m93PNOUo4Fo)
+- [Devesha Yeshupara | Nithya Mammen | Shorts  #manoramachristiandevotionalsongs #ytshorts #reels](https://www.youtube.com/watch?v=Mi8T6YzbMcQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
