@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kalvarikunnile Jeevathyagam | Good Friday Songs| ദുഃഖവെള്ളി ഗാനങ്ങൾ | Christian Devotional Songs](https://www.youtube.com/watch?v=zM_BVeVbPFo)
+- [Ponnurukkum Poomanam | Aaghosham | Manoj K Jayan | Suvarna | Chithra | M G Sreekumar](https://www.youtube.com/watch?v=TQN0iGgCOXQ)
 - [Prem Nazir, Jayabharathi Old Malayalam Movie Song |Ladies Hostel Remastered Malayalam Song | Yesudas](https://www.youtube.com/watch?v=WCQAwNCmdfM)
 - [Sayippe Sayippe  | Ghazals & Quawali Film Songs #ghazal #quawali #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=vbG_ZNjmRZM)
 - [Devesha Yeshupara | Nithya Mammen | Shorts  #manoramachristiandevotionalsongs #ytshorts #reels](https://www.youtube.com/watch?v=S_r7a4hnyJA)
 - [Devesha Yeshupara | Nithya Mammen | Shorts  #manoramachristiandevotionalsongs #ytshorts #reels](https://www.youtube.com/watch?v=ZuulXQLR31Q)
-- [Devesha Yeshupara | Nithya Mammen | Shorts  #manoramachristiandevotionalsongs #ytshorts #reels](https://www.youtube.com/watch?v=m93PNOUo4Fo)
-- [Devesha Yeshupara | Nithya Mammen | Shorts  #manoramachristiandevotionalsongs #ytshorts #reels](https://www.youtube.com/watch?v=Mi8T6YzbMcQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
