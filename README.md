@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Vaidoorya Kamalaninju | Ee Puzhayum Kadannu | Gireesh Puthenchery | Johnson Master](https://www.youtube.com/watch?v=sz0Mb90WAFU)
-- [Vilasalathike - Randu Lokam (1977) | K.J Yesudas | Yusafali Kechery | G Devarajan](https://www.youtube.com/watch?v=tDIBpGmeWdA)
-- [മനസ്സ് കത്തിയെരിയുമ്പോഴും ആശ്വാസകണമായി ഒഴുകിയെത്തുന്ന മലയാളസിനിമയിലെ മെലഡി ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=7ONAYsTKAUk)
-- [Neeyen Kinavo | നീയെന്‍ കിനാവോ | Hello My Dear Wrong Number | Malayalam Film Song | Mohanlal](https://www.youtube.com/watch?v=mTdhHfshaQk)
-- [നിന്നെ ആർക്കും വിട്ടുകൊടിക്കില്ല | Malayalee From India | Nivin Pauly | Anaswara Rajan | Dhyan](https://www.youtube.com/watch?v=17iqBjHpmw0)
-- [ഭൂജാതികളെ വന്നെത്തി | BHOOJAATHIKALE VANNETHI | KESTER | ROY PITHUR @royputhur](https://www.youtube.com/watch?v=fTMKBd9C0fs)
+- [M.G. Sreekumar - Bhadre Chottanikkara Vaazhum](https://www.youtube.com/watch?v=1jAyaj2nSts)
+- [Madhu Balakrishnan - Hrudayathil Omkara Dhwani](https://www.youtube.com/watch?v=yczrgE5J7Eo)
+- [Madhu Balakrishnan - Maanasa Sowparnika Than](https://www.youtube.com/watch?v=604OHhh2A5I)
+- [Madhu Balakrishnan - Then Madhuram](https://www.youtube.com/watch?v=CEmL_aioFeo)
+- [Madhu Balakrishnan - Aakasha Poomarakombathu](https://www.youtube.com/watch?v=-x-CyFiNR0s)
+- [Madhu Balakrishnan - Alankara Poojaikku](https://www.youtube.com/watch?v=9UYwowqYSm4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
