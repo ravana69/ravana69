@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Good Friday | dhukha velli   | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=Dx4SgyRsBkU)
+- [Etho Nidrathan Video Song | Ayal Kadha Ezhuthukayanu | K. J. Yesudas | Mohanlal | Nandini](https://www.youtube.com/watch?v=j3-A-yyHuDs)
+- [Chandra Chooda (Keerthanam) - Audio Song | Karmayogi | Navneeth Sundar | Anoop Shankar](https://www.youtube.com/watch?v=9uwJutNhqWM)
+- [Urangum Munpu Daiva Sannidhiyil # Night Prayer and Worship # Rathri Japam 29th of March 2024](https://www.youtube.com/watch?v=mUFUCNMiDfA)
+- [Aadyavasanthame | Vishnulokam | Mohanlal | Shanthi Krishna | Chithra | Raveendran | Murali](https://www.youtube.com/watch?v=70IPAgPUrEw)
 - [M.G. Sreekumar - Bhadre Chottanikkara Vaazhum](https://www.youtube.com/watch?v=1jAyaj2nSts)
-- [Madhu Balakrishnan - Hrudayathil Omkara Dhwani](https://www.youtube.com/watch?v=yczrgE5J7Eo)
-- [Madhu Balakrishnan - Maanasa Sowparnika Than](https://www.youtube.com/watch?v=604OHhh2A5I)
-- [Madhu Balakrishnan - Then Madhuram](https://www.youtube.com/watch?v=CEmL_aioFeo)
-- [Madhu Balakrishnan - Aakasha Poomarakombathu](https://www.youtube.com/watch?v=-x-CyFiNR0s)
-- [Madhu Balakrishnan - Alankara Poojaikku](https://www.youtube.com/watch?v=9UYwowqYSm4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
