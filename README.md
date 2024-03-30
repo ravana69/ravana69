@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [KABARIDAMORU MINNALANINJU | #shorts  | Song for Easter | K G Markose | Fr Shaji Thumpechirayil](https://www.youtube.com/watch?v=eqN3h-uFeLQ)
+- [Heart - ൽ നീ മാത്രം !! | Malayalee From India | Nivin Pauly | Anaswara Rajan | Dijo Jose Antony](https://www.youtube.com/watch?v=kswEL7zgCKM)
 - [Sharada Old Malayalam Movie Songs | Kuttavali Remastered Malayalam Songs |  P Susheela](https://www.youtube.com/watch?v=xBYDN29yAaU)
 - [Enneshurajan | Vidwankuttiyachan | Ramesh Murali | Gagul Joseph | Bindhu| Siji | Easter Songs](https://www.youtube.com/watch?v=7oN7XK-eJkY)
 - [Devesha Yeshupara | Nithya Mammen | Shorts #manoramachristiandevotionalsongs #ytshorts #reels](https://www.youtube.com/watch?v=zksIAZot32g)
 - [Karukare Karuthoru | Balettan | Shorts  #manoramamusic](https://www.youtube.com/watch?v=0FenL0wIY10)
-- [Kakke Kakke | Chakkaramuthu #ytshorts #filmsongs](https://www.youtube.com/watch?v=Zx74oG2vt5I)
-- [Easter Special Video Songs Malayalam | Manoj Christy | Joji Johns | Christian SOngs | Kester](https://www.youtube.com/watch?v=yfXwi3J4LKw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
