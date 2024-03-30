@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Easter Special Video Songs Malayalam | Manoj Christy | Joji Johns | Christian SOngs | Kester](https://www.youtube.com/watch?v=yfXwi3J4LKw)
+- [ഈസ്റ്റെര്‍ ഗാനങ്ങള്‍ ഉയിര്‍പ്പ് ഗീതങ്ങള്‍ 2024 | Easter Songs Christian devotional Songs Malayalam](https://www.youtube.com/watch?v=J-c9xE7p8RE)
+- [ഇന്ന് മാർച്ച്  30 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala santhos](https://www.youtube.com/watch?v=8lXDGljIlEQ)
+- [Japamala 30th of March 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 30th of March 24](https://www.youtube.com/watch?v=4bSX_dkWX50)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=o6HwKgedFFs)
 - [Malkosinte Gadhgathangal Day 48](https://www.youtube.com/watch?v=wL115yOXn_Y)
-- [Morning Prayer 30th of March # Athiravile Prarthana 30th March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=u1_PYGhM7wI)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=cM-FSWWP104)
-- [Mathavinodulla Samprakshana Prarthana The Immaculate Heart of Mother Mary Prayer 30th March 24](https://www.youtube.com/watch?v=-wKCOsfHtoQ)
-- [Dance your heart out!💃 #KanniluKannilu #Ayisha #ytshorts #shorts](https://www.youtube.com/watch?v=87e2m3wQRuk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
