@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Devesha Yeshupara | Nithya Mammen | Shorts #manoramachristiandevotionalsongs #ytshorts #reels](https://www.youtube.com/watch?v=zksIAZot32g)
+- [Karukare Karuthoru | Balettan | Shorts  #manoramamusic](https://www.youtube.com/watch?v=0FenL0wIY10)
 - [Kakke Kakke | Chakkaramuthu #ytshorts #filmsongs](https://www.youtube.com/watch?v=Zx74oG2vt5I)
 - [Easter Special Video Songs Malayalam | Manoj Christy | Joji Johns | Christian SOngs | Kester](https://www.youtube.com/watch?v=yfXwi3J4LKw)
 - [ഈസ്റ്റെര്‍ ഗാനങ്ങള്‍ ഉയിര്‍പ്പ് ഗീതങ്ങള്‍ 2024 | Easter Songs Christian devotional Songs Malayalam](https://www.youtube.com/watch?v=J-c9xE7p8RE)
 - [ഇന്ന് മാർച്ച്  30 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala santhos](https://www.youtube.com/watch?v=8lXDGljIlEQ)
-- [Japamala 30th of March 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 30th of March 24](https://www.youtube.com/watch?v=4bSX_dkWX50)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=o6HwKgedFFs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
