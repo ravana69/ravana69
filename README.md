@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Malkosinte Gadhgathangal Easter](https://www.youtube.com/watch?v=CiZ17HHwcd4)
 - [Morning Prayer 31st of March # Athiravile Prarthana 31st March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=0tHeQp19Sdg)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=Rw94j5wXFjg)
 - [Happy Easter](https://www.youtube.com/watch?v=pulQfcb_1Ew)
 - [Happy Easter | Manorama Music](https://www.youtube.com/watch?v=Az4vREBhUH0)
 - [Graceful and elegant!✨ #KanniluKannilu #Ayisha #ytshorts #shorts](https://www.youtube.com/watch?v=_-vwTyQb-rU)
-- [Happy Easter](https://www.youtube.com/watch?v=BmATXbN3zuY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
