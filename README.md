@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഓർമ്മകൾ ഓടിയെത്തുന്ന മലയാളസിനിമയിലെ ഒരിക്കലും മറക്കാനാവാത്ത ഗാനങ്ങൾ ! MALAYALAM EVERGREEN SONGS](https://www.youtube.com/watch?v=fbOlpNk5atQ)
+- [നൂറുപേർ കേട്ടാൽ അത്രേം പേർ നല്ലതെന്ന് മാത്രം പറയുന്ന ജനപ്രിയ താരങ്ങളുടെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=6NtdhW--I5A)
+- [Ente Ishta Gaahangal |Hits of Blessy Film Songs|Video Jukebox| സംവിധായകൻ ബ്ലെസ്സിയുടെ മികച്ച ഗാനങ്ങൾ](https://www.youtube.com/watch?v=NEij62I7OZU)
 - [@royputhur ദുഃഖ ശനി | ROY PUTHUR #greatlent #passionweek #royputhur](https://www.youtube.com/watch?v=Za0r2KjH5jA)
 - [Paadiyum Paranjum | കോളേജ് പഠനകാലത്തു വയലാറിനെ ദുരുപയോഗം ചെയ്തപ്പോൾ  | പാടിയും പറഞ്ഞും|  K Jayakumar](https://www.youtube.com/watch?v=pJKDK_x82rs)
 - [Othiri Othiri Swapnangal Video Song| Pranayavarnangal| Vidyasagar | KS Chithra | Gireesh Puthenchery](https://www.youtube.com/watch?v=uwZEpHYtFKA)
-- [KABARIDAMORU MINNALANINJU | #shorts  | Song for Easter | K G Markose | Fr Shaji Thumpechirayil](https://www.youtube.com/watch?v=eqN3h-uFeLQ)
-- [Heart - ൽ നീ മാത്രം !! | Malayalee From India | Nivin Pauly | Anaswara Rajan | Dijo Jose Antony](https://www.youtube.com/watch?v=kswEL7zgCKM)
-- [Sharada Old Malayalam Movie Songs | Kuttavali Remastered Malayalam Songs |  P Susheela](https://www.youtube.com/watch?v=xBYDN29yAaU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
