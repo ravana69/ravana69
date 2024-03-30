@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [HE IS RISEN | PONNOLIYIL KALLARA MINNUNNU | ROY PUTHUR #easter @royputhur](https://www.youtube.com/watch?v=tYaBc-CG_4E)
-- [MISHIHA NAMUKKU VENDI | VISHUDHAVARA THRISANDHYA JAPAM | Fr. SHAJI THUMPECHIRAYIL](https://www.youtube.com/watch?v=5D2BNciZvxo)
-- [Urangum Munpu Daiva Sannidhiyil # Night Prayer and Worship # Rathri Japam 30th of March 2024](https://www.youtube.com/watch?v=PBrPgiLVDt0)
-- [Pathiravayi Neram | പാതിരാവായി നേരം | Vietnam Colony Hit Malayalam Movie Song | Minmini | Mohanlal](https://www.youtube.com/watch?v=HZm4wF_BLQI)
-- [Kandalum](https://www.youtube.com/watch?v=UVHwdWgMj3o)
-- [Kandalum Kalavariyil....](https://www.youtube.com/watch?v=k73htTnsXQo)
+- [Etho Nidrathan Video Song | Ayal Kadha Ezhuthukayanu | Mohanlal | Nandini | K. J. Yesudas #shorts](https://www.youtube.com/watch?v=x8u4yxcflAI)
+- [Meene Chembulli Meene | Thottappan #vinayakan #shortsfeed #shortsvideo #shorts #reels #filmsongs](https://www.youtube.com/watch?v=oUalYeZ84Ww)
+- [Kokkakko Kulakozhi | Super Hit Malayalam Movie Song | Shinkari Bolona | Nishant Sagar | Manya](https://www.youtube.com/watch?v=VGIETZWjbTo)
+- [Ennnum Enne Karuthuvan | K G Markose | Malayalam Christian Devotional Song | Jesus Christ](https://www.youtube.com/watch?v=41hqlir7LHs)
+- [ഈസ്റ്റെര്‍ ഗാനങ്ങള്‍ ഉയിര്‍പ്പ് ഗീതങ്ങള്‍ 2024 | Easter Songs Christian devotional Songs Malayalam](https://www.youtube.com/watch?v=SwIHiGaxFxI)
+- [Anuragam | Thattathin Marayathu | Rahul Subrahmanian | Vineeth Sreenivasan | Shaan Rahman](https://www.youtube.com/watch?v=2gbK-Xd8jFo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
