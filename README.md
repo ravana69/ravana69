@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [HE IS RISEN | PONNOLIYIL KALLARA MINNUNNU | ROY PUTHUR #easter @royputhur](https://www.youtube.com/watch?v=tYaBc-CG_4E)
+- [MISHIHA NAMUKKU VENDI | VISHUDHAVARA THRISANDHYA JAPAM | Fr. SHAJI THUMPECHIRAYIL](https://www.youtube.com/watch?v=5D2BNciZvxo)
+- [Urangum Munpu Daiva Sannidhiyil # Night Prayer and Worship # Rathri Japam 30th of March 2024](https://www.youtube.com/watch?v=PBrPgiLVDt0)
 - [Pathiravayi Neram | പാതിരാവായി നേരം | Vietnam Colony Hit Malayalam Movie Song | Minmini | Mohanlal](https://www.youtube.com/watch?v=HZm4wF_BLQI)
 - [Kandalum](https://www.youtube.com/watch?v=UVHwdWgMj3o)
 - [Kandalum Kalavariyil....](https://www.youtube.com/watch?v=k73htTnsXQo)
-- [ഓർമ്മകൾ ഓടിയെത്തുന്ന മലയാളസിനിമയിലെ ഒരിക്കലും മറക്കാനാവാത്ത ഗാനങ്ങൾ ! MALAYALAM EVERGREEN SONGS](https://www.youtube.com/watch?v=fbOlpNk5atQ)
-- [നൂറുപേർ കേട്ടാൽ അത്രേം പേർ നല്ലതെന്ന് മാത്രം പറയുന്ന ജനപ്രിയ താരങ്ങളുടെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=6NtdhW--I5A)
-- [Manninte Punyam Thalirthu | Easter Songs | ഈസ്റ്റർദിന ഗാനങ്ങൾ Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=iBvLhUv_snA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
