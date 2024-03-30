@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [30 March 2024](https://www.youtube.com/watch?v=AGaCRum2mdc)
-- [Kunnimani Koottil Video Song | Manju Warrier | Suresh Gopi | Vidyasagar | KS Chithra | MG Sreekumar](https://www.youtube.com/watch?v=iYzjjSHQKI0)
-- [Lallalam Chollunna | Vietnam Colony | S Balakrishnan | KJ Yesudas | Bichu Thirumala #SongOfTheDay](https://www.youtube.com/watch?v=fNvpLCPuWS4)
-- [Kilye Kiliye | Aa Rathri | Mammootty | Poornima | Rohini | S Janaki | Ilaiyaraja](https://www.youtube.com/watch?v=DXFnMixbjvI)
-- [Thumbapoo Kodiyuduthu | HD Video | Sandesham | Johnson | Kaithapram | Johnson | KS Chithra |](https://www.youtube.com/watch?v=owIwSaPRN1E)
-- [Mahonnathante | Easter status| ഈസ്റ്റർ | #shorts|Christian whatsapp status Malayalam #jesus #easter](https://www.youtube.com/watch?v=Tp3RZVJlAzg)
+- [Happy Easter](https://www.youtube.com/watch?v=pulQfcb_1Ew)
+- [Happy Easter | Manorama Music](https://www.youtube.com/watch?v=Az4vREBhUH0)
+- [Graceful and elegant!✨ #KanniluKannilu #Ayisha #ytshorts #shorts](https://www.youtube.com/watch?v=_-vwTyQb-rU)
+- [Happy Easter](https://www.youtube.com/watch?v=BmATXbN3zuY)
+- [Mathavinodulla Samprakshana Prarthana The Immaculate Heart of Mother Mary Prayer 31st March 24](https://www.youtube.com/watch?v=UEZv5y8j6dE)
+- [കുരിശിലന്നൊരുനാൾ..| ഈസ്റ്റർ ഗാനങ്ങൾ | കെ ജെ യേശുദാസ് | Remastered Christian Devotionals](https://www.youtube.com/watch?v=fI6YdAiGN4o)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
