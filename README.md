@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thumbapoo Kodiyuduthu | HD Video | Sandesham | Johnson | Kaithapram | Johnson | KS Chithra |](https://www.youtube.com/watch?v=owIwSaPRN1E)
+- [Mahonnathante | Easter status| ഈസ്റ്റർ | #shorts|Christian whatsapp status Malayalam #jesus #easter](https://www.youtube.com/watch?v=Tp3RZVJlAzg)
+- [ആടിത്തിമിർക്കാൻ  ഹരം പകരുന്ന  മലയാളസിനിമയിലെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ ! DANCE SONGS MALAYALAM | MW MUSIC](https://www.youtube.com/watch?v=cX2aVUCp_K0)
+- [Easter Songs Malayalam | Wilson Piravom | Christian Superhit Songs | Joji Joohns | Holy Week Songs](https://www.youtube.com/watch?v=Au1soyhkQZ8)
 - [Poovili Poovili - Audio Song | Vishukkani | K.J. Yesudas | Salil Chowdhury](https://www.youtube.com/watch?v=ZDLbXaDb2Wg)
 - [അറുക്കപ്പെട്ട കുഞ്ഞാടായി ക്രൂശിൽ | Holy Saturday Status | Rev. Aneesh P Joseph | #shorts #lent](https://www.youtube.com/watch?v=PNup7ZfagZk)
-- [Antha Naalil | Pattam Pole | Madhu Balakrishnan | Harini | M Jayachandran | Annamalai](https://www.youtube.com/watch?v=5GtgPCS6E58)
-- [Etho Nidrathan Video Song | Ayal Kadha Ezhuthukayanu | Mohanlal | Nandini | K. J. Yesudas #shorts](https://www.youtube.com/watch?v=x8u4yxcflAI)
-- [Meene Chembulli Meene | Thottappan #vinayakan #shortsfeed #shortsvideo #shorts #reels #filmsongs](https://www.youtube.com/watch?v=oUalYeZ84Ww)
-- [Kokkakko Kulakozhi | Super Hit Malayalam Movie Song | Shinkari Bolona | Nishant Sagar | Manya](https://www.youtube.com/watch?v=VGIETZWjbTo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
