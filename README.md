@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [He is Risen Shorts](https://www.youtube.com/watch?v=VBf2u2nRAqA)
+- [പുത്തൻ പ്രതീക്ഷയേകുന്ന പുതിയ ഗാനങ്ങൾ  |Christian Devotional Songs Malayalam | Kester | Easter Songs](https://www.youtube.com/watch?v=_pfyEwH59Fs)
+- [ഈസ്റ്റെര്‍ ഗാനങ്ങള്‍ ഉയിര്‍പ്പ് ഗീതങ്ങള്‍ 2024 | Easter Songs Christian devotional Songs Malayalam](https://www.youtube.com/watch?v=MY5RRd-OW3M)
+- [ഇന്ന് മാർച്ച്  31എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala mahimayu](https://www.youtube.com/watch?v=2_88V13sWRQ)
+- [Japamala 31st of March 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 31st of March 2024](https://www.youtube.com/watch?v=yqJcqeMemFU)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=veqSwprI-Qw)
-- [Malkosinte Gadhgathangal Easter](https://www.youtube.com/watch?v=CiZ17HHwcd4)
-- [Morning Prayer 31st of March # Athiravile Prarthana 31st March 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=0tHeQp19Sdg)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=Rw94j5wXFjg)
-- [Happy Easter](https://www.youtube.com/watch?v=pulQfcb_1Ew)
-- [Happy Easter | Manorama Music](https://www.youtube.com/watch?v=Az4vREBhUH0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
