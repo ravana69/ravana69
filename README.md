@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chirakaniyana Manasam | Made in Caravan | Video | Bhadra Rajin | B K Harinarayanan | Vinu Thomas](https://www.youtube.com/watch?v=-GvkZYytgnE)
 - [Kingini Poove Video Song | Swapnam Kondu Thulabharam | Suresh Gopi | MG Sreekumar | Sujatha Mohan](https://www.youtube.com/watch?v=tC-jm8qJzZE)
 - [Thanka Noopurangal | Anjarakalyanam | Jagadeesh | M G Sreekumar | Wilson](https://www.youtube.com/watch?v=xwBn-Q4KImc)
 - [Sharada Old Romantic Malayalam Movie Song Kettippidichappol |Velliyazhcha |Remastered Malayalam Song](https://www.youtube.com/watch?v=4ddxY0XGKpU)
 - [Chakkitharavum Kunjungalum | Rajeev Alunkal #animation #animationvideo #kidscartoon #kidscartoon](https://www.youtube.com/watch?v=NVMT71fFEAM)
 - [He is Risen Shorts](https://www.youtube.com/watch?v=VBf2u2nRAqA)
-- [പുത്തൻ പ്രതീക്ഷയേകുന്ന പുതിയ ഗാനങ്ങൾ  |Christian Devotional Songs Malayalam | Kester | Easter Songs](https://www.youtube.com/watch?v=_pfyEwH59Fs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
