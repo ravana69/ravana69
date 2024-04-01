@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manju Mazha | Animation Video Version | Shreya Ghoshal | Ouseppachan | സിനിമാഗാനം അനിമേഷൻ രൂപത്തിൽ](https://www.youtube.com/watch?v=VSrmnByqZXc)
 - [Niraye - Future Frequencies Remix | Philip's | Hesham Abdul Wahab |Khatija Rahman|Future Frequencies](https://www.youtube.com/watch?v=Ngyr-Ejx4io)
 - [Madhu Old Super Hit Song OKarayunna Nerathum | Velliyazhcha | Remastered Malayalam Movie Song](https://www.youtube.com/watch?v=ush40eMwtss)
 - [En Nenjile | Ghazals & Quawali Film Songs #ghazal #quawali #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=7mJAdVsds4I)
 - [Christian Melody Songs | KG Markose | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=RpsBKfootkU)
 - [ഇന്ന്  ഏപ്രിൽ 1എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala santhoshat](https://www.youtube.com/watch?v=7bUtmpWg0Us)
-- [Japamala 1st of April 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 1st of April 24](https://www.youtube.com/watch?v=eZVvm-QW0U4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
