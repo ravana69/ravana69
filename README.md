@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Raavil Poonthen | രാവില്‍ പൂന്തേന്‍ |  Naduvazhikal Hit Movie Song l Mohanlal | Roopini](https://www.youtube.com/watch?v=pkIwo5OJMvo)
+- [Kunji Chiraku | Thakkudu | Kids Animation Videos | Manorama Animation Videos](https://www.youtube.com/watch?v=pkj8qI6PsdQ)
 - [YESHUVE  NINTE ROOPAME|യേശുവേ നിന്റെ രൂപമീ|CHRISTIAN DEVOTIONAL #christiandevotionalsongs #royputhur](https://www.youtube.com/watch?v=vdJSnL9wpBg)
 - [#naatunaatu 🕺😍 #rrr #ntr #ramcharan #mmkeeravaani #ytshorts #ytshort #telugudance #dance #status](https://www.youtube.com/watch?v=K6rMXufcTNM)
 - [ശ്രോതാക്കൾ കേൾക്കാനാഗ്രഹിച്ച മലയാളസിനിമയിലെ നിത്യവസന്ത ഗാനങ്ങൾ ! MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=0OKriNVvg6E)
 - [Kattile Kannan | Animation Video #kattilekannan #animation #malayalamcartoon #shorts #shortsfeed](https://www.youtube.com/watch?v=kf_U1QuugaI)
-- [Manju Mazha | Animation Video Version | Shreya Ghoshal | Ouseppachan | സിനിമാഗാനം അനിമേഷൻ രൂപത്തിൽ](https://www.youtube.com/watch?v=VSrmnByqZXc)
-- [Niraye - Future Frequencies Remix | Philip's | Hesham Abdul Wahab |Khatija Rahman|Future Frequencies](https://www.youtube.com/watch?v=Ngyr-Ejx4io)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
