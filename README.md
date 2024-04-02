@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Iniyenthu Nalkanam Video Song | Mohanlal | Samyuktha Varma | KJ Yesudas | Sujatha Mohan |Ouseppachan](https://www.youtube.com/watch?v=tOvw_CRag5Y)
+- [Pichakappoomkavukal | No.20 Madras Mail | Ousepachan |MG Sreekumar | Shibu Chakravarthy#SongOfTheDay](https://www.youtube.com/watch?v=_b8qBtXqLJM)
+- [Chellakattin Pallitheril | Mimics Parade | Jagadeesh | Siddique | Sunitha | Johnson | KS Chithra](https://www.youtube.com/watch?v=5DBfed6jO04)
 - [He Kaale Vettu Kaale  | HD Video | Malsaram | S Ramesan Nair | Kalabhavan Mani | M Jayachandran](https://www.youtube.com/watch?v=tVwjWXuJzy0)
 - [മലയാളികളുടെ ഇഷ്ടജോഡികളായ ജയറാം പാർവ്വതി യുടെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ ! JAYARAM & PARVATHY HITS](https://www.youtube.com/watch?v=iej4JaZxGE0)
 - [Singer Of The Week | Sebu George |Christian Devotional Songs Malayalam | joji Johns |Christian Songs](https://www.youtube.com/watch?v=nGUvm7Xblzw)
-- [NEERUMENTE PRANANIL |@JinoKunnumpurathu  | #shorts | #neerumenteprananil |#christiansongs #reels  2](https://www.youtube.com/watch?v=rGnR_EtkAk8)
-- ['Anandhamegham' from Happy New Year movie out on Saina Music !](https://www.youtube.com/watch?v=LKW9U5YkkCQ)
-- [Sway n' slay!✨ #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=VrydJgDjCcc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
