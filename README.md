@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Suhaani Raat  |Jukebox| Ghazal & Quawali Film Songs | Hariharan |Ramesh Narayanan| Shankar Mahadevan](https://www.youtube.com/watch?v=HfJJAs_Cttk)
+- [Anandhamegham Lofi Mix | Happy New Year | Gokul Sreekandan | Titto P Thankachen | Mariya Johny](https://www.youtube.com/watch?v=v4kP4a_yJWA)
+- [Varavarnamelayaay | Njan Kodeeswaran | Jagadeesh | Yesudas | Ouseppachan](https://www.youtube.com/watch?v=ydpBEZVwOVs)
+- [Prem Nazir Malayalam Movie Songs | College Girl Remastered Malayalam Songs | K. J. Yesudas](https://www.youtube.com/watch?v=XQD-qtvhIaU)
 - [Pahadi Padu | Ghazals & Quawali Film Songs #ghazal #quawali #shortsfeed #shortsvideo #kjyesudas](https://www.youtube.com/watch?v=xppKX1CrRzs)
 - [Manassoru | Mashithandu | Shorts #malayalammoviesongs  #manoramamusic](https://www.youtube.com/watch?v=bss5b-LUXHk)
-- [Vaanchikkunne Neril Kaanan | Maria Kolady #shortsvideo #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=ei4LoC64Nis)
-- [Sarvavum Yeshunadhanai | Prayer &Worship Songs |Christian Devotional Songs Malayalam | Binoy Chacko](https://www.youtube.com/watch?v=8pSS5vVdH7g)
-- [ഇന്ന്  ഏപ്രിൽ 2എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala dhukkathin](https://www.youtube.com/watch?v=hpbZdkoJFd4)
-- [Japamala 2nd of April 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 2nd of April 24](https://www.youtube.com/watch?v=48XHJEBaSro)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
