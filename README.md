@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [THIRUMUNPIL UYARTHIYA KARANGAL | New Christian Song Trailer #shorts #frshajithumpechirayil](https://www.youtube.com/watch?v=TX67z-LX6Lk)
 - [Vellikinnam Niranju Video Song | Arjunan Pillayum Anchu Makkalum | KJ Yesudas | Mohan Sithara](https://www.youtube.com/watch?v=GFpncJ2Hsvc)
 - [ജനിച്ചനാൾമുതൽ സുപരിചിതമായ കേൾക്കാനിഷ്ടമുള്ള മലയാളസിനിമാഗാനങ്ങൾ  | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=j7GY_mDsg-s)
 - [Mandachare Mottathalaya | Sindooracheppu | Yousufali Kecheri | G Devarajan | P Madhuri](https://www.youtube.com/watch?v=cARtvFiQvc8)
 - [Krishna Song Making Video | Malayalee From India | Nivin Pauly | Anaswara Rajan | Dijo Jose Antony](https://www.youtube.com/watch?v=3L3IWG0L3f4)
 - [Suhaani Raat  |Jukebox| Ghazal & Quawali Film Songs | Hariharan |Ramesh Narayanan| Shankar Mahadevan](https://www.youtube.com/watch?v=HfJJAs_Cttk)
-- [Anandhamegham Lofi Mix | Happy New Year | Gokul Sreekandan | Titto P Thankachen | Mariya Johny](https://www.youtube.com/watch?v=v4kP4a_yJWA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
