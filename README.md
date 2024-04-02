@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [He Kaale Vettu Kaale  | HD Video | Malsaram | S Ramesan Nair | Kalabhavan Mani | M Jayachandran](https://www.youtube.com/watch?v=tVwjWXuJzy0)
+- [മലയാളികളുടെ ഇഷ്ടജോഡികളായ ജയറാം പാർവ്വതി യുടെ സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ ! JAYARAM & PARVATHY HITS](https://www.youtube.com/watch?v=iej4JaZxGE0)
+- [Singer Of The Week | Sebu George |Christian Devotional Songs Malayalam | joji Johns |Christian Songs](https://www.youtube.com/watch?v=nGUvm7Xblzw)
 - [NEERUMENTE PRANANIL |@JinoKunnumpurathu  | #shorts | #neerumenteprananil |#christiansongs #reels  2](https://www.youtube.com/watch?v=rGnR_EtkAk8)
 - ['Anandhamegham' from Happy New Year movie out on Saina Music !](https://www.youtube.com/watch?v=LKW9U5YkkCQ)
 - [Sway n' slay!✨ #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=VrydJgDjCcc)
-- [2 April 2024](https://www.youtube.com/watch?v=x_Q25YVaot8)
-- [നിസ്സഹായതയുടെ ആ ചോദ്യം ! | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=lSz6Qq5lHSg)
-- [Nilaakkudame Nilaakkudame | Chirakodinja Kinavukal | P Jayachandran |  Minmini | Deepak Dev](https://www.youtube.com/watch?v=luxtEIzUIsg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
