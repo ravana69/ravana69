@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [THIRUMUNPIL UYARTHIYA KARANGAL | New Christian Song Trailer #shorts #frshajithumpechirayil](https://www.youtube.com/watch?v=TX67z-LX6Lk)
-- [Vellikinnam Niranju Video Song | Arjunan Pillayum Anchu Makkalum | KJ Yesudas | Mohan Sithara](https://www.youtube.com/watch?v=GFpncJ2Hsvc)
-- [ജനിച്ചനാൾമുതൽ സുപരിചിതമായ കേൾക്കാനിഷ്ടമുള്ള മലയാളസിനിമാഗാനങ്ങൾ  | MALAYALAM FILM SONGS](https://www.youtube.com/watch?v=j7GY_mDsg-s)
-- [Mandachare Mottathalaya | Sindooracheppu | Yousufali Kecheri | G Devarajan | P Madhuri](https://www.youtube.com/watch?v=cARtvFiQvc8)
-- [Krishna Song Making Video | Malayalee From India | Nivin Pauly | Anaswara Rajan | Dijo Jose Antony](https://www.youtube.com/watch?v=3L3IWG0L3f4)
-- [Suhaani Raat  |Jukebox| Ghazal & Quawali Film Songs | Hariharan |Ramesh Narayanan| Shankar Mahadevan](https://www.youtube.com/watch?v=HfJJAs_Cttk)
+- [നിസ്സഹായതയുടെ ആ ചോദ്യം ! | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=lSz6Qq5lHSg)
+- [Nilaakkudame Nilaakkudame | Chirakodinja Kinavukal | P Jayachandran |  Minmini | Deepak Dev](https://www.youtube.com/watch?v=luxtEIzUIsg)
+- [Mannakal Pozhiyum | Christian Devotional | Shorts #ytshorts  #christiansongsmalayalamdevotional](https://www.youtube.com/watch?v=CRh-5A--dqI)
+- [Indhulekhe Video Song | Thirichadi | KJ Yesudas | P Susheela | Vayalar](https://www.youtube.com/watch?v=NgAcTC0S884)
+- [Taarapadham Thedumbolum | Christian Devotional | Shorts  #christiansongsmalayalamdevotional](https://www.youtube.com/watch?v=3OqsQjuDSas)
+- [Kallaravathil Thurannu | K G Markose #shorts #christiansongs](https://www.youtube.com/watch?v=tWCkwJFLwcw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
