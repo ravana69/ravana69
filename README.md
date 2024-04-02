@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [#jesuschrist ആകാശമേ കേൾക്കെ #christiandevotionalsongs](https://www.youtube.com/watch?v=-UT7X6kMGdg)
+- [ഭാവതരളിത മൃദുലമനോഹരഗാനങ്ങൾ | മലയാളചലച്ചിത്രഗാനങ്ങൾ |കെ ജെ യേശുദാസ് | Malayalam melodies | Remastered](https://www.youtube.com/watch?v=k5g2izK0h6Q)
+- [പ്രഭാത പ്രാര്‍ത്ഥന April 3 # Athiravile Prarthana 3rd April 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=ZV4_P8CWQqI)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=nAzklxuDlpQ)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 3rd April 2024](https://www.youtube.com/watch?v=WuRGPg_gRO4)
 - [VIOLIN JACOB HITS- VOL .1/OWN MEDIA MUSIC / CHRISTIAN DEVOTIONAL SONGS/](https://www.youtube.com/watch?v=PCS6m-u7wPM)
-- [Iniyenthu Nalkanam Video Song | Mohanlal | Samyuktha Varma | KJ Yesudas | Sujatha Mohan |Ouseppachan](https://www.youtube.com/watch?v=tOvw_CRag5Y)
-- [Pichakappoomkavukal | No.20 Madras Mail | Ousepachan |MG Sreekumar | Shibu Chakravarthy#SongOfTheDay](https://www.youtube.com/watch?v=_b8qBtXqLJM)
-- [Chellakattin Pallitheril | Mimics Parade | Jagadeesh | Siddique | Sunitha | Johnson | KS Chithra](https://www.youtube.com/watch?v=5DBfed6jO04)
-- [He Kaale Vettu Kaale  | HD Video | Malsaram | S Ramesan Nair | Kalabhavan Mani | M Jayachandran](https://www.youtube.com/watch?v=tVwjWXuJzy0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
