@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [3 April 2024](https://www.youtube.com/watch?v=rD6JUC_9qHU)
+- [Anthiveyil Ponnuthirum  | Mohanlal | Shobana | KJ Yesudas | Sujatha Mohan | Ouseppachan](https://www.youtube.com/watch?v=TCKAtxh45pk)
+- [Chandana Cholayil | Sallapam | Johnson | KJ Yesudas | Kaithapram #SongOfTheDay](https://www.youtube.com/watch?v=68HKPqIaEkw)
 - [Christian Melody Songs | Bijoy P Jacob | Joji Johns | Christian Songs Malayalam | Melody Songs](https://www.youtube.com/watch?v=uE73uKbM9jI)
 - [NEERUMENTE PRANANIL |@JinoKunnumpurathu | #shorts | #neerumenteprananil |#christiansongs #reels 3](https://www.youtube.com/watch?v=eAPeHNNg_JY)
 - [Chandaamaama Video Song | Chandamama Movie | Kunchako Boban | M G Sreekumar | K S Chithra](https://www.youtube.com/watch?v=bXeuBCOpq4o)
-- [നമ്മെ കൈവിടാത്ത ദൈവം  | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=Iu_4Mf6BwYE)
-- [Pirakilaro - Video Song | Pavi Caretaker | Dilieep | Vineeth Kumar | Kapil Kapilan | Midhun Mukundan](https://www.youtube.com/watch?v=UTH-qUUyPf4)
-- [Hara Hara Sankara Video Song  | Rasikan | Vidyasagar #shorts](https://www.youtube.com/watch?v=Txd1AGoobk4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
