@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Thoomanjin Nenjilothungi | തൂമഞ്ഞിൻ നെഞ്ചിലൊതുങ്ങി | Evergreen Hit Song | Samooham | K J Yesudas](https://www.youtube.com/watch?v=ZdWi064vvfA)
-- [കേട്ടാലും കേട്ടാലും മതിവരാത്ത ഹൃദ്യഗാനങ്ങൾ | Malayalam Film Songs | Satyam Audios](https://www.youtube.com/watch?v=neynKv8ngq8)
-- [നല്ല ഗാനങ്ങൾ കേൾക്കാനാഗ്രഹിക്കുന്ന സംഗീതപ്രേമികൾക്കായി അണിയിച്ചൊരുക്കിയ ഉന്നത നിലവാരമുള്ള ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=MTIjhNSh5-A)
-- [Kallukondo Karinkallukondo | Kasavuthattam | Vayalar | G Devarajan | KJ Yesudas | Prem Nazir](https://www.youtube.com/watch?v=pGnAqLz2EKU)
-- [Pattum Maalayum - Chottanikkarayilamme Lyric | Mohandas | Malayalam Devotional Songs](https://www.youtube.com/watch?v=xOBzHymCnIw)
-- [Pattum Maalayum - Ammayaanaashrayam Lyric | Mohandas | Malayalam Devotional Songs](https://www.youtube.com/watch?v=dQGnIhJ4sRY)
+- [Chandaamaama Video Song | Chandamama Movie | Kunchako Boban | M G Sreekumar | K S Chithra](https://www.youtube.com/watch?v=bXeuBCOpq4o)
+- [നമ്മെ കൈവിടാത്ത ദൈവം  | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=Iu_4Mf6BwYE)
+- [Pirakilaro - Video Song | Pavi Caretaker | Dilieep | Vineeth Kumar | Kapil Kapilan | Midhun Mukundan](https://www.youtube.com/watch?v=UTH-qUUyPf4)
+- [Hara Hara Sankara Video Song  | Rasikan | Vidyasagar #shorts](https://www.youtube.com/watch?v=Txd1AGoobk4)
+- [Ennu Varum Nee | Super Hit Malayalam Movie Song | Kannaki | Lal | Nandita Das - Chithra Hits](https://www.youtube.com/watch?v=2lV8f3MHqVU)
+- [Kattakkalipp - Audio Song | Vayassethrayayi Muppathi | Sanfeer K | Aravind Nair](https://www.youtube.com/watch?v=V80lAtDQwC0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
