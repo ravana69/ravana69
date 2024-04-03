@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന April 4 # Athiravile Prarthana 4th of April 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=RF5Vw5gX3EA)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=Ii7G0xW4WvI)
+- [Banger moves!⚡ #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=IlDil_Mg6FU)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 4th April 2024](https://www.youtube.com/watch?v=k8_nW51ekXg)
 - [Randu Poovithal | My Dear Muthachan | Sreenivasan | Janaradanan | Mamukkoya | Johnson | KJ Yesudas](https://www.youtube.com/watch?v=j7tUKlnX_fs)
 - [3 April 2024](https://www.youtube.com/watch?v=rD6JUC_9qHU)
-- [Anthiveyil Ponnuthirum  | Mohanlal | Shobana | KJ Yesudas | Sujatha Mohan | Ouseppachan](https://www.youtube.com/watch?v=TCKAtxh45pk)
-- [Chandana Cholayil | Sallapam | Johnson | KJ Yesudas | Kaithapram #SongOfTheDay](https://www.youtube.com/watch?v=68HKPqIaEkw)
-- [Christian Melody Songs | Bijoy P Jacob | Joji Johns | Christian Songs Malayalam | Melody Songs](https://www.youtube.com/watch?v=uE73uKbM9jI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
