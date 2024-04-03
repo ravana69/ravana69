@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Christian Melody Songs | Bijoy P Jacob | Joji Johns | Christian Songs Malayalam | Melody Songs](https://www.youtube.com/watch?v=uE73uKbM9jI)
+- [NEERUMENTE PRANANIL |@JinoKunnumpurathu | #shorts | #neerumenteprananil |#christiansongs #reels 3](https://www.youtube.com/watch?v=eAPeHNNg_JY)
 - [Chandaamaama Video Song | Chandamama Movie | Kunchako Boban | M G Sreekumar | K S Chithra](https://www.youtube.com/watch?v=bXeuBCOpq4o)
 - [നമ്മെ കൈവിടാത്ത ദൈവം  | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=Iu_4Mf6BwYE)
 - [Pirakilaro - Video Song | Pavi Caretaker | Dilieep | Vineeth Kumar | Kapil Kapilan | Midhun Mukundan](https://www.youtube.com/watch?v=UTH-qUUyPf4)
 - [Hara Hara Sankara Video Song  | Rasikan | Vidyasagar #shorts](https://www.youtube.com/watch?v=Txd1AGoobk4)
-- [Ennu Varum Nee | Super Hit Malayalam Movie Song | Kannaki | Lal | Nandita Das - Chithra Hits](https://www.youtube.com/watch?v=2lV8f3MHqVU)
-- [Kattakkalipp - Audio Song | Vayassethrayayi Muppathi | Sanfeer K | Aravind Nair](https://www.youtube.com/watch?v=V80lAtDQwC0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
