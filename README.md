@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Mouliyil Mayilpeeli Video Song | Nandanam | Navya | KS Chithra | Gireesh Puthenchery | Raveendran](https://www.youtube.com/watch?v=zRKMkD1yrDU)
-- [Thennal Chirakundo | Unplugged | Payyans | Jayasurya | Karthik | Jyotsna | Kaithapram | Alphonse](https://www.youtube.com/watch?v=FbfK0-O_OmI)
-- [Vara chandralekhayalle Kilukil Pamparam Gireesh Puthenchery SP Venkitesh KS Chithra](https://www.youtube.com/watch?v=c2iCFWpY5jk)
-- [Prem Nazir Old Malayalam Movie Songs | Postmane Kananilla Remastered Malayalam Songs | P. Madhuri](https://www.youtube.com/watch?v=Rahx64fUUzg)
-- [AAKASHAME KELKKA | ആകാശമേ കേൾക്ക | ROY PUTHUR & REBA ROMY #christiandevotionalsongs #jesuschrist](https://www.youtube.com/watch?v=fIJfAWfK_UE)
-- [Azhake Azhake | Neerali | Shorts #malayalammoviesongs #shortsvideo #shorts](https://www.youtube.com/watch?v=2XNWpJcOipg)
+- [Pattum Maalayum - Chottanikkarayilamme Lyric | Mohandas | Malayalam Devotional Songs](https://www.youtube.com/watch?v=xOBzHymCnIw)
+- [Pattum Maalayum - Ammayaanaashrayam Lyric | Mohandas | Malayalam Devotional Songs](https://www.youtube.com/watch?v=dQGnIhJ4sRY)
+- [Ente Kavilamma - Kottam Kottam Lyric | K.G. Jayan | Malayalam Devotional Songs](https://www.youtube.com/watch?v=Zs9RtMAJC90)
+- [Pattum Maalayum - Ambe Sree shankari Lyric | Mohandas | Malayalam Devotional Songs](https://www.youtube.com/watch?v=r-IDKgxxA6Y)
+- [Ente Kavilamma - Shathakodi Lyric | K.G. Jayan | Malayalam Devotional Songs](https://www.youtube.com/watch?v=pdMBX_LZdmc)
+- [Saraswatham - Naamasahasrathirakalil Lyric | Chandramana | Devotional Songs](https://www.youtube.com/watch?v=qwiLt4l1RwI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
