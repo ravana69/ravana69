@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Rathinirvedham | Shorts #malayalamfilmsongs #shortsvideo #ytshorts #romanticstatus](https://www.youtube.com/watch?v=lj6FNomCnvo)
-- [Mullamalar Mala | Album Video | P Jayachandran | Abdul Nizar | Harish Sreehari | Balu R Nair](https://www.youtube.com/watch?v=gBYaOTODXwk)
-- [Chithira Panthalittu  | Darling Darling | Ouseppachan | Dileep | Kavya Madhavan | KJ Yesudas](https://www.youtube.com/watch?v=pxYHfehSOTY)
-- [മനസ്സിൽ കുളിർമഴ പെയ്തിറങ്ങും മലയാളസിനിമയിലെ മനോഹരമായ മെലഡി ഗാനങ്ങൾ ! EVERGREEN SONGS MALAYALAM](https://www.youtube.com/watch?v=Lhq2Kz2p1mk)
-- [Chand Hoga | Ghazals & Quawali Film Songs #ghazal #shorts #shortsfeed #shortsvideo #manjuwarrier](https://www.youtube.com/watch?v=lycVazgYYDQ)
-- [Alelo Pulelo Video Song | Pranayavarnangal | Vidyasagar | V Devanand, Sreenivas, Harish Raghavendra](https://www.youtube.com/watch?v=Kjfm1yRfhCs)
+- [Vaa Vaa Vaikathe | Puthan Panam | Vineeth Sreenivasan | Shaan Rahman | BK Harinarayanan](https://www.youtube.com/watch?v=YtiO5-xSj-I)
+- [മറ്റാരേക്കാളും നിന്നെ മനസ്സിലാക്കുന്ന ദൈവം  | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=WzfbX3M2NDs)
+- [Vida Parayukayaano Video Song | Big B | Shreya Ghoshal | Alphons Joseph | Santhosh Varma | Mammootty](https://www.youtube.com/watch?v=rEnGCel6j_M)
+- [കാത്തിരിക്കുക...  Thirumunpil Uyarthiya Karangal #shorts #newsong #frshajithumpechirayil](https://www.youtube.com/watch?v=lUdmmw9b5HE)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 4th of April 2024](https://www.youtube.com/watch?v=zBpBqZCOEr0)
+- [Ishaara | Malayalam Music Album | Kavithayayi 🦋 Niharika | Vinu | Vishnu | Vijeesh | Emotional Song](https://www.youtube.com/watch?v=zF_BN5uCiFA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
