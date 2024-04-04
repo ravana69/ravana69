@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chithira Panthalittu  | Darling Darling | Ouseppachan | Dileep | Kavya Madhavan | KJ Yesudas](https://www.youtube.com/watch?v=pxYHfehSOTY)
+- [മനസ്സിൽ കുളിർമഴ പെയ്തിറങ്ങും മലയാളസിനിമയിലെ മനോഹരമായ മെലഡി ഗാനങ്ങൾ ! EVERGREEN SONGS MALAYALAM](https://www.youtube.com/watch?v=Lhq2Kz2p1mk)
 - [Chand Hoga | Ghazals & Quawali Film Songs #ghazal #shorts #shortsfeed #shortsvideo #manjuwarrier](https://www.youtube.com/watch?v=lycVazgYYDQ)
 - [Alelo Pulelo Video Song | Pranayavarnangal | Vidyasagar | V Devanand, Sreenivas, Harish Raghavendra](https://www.youtube.com/watch?v=Kjfm1yRfhCs)
 - [Paadiyum Paranjum | ചെറുപ്പത്തിലേ ദാർശനികതയും തത്വചിന്തയും | പാടിയും പറഞ്ഞും | Sreekumaran Thampi](https://www.youtube.com/watch?v=a48p0kqhwZA)
 - [Sharada Old Malayalam Movie Songs | Kuttavali Remastered Malayalam Songs | P. Susheela](https://www.youtube.com/watch?v=QFDnEHRlngw)
-- [Daivam Thanna | Snehithan | Krishna | Nandhana | Yesudas | Mohan Sithara](https://www.youtube.com/watch?v=AJtGdIj-Dng)
-- [Christian Superhit Songs | M G Sreekumar | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=3SjNv4u4s_E)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
