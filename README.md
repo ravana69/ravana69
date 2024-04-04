@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 5th April 2024](https://www.youtube.com/watch?v=on7y4dAacZk)
+- [Electric moves!⚡️ #neelanilave #rdx #ytshorts #shorts](https://www.youtube.com/watch?v=JeOPDG557Po)
 - [Hosaina Hosaina | Chathikkaatha Chanthu | Sujatha Mohan | Afsal | Alex Paul #SongOfTheDay](https://www.youtube.com/watch?v=cmVKJlm29-c)
 - [Puzhayorathil Poonthoni | Silk Smitha | KS Chithra | Ilayaraja | ONV Kurup | Adharvam](https://www.youtube.com/watch?v=U-ne-DtqtUk)
 - [Doore Doore Vanil | Seethakallyanam | Jayaram | Jyothika | Geethu Mohandas | Indrajith | Sreenivas](https://www.youtube.com/watch?v=PWPaxJp3I_s)
 - [4 April 2024](https://www.youtube.com/watch?v=BYHA__Z5-UQ)
-- [കണ്ണിന്‌ കുളിർമ്മയേകും പുഞ്ചിരിയാൽ പ്രേക്ഷകരെ നേടിയ താരസുന്ദരിമാരുടെ അമൂല്യഗാനങ്ങൾ ! SUPERHIT SONGS](https://www.youtube.com/watch?v=kYG8zZKnub4)
-- [Christian Melody Songs | Manoj Christy | Kester | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=JFeqxdXwiGI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
