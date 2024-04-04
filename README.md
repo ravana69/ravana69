@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Paadiyum Paranjum | ചെറുപ്പത്തിലേ ദാർശനികതയും തത്വചിന്തയും | പാടിയും പറഞ്ഞും | Sreekumaran Thampi](https://www.youtube.com/watch?v=a48p0kqhwZA)
+- [Sharada Old Malayalam Movie Songs | Kuttavali Remastered Malayalam Songs | P. Susheela](https://www.youtube.com/watch?v=QFDnEHRlngw)
 - [Daivam Thanna | Snehithan | Krishna | Nandhana | Yesudas | Mohan Sithara](https://www.youtube.com/watch?v=AJtGdIj-Dng)
 - [Christian Superhit Songs | M G Sreekumar | Joji Johns | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=3SjNv4u4s_E)
 - [ഇന്ന്  ഏപ്രിൽ 4എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala prakashath](https://www.youtube.com/watch?v=fFCDcTMu160)
 - [Japamala 4th of April 2024 # Mathavinte Japamala Prakashathinte Rahasyangal 4th of April 24](https://www.youtube.com/watch?v=2GOcKn77JCo)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=npECMddNlc8)
-- [രാവിലെ പ്രാര്‍ത്ഥന April 4 # Athiravile Prarthana 4th of April 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=RF5Vw5gX3EA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
