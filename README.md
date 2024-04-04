@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Rathinirvedham | Shorts #malayalamfilmsongs #shortsvideo #ytshorts #romanticstatus](https://www.youtube.com/watch?v=lj6FNomCnvo)
+- [Mullamalar Mala | Album Video | P Jayachandran | Abdul Nizar | Harish Sreehari | Balu R Nair](https://www.youtube.com/watch?v=gBYaOTODXwk)
 - [Chithira Panthalittu  | Darling Darling | Ouseppachan | Dileep | Kavya Madhavan | KJ Yesudas](https://www.youtube.com/watch?v=pxYHfehSOTY)
 - [മനസ്സിൽ കുളിർമഴ പെയ്തിറങ്ങും മലയാളസിനിമയിലെ മനോഹരമായ മെലഡി ഗാനങ്ങൾ ! EVERGREEN SONGS MALAYALAM](https://www.youtube.com/watch?v=Lhq2Kz2p1mk)
 - [Chand Hoga | Ghazals & Quawali Film Songs #ghazal #shorts #shortsfeed #shortsvideo #manjuwarrier](https://www.youtube.com/watch?v=lycVazgYYDQ)
 - [Alelo Pulelo Video Song | Pranayavarnangal | Vidyasagar | V Devanand, Sreenivas, Harish Raghavendra](https://www.youtube.com/watch?v=Kjfm1yRfhCs)
-- [Paadiyum Paranjum | ചെറുപ്പത്തിലേ ദാർശനികതയും തത്വചിന്തയും | പാടിയും പറഞ്ഞും | Sreekumaran Thampi](https://www.youtube.com/watch?v=a48p0kqhwZA)
-- [Sharada Old Malayalam Movie Songs | Kuttavali Remastered Malayalam Songs | P. Susheela](https://www.youtube.com/watch?v=QFDnEHRlngw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
