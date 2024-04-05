@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Parole Kalam | Parole #mammootty  #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=87jdwWSw2T8)
 - [Prem Nazir Old Malayalam Movie Songs | Muttathe Mulla Remastered Malayalam Songs |  Ambili](https://www.youtube.com/watch?v=dvvvlty11tA)
 - [Adakachakko | Ayyappanum Koshiyum | Shorts #shortsvideo  #manoramamusic](https://www.youtube.com/watch?v=jUxdwlX1Hxg)
 - [Divya Kaarunyame | Kester | Christian Video Song | Joby Kavalam | Holy Communion Song | Joji Johns](https://www.youtube.com/watch?v=ifaFtcXupgw)
 - [ഇന്ന്  ഏപ്രിൽ 5എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala dhukkathin](https://www.youtube.com/watch?v=ilwwYOyhlyo)
 - [Enikkay Karuthamennurachavane | Maria Kolady | Malayalam Christian Songs | Old Christian Songs](https://www.youtube.com/watch?v=s0U-G3UxMMA)
-- [Japamala 5th of April 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 5th of April 24](https://www.youtube.com/watch?v=nogMMKuCSag)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
