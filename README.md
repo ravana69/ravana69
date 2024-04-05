@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Entharo Mahanu Bhavulu Video Song | Devadoothan | Vidyasagar | Mohanlal | Thyagaraja](https://www.youtube.com/watch?v=6U1HZim9E_A)
+- [Ninnil Nizhalayi | Police | Video | Prithviraj Sukumaran | Indrajith | Ouseppachan | Anoop Sankar](https://www.youtube.com/watch?v=TdUUWDVQxY4)
+- [Kaveri Padamini | Vocal Extended Version | Rajasilpi | Yesudas | Raveendran | Mohanlal](https://www.youtube.com/watch?v=3jaOCmqDl8E)
 - [Parole Kalam | Parole #mammootty  #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=87jdwWSw2T8)
 - [Prem Nazir Old Malayalam Movie Songs | Muttathe Mulla Remastered Malayalam Songs |  Ambili](https://www.youtube.com/watch?v=dvvvlty11tA)
 - [Adakachakko | Ayyappanum Koshiyum | Shorts #shortsvideo  #manoramamusic](https://www.youtube.com/watch?v=jUxdwlX1Hxg)
-- [Divya Kaarunyame | Kester | Christian Video Song | Joby Kavalam | Holy Communion Song | Joji Johns](https://www.youtube.com/watch?v=ifaFtcXupgw)
-- [ഇന്ന്  ഏപ്രിൽ 5എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala dhukkathin](https://www.youtube.com/watch?v=ilwwYOyhlyo)
-- [Enikkay Karuthamennurachavane | Maria Kolady | Malayalam Christian Songs | Old Christian Songs](https://www.youtube.com/watch?v=s0U-G3UxMMA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
