@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Pular Veyilum Pakal Mukilum | Angane Oru Avadhikkalathu  | Sreenivasan | Samyuktha Varma](https://www.youtube.com/watch?v=GhEx_w9BPh0)
+- [തമിഴകത്ത് നിന്ന് വന്ന്  മലയാളക്കര കീഴടക്കിയ എസ് പി വെങ്കിടേഷിന്റെ മനം മയക്കും ഗാനങ്ങൾ ! SP VENKITESH](https://www.youtube.com/watch?v=RuFlQGvM1e8)
+- [Aa Rathri Maanju Poyi | ആ രാത്രിമാഞ്ഞുപോയി | PANJAAGNI Malayalam Movie Song | Chithra | Mohanlal](https://www.youtube.com/watch?v=v0zFrOZQtpM)
+- [Dhoomarashmithan | Kasavuthattam | Vayalar | G Devarajan | PB Sreenivas | Saradha | Old is Gold](https://www.youtube.com/watch?v=bDHqyvJHJ6k)
+- [Anaswara Sneham | Malayalam Christian Devotional Songs | Songs of Jesus | Songs of Jesus Love](https://www.youtube.com/watch?v=I2Ads9QjN-M)
 - [Entharo Mahanu Bhavulu Video Song | Devadoothan | Vidyasagar | Mohanlal | Thyagaraja](https://www.youtube.com/watch?v=6U1HZim9E_A)
-- [Ninnil Nizhalayi | Police | Video | Prithviraj Sukumaran | Indrajith | Ouseppachan | Anoop Sankar](https://www.youtube.com/watch?v=TdUUWDVQxY4)
-- [Kaveri Padamini | Vocal Extended Version | Rajasilpi | Yesudas | Raveendran | Mohanlal](https://www.youtube.com/watch?v=3jaOCmqDl8E)
-- [Parole Kalam | Parole #mammootty  #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=87jdwWSw2T8)
-- [Prem Nazir Old Malayalam Movie Songs | Muttathe Mulla Remastered Malayalam Songs |  Ambili](https://www.youtube.com/watch?v=dvvvlty11tA)
-- [Adakachakko | Ayyappanum Koshiyum | Shorts #shortsvideo  #manoramamusic](https://www.youtube.com/watch?v=jUxdwlX1Hxg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
