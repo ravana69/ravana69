@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ellam Daivam Tharunnathalle | Chithra Arun #shortsvideo  #christiansongsmalayalamdevotional](https://www.youtube.com/watch?v=4i3W411DVtk)
 - [Ente Kavilamma - Ohm Jagadeeswariye Lyric | K.G. Jayan | Malayalam Devotional Songs](https://www.youtube.com/watch?v=UZP30Ffqdus)
 - [Avilpothy - Guruvayoorambala Lyric | Berny P J, Ignatius P J | Devotional Songs](https://www.youtube.com/watch?v=qSyPvFiauQA)
 - [Ente Kavilamma - Chakkulathammayinnenodu Lyric | K.G. Jayan | Devotional Songs](https://www.youtube.com/watch?v=wqtb9SqpOEY)
 - [Kaavadi - Vallikkum Murukanum Lyric | Mohandas | Malayalam Devotional Songs](https://www.youtube.com/watch?v=MNgJfTy8NMs)
 - [Indraneelam - Manju Peyyum Mandala Kaalam Lyric | K.M. Udayan | Devotional Songs](https://www.youtube.com/watch?v=A1mkKQ1lXdo)
-- [Ente Kavilamma - Devi Thripurasundari Lyric | K.G. Jayan | Malayalam Devotional Songs](https://www.youtube.com/watch?v=SP7dVFnJ9Rk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
