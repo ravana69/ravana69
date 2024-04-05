@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chandrikayil Aliyunnu l HD Video l Bharyamar Sookshikkuka l Prem Nazir, Sreekumaran Thampi, A.M Raja](https://www.youtube.com/watch?v=WmhMgWtLgYo)
+- [Paathiraavaayi Neram | Vietnam Colony | S Balakrishnan | Minmini | Bichu Thirumala #SongOfTheDay](https://www.youtube.com/watch?v=DiFJItq5sUk)
 - [Songs Of The Week | Anna Baby | Divyakarunya Geethangal | Christian Superhit Songs | Kester](https://www.youtube.com/watch?v=lpYKzGvQMtg)
 - [5 April 2024](https://www.youtube.com/watch?v=s2vaOeubJm4)
 - [Grooving to the song of the season!✨ #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=AE616S3wPrQ)
 - [Saare Njangalingana | Queen | Benny Dayal | Jakes Bejoy | Zia Ul Haq |  Kavitha Gopi | Zonobia Safar](https://www.youtube.com/watch?v=WxkVPtfIo8w)
-- [Moham Kondu Njan - Audio Song | Sesham Kazhchayil | S. Janaki | Johnson](https://www.youtube.com/watch?v=FUBiKAcrgho)
-- [ദൈവത്തിന് നിന്റെ ഇരുൾ മൂടിയ അവസ്ഥയെ മാറ്റിമറിക്കാൻ സാധിക്കും | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=9jvkMT5u2yE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
