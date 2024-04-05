@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Grooving to the song of the season!✨ #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=AE616S3wPrQ)
 - [Saare Njangalingana | Queen | Benny Dayal | Jakes Bejoy | Zia Ul Haq |  Kavitha Gopi | Zonobia Safar](https://www.youtube.com/watch?v=WxkVPtfIo8w)
 - [Moham Kondu Njan - Audio Song | Sesham Kazhchayil | S. Janaki | Johnson](https://www.youtube.com/watch?v=FUBiKAcrgho)
 - [ദൈവത്തിന് നിന്റെ ഇരുൾ മൂടിയ അവസ്ഥയെ മാറ്റിമറിക്കാൻ സാധിക്കും | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=9jvkMT5u2yE)
 - [Oro Poovilum Video Song | T. P. Balagopalan M. A.| K. J.Yesudas | Mohanlal | Shobhana #shorts](https://www.youtube.com/watch?v=0ij5bA1dTvM)
 - [Nilaavil Neerala | Vaarikkuzhiyile Kolapathakam | Shreya Ghoshal |  Kaushik Menon | Mejjo Josseph](https://www.youtube.com/watch?v=n9tdxNwyuVw)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 5th of April 2024](https://www.youtube.com/watch?v=tED392fw3bo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
