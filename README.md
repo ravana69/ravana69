@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Nee Varumenkil...#christianvideosongs #josephmuttuchira #jojijohns #sudeepkumar #holycommunionsong](https://www.youtube.com/watch?v=WjkfFk-dbd4)
-- [Poopole Poopole Chirikkum Video Song | Thirichadi | P Susheela | Vayalar](https://www.youtube.com/watch?v=moxl_8Zsu5Y)
-- [THIRUMUNPIL UYARTHIYA KARANGAL |Fr. SHAJI THUMPECHIRAYIL| ALEX K ALEXANDER | JOHNSON JOMON |ANN JAIN](https://www.youtube.com/watch?v=u44yu-vO98E)
-- [Pookkakombathum - Video Song | Vayassethrayayi Muppathi | Sanfeer K | Firoz Kunnamparambil](https://www.youtube.com/watch?v=zQcXllX1gpA)
-- [Aadhi Raath | Ghazals & Quawali Film Songs #ghazal #manjuwarrier #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=NBGf90jxhl0)
-- [Nin Snehathanalil #sudeepkumar #holycommunionsong  #jojijohns #christiandevotionalsongsmalayalam](https://www.youtube.com/watch?v=G9EM8g677-0)
+- [Alayum Kattin | Valsalyam | Mammootty | Geetha | Yesudas | S P Venkitesh](https://www.youtube.com/watch?v=O3SoP7aZJXY)
+- [ഇന്ന്  ഏപ്രിൽ 7എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala mahimayude](https://www.youtube.com/watch?v=owXoBn9U3vk)
+- [Nee Chorinjeedum... #holycommunionsong #sudeepkumar #christiandevotionalsongsmalayalam #jojijohns](https://www.youtube.com/watch?v=bUoqAQKS7Wg)
+- [Kanninila Penkodiye Video Song | Oru Maravathoor Kanavu | Mammootty | Vidyasagar | Sujatha Mohan](https://www.youtube.com/watch?v=1p1Mp1ySoQg)
+- [Manithingal Thidambinmel | HD Video Song | Gireesh Puthenchery  | SP Venkitesh  | MG Sreekumar |](https://www.youtube.com/watch?v=S0RqkeNSQbw)
+- [ദൈവിക രഹസ്യം  | Ft. John Britto, Pretty Philip, Sushan Thomas Latest Christian Devotional Song](https://www.youtube.com/watch?v=tymATA1QFTo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
