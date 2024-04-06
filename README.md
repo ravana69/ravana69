@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Neeyarinjo Melemaanathu | നീയറിഞ്ഞോ മേലെ മാനത്ത് | Kandu Kandarinju | Mohanlal | Maala Aravindan](https://www.youtube.com/watch?v=80_Q-cqfals)
-- [Kannoram Vellitharam Chiri | Marubhoomiyile Mazhathullikal | Hesham Abdul Wahab | B K Harinarayanan](https://www.youtube.com/watch?v=-MVL4uayTiQ)
-- [Enthe Mulle Pookkathoo | Panchaloham | Yesudas | Raveendran | Chithra | Speed Audios](https://www.youtube.com/watch?v=6ME2tkwLhD4)
-- [മനസിനെ തരളിതമാക്കുന്ന  അപൂർവ്വ സുന്ദര മെലഡി ഗാനങ്ങൾ ! MELODY SONGS MALAYALAM | MOVIEWORLD MUSIC](https://www.youtube.com/watch?v=jNxo1Ko6Eqs)
-- [തൊണ്ണൂറുകളിൽ മലയാളിപ്രേക്ഷകരുടെ ഹൃദയം കീഴടക്കിയ മലയാളസിനിമയിലെ മെലഡി ഗാനങ്ങൾ | 90s HITS MALAYALAM](https://www.youtube.com/watch?v=NTJa43GHM4A)
-- [Ee Puzhayum Kadannu Video Jukebox | Gireesh Puthenchery |Johnson Master | Dileep| Manju Warrier](https://www.youtube.com/watch?v=SaHiqmgZlVo)
+- [Nee Varumenkil...#christianvideosongs #josephmuttuchira #jojijohns #sudeepkumar #holycommunionsong](https://www.youtube.com/watch?v=WjkfFk-dbd4)
+- [Poopole Poopole Chirikkum Video Song | Thirichadi | P Susheela | Vayalar](https://www.youtube.com/watch?v=moxl_8Zsu5Y)
+- [THIRUMUNPIL UYARTHIYA KARANGAL |Fr. SHAJI THUMPECHIRAYIL| ALEX K ALEXANDER | JOHNSON JOMON |ANN JAIN](https://www.youtube.com/watch?v=u44yu-vO98E)
+- [Pookkakombathum - Video Song | Vayassethrayayi Muppathi | Sanfeer K | Firoz Kunnamparambil](https://www.youtube.com/watch?v=zQcXllX1gpA)
+- [Aadhi Raath | Ghazals & Quawali Film Songs #ghazal #manjuwarrier #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=NBGf90jxhl0)
+- [Nin Snehathanalil #sudeepkumar #holycommunionsong  #jojijohns #christiandevotionalsongsmalayalam](https://www.youtube.com/watch?v=G9EM8g677-0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
