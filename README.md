@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന April 7 # Athiravile Prarthana 7th of April 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=Ac0Jrpkgs5c)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 7th April 2024](https://www.youtube.com/watch?v=S-mtZXvNMnk)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=MEme98k-0Ig)
 - [Dance along with nature #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=wgPvwoTNByU)
 - [6 April 2024](https://www.youtube.com/watch?v=6H-qvtLipFc)
 - [Etho Nidrathan | Mohanlal | Nandhini | KJ Yesudas | Raveendran | Kaithapram](https://www.youtube.com/watch?v=ZYUFjH1CsW4)
-- [Chembarathi kammalittu | Manikyakkallu | Anil Panachooran | Shreya Ghoshal |Ravisankar #SongOfTheDay](https://www.youtube.com/watch?v=4j2NIJx2Ih4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
