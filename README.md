@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Neeyarinjo Melemaanathu | നീയറിഞ്ഞോ മേലെ മാനത്ത് | Kandu Kandarinju | Mohanlal | Maala Aravindan](https://www.youtube.com/watch?v=80_Q-cqfals)
+- [Kannoram Vellitharam Chiri | Marubhoomiyile Mazhathullikal | Hesham Abdul Wahab | B K Harinarayanan](https://www.youtube.com/watch?v=-MVL4uayTiQ)
 - [Enthe Mulle Pookkathoo | Panchaloham | Yesudas | Raveendran | Chithra | Speed Audios](https://www.youtube.com/watch?v=6ME2tkwLhD4)
 - [മനസിനെ തരളിതമാക്കുന്ന  അപൂർവ്വ സുന്ദര മെലഡി ഗാനങ്ങൾ ! MELODY SONGS MALAYALAM | MOVIEWORLD MUSIC](https://www.youtube.com/watch?v=jNxo1Ko6Eqs)
 - [തൊണ്ണൂറുകളിൽ മലയാളിപ്രേക്ഷകരുടെ ഹൃദയം കീഴടക്കിയ മലയാളസിനിമയിലെ മെലഡി ഗാനങ്ങൾ | 90s HITS MALAYALAM](https://www.youtube.com/watch?v=NTJa43GHM4A)
 - [Ee Puzhayum Kadannu Video Jukebox | Gireesh Puthenchery |Johnson Master | Dileep| Manju Warrier](https://www.youtube.com/watch?v=SaHiqmgZlVo)
-- [സീയോൻ സഞ്ചാരി ഭയപ്പെടേണ്ട | #christiandevotionalsongs #royputhur @royputhur](https://www.youtube.com/watch?v=RmSqov0t2So)
-- [P. Jayachandran - Mandalakkaalamaai](https://www.youtube.com/watch?v=h-IJQHARNrQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
