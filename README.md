@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Uyire | Nammal Thammil | Gireesh Puthencherry | Shorts #ytshorts](https://www.youtube.com/watch?v=HNasfA9eqeQ)
+- [Kooki Paayum | Dance Party | Shorts #shortsvideo](https://www.youtube.com/watch?v=6nLJfBN0vnA)
 - [Christian Video Songs Malayalam | Sreya Jayadeep | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=d574qxLaJ5c)
 - [ഇന്ന്  ഏപ്രിൽ 6എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala mahimayude](https://www.youtube.com/watch?v=6EZrgkgeFhI)
 - [Japamala 6th of April 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 6th of April 24](https://www.youtube.com/watch?v=YIwJP-DttP8)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=x19ENmtS42A)
-- [രാവിലെ പ്രാര്‍ത്ഥന April 6 # Athiravile Prarthana 6th of April 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=4VN18SWvecs)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=lEMiGpQ-6vM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
