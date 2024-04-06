@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [𝐀𝐫𝐮𝐦𝐚 𝐒𝐡𝐢𝐬𝐡𝐲𝐚𝐧𝐚𝐲𝐚 𝐌𝐚𝐫𝐭𝐡𝐨𝐦𝐚 | #shorts | 𝐒𝐭 𝐓𝐡𝐨𝐦𝐚𝐬 𝐒𝐨𝐧𝐠 | 𝐂𝐢𝐜𝐢𝐥𝐲 | 𝐅𝐫 𝐒𝐡𝐚𝐣𝐢 𝐓𝐡𝐮𝐦𝐩𝐞𝐜𝐡𝐢𝐫𝐚𝐲𝐢𝐥](https://www.youtube.com/watch?v=pQ9ZnPkHGwQ)
+- [Oru Chiri Kandaal | Ponmudippuzhayorathu | Aravindh | Meenakshi | Manjari | Ilayaraja](https://www.youtube.com/watch?v=dyAdWZd0Zag)
+- [Poonthen Mozhiye - Audio Song | Share Market | Shahnaz | Raveendran](https://www.youtube.com/watch?v=QLemDfIYrgo)
+- [Prem Nazir, Jayabharathi Romantic Movie Songs | Ladies Hostel Movie Song |Remastered Malayalam Songs](https://www.youtube.com/watch?v=MrPkrB4Gop0)
 - [Uyire | Nammal Thammil | Gireesh Puthencherry | Shorts #ytshorts](https://www.youtube.com/watch?v=HNasfA9eqeQ)
 - [Kooki Paayum | Dance Party | Shorts #shortsvideo](https://www.youtube.com/watch?v=6nLJfBN0vnA)
-- [Christian Video Songs Malayalam | Sreya Jayadeep | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=d574qxLaJ5c)
-- [ഇന്ന്  ഏപ്രിൽ 6എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala mahimayude](https://www.youtube.com/watch?v=6EZrgkgeFhI)
-- [Japamala 6th of April 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 6th of April 24](https://www.youtube.com/watch?v=YIwJP-DttP8)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=x19ENmtS42A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
