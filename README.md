@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Aaro nee aaro | Urumi | K J Yesudas | Shweta Mohan | Kaithapram | Deepak Dev | Prithviraj Sukumaran](https://www.youtube.com/watch?v=qeHnWLIT78c)
-- [𝐀𝐫𝐮𝐦𝐚 𝐒𝐡𝐢𝐬𝐡𝐲𝐚𝐧𝐚𝐲𝐚 𝐌𝐚𝐫𝐭𝐡𝐨𝐦𝐚 | #shorts | 𝐒𝐭 𝐓𝐡𝐨𝐦𝐚𝐬 𝐒𝐨𝐧𝐠 | 𝐂𝐢𝐜𝐢𝐥𝐲 | 𝐅𝐫 𝐒𝐡𝐚𝐣𝐢 𝐓𝐡𝐮𝐦𝐩𝐞𝐜𝐡𝐢𝐫𝐚𝐲𝐢𝐥](https://www.youtube.com/watch?v=pQ9ZnPkHGwQ)
-- [Oru Chiri Kandaal | Ponmudippuzhayorathu | Aravindh | Meenakshi | Manjari | Ilayaraja](https://www.youtube.com/watch?v=dyAdWZd0Zag)
-- [Poonthen Mozhiye - Audio Song | Share Market | Shahnaz | Raveendran](https://www.youtube.com/watch?v=QLemDfIYrgo)
-- [Prem Nazir, Jayabharathi Romantic Movie Songs | Ladies Hostel Movie Song |Remastered Malayalam Songs](https://www.youtube.com/watch?v=MrPkrB4Gop0)
-- [Uyire | Nammal Thammil | Gireesh Puthencherry | Shorts #ytshorts](https://www.youtube.com/watch?v=HNasfA9eqeQ)
+- [സീയോൻ സഞ്ചാരി ഭയപ്പെടേണ്ട | #christiandevotionalsongs #royputhur @royputhur](https://www.youtube.com/watch?v=RmSqov0t2So)
+- [P. Jayachandran - Mandalakkaalamaai](https://www.youtube.com/watch?v=h-IJQHARNrQ)
+- [P. Jayachandran - Harithamalayude Mukalil](https://www.youtube.com/watch?v=zi_lYXUIj-U)
+- [Chimmi Chimmi  | Animation Video  #shortsfeed #shortsvideo #shorts #reels #animation #cartoon](https://www.youtube.com/watch?v=mVbCMSY8wZg)
+- [Madhu Balakrishnan - Aarthiyaakum Thaarakante](https://www.youtube.com/watch?v=ttgV_tIlN_c)
+- [P. Jayachandran - Vilichaal Vilippurathanayum](https://www.youtube.com/watch?v=oIGVQuNCSqc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
