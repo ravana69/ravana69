@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാറിൽ ചില്ലുനിലാവോ മഞ്ഞൾ കുഴമ്പോ ... #varnapakittu #mohanlalhits #divayaunni #evergreenhits](https://www.youtube.com/watch?v=2VwG93Aea2I)
 - [Mamboo Pozhikkunna |  Ottamandaram #sujatha  #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=XvGV05tBino)
 - [Chandira Chandira | Banglavil Outha | Video | Mano | Alex | Beeyar Prasad | M.Jayachandran | Lal](https://www.youtube.com/watch?v=7fSW84g1Wa8)
 - [Doora Thara Deepame - Audio Song | Bhavartham | K.J. Yesudas | S.P. Venkatesh](https://www.youtube.com/watch?v=XZYEK0hfxo0)
 - [Prem Nazir Old Malayalam Movie Songs | Mindapennu  Remastered Malayalam Songs | K. J. Yesudas](https://www.youtube.com/watch?v=sdJVJhU4fRI)
 - [Chandhiranano Manathu | Chithrakoodam | Swarnalatha | S P Venkitesh | Speed Audios](https://www.youtube.com/watch?v=2DuPF00N75Q)
-- [𝐓𝐇𝐎𝐌𝐀 𝐒𝐋𝐄𝐄𝐇𝐀𝐘𝐄 𝐓𝐇𝐎𝐌𝐀𝐒𝐋𝐄𝐄𝐇𝐀𝐘𝐄 | 𝐒𝐭 𝐓𝐡𝐨𝐦𝐚𝐬 𝐒𝐨𝐧𝐠 𝐋𝐚𝐭𝐞𝐬𝐭 | 𝐅𝐫 𝐒𝐡𝐚𝐣𝐢 𝐓𝐡𝐮𝐦𝐩𝐞𝐜𝐡𝐢𝐫𝐚𝐲𝐢𝐥 | 𝐃𝐔𝐊𝐑𝐀𝐍𝐀𝐒𝐎𝐍𝐆 𝐋𝐀𝐓𝐄𝐒𝐓](https://www.youtube.com/watch?v=M4YzM810IRc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
