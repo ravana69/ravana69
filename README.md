@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [7 April 2024](https://www.youtube.com/watch?v=jD8uX8WIKpM)
 - [Manimukile Nee | Kuberan | Gireesh Puthenchery | Mohan Sithara | Swarnalatha|  #SongOfTheDay](https://www.youtube.com/watch?v=3N9exFzrB10)
 - [Mayilpeeli Kannukond ( SAD ) | Kasavuthattam (1967) | Vayalar  | Prem Nazir | Saradha | Old is Gold](https://www.youtube.com/watch?v=f42Rf1cun6M)
 - [Christian Melody Songs | Kester | Christian Devotional Songs Malayalam | Wilson Piravom | Joji Johns](https://www.youtube.com/watch?v=D3K3cJJRO2Y)
 - [ഒന്നാം രാഗം പാടീ..| മലയാളചലച്ചിത്രഗാനങ്ങൾ |കെ ജെ യേശുദാസ് | Malayalam melodies | Remastered songs](https://www.youtube.com/watch?v=yD_anKKhXNE)
 - [Chiriyoonjaal Video Song | Chandamama | KJ Yesudas | Kaithapram | Malayalam Romantic Songs](https://www.youtube.com/watch?v=qcRm7dUA9xE)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 7th of April 2024](https://www.youtube.com/watch?v=dbEyk9ZVCnc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
