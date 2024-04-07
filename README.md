@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Arabikadaloru Manavalan Song | Bhargavi Nilayam |Madhu | Neelavelicham| K J Yesudas | Tovino #shorts](https://www.youtube.com/watch?v=KqJ0PhMjXFg)
+- [Nadanin Gandharva - Audio Song | Ezhuthachan | K.S. Chithra](https://www.youtube.com/watch?v=qZ-1PnZuR4I)
 - [Ponnum Thingal Tharattum Video Song | Anuragakottaram | Dileep | KJ Yesudas | Ilayaraja | Kaithapram](https://www.youtube.com/watch?v=fFYTBZkEtIY)
 - [മാറിൽ ചില്ലുനിലാവോ മഞ്ഞൾ കുഴമ്പോ ... #varnapakittu #mohanlalhits #divayaunni #evergreenhits](https://www.youtube.com/watch?v=2VwG93Aea2I)
 - [Mamboo Pozhikkunna |  Ottamandaram #sujatha  #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=XvGV05tBino)
 - [Chandira Chandira | Banglavil Outha | Video | Mano | Alex | Beeyar Prasad | M.Jayachandran | Lal](https://www.youtube.com/watch?v=7fSW84g1Wa8)
-- [Doora Thara Deepame - Audio Song | Bhavartham | K.J. Yesudas | S.P. Venkatesh](https://www.youtube.com/watch?v=XZYEK0hfxo0)
-- [Prem Nazir Old Malayalam Movie Songs | Mindapennu  Remastered Malayalam Songs | K. J. Yesudas](https://www.youtube.com/watch?v=sdJVJhU4fRI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
