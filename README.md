@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [𝐓𝐇𝐎𝐌𝐀 𝐒𝐋𝐄𝐄𝐇𝐀𝐘𝐄 𝐓𝐇𝐎𝐌𝐀𝐒𝐋𝐄𝐄𝐇𝐀𝐘𝐄 | 𝐒𝐭 𝐓𝐡𝐨𝐦𝐚𝐬 𝐒𝐨𝐧𝐠 𝐋𝐚𝐭𝐞𝐬𝐭 | 𝐅𝐫 𝐒𝐡𝐚𝐣𝐢 𝐓𝐡𝐮𝐦𝐩𝐞𝐜𝐡𝐢𝐫𝐚𝐲𝐢𝐥 | 𝐃𝐔𝐊𝐑𝐀𝐍𝐀𝐒𝐎𝐍𝐆 𝐋𝐀𝐓𝐄𝐒𝐓](https://www.youtube.com/watch?v=M4YzM810IRc)
+- [Christian Superhit Songs | Wilson Piravom | Midhila Micahel | Holy Mass Songs | Joji Johns](https://www.youtube.com/watch?v=NNtRRveLCe4)
+- [Japamala 7th of April 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 7th of April 2024](https://www.youtube.com/watch?v=aIDLdfpJeu0)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=spGB6NR-x18)
 - [രാവിലെ പ്രാര്‍ത്ഥന April 7 # Athiravile Prarthana 7th of April 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=Ac0Jrpkgs5c)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 7th April 2024](https://www.youtube.com/watch?v=S-mtZXvNMnk)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=MEme98k-0Ig)
-- [Dance along with nature #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=wgPvwoTNByU)
-- [6 April 2024](https://www.youtube.com/watch?v=6H-qvtLipFc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
