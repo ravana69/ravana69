@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thottu Vilichalo Video Song | Swapnam Kondu Thulabharam | Kunchacko Koban | MG Sreekumar | Sujatha](https://www.youtube.com/watch?v=DLNC5jqPyR4)
+- [Idayaraaga Ramanadukham | Uncle Bun | Mohanlal | Yesudas | Raveendran | Sound of Arts](https://www.youtube.com/watch?v=ChY60Ipa3LM)
 - [Kalakalam Kaayalil | Anjarakalyanam | Jagadeesh | Yesudas | Wilson](https://www.youtube.com/watch?v=1eMBKOX5P6E)
+- [Chakkitharavum Kunjungalum | ACTION SONG VIDEO | Animation | അവധിക്കാലം കൊച്ചുകൂട്ടുകാർക്കൊപ്പം](https://www.youtube.com/watch?v=IdDYyspNxkI)
 - [Jayabharathi Old Malayalam Movie Songs | Ladies Hostel Remastered Malayalam Songs | S. Janaki](https://www.youtube.com/watch?v=ftlvA7AW1w4)
 - [Rathinirvedham | Shorts #malayalamfilmsongs #shortsvideo #ytshorts #romanticshorts](https://www.youtube.com/watch?v=99zCD5P4YfE)
-- [ഇന്ന്  ഏപ്രിൽ 8എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala santhoshat](https://www.youtube.com/watch?v=TBsX-uawCpA)
-- [Japamala 8th of April 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 8th of April 24](https://www.youtube.com/watch?v=RVFiWPgyl3I)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=WYO9vFOEGnk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
