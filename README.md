@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Ammana Kunnumele - Audio Song | Vilakku Vecha Neram | K.S. Chithra | Sharath](https://www.youtube.com/watch?v=zfF3wqTZ2cA)
-- [Paippin Chuvattile | Paippin Chuvattile Pranayam | Soumya Ramakrishnan | Bijibal | BK Harinarayanan](https://www.youtube.com/watch?v=kujWZF09Ff0)
-- [മറ്റുള്ളവർക്കുവേണ്ടി നുറുക്കപ്പെടുന്നവരിലൊക്കെ ക്രിസ്തുവിനെ കാണാം. | Rev. Aneesh P Joseph | #short](https://www.youtube.com/watch?v=DxZy_AITHXo)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 8th of April 2024](https://www.youtube.com/watch?v=1lKOM5F7OiA)
-- [Oh January Video Song | Big B | Sayanora Philip | Alphonse Joseph | Jophi Tharakan | Mammootty](https://www.youtube.com/watch?v=yGw4sfRdVJg)
-- [മനഷ്യനുള്ളിലെ അഹങ്കാരം എന്നതിന്മയെ ദൂരെയകറ്റും ഗാനങ്ങൾ |Christian Devotional Songs Malayalam |Kester](https://www.youtube.com/watch?v=u2b3UJqwgG8)
+- [Madhu Balakrishnan - Thiruchenthoorilum](https://www.youtube.com/watch?v=wWyz_2QUbqM)
+- [Madhu Balakrishnan - Haripaattum Perunnayilum](https://www.youtube.com/watch?v=NZJVJbu6UOw)
+- [Madhu Balakrishnan - Payyannur Perumale](https://www.youtube.com/watch?v=7qpDkJq50rY)
+- [Madhu Balakrishnan - Pazhani Maamalayile](https://www.youtube.com/watch?v=Gp2iRHlhi8k)
+- [Madhu Balakrishnan - Sooryan Thrikkayyiloru](https://www.youtube.com/watch?v=Ryg_f3nORHc)
+- [Mazhayulla Rathriyil | Kadha | Prithviraj | Kavya Madhavan | Ouseppachan | Vidhu Prathap](https://www.youtube.com/watch?v=xyvsMuLA9dQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
