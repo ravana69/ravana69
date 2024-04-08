@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 9th April 2024](https://www.youtube.com/watch?v=dTm-Ef5UJu4)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=yaCWiq8j1RA)
+- [Pretty, prettier & the prettiest!✨ #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=BpUpd3V1bvY)
 - [8 April 2024](https://www.youtube.com/watch?v=wex5AAlSABk)
 - [Thaalolam Poompaithale | Nadodi | O.N.V Kurup | S.P. Venkitesh | S. P. Venkatesh  | K.G.Markose l](https://www.youtube.com/watch?v=KZDrBOBBJNM)
 - [Pathira Poochoodi | Mayilpeelikavu | Bearny Ignatius |  Yesudas | Chithra #SongOfTheDay](https://www.youtube.com/watch?v=2G30p8UQu9M)
-- [Madhu Balakrishnan - Thiruchenthoorilum](https://www.youtube.com/watch?v=wWyz_2QUbqM)
-- [Madhu Balakrishnan - Haripaattum Perunnayilum](https://www.youtube.com/watch?v=NZJVJbu6UOw)
-- [Madhu Balakrishnan - Payyannur Perumale](https://www.youtube.com/watch?v=7qpDkJq50rY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
