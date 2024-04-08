@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thaalolam Poompaithale | Nadodi | O.N.V Kurup | S.P. Venkitesh | S. P. Venkatesh  | K.G.Markose l](https://www.youtube.com/watch?v=KZDrBOBBJNM)
+- [Pathira Poochoodi | Mayilpeelikavu | Bearny Ignatius |  Yesudas | Chithra #SongOfTheDay](https://www.youtube.com/watch?v=2G30p8UQu9M)
 - [Madhu Balakrishnan - Thiruchenthoorilum](https://www.youtube.com/watch?v=wWyz_2QUbqM)
 - [Madhu Balakrishnan - Haripaattum Perunnayilum](https://www.youtube.com/watch?v=NZJVJbu6UOw)
 - [Madhu Balakrishnan - Payyannur Perumale](https://www.youtube.com/watch?v=7qpDkJq50rY)
 - [Madhu Balakrishnan - Pazhani Maamalayile](https://www.youtube.com/watch?v=Gp2iRHlhi8k)
-- [Madhu Balakrishnan - Sooryan Thrikkayyiloru](https://www.youtube.com/watch?v=Ryg_f3nORHc)
-- [Mazhayulla Rathriyil | Kadha | Prithviraj | Kavya Madhavan | Ouseppachan | Vidhu Prathap](https://www.youtube.com/watch?v=xyvsMuLA9dQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
