@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ദാസേട്ടൻ ആലപിച്ച എല്ലാവരും  ഒരുപോലെ ആസ്വദിച്ച  ജനപ്രിയ ഗാനങ്ങൾ | KJ YESUDAS HITS](https://www.youtube.com/watch?v=dJ24HE-Zx5I)
+- [Pandu Mugal Kottarathil | Kasavuthattam | Vayalar | G Devarajan | P Susheela | Saradha | Old is Gold](https://www.youtube.com/watch?v=PVuOTp1vr5w)
+- [Tharalitha Raavil Mayangiyo | Soorya Manasam | Mammootty | Shoukaar Janaki | Siddique](https://www.youtube.com/watch?v=3CnCZzG-Emg)
 - [Thottu Vilichalo Video Song | Swapnam Kondu Thulabharam | Kunchacko Koban | MG Sreekumar | Sujatha](https://www.youtube.com/watch?v=DLNC5jqPyR4)
 - [Idayaraaga Ramanadukham | Uncle Bun | Mohanlal | Yesudas | Raveendran | Sound of Arts](https://www.youtube.com/watch?v=ChY60Ipa3LM)
 - [Kalakalam Kaayalil | Anjarakalyanam | Jagadeesh | Yesudas | Wilson](https://www.youtube.com/watch?v=1eMBKOX5P6E)
-- [Chakkitharavum Kunjungalum | ACTION SONG VIDEO | Animation | അവധിക്കാലം കൊച്ചുകൂട്ടുകാർക്കൊപ്പം](https://www.youtube.com/watch?v=IdDYyspNxkI)
-- [Jayabharathi Old Malayalam Movie Songs | Ladies Hostel Remastered Malayalam Songs | S. Janaki](https://www.youtube.com/watch?v=ftlvA7AW1w4)
-- [Rathinirvedham | Shorts #malayalamfilmsongs #shortsvideo #ytshorts #romanticshorts](https://www.youtube.com/watch?v=99zCD5P4YfE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
