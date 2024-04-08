@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Karunardra Sneham | ദൈവസ്നേഹം പകർന്നു തരുന്ന മനോഹര ഗാനം | #shorts  #christianshorts  #jesus](https://www.youtube.com/watch?v=yNA2m2FXp6Q)
-- [Film Songs Video Jukebox | Non Stop Malayalam Film Songs | Movie Songs Malayalam](https://www.youtube.com/watch?v=kbXuELY_Mtk)
-- [ദാസേട്ടൻ ആലപിച്ച എല്ലാവരും  ഒരുപോലെ ആസ്വദിച്ച  ജനപ്രിയ ഗാനങ്ങൾ | KJ YESUDAS HITS](https://www.youtube.com/watch?v=dJ24HE-Zx5I)
-- [Pandu Mugal Kottarathil | Kasavuthattam | Vayalar | G Devarajan | P Susheela | Saradha | Old is Gold](https://www.youtube.com/watch?v=PVuOTp1vr5w)
-- [Tharalitha Raavil Mayangiyo | Soorya Manasam | Mammootty | Shoukaar Janaki | Siddique](https://www.youtube.com/watch?v=3CnCZzG-Emg)
-- [Thottu Vilichalo Video Song | Swapnam Kondu Thulabharam | Kunchacko Koban | MG Sreekumar | Sujatha](https://www.youtube.com/watch?v=DLNC5jqPyR4)
+- [Paippin Chuvattile | Paippin Chuvattile Pranayam | Soumya Ramakrishnan | Bijibal | BK Harinarayanan](https://www.youtube.com/watch?v=kujWZF09Ff0)
+- [മറ്റുള്ളവർക്കുവേണ്ടി നുറുക്കപ്പെടുന്നവരിലൊക്കെ ക്രിസ്തുവിനെ കാണാം. | Rev. Aneesh P Joseph | #short](https://www.youtube.com/watch?v=DxZy_AITHXo)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 8th of April 2024](https://www.youtube.com/watch?v=1lKOM5F7OiA)
+- [Oh January Video Song | Big B | Sayanora Philip | Alphonse Joseph | Jophi Tharakan | Mammootty](https://www.youtube.com/watch?v=yGw4sfRdVJg)
+- [മനഷ്യനുള്ളിലെ അഹങ്കാരം എന്നതിന്മയെ ദൂരെയകറ്റും ഗാനങ്ങൾ |Christian Devotional Songs Malayalam |Kester](https://www.youtube.com/watch?v=u2b3UJqwgG8)
+- [Aathmananda Swaroopane | Malayalam Christian Devotional Songs | Kester Songs | Audio Jukebox](https://www.youtube.com/watch?v=KfsXwe9TbYw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
