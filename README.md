@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഇന്ന്  ഏപ്രിൽ 9എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala dhukkathin](https://www.youtube.com/watch?v=vCcZjGXM6pI)
+- [Azhakkadalolam  | Bijoy P Jacob|Cyriac Adithyapuram |Easter Special Songs 2024](https://www.youtube.com/watch?v=oQmiu-nrb0k)
+- [Japamala 9th of April 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 9th of April 24](https://www.youtube.com/watch?v=GjSwo_I1W6k)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=AcbzX0fAJfc)
 - [രാവിലെ പ്രാര്‍ത്ഥന April 9 # Athiravile Prarthana 9th of April 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=KVdYzoJoN6w)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 9th April 2024](https://www.youtube.com/watch?v=dTm-Ef5UJu4)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=yaCWiq8j1RA)
-- [Pretty, prettier & the prettiest!✨ #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=BpUpd3V1bvY)
-- [8 April 2024](https://www.youtube.com/watch?v=wex5AAlSABk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
