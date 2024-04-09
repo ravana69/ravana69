@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thanka Thinkal | Indraprastham  | MG Sreekumar | Gireesh Puthenchery #songoftheday](https://www.youtube.com/watch?v=bFxxgDhVrN4)
+- [Thalikku Ponnu Video Song | Vidyasagar | Jayaram | Pooja Batra | MG Sreekumar | S Ramesan Nair](https://www.youtube.com/watch?v=2Qk9sJO10lk)
 - [iമലയാളികളുടെ പ്രിയ ഭാവ ഗായകൻ ബിജു നാരായണൻ ആലപിച്ച മധുര ഗാനങ്ങൾ |Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=T_MeskD4yLE)
 - [കാതിനിമ്പമേകുന്ന ശ്രുതിമധുരഗാനങ്ങളുമായ് ഔസേപ്പച്ചന്റെ ഹിറ്റ് ഗാനങ്ങൾ... OUSEPPACHAN HITS MALAYALAM](https://www.youtube.com/watch?v=N2eOnNdvMfY)
 - [Maanam Thudukkanu | Odiyan | Shreya Ghoshal | M Jayachandran | Rafeeq Ahammed](https://www.youtube.com/watch?v=W9ve4Rn2eYM)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 9th of April 2024](https://www.youtube.com/watch?v=SaGrLhcsNZk)
-- [ആരും പരസ്പരം മനസ്സിലാക്കുന്നില്ല. | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=Pl3WEWmO4jk)
-- [Ayal Kadha Ezhuthukayanu | Maane Video Song | K. J. Yesudas | Mohanlal | Nandini #shorts](https://www.youtube.com/watch?v=_xkinj1y5gg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
