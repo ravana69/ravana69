@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ashubha Mangalakaari - Video Lyrical | Super Sharanya |Anaswara Rajan |Mamitha Baiju|Justin Varghese](https://www.youtube.com/watch?v=43AJmDFoEDc)
+- [Ilaman Mizhiyil | Kusruthikkattu | Jayaram | Unniolrishnan | Tomin Thachankary | Speed Audios](https://www.youtube.com/watch?v=O93XYU81Qas)
 - [വ്യത്യസ്ത അഭിരുചിയുള്ള ആസ്വാദകരെ ഒരു കുടകീഴിൽ കൊണ്ടുവന്ന മലയാളസിനിമയിലെ പ്രശസ്‌ത മെലഡി ഗാനങ്ങൾ !](https://www.youtube.com/watch?v=R2X9CJBHPIU)
 - [Paalkkari | Kasavuthattam | Vayalar | G Devarjan |KJ Yesudas | Prem Nazir | Saradha | Old Film Songs](https://www.youtube.com/watch?v=NRQ3wW_xeqo)
 - [Kattile Kannan | Animation Video #kattilekannan #animation #malayalamcartoon #shorts #shortsfeed](https://www.youtube.com/watch?v=xreSZZ7ds4o)
 - [ANGUDOORE KALVARIYIL | Fr. SHAJI THUMPECHIRAYIL |STAR SINGER ARAVIND DILEEP NAIR |Fr. ROJAN PURACKAL](https://www.youtube.com/watch?v=ALfyjwTmDFY)
-- [My Favourite Malayalam Film Songs | Shreya Ghoshal |Jukebox| ശ്രേയാഘോഷൽ ആലപിച്ച മലയാളം സിനിമാഗാനങ്ങൾ](https://www.youtube.com/watch?v=QbKcba3amrw)
-- [Nettiyil Poovulla | Manivathoorile Aayiram Shivaraathrikal | KJ Yesudas #SongOfTheDay](https://www.youtube.com/watch?v=qPzPsQdcEwQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
