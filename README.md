@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Neela Maalaakhe | Porinju Mariyam Jose | Keshav Vinod | Jakes Bijoy | B K Harinarayanan](https://www.youtube.com/watch?v=RxMnyL4jow0)
+- [Thirumunpil Uyarthiya Karangal #frshajithumpechirayil #newchristiandevotionalsong #shorts](https://www.youtube.com/watch?v=UWm6usSal_g)
+- [RDX Theme - Audio | Shane Nigam, Antony Varghese, Neeraj Madhav | Nahas Hidhayath | Sam C S](https://www.youtube.com/watch?v=9rRqD2tp2tg)
+- [Thumbi Manjaleri Va | HD Video Song | Panthalam Sudhakaran  | K. J. Joy  | MG Sreekumar |  Lathika](https://www.youtube.com/watch?v=Y73J7kjZtJ0)
 - [Prem Nazir Old Malayalam Movie Songs | Postmane Kananilla Remastered Malayalam Songs | Yesudas](https://www.youtube.com/watch?v=-O7Ls-jm68c)
 - [മനസ്സിൽ മായാത്ത മുറിവുകൾ നൽകിയ ഓര്മകളുണർത്തും മലയാളസിനിമാഗാനങ്ങൾ | EVERGREEN SONGS](https://www.youtube.com/watch?v=wa-NYhK5LrY)
-- [Vellichillum Vithari | Ina | Bichu Thirumala | A.T.Ummer | Krishnachandran | Malayalam Superhit Song](https://www.youtube.com/watch?v=5o-EONolD2I)
-- [Pullipadayude Koode | Promo Song | Sweet Chakkara Umma | Prasad Amarazhiyil | Sreekanth Krishna](https://www.youtube.com/watch?v=8uNN0vQ0wG4)
-- [റംസാൻ നിലാവൊത്ത | Ramzan Nilavotha | Harmoniam Instrumental Song](https://www.youtube.com/watch?v=0dH3_YchHtM)
-- [Shilayaay Piravi Undenkil | Thattakam | Sreehari | Ranjitha | Jayaraj | Yesudas | Kaithapram](https://www.youtube.com/watch?v=lUn0VRLyj1U)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
