@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഇന്ന്  ഏപ്രിൽ 10എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala mahimayud](https://www.youtube.com/watch?v=7iB57oDPgsw)
+- [Japamala 10th of April 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 10th of April 2024](https://www.youtube.com/watch?v=Wz5C4j62yes)
+- [Ravininnoru Penninte - Thuramukham (1979) | K.J Yesudas | Poovachal Khader | M.K Arjunan](https://www.youtube.com/watch?v=OEeq7NXVzY4)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=oRtINLXFYPQ)
 - [പ്രഭാത പ്രാര്‍ത്ഥന April 10 # Athiravile Prarthana 10th of April 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=Hrx_RBExDvE)
 - [Swayed away!✨ #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=SvXIeseLyWo)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 10th April 2024](https://www.youtube.com/watch?v=xXcDPHuNi_c)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=0JlMiRplwmk)
-- [Othiri Othiri | Pranayavarnangal | Biju Menon | Manju Warrier | KS Chithra | Vidyasagar](https://www.youtube.com/watch?v=B01qY1fM55c)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
