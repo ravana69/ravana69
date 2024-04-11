@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കുടുംബത്തിലെ ഒരംഗത്തെപോലെ മലയാളികൾ മനസിൽ കൊണ്ട് നടക്കുന്ന  ചിത്രച്ചേച്ചിയുടെ ആരും കൊതിക്കും ഗാനങ്ങൾ](https://www.youtube.com/watch?v=tFNFeQRQflc)
 - [Chakkitharavum Kunjungalum | ACTION SONG VIDEO #animation #kidscartoon #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=S1QSegBzHOc)
 - [NAZHOORI PAALU VIDEO SONG FROM PORATTU NAADAKAM OUT NOW](https://www.youtube.com/watch?v=DK8ErKM7K2Y)
 - [Christian Melody Songs | Wilson Piravom | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=AZvBixkuXAU)
 - [Paadiyum Paranjum | ഗാനരചന ഒഴിവാക്കിയ ജീവിത കാലഘട്ടം   | പാടിയും പറഞ്ഞും |  K Jayakumar | Interview](https://www.youtube.com/watch?v=9eIpyeHY6nE)
 - [𝐀𝐍𝐆𝐔𝐃𝐎𝐎𝐑𝐄 𝐊𝐀𝐋𝐕𝐀𝐑𝐈𝐘𝐈𝐋 | 𝐅𝐫. 𝐒𝐇𝐀𝐉𝐈 𝐓𝐇𝐔𝐌𝐏𝐄𝐂𝐇𝐈𝐑𝐀𝐘𝐈𝐋 |𝐒𝐓𝐀𝐑 𝐒𝐈𝐍𝐆𝐄𝐑 𝐀𝐑𝐀𝐕𝐈𝐍𝐃 𝐃𝐈𝐋𝐄𝐄𝐏 𝐍𝐀𝐈𝐑 |𝐅𝐫. 𝐑𝐎𝐉𝐀𝐍 𝐏𝐔𝐑𝐀𝐂𝐊𝐀𝐋](https://www.youtube.com/watch?v=PoaB2Bs5o60)
-- [Kanneer Meghangal | Sachin #dhyansreenivasan  #shortsfeed #shortsvideo #shorts #reels #shaanrahman](https://www.youtube.com/watch?v=roseZHd43LM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
