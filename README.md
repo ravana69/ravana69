@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [A powerful groove!💃 #KanniluKannilu #Ayisha #ytshorts #shorts](https://www.youtube.com/watch?v=EkTOZB88S6s)
+- [MANMAYAMAM EE ULAKIL | മൺമയമാം ഈ ഉലകിൽ | ROY PUTHUR #christiandevotionalsongs  #jesuschrist](https://www.youtube.com/watch?v=rCPEM8VC5pI)
 - [Varavaayi Neeyen Jeevanil | Sara'S | Vineeth Sreenivasan | Divya Vineeth | Shaan Rahman | Joe Paul](https://www.youtube.com/watch?v=RzJK3EayvGY)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 11th of April 2024](https://www.youtube.com/watch?v=o90rhDZTo8Y)
 - [Kuliru Kumbil Video Song | Kudumba Vishesham | Malayalam Movie Songs | MG Sreekumar | Sindhu Devi](https://www.youtube.com/watch?v=lMEd2XPINmc)
 - [ഏറ്റവും ഒടുവിലായിരിക്കും നിങ്ങൾ അംഗീകരിക്കപ്പെടുക. | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=YKlN2c3KEnc)
-- [Maarimazhaye Video Song | Rasikan | Karthik | Veena | Vidyasagar | Gireesh Puthenchery #shorts](https://www.youtube.com/watch?v=VCMBgfvKdjo)
-- [Oru Kodi Janmamee | ഹൃദയം തൊട്ടുണർത്തും അതിമനോഹര ഗാനം | #shorts #christianshorts #kesterhits](https://www.youtube.com/watch?v=RJeDNWzmj5E)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
