@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Jai Ganesh Friendship Teaser |  Ranjith Sankar | Unni Mukundan | Mahima Nambiar | Sankar Sharma](https://www.youtube.com/watch?v=1s8_iae1YQk)
+- [Pavizhamallippoovurangi -Vazhiyorakazchakal | SP Venkitesh | KS Chithra |](https://www.youtube.com/watch?v=YJODh93d1Wc)
+- [Allimalar Kavil | Mithunam |  M. G. Radhakrishnan | MG Sreekumar | M. G. Radhakrishnan #SongOfTheDay](https://www.youtube.com/watch?v=ofU0G3D-lYM)
 - [12 April 2024](https://www.youtube.com/watch?v=OmT3eOzTSJY)
 - [Songs Of The Week | Kester | Christian Superhit Songs | Joji Johns | Sujatha | Christian Songs](https://www.youtube.com/watch?v=XLuWaUhM7NI)
 - [Jeevajalathin Aruviyayone | Madhu Balakrishnan | BK Hari Naryanan | Malayalam Christian Songs](https://www.youtube.com/watch?v=YB6_RZ0G_Vs)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 12th of April 2024](https://www.youtube.com/watch?v=XzZtF-e8jjs)
-- [വേദനയുടെ വെയിലേറ്റ് വാടുന്നവർക്ക് വസന്തമാകുവാൻ ദൈവം നമ്മെ വിളിക്കുന്നു| Rev. Aneesh P Joseph#shorts](https://www.youtube.com/watch?v=DAzHOQ55jFI)
-- [Muthumazha Video Song | Big B | Vineeth Sreenivasan | Jyotsna | Amal Neerad | Mamatha Mohandas](https://www.youtube.com/watch?v=DveDE5FHbr0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
