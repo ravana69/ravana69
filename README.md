@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [പാട്ടുപെട്ടി | Paattupetti Vol 45 | Evergreen Songs | Malayalam Film Songs | Satyam Audios](https://www.youtube.com/watch?v=sjSTMjUqEvU)
-- [Ankam Vettan Munnil | Aanandhapuram Diaries  #manoramamusic #malayalamlyricalvideos](https://www.youtube.com/watch?v=Fiy1X737jDQ)
-- [Ramanennum Porali | Achanoru Vazha Vechu | Shorts  #manoramamusic](https://www.youtube.com/watch?v=Yg7NLnmQWXo)
-- [Pineapple Penne | Vellinakshatram | Shorts  #manoramamusic #ytshorts](https://www.youtube.com/watch?v=-qX_YYDXJ2U)
-- [Kabadi Kabadi | Nammal Thammil | Shorts  #manoramamusic #filmsongs](https://www.youtube.com/watch?v=Lt8hc889rcA)
-- [Ente Mavum Poothe | Adi Kapyare Koottamani | Shorts  #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=hiuD8hu1iMg)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 12th of April 2024](https://www.youtube.com/watch?v=XzZtF-e8jjs)
+- [വേദനയുടെ വെയിലേറ്റ് വാടുന്നവർക്ക് വസന്തമാകുവാൻ ദൈവം നമ്മെ വിളിക്കുന്നു| Rev. Aneesh P Joseph#shorts](https://www.youtube.com/watch?v=DAzHOQ55jFI)
+- [Muthumazha Video Song | Big B | Vineeth Sreenivasan | Jyotsna | Amal Neerad | Mamatha Mohandas](https://www.youtube.com/watch?v=DveDE5FHbr0)
+- [Neela Nisheedhini - Sleep Lofi | C.I.D. Nazir | M. K. Arjunan | K.P. Brahmanandan | Chris Wayne](https://www.youtube.com/watch?v=my0IRunKD24)
+- [Malayadi Vaarathi | Tribal Song | Anjana S Kumar | Abhijith | Ram Surendar | Viral Folk Songs](https://www.youtube.com/watch?v=pegecsiPgPc)
+- [സങ്കടങ്ങൾ ഏറ്റെടുക്കുന്ന ഗാനങ്ങൾ | KESTER SONGS #KESTERHITS](https://www.youtube.com/watch?v=pR9rSyPE17U)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
