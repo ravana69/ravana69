@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പാട്ടുപെട്ടി | Paattupetti Vol 45 | Evergreen Songs | Malayalam Film Songs | Satyam Audios](https://www.youtube.com/watch?v=sjSTMjUqEvU)
 - [Ankam Vettan Munnil | Aanandhapuram Diaries  #manoramamusic #malayalamlyricalvideos](https://www.youtube.com/watch?v=Fiy1X737jDQ)
 - [Ramanennum Porali | Achanoru Vazha Vechu | Shorts  #manoramamusic](https://www.youtube.com/watch?v=Yg7NLnmQWXo)
 - [Pineapple Penne | Vellinakshatram | Shorts  #manoramamusic #ytshorts](https://www.youtube.com/watch?v=-qX_YYDXJ2U)
 - [Kabadi Kabadi | Nammal Thammil | Shorts  #manoramamusic #filmsongs](https://www.youtube.com/watch?v=Lt8hc889rcA)
 - [Ente Mavum Poothe | Adi Kapyare Koottamani | Shorts  #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=hiuD8hu1iMg)
-- [Chirichente Manasile Video Song | Anuragakottaram | Dileep | Suvalakshmi | KJ Yesudas | KS Chithra](https://www.youtube.com/watch?v=zLV2xtO-bL8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
