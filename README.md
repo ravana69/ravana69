@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kings Queens Band new Song coming soon💫 🎹🎸](https://www.youtube.com/watch?v=4g5tHoNcvQw)
+- [മെഗാസ്റ്റാർ മമ്മൂട്ടിയുടെ സൂപ്പർഹിറ്റ് ചിത്രങ്ങളിലെ മെഗാഹിറ്റ്ഗാനങ്ങൾ|Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=emHIF36efSU)
 - [Neeyanu Sathyam | Malayalam Christian Devotional Songs | Songs of Kester | Evergreen Songs](https://www.youtube.com/watch?v=2pvOkLciE4k)
 - [Enundodi  Ambilichantham |Lyrical +Karaoke Video | Celluloid | Sithara Krishnakumar | M Jayachandran](https://www.youtube.com/watch?v=uo-E5CAft98)
 - [The crazy beat makes you dance!🌟 #KanniluKannilu #Ayisha #ytshorts #shorts](https://www.youtube.com/watch?v=kDzXYGU6QEs)
 - [Koo Koo Koo Koo Theevandi | Animation Song Video  #animation #kidscartoon #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=d0JilVCCkrE)
-- [Prem Nazir Old Malayalam Movie Songs | Thulabharam Remastered Malayalam Songs | P. Jayachandran](https://www.youtube.com/watch?v=ykI86CSLY7A)
-- [Entha Johnsa Kallile | Uncle | Shorts](https://www.youtube.com/watch?v=UgFVB6qGBVM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
