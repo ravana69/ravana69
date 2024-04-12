@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ankam Vettan Munnil | Aanandhapuram Diaries  #manoramamusic #malayalamlyricalvideos](https://www.youtube.com/watch?v=Fiy1X737jDQ)
+- [Ramanennum Porali | Achanoru Vazha Vechu | Shorts  #manoramamusic](https://www.youtube.com/watch?v=Yg7NLnmQWXo)
+- [Pineapple Penne | Vellinakshatram | Shorts  #manoramamusic #ytshorts](https://www.youtube.com/watch?v=-qX_YYDXJ2U)
+- [Kabadi Kabadi | Nammal Thammil | Shorts  #manoramamusic #filmsongs](https://www.youtube.com/watch?v=Lt8hc889rcA)
+- [Ente Mavum Poothe | Adi Kapyare Koottamani | Shorts  #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=hiuD8hu1iMg)
 - [Chirichente Manasile Video Song | Anuragakottaram | Dileep | Suvalakshmi | KJ Yesudas | KS Chithra](https://www.youtube.com/watch?v=zLV2xtO-bL8)
-- [Kings Queens Band new Song coming soon💫 🎹🎸](https://www.youtube.com/watch?v=4g5tHoNcvQw)
-- [മെഗാസ്റ്റാർ മമ്മൂട്ടിയുടെ സൂപ്പർഹിറ്റ് ചിത്രങ്ങളിലെ മെഗാഹിറ്റ്ഗാനങ്ങൾ|Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=emHIF36efSU)
-- [Neeyanu Sathyam | Malayalam Christian Devotional Songs | Songs of Kester | Evergreen Songs](https://www.youtube.com/watch?v=2pvOkLciE4k)
-- [Enundodi  Ambilichantham |Lyrical +Karaoke Video | Celluloid | Sithara Krishnakumar | M Jayachandran](https://www.youtube.com/watch?v=uo-E5CAft98)
-- [The crazy beat makes you dance!🌟 #KanniluKannilu #Ayisha #ytshorts #shorts](https://www.youtube.com/watch?v=kDzXYGU6QEs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
