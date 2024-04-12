@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=Zf2Ss2GCN3o)
 - [പ്രഭാത പ്രാര്‍ത്ഥന April 12 # Athiravile Prarthana 12th of April 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=O6Bvng-ou1s)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 12th April 2024](https://www.youtube.com/watch?v=YO0lkVkR7g4)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=dEXn68dhAI4)
 - [മനസ്സ് നിറയെ ഭക്തിയോടെ കേൾക്കാം..| അഹദോൻറെ ദുനിയാവിൽ | കെ ജെ യേശുദാസ് | Muslim devotionals](https://www.youtube.com/watch?v=2wfcJXteQts)
 - [അനുരാഗിണീ ഇതാ എൻകരളിൽ| മലയാളചലച്ചിത്രഗാനങ്ങൾ |കെ ജെ യേശുദാസ് | Malayalam melodies | Remastered songs](https://www.youtube.com/watch?v=EFDyS9pfHpI)
-- [Madhuraswapanangal | Meleparambil Aanveedu | Jayaram | Sobhana | Yesudas | Johnson | Rajasenan](https://www.youtube.com/watch?v=NoP2pwomD0A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
