@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഹൃദയരാഗ തന്ത്രിമീട്ടി| മലയാളചലച്ചിത്രഗാനങ്ങൾ |കെ ജെ യേശുദാസ് | Malayalam melodies | Remastered songs](https://www.youtube.com/watch?v=Ena7YCB7joQ)
 - [Nenjudukkinte Video Song | Kalabhavn Mani | Nandini | KJ Yesudas | Mohan Sithara | Yusufali Kecheri](https://www.youtube.com/watch?v=lWI-r-ivqUs)
 - [Salabham Vazhimarumo | Achaneyaanenikkishtam |  M. G. Sreekumar | KS Chithra #SongOfTheDay](https://www.youtube.com/watch?v=C6vo7vHRMsY)
 - [Christian Melody Songs | Chithra Arun | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=duioV4UnxtQ)
 - [ഒരുവട്ടം കൂടി കേൾക്കാൻ മനസ്സ് കൊതിച്ച മലയാളചലച്ചിത്ര ഗാനങ്ങൾ | EVERGREEN MELODY SONGS](https://www.youtube.com/watch?v=jxWuCfLpZY0)
 - [13 April 2024](https://www.youtube.com/watch?v=wXgZNObjLlU)
-- [Sundarippenne | Laljose | Sid Sriram | Binesh Mani | Joe Paul](https://www.youtube.com/watch?v=j5CmGtuKrAk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
