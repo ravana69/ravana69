@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഇന്ന്  ഏപ്രിൽ 13എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala santhosha](https://www.youtube.com/watch?v=EQ4Dgkz7I10)
+- [Christian Video Songs Malayalam | Wilson Piravom |Manoj Christy | Christian Melody Songs |Joji Johns](https://www.youtube.com/watch?v=qahZkyokbb4)
+- [Japamala 13th of April 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 13th of April 24](https://www.youtube.com/watch?v=8yn3SH198QY)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=JvcapZYm7tc)
 - [രാവിലെ പ്രാര്‍ത്ഥന April 13 # Athiravile Prarthana 13th of April 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=oszDV7aImRE)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 13th April 2024](https://www.youtube.com/watch?v=rrfbbhm9spg)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=MKe66H2bM2A)
-- [Kannivasantham | Kuberan | Dileep | Samyuktha Varma | KJ Yesudas | Mohan Sithara | Sujatha](https://www.youtube.com/watch?v=SV9KP60MiC0)
-- [Jai Ganesh Friendship Teaser |  Ranjith Sankar | Unni Mukundan | Mahima Nambiar | Sankar Sharma](https://www.youtube.com/watch?v=1s8_iae1YQk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
