@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Christian Melody Songs | Chithra Arun | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=duioV4UnxtQ)
 - [ഒരുവട്ടം കൂടി കേൾക്കാൻ മനസ്സ് കൊതിച്ച മലയാളചലച്ചിത്ര ഗാനങ്ങൾ | EVERGREEN MELODY SONGS](https://www.youtube.com/watch?v=jxWuCfLpZY0)
 - [13 April 2024](https://www.youtube.com/watch?v=wXgZNObjLlU)
 - [Sundarippenne | Laljose | Sid Sriram | Binesh Mani | Joe Paul](https://www.youtube.com/watch?v=j5CmGtuKrAk)
 - [Niramezhum Video Song | Kudumba Vishesham | Malayalam Movie Songs | KJ Yesudas](https://www.youtube.com/watch?v=fzYyuwpNHqo)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 13th of April 2024](https://www.youtube.com/watch?v=SfJdQsLqVEU)
-- [നഷ്ട്ടപെട്ടതെല്ലാം മറ്റൊരുവിധത്തിൽ തേടിയെത്തും | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=HMjl_WOGocw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
