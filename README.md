@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കണിക്കൊന്നകൾ | Kanikkonnakal | Oru Abhibhashakante Case Diary | Vishu Song | Sujatha Mohan #vishu](https://www.youtube.com/watch?v=Bx7bZVQAWH8)
+- [പുതുമ മായാത്ത മലയാളസിനിമയിലെ സൂപ്പർഹിറ്റ് മെലഡി ഗാനങ്ങൾ | EVERGREEN MELODY SONGS MALAYALAM](https://www.youtube.com/watch?v=OPhkx1x8KNM)
+- [മലയാളി പ്രേക്ഷകരുടെ ഇഷ്ടഗായകസംഘം അവതരിപ്പിക്കുന്ന ഇഷ്ടഗാനങ്ങൾ | BEST SONGS MALAYALAM](https://www.youtube.com/watch?v=W9JKAEBXYQM)
 - [Panchami Raavil |  Aanandhapuram Diaries #sujathamohan #shaanrahman #shortsfeed #shorts #shortsvideo](https://www.youtube.com/watch?v=v9l1xWJ8HG0)
 - [Madhu Old Malayalam Movie Songs | Thulabharam Remastered Malayalam Songs |  K. J. Yesudas](https://www.youtube.com/watch?v=bFs1U3mkeE8)
 - [Stylishly traditional!✨ #KanniluKannilu #Ayisha #ytshorts #shorts](https://www.youtube.com/watch?v=e5DXTiJZ9vw)
-- [Eeran Chodikalil | Kuttapathram | Sureshgopi | M G Sreekumar | Rajamani | Sujatha](https://www.youtube.com/watch?v=lCZH21Ds0ZI)
-- [Kunjunalil ente nadha | Franklin panoor | Fr. Antony Urulianickal CMI| Christian Song Karaoke](https://www.youtube.com/watch?v=vBvg0cX9txI)
-- [Manglish | Shorts](https://www.youtube.com/watch?v=MdYmyR9-1l8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
