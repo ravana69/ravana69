@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Aattumanal Paayayil | Animation Video  #shortsfeed #shortsvideo #shorts #reels #animation #cartoon](https://www.youtube.com/watch?v=uAEFED0gyL8)
-- [Kasthoori Manakkunnello - Audio Song | Picnic | K.J. Yesudas | M.K. Arjunan](https://www.youtube.com/watch?v=UFupd65pB8s)
-- [Sundariye Sundariye Video Song | KJ Yesudas | Sujatha Mohan | Pushpavanam Kuppuswamy | Vidyasagar](https://www.youtube.com/watch?v=J196OkFha9c)
-- [കണിക്കൊന്നകൾ | Kanikkonnakal | Oru Abhibhashakante Case Diary | Vishu Song | Sujatha Mohan #vishu](https://www.youtube.com/watch?v=Bx7bZVQAWH8)
-- [പുതുമ മായാത്ത മലയാളസിനിമയിലെ സൂപ്പർഹിറ്റ് മെലഡി ഗാനങ്ങൾ | EVERGREEN MELODY SONGS MALAYALAM](https://www.youtube.com/watch?v=OPhkx1x8KNM)
-- [മലയാളി പ്രേക്ഷകരുടെ ഇഷ്ടഗായകസംഘം അവതരിപ്പിക്കുന്ന ഇഷ്ടഗാനങ്ങൾ | BEST SONGS MALAYALAM](https://www.youtube.com/watch?v=W9JKAEBXYQM)
+- [Etho Nidrathan Video Song | Ayal Kadha Ezhuthukayanu | K. J. Yesudas | Mohanlal | Nandini #shorts](https://www.youtube.com/watch?v=6G0BNI8fxUs)
+- [Kannante Karalile Mandarappoove | P Jayachandran | K A Latheef | Malayalam Film Songs](https://www.youtube.com/watch?v=rmNR26MM-oo)
+- [Konnappoo | Super Hit Malayalam Movie Song | Kinnaripuzhayoram | Vishu Special Song | Video Song](https://www.youtube.com/watch?v=RREP7UvT-Gw)
+- [Madhuradhari | Karl Marx Bhakthanayirunnu | Sooraj Santhosh | Manikandan Ayyappa | Jyothish T Kassi](https://www.youtube.com/watch?v=s0pvoV8Ey-Q)
+- [Kayalinarike  | Annayum Rasoolum | Video Song | Fahad Faazil | Rajiv Ravi | Shahabaz Aman | K](https://www.youtube.com/watch?v=otUssO7qyaI)
+- [വിഷു പാട്ടുകൾ | Vishu Special Songs | Malayalam Film Songs | Hindu Devotional Songs | East Coast](https://www.youtube.com/watch?v=5lN7j6b6VvQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
