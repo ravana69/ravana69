@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Konnappoo Ponniram | Kinnarippuzhayoram | MG Sreekumar | Gireesh Puthanchery | Jagathy | Thilakan](https://www.youtube.com/watch?v=CVnrUa9W-e4)
-- [Omalaale Kandu Njan | Sindooracheppu | G Devarajan | KJ Yesudas | Madhu | Jayabharathi | Old is gold](https://www.youtube.com/watch?v=uqkoa3Ef7bI)
-- [അമ്മൂമ്മക്കിളി വായാടി അല്ലിപ്പൂമ്പുഴ താന്തോന്നി.. #chandralekha  #evergreenhits #mohanlalhits](https://www.youtube.com/watch?v=_sGa5BDSS4E)
-- [Dancing your heart out!💃 #KanniluKannilu #Ayisha #ytshorts #shorts](https://www.youtube.com/watch?v=pXip5wo_j6Q)
-- [Sharada Old Malayalam Movie Songs | Thulabharam Remastered Malayalam Songs | P.Susheela](https://www.youtube.com/watch?v=_F4IR-NL0uY)
-- [🎬 Supreme Sundar! Get ready for a sneak peek behind the adrenaline-fueled magic. #shorts](https://www.youtube.com/watch?v=XxAwA-A34tQ)
+- [Thei Oru Thenavayal | Chandranudikkunna Dikkil | Vidyasagar #SongOfTheDay](https://www.youtube.com/watch?v=iXfvXdMrDjI)
+- [Varamanjaladiya | Video Song | Sachithanandan Puzhankara | Vidyasagar | Sujatha Mohan |Manju Warrier](https://www.youtube.com/watch?v=Hpg_-MvoedQ)
+- [Christian SUperhit Songs | Sanoop Kumar | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=hlV-5ylyZAo)
+- [Anganamar Moule - Audio Song | Ankathattu | K.J. Yesudas | G. Devarajan](https://www.youtube.com/watch?v=hi9hjcKuFcg)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 14th of April 2024](https://www.youtube.com/watch?v=esIrKKiB8mI)
+- [നല്ല കാര്യങ്ങൾക്ക് സമയമെടുക്കും | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=SRKpXeIHa1M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
