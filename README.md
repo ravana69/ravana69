@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Konnappoo Ponniram | Kinnarippuzhayoram | MG Sreekumar | Gireesh Puthanchery | Jagathy | Thilakan](https://www.youtube.com/watch?v=CVnrUa9W-e4)
+- [Omalaale Kandu Njan | Sindooracheppu | G Devarajan | KJ Yesudas | Madhu | Jayabharathi | Old is gold](https://www.youtube.com/watch?v=uqkoa3Ef7bI)
+- [അമ്മൂമ്മക്കിളി വായാടി അല്ലിപ്പൂമ്പുഴ താന്തോന്നി.. #chandralekha  #evergreenhits #mohanlalhits](https://www.youtube.com/watch?v=_sGa5BDSS4E)
 - [Dancing your heart out!💃 #KanniluKannilu #Ayisha #ytshorts #shorts](https://www.youtube.com/watch?v=pXip5wo_j6Q)
 - [Sharada Old Malayalam Movie Songs | Thulabharam Remastered Malayalam Songs | P.Susheela](https://www.youtube.com/watch?v=_F4IR-NL0uY)
 - [🎬 Supreme Sundar! Get ready for a sneak peek behind the adrenaline-fueled magic. #shorts](https://www.youtube.com/watch?v=XxAwA-A34tQ)
-- [ഇന്ന്  ഏപ്രിൽ 14എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala mahimayud](https://www.youtube.com/watch?v=KSVVBF9aO0w)
-- [ജീവിതത്തെ പറ്റി ഒന്നുംകൂടെ ചിന്തിക്കും ഈ ഗാനങ്ങൾ കേൾക്കുമ്പോൾ | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=k1SXPuouMXc)
-- [Japamala 14th of April 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 14th of April 2024](https://www.youtube.com/watch?v=kDHsAeH-wbo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
