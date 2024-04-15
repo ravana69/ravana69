@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=TsDVy29JCs4)
-- [രാവിലെ പ്രാര്‍ത്ഥന April 15 # Athiravile Prarthana 15th of April 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=b51Dz69zP9k)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 15th April 2024](https://www.youtube.com/watch?v=LUvBpe-jYVM)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=0Oi3XuDRtNI)
-- [14 April 2024](https://www.youtube.com/watch?v=rqoLxLdAZQM)
-- [Thei Oru Thenavayal | Chandranudikkunna Dikkil | Vidyasagar #SongOfTheDay](https://www.youtube.com/watch?v=iXfvXdMrDjI)
+- [Enikkay Karuthamennurachavane | Maria Kolady #shortsvideo  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=xOdl-zoAgwE)
+- [Enikkay Karuthamennurachavane | Maria Kolady #shortsvideo  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=45k_sq212qY)
+- [Oru Yathra Mozhiyode | Kurukshetra | Gireesh Puthencherry #ytshorts](https://www.youtube.com/watch?v=jcHAS4edwEU)
+- [Enikkay Karuthamennurachavane | Maria Kolady #shortsvideo  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=_bsRlbprZuM)
+- [Enikkay Karuthamennurachavane | Maria Kolady #shortsvideo  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=Nfn4zizf_qM)
+- [Bhakshnamaillathe | Enikkay | Maria Kolady #shortsvideo  #manoramachristiandevotionalsongs](https://www.youtube.com/watch?v=xy-aePwO1vI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
