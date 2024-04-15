@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Onnumillaymayil | കെസ്റ്റർ ഉള്ളുരുകി പാടിയ ഗാനം | @JinoKunnumpurathu    #shorts |#christianshorts](https://www.youtube.com/watch?v=apfmXvO5lVk)
 - [Kudukude Chirkkana | Mayavi and Luttappi | Mayavi |Super Hit Animation Video | Balarama](https://www.youtube.com/watch?v=5ko9BHf4QpU)
 - [Oru Paatin Kaatil  | Dubai | Vidyasagar | Gireesh Puthenchery | Sujatha | Nikhil | Mammooty](https://www.youtube.com/watch?v=kNyzhOu9Ndk)
 - [എത്രകേട്ടിട്ടും പുതുമ മായാത്ത മലയാളസിനിമയിലെ സൂപ്പർഹിറ്റ് മെലഡി ഗാനങ്ങൾ | EVERGREENSUPERHIT MELODIES](https://www.youtube.com/watch?v=XGk5MfhkuG0)
 - [Monchathipenne Ninchundil | Maram | Ummar | Jayabharathi | Yousafali Kecheri | Devarajan](https://www.youtube.com/watch?v=01jLXDVBQAs)
 - [Chellam Chellam Manjadi Video Song | Kunchacko Boban | Kavya Madhavan | KJ Yesudas | KS Chithra](https://www.youtube.com/watch?v=rEEDyNOW_zo)
-- [Rukmangadhavidhi Promo Video Song | Oru Kattil Oru Muri | Fejo| Varkey | Shanavas K Bavakutty](https://www.youtube.com/watch?v=Qg0MZiLKRgI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
