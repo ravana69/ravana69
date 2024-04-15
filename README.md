@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [90s Malayalam Superhit Paattukal | Evergreen Malayalam Hits |  Audience Favourite Song | K J Yesudas](https://www.youtube.com/watch?v=w5ewv8l80dE)
+- [Illamazha Chattin | Kochaal | Pradeep Kumar | Nithya Mammen | P S Jayahari | Santhosh Varma](https://www.youtube.com/watch?v=BXeD8Vm0pf4)
+- [Mizhiyoram - Audio Song | Manjil Virinja Pookkal | K.J. Yesudas | Jerry Amaldev](https://www.youtube.com/watch?v=-lEya4vmXnA)
 - [നീ ഒഴുക്കിയ കണ്ണുനീരിന് തക്കസമയത്ത് ദൈവം മറുപടി തരും. | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=_nrYybwqe9o)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 15th of April 2024](https://www.youtube.com/watch?v=NqXJTOx-mUY)
 - [Kollamkottu Thookkam Nernna Video Song | Kudumba Vishesham | Malayalam Movie Songs | KJ Yesudas](https://www.youtube.com/watch?v=4fCN2ZHBEYo)
-- [Thotturummi Video Song | Rasikan | Sujatha Mohan | Vidyasagar | Gireesh Puthenchery #shorts](https://www.youtube.com/watch?v=ch8NvqLB4Ck)
-- [Panineer Pookkal | Kshanikam | KS Chithra | Dr.V T Sunil | Dr.Sheeja Vakkom](https://www.youtube.com/watch?v=kE8_II_jl1A)
-- [Onnumillaymayil | കെസ്റ്റർ ഉള്ളുരുകി പാടിയ ഗാനം | @JinoKunnumpurathu    #shorts |#christianshorts](https://www.youtube.com/watch?v=apfmXvO5lVk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
