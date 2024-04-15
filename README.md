@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Christian Melody Songs | Kester | Christian Devotional Songs Malayalam | Joji Johns | Manoj Christy](https://www.youtube.com/watch?v=aoubKxor2WE)
-- [90s Malayalam Superhit Paattukal | Evergreen Malayalam Hits |  Audience Favourite Song | K J Yesudas](https://www.youtube.com/watch?v=w5ewv8l80dE)
-- [Illamazha Chattin | Kochaal | Pradeep Kumar | Nithya Mammen | P S Jayahari | Santhosh Varma](https://www.youtube.com/watch?v=BXeD8Vm0pf4)
-- [Mizhiyoram - Audio Song | Manjil Virinja Pookkal | K.J. Yesudas | Jerry Amaldev](https://www.youtube.com/watch?v=-lEya4vmXnA)
-- [നീ ഒഴുക്കിയ കണ്ണുനീരിന് തക്കസമയത്ത് ദൈവം മറുപടി തരും. | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=_nrYybwqe9o)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 15th of April 2024](https://www.youtube.com/watch?v=NqXJTOx-mUY)
+- [SS Thaman, Naveen - Aathadi Aathadi (Tamil Lyric Video [From "Ayyanar"])](https://www.youtube.com/watch?v=I-6AKSlG9h8)
+- [Nee Otha Sollu Sollu (Tamil Lyric Video [From "Aval Peyar Tamilarasi"])](https://www.youtube.com/watch?v=Lp4u6YRnur4)
+- [Adadada Arrambame (Tamil Lyric Video [From "Arrambam"])](https://www.youtube.com/watch?v=x8i-7nhY3y0)
+- [Melala Vedikudhu (Tamil Lyric Video [From "Arrambam"])](https://www.youtube.com/watch?v=pKNqqJ-HqQ0)
+- [Othakallu Othakallu (Tamil Lyric Video [From "Ambasamuthiram Ambani"])](https://www.youtube.com/watch?v=FntS0F326Rg)
+- [Vidyasagar, Kailash Kher - Ore Oru Oorilae (Tamil Lyric Video [From "Abhiyum Naanum"])](https://www.youtube.com/watch?v=p7Y-azmFUMk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
