@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oru Penkidavu | Prajapathi | Mammootty | Salim Kumar | Jassie Gifft | Thej Mervin | Sujatha Mohan](https://www.youtube.com/watch?v=XIMNRAEUcG0)
+- [15 April 2024](https://www.youtube.com/watch?v=QoeOTJ6LreY)
 - [SS Thaman, Naveen - Aathadi Aathadi (Tamil Lyric Video [From "Ayyanar"])](https://www.youtube.com/watch?v=I-6AKSlG9h8)
 - [Nee Otha Sollu Sollu (Tamil Lyric Video [From "Aval Peyar Tamilarasi"])](https://www.youtube.com/watch?v=Lp4u6YRnur4)
 - [Adadada Arrambame (Tamil Lyric Video [From "Arrambam"])](https://www.youtube.com/watch?v=x8i-7nhY3y0)
 - [Melala Vedikudhu (Tamil Lyric Video [From "Arrambam"])](https://www.youtube.com/watch?v=pKNqqJ-HqQ0)
-- [Othakallu Othakallu (Tamil Lyric Video [From "Ambasamuthiram Ambani"])](https://www.youtube.com/watch?v=FntS0F326Rg)
-- [Vidyasagar, Kailash Kher - Ore Oru Oorilae (Tamil Lyric Video [From "Abhiyum Naanum"])](https://www.youtube.com/watch?v=p7Y-azmFUMk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
