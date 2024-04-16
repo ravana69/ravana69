@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [എത്ര ജന്മം കഴിഞ്ഞാലും മനസിൽ നിന്ന് മായില്ല എന്ന് കരുതുന്ന മലയാളത്തിലെ പ്രശസ്‌ത ഗാനങ്ങൾ](https://www.youtube.com/watch?v=bfQhwCe0A_4)
+- [Maarimalar Choriyunna | Maram | Yousafali Kecheri | Madhuri | KPAC Lalitha | Devarajan Master](https://www.youtube.com/watch?v=LQUGQ0Vizrg)
+- [Ente Daivam Nalla Daivam | Christian Songs of Kester | Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=Qyf5DpemOWw)
 - [ഓരോ എലെമെന്റും ഒരു രാജാവിനെ പോലെയാ വരുന്നേ |  Vineeth Sreenivasan | Vidyasagar | @sainasouthplus](https://www.youtube.com/watch?v=sue7VOIRopo)
 - [Urumi  | Evergreen Movie Songs Video Jukebox | Prithviraj | Prabhudeva | Vidya Balan | Deepak Dev](https://www.youtube.com/watch?v=tf84JBWmi3w)
 - [Oru Murai Vanthu Parthaya Video Song | Manichithrathazhu | Shobana| mohanlal |KJ Yesudas |KS Chithra](https://www.youtube.com/watch?v=cKeIETLixKQ)
-- [Madhumaasa Ponnala | Kuttettan | Mammootty | Saritha | Mathu | Yesudas | Raveendran](https://www.youtube.com/watch?v=VUbiALJiKEM)
-- [Sukumaran  Old Malayalam Movie Songs | Bandhanam Remastered Malayalam Songs | Vani Jairam](https://www.youtube.com/watch?v=H_e5-0RBKjA)
-- [Kusumavadana | Mollywood DJ Party Hits #jayaram #shortsfeed #shortsvideo #shorts  #mjayachandran](https://www.youtube.com/watch?v=6BEUrRsHHhQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
