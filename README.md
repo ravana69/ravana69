@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oru Murai Vanthu Parthaya Video Song | Manichithrathazhu | Shobana| mohanlal |KJ Yesudas |KS Chithra](https://www.youtube.com/watch?v=cKeIETLixKQ)
+- [Madhumaasa Ponnala | Kuttettan | Mammootty | Saritha | Mathu | Yesudas | Raveendran](https://www.youtube.com/watch?v=VUbiALJiKEM)
 - [Sukumaran  Old Malayalam Movie Songs | Bandhanam Remastered Malayalam Songs | Vani Jairam](https://www.youtube.com/watch?v=H_e5-0RBKjA)
 - [Kusumavadana | Mollywood DJ Party Hits #jayaram #shortsfeed #shortsvideo #shorts  #mjayachandran](https://www.youtube.com/watch?v=6BEUrRsHHhQ)
 - [നന്ദി/NANNI/CHRISTIAN DEVOTIONAL SONGS/OWN MEDIA MUSIC COLLECTION.](https://www.youtube.com/watch?v=cLhqbBFROIs)
 - [Kasthuri | Innathe Chintha Vishayam | Gireesh Puthencherry #shorts  #manoramamusic](https://www.youtube.com/watch?v=ufW3Svif5pA)
-- [ഇന്ന്  ഏപ്രിൽ 16 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala dhukkath](https://www.youtube.com/watch?v=Se7xe2uFGPY)
-- [സൂപ്പർഹിറ് ഗാനം യേശുൻറെ കൂടെയുണ്ട് yeshu ente koode undu | prajapathiyagam mano song with lyrics](https://www.youtube.com/watch?v=m4tJpwb-FcQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
