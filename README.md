@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 16th of April 2024](https://www.youtube.com/watch?v=X17tz94WVAU)
+- [Moovanthi Thazhvarayil | Mohanlal | Manju Warrier | KJ Yesudas | Gireesh Puthenchery](https://www.youtube.com/watch?v=2QXJZ2gYGu0)
+- [നീ തനിച്ചല്ല കൂടെയുണ്ട് നാഥൻ | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=0SMK1GynSdE)
+- [Para Para Para Paarupenne | Varayan | Mathai Sunil | Prakash Alex | Harinrayanan BK](https://www.youtube.com/watch?v=8yKzNjLiEyo)
+- [Vellichillum - Audio Song | Ina | Krishnachandran | A.T. Ummer](https://www.youtube.com/watch?v=6K4BHbCa7z8)
 - [Maangayachaar Anjaneya | HanuMan(Malayalam) | Prasanth Varma|Teja Sajja, Amritha|Anudeep Dev|Sithara](https://www.youtube.com/watch?v=Kxe6eRWdc9Y)
-- [Paranna Vazhikal Lyrical Video | Jai Ganesh | Ranjith Sankar | Unni Mukundan | Sankar Sharma| Mahima](https://www.youtube.com/watch?v=PQSyRW0_K14)
-- [എത്ര ജന്മം കഴിഞ്ഞാലും മനസിൽ നിന്ന് മായില്ല എന്ന് കരുതുന്ന മലയാളത്തിലെ പ്രശസ്‌ത ഗാനങ്ങൾ](https://www.youtube.com/watch?v=bfQhwCe0A_4)
-- [Panchavalsara Padhathi | Official Trailer | P G Premlal | Siju Wilson | Shaan Rahman | K G Anilkumar](https://www.youtube.com/watch?v=xTJSOUEUhlM)
-- [Maarimalar Choriyunna | Maram | Yousafali Kecheri | Madhuri | KPAC Lalitha | Devarajan Master](https://www.youtube.com/watch?v=LQUGQ0Vizrg)
-- [Ente Daivam Nalla Daivam | Christian Songs of Kester | Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=Qyf5DpemOWw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
