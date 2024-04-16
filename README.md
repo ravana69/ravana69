@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന April 17 # Athiravile Prarthana 17th of April 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=CBus_6Cruvo)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 17th April 2024](https://www.youtube.com/watch?v=0R-QmiW0-nQ)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=pC-zToOhWg0)
 - [Aararo Aararo(നിറകുടം )Vinod velyudhan](https://www.youtube.com/watch?v=bXmMX4HpVMQ)
 - [Non Stop Malayalam Christian Songs | Christian Worship Songs Malayalam | Super Hit Devotional Songs](https://www.youtube.com/watch?v=PIgzEWokvAE)
 - [വിദ്യാസാഗറിന്റെ മാജിക്കും ഷഹബാസ് അമന്റെ.... | Vineeth Sreenivasan Music stories | Saina music](https://www.youtube.com/watch?v=C_L3U0_AsU8)
-- [Maamazhayile | Mayilattam | M Jayachandran | Sujatha Mohan | Gireesh Puthenchery #songoftheday](https://www.youtube.com/watch?v=UvV1HjOn6Lo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
