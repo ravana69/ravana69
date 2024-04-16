@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Maamazhayile | Mayilattam | M Jayachandran | Sujatha Mohan | Gireesh Puthenchery #songoftheday](https://www.youtube.com/watch?v=UvV1HjOn6Lo)
 - [മധുര കിനാവുകൾ കാണാൻ മനസിനെ പഠിപ്പിച്ച സൂപ്പർഹിറ്റ് പ്രണയഗാനങ്ങൾ ! EVERGREEN HITS MALAYALAM](https://www.youtube.com/watch?v=ZHxdNmCLhqs)
 - [Singer Of The Week | KG Markose | Christian Superhit Songs | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=6rWhYRhcgAk)
 - [Ilaveyiloli Neeyen | Kshanikam | KS Harishankar | Dr.V T Sunil | Dr.Sheeja Vakkom](https://www.youtube.com/watch?v=3Kx01S5fHrQ)
 - [16 April 2024](https://www.youtube.com/watch?v=eEwety7OLcs)
 - [Kandukothi Theernnillayya  | Tribute to Kalaratnam K G Jayan (Jaya Vijaya)| Ayyappa Devotional Songs](https://www.youtube.com/watch?v=V8qLT14Ef3c)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 16th of April 2024](https://www.youtube.com/watch?v=X17tz94WVAU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
