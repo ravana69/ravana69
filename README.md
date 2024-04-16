@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഇന്ന്  ഏപ്രിൽ 16 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala dhukkath](https://www.youtube.com/watch?v=Se7xe2uFGPY)
+- [സൂപ്പർഹിറ് ഗാനം യേശുൻറെ കൂടെയുണ്ട് yeshu ente koode undu | prajapathiyagam mano song with lyrics](https://www.youtube.com/watch?v=m4tJpwb-FcQ)
+- [Iniyumoru Kanan | Christian Devotional SOngs Malayalam | Ziya Ul Haq | Kusumam Joseph | Joji Johns](https://www.youtube.com/watch?v=uBfEr8zWaK8)
+- [Japamala 16th of April 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 16th of April 24](https://www.youtube.com/watch?v=VAI5bBD1d9c)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=VA161ESPC8w)
 - [പ്രഭാത പ്രാര്‍ത്ഥന April 16 # Athiravile Prarthana 16th of April 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=aLAJSRm_iGk)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 16th April 2024](https://www.youtube.com/watch?v=EDFZwyAptSk)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=bStaNrVDiIs)
-- [Oru Penkidavu | Prajapathi | Mammootty | Salim Kumar | Jassie Gifft | Thej Mervin | Sujatha Mohan](https://www.youtube.com/watch?v=XIMNRAEUcG0)
-- [15 April 2024](https://www.youtube.com/watch?v=QoeOTJ6LreY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
