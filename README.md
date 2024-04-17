@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Kannu | Visudha Mejo | Adheef Muhamed | Justin Varghese | Suhail Koya](https://www.youtube.com/watch?v=TRkIfHJL_q4)
-- [Daivasnehathin Vellariprave | Malayalam Christian Devotional Songs | Super Hit Kester Songs](https://www.youtube.com/watch?v=3Ba8cIlkn8E)
-- [Happy Birthday Vikram #arrahman #tipsmalayalam #malayalamsongs #ytshorts](https://www.youtube.com/watch?v=J6tvIAgDW9I)
-- [Happy Shri Rama Navami #hanuman #malayalamsongs #ytshorts](https://www.youtube.com/watch?v=srlpSnrLzR4)
-- [ഏതൊരു മനുഷ്യന്റെയും മനസ്സലിയുന്ന ഗാനങ്ങൾ | MALAYALAM FILM SONGS | NISARI SONGS](https://www.youtube.com/watch?v=yVWGjtj9rLA)
-- [THIRUMUNPIL UYARTHIYA KARANGAL #shorts #frshajithumpechirayil #alexkalexander](https://www.youtube.com/watch?v=3V2VzOe20Xc)
+- [Nadanna Sambavam - Promo Song | Biju Menon | Vishnu Narayan | Ankit Menon | Shabareesh Varma](https://www.youtube.com/watch?v=jBfXW5ERl8I)
+- [Ammathannaavil.#christiandevotionalsongsmalayalam #richukuttan #holycommunionsong #james #jojijohns](https://www.youtube.com/watch?v=CYw7P3oiULw)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 17th of April 2024](https://www.youtube.com/watch?v=6iobY-8NnaU)
+- [ഇല്ലായ്മകളെയോർത്ത് സങ്കടപ്പെടുന്നവരാണോ നിങ്ങൾ ? | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=aygsU3Rag2Y)
+- [Seethapakshi Video Song | Old Hit Malayalam Songs | Oru Sundariyude Kadha | P. Susheela #shorts](https://www.youtube.com/watch?v=ikIkHtc1eBM)
+- [Pularkala Chandrika Pole | Super Hit Malayalam Movie Song | Vadhu Doctoranu | Sreenivasan | Usha](https://www.youtube.com/watch?v=zFhckfwxUp4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
