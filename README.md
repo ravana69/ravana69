@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Abhayam Thedi...#christiandevotionalsongsmalayalam #jojijohns #arundas #sreya_jayadeep](https://www.youtube.com/watch?v=AJx23ijOB1o)
+- [Mavelikku Sesham |  | വെള്ളിമൂങ്ങ സിനിമയിലെ ഗാനത്തിൻ്റെ  അനിമേഷൻ രൂപം | Najim Arshad  | Bijibal |](https://www.youtube.com/watch?v=GiDLMN6JeoE)
+- [Lokam Niranjavane.. #christianvideosongs #sreya_jayadeep #jojijohns #christiansongs](https://www.youtube.com/watch?v=IAndSS5cEgs)
 - [Prem Nazir Old Malayalam Movie Songs | Lankadahanam  Remastered Malayalam Songs | K. J. Yesudas](https://www.youtube.com/watch?v=400s2cly6tM)
 - [Maangayachaar Anjaneya Full video is out Now #hanuman #malayalamsongs #tejasajja #ytshorts](https://www.youtube.com/watch?v=p-oa8BBFZSA)
 - [Udicha Chandirante Video Song | Punjabi House | Dileep | Lal | Mohini | MG Sreekumar | Mano](https://www.youtube.com/watch?v=KHMm5LUWwWM)
-- [Madhuram Jeevamrutha | Chenkol | Mohanlal | Thilakan | Yesudas | Johnson](https://www.youtube.com/watch?v=3sMAP2nDNLk)
-- [Varuveen | Heidel & Irine #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=_Hp5PGmQNg0)
-- [Varuveen | Heidel & Irine #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=7DdbKCRAjtA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
