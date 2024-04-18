@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Punnaram Poove | Friends | Ilaiyaraaja | K.S.Chithra | Hi-Res Audio](https://www.youtube.com/watch?v=BqOEpSM7xK0)
 - [Ambalakkara Thechikaavilu Pooram | Black | Mammootty | Rahman | Alex Paul | MG Sreekumar | Renjith](https://www.youtube.com/watch?v=5ob5HxJ-WLs)
 - [18 April 2024](https://www.youtube.com/watch?v=uB4UUPHayII)
 - [Kalli Poonkuyile | Thenmavin Kombath  | Berny Ignatius | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=OW_c2ZfLtyw)
 - [Paalnilaavinum HD Video Song | Kaboolivala l SP Venkitesh | Innocent, Jagathy Sreekumar](https://www.youtube.com/watch?v=88xGSemiZGk)
 - [മലയാളികളുടെ മനസ്സ് കീഴടക്കിയ മധുര മനോഹര ഗാനങ്ങൾ  | EVERGREEN SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=mNVFOzBKYpU)
-- [വീണ്ടും കേൾക്കാൻ മനസ്സ് മോഹിച്ചുപോകുന്ന സൂപ്പർഹിറ്റ്  മെലഡി ഗാനങ്ങൾ | MELODY SONGS MALAYALAM](https://www.youtube.com/watch?v=Ml_P56hxU8A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
