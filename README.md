@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഇന്ന്  ഏപ്രിൽ 18 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala prakasha](https://www.youtube.com/watch?v=dYvwDHVzV3g)
+- [കഷ്ടപ്പാടുകൾ ദൂരെയകലും ഈ ഗാനങ്ങൾ കേട്ടാൽ  | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=Z8Dj0bA3JFc)
+- [Japamala 18th of April 2024 # Mathavinte Japamala Prakashathinte Rahasyangal 18th of April 24](https://www.youtube.com/watch?v=AxD4apmlDjU)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=iSZ3EgTSbm0)
 - [രാവിലെ പ്രാര്‍ത്ഥന April 18 # Athiravile Prarthana 18th of April 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=CQCVVJ5_qZ4)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 18th April 2024](https://www.youtube.com/watch?v=2nrbf_MCpxY)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=0qF_SXAdMeM)
-- [പൂവോ നിലാവോ പാലാഴിയോ.. | കെ ജെ യേശുദാസ് | K S Chitra| Biju Narayanan | Selected Film songs](https://www.youtube.com/watch?v=inj-trZVTiU)
-- [17 April 2024](https://www.youtube.com/watch?v=8IK5eKWdEjc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
