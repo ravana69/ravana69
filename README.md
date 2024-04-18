@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Innale Ente Nenjile | Balettan | Gireesh Puthencherry | Shorts](https://www.youtube.com/watch?v=a-xpESpQYtM)
-- [ഇന്ന്  ഏപ്രിൽ 18 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala prakasha](https://www.youtube.com/watch?v=dYvwDHVzV3g)
-- [കഷ്ടപ്പാടുകൾ ദൂരെയകലും ഈ ഗാനങ്ങൾ കേട്ടാൽ  | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=Z8Dj0bA3JFc)
-- [Japamala 18th of April 2024 # Mathavinte Japamala Prakashathinte Rahasyangal 18th of April 24](https://www.youtube.com/watch?v=AxD4apmlDjU)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=iSZ3EgTSbm0)
-- [രാവിലെ പ്രാര്‍ത്ഥന April 18 # Athiravile Prarthana 18th of April 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=CQCVVJ5_qZ4)
+- [Prem Nazir Old Malayalam Movie Songs | Lankadahanam  Remastered Malayalam Songs | K. J. Yesudas](https://www.youtube.com/watch?v=400s2cly6tM)
+- [Maangayachaar Anjaneya Full video is out Now #hanuman #malayalamsongs #tejasajja #ytshorts](https://www.youtube.com/watch?v=p-oa8BBFZSA)
+- [Udicha Chandirante Video Song | Punjabi House | Dileep | Lal | Mohini | MG Sreekumar | Mano](https://www.youtube.com/watch?v=KHMm5LUWwWM)
+- [Madhuram Jeevamrutha | Chenkol | Mohanlal | Thilakan | Yesudas | Johnson](https://www.youtube.com/watch?v=3sMAP2nDNLk)
+- [Varuveen | Heidel & Irine #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=_Hp5PGmQNg0)
+- [Varuveen | Heidel & Irine #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=7DdbKCRAjtA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
