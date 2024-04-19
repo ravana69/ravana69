@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളികളുടെ മനസ്സിൽ ചേക്കേറിയ ഇഷ്ടഗായകർ ആലപിച്ച സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | EVERGREEN HITS](https://www.youtube.com/watch?v=3OFuesnqVGk)
 - [Ramzan Nilavotha | Harmoniam Instrumental #shortsfeed #shortsvideo #reels](https://www.youtube.com/watch?v=0-8s8_dPTFA)
 - [Mylanchimetu Vazhum | Swarna Kaduva |Video| Biju Menon | Najim Arshad | Santhosh Varma|Ratheesh Vega](https://www.youtube.com/watch?v=mrTmAcvE_3A)
 - [Sreelatha Old Malayalam Movie Songs | Anadha Shilpangal Remastered Malayalam Songs](https://www.youtube.com/watch?v=F9IGfCxkpMg)
 - [Pachakarikaya Thattil Video Song | Kilukkampetti | Jayaram | Baby Shamili | MG Sreekumar](https://www.youtube.com/watch?v=8Qw3Sw0JGdA)
 - [YESHU RAKSHA NAMAM | #shorts | Thampi Xavier | Jiji Thomson | Fr Shaji Thumpechirayil](https://www.youtube.com/watch?v=-ScO3oiiiqQ)
-- [Marannuvo | Chakkaramuthu | Gireesh Puthencherry | Shorts  #manoramamusic #malayalammoviesongs](https://www.youtube.com/watch?v=y3Yb8g3c2lU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
