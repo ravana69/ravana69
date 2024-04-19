@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [19 April 2024](https://www.youtube.com/watch?v=rjhP9lDcr1c)
+- [Enne Nadathuka | Teaser | Sreekumaran Thampi | Nilambur Karthikeyan | Janiya Peter  #manoramamusic](https://www.youtube.com/watch?v=dKLU8tAIIDM)
+- [Maanam Thelinje Ninnal  | Thenmavin Kombath  | Berny Ignatius | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=MYDxbeWzg7Q)
+- [Ambadi Payyukal Meyum | S Ramesan Nair | Vidyasagar | K J Yesudas | Sujatha Mohan](https://www.youtube.com/watch?v=2TeYf0MwFPk)
+- [Kakkala Kannamma Song | Mohanlal | Sivaji Ganesan | Ilayaraja | MG Sreekumar | SP Balasubrahmanyam](https://www.youtube.com/watch?v=YhVcA1zX8Ns)
 - [Kallayipuzhayoru Manavatti | Maram | Yousufali Kecheri | G Devarajan | P Susheela | P Madhuri](https://www.youtube.com/watch?v=S5NpZptNEuw)
-- [Christian Superhit Songs | Fr.Joshy Kannukaden | First Holy Communion SOngs | Kester | Joji Johns](https://www.youtube.com/watch?v=SXBN1Yb0CVQ)
-- [Onnumillaymayil | ജനഹൃദയങ്ങൾ കീഴടക്കിയ സൂപ്പർ ഹിറ്റ് ഗാനം | @JinoKunnumpurathu #shorts #kesterhits](https://www.youtube.com/watch?v=zyGMSzj3KdA)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 19th of April 2024](https://www.youtube.com/watch?v=hA0cbqz9M2E)
-- [വാക്കുകൾകൊണ്ട് ഒരുപാട് സ്നേഹം തരുന്നവർ | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=g64BRGIWEA8)
-- [Poopole Poopole Chirikkum Video Song | Thirichadi #shorts](https://www.youtube.com/watch?v=-rGotgn0Zoc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
