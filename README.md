@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [YESHU RAKSHA NAMAM | #shorts | Thampi Xavier | Jiji Thomson | Fr Shaji Thumpechirayil](https://www.youtube.com/watch?v=-ScO3oiiiqQ)
 - [Marannuvo | Chakkaramuthu | Gireesh Puthencherry | Shorts  #manoramamusic #malayalammoviesongs](https://www.youtube.com/watch?v=y3Yb8g3c2lU)
 - [ഇന്ന്  ഏപ്രിൽ 19 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala dhukkath](https://www.youtube.com/watch?v=_hF5OTk01dQ)
 - [ലാസറിനെ ഉയിർപ്പിച്ച ദൈവമാണലോ!!! superhit kester song lazarine uyirpicha daivamanalo prajapathiyagam](https://www.youtube.com/watch?v=yM2MTfGvbKM)
 - [Japamala 19th of April 2024 Mathavinte Japamala # Dhukhathinte Rahasyangal 19th of April 24](https://www.youtube.com/watch?v=jvuU1bGnWxE)
 - [Songs Of The Week | Kester | KG Markose | Christian Superhit Songs | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=SvQpO27OQO8)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=oKdABUC4mUg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
