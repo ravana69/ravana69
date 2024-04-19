@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kallayipuzhayoru Manavatti | Maram | Yousufali Kecheri | G Devarajan | P Susheela | P Madhuri](https://www.youtube.com/watch?v=S5NpZptNEuw)
+- [Christian Superhit Songs | Fr.Joshy Kannukaden | First Holy Communion SOngs | Kester | Joji Johns](https://www.youtube.com/watch?v=SXBN1Yb0CVQ)
 - [Onnumillaymayil | ജനഹൃദയങ്ങൾ കീഴടക്കിയ സൂപ്പർ ഹിറ്റ് ഗാനം | @JinoKunnumpurathu #shorts #kesterhits](https://www.youtube.com/watch?v=zyGMSzj3KdA)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 19th of April 2024](https://www.youtube.com/watch?v=hA0cbqz9M2E)
 - [വാക്കുകൾകൊണ്ട് ഒരുപാട് സ്നേഹം തരുന്നവർ | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=g64BRGIWEA8)
 - [Poopole Poopole Chirikkum Video Song | Thirichadi #shorts](https://www.youtube.com/watch?v=-rGotgn0Zoc)
-- [Uyire | Nammal Thammil | Gireesh Puthencherry  #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=X6JO9W0iuZ8)
-- [Kaatuvannu killumee Video Song | Ithu Manjukaalam | KJ Yesudas |Sujatha Mohan |Malayalam Movie Songs](https://www.youtube.com/watch?v=aRMM21hGoKM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
