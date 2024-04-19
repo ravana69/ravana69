@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ചന്ദനലേപസുഗന്ധം ചൂടിയതാരോ..| മലയാളചലച്ചിത്രഗാനങ്ങൾ |കെ ജെ യേശുദാസ് | Remastered Malayalam melodies](https://www.youtube.com/watch?v=rsL8IlufdBk)
 - [Shane Nigam's practice for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=n_R7IxYrVPI)
 - [Effortless moves for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=0bgFik_IalU)
 - [ഞാൻ ഇപ്പോ ഇവിടെ വന്നിരിക്കുന്നത് തന്നെ തേൻ ബിസിനസിലെ SUCCESS ആണ്  Usman Madari Bee Craft](https://www.youtube.com/watch?v=kxJhZofWURI)
 - [19 April 2024](https://www.youtube.com/watch?v=rjhP9lDcr1c)
 - [Enne Nadathuka | Teaser | Sreekumaran Thampi | Nilambur Karthikeyan | Janiya Peter  #manoramamusic](https://www.youtube.com/watch?v=dKLU8tAIIDM)
-- [Maanam Thelinje Ninnal  | Thenmavin Kombath  | Berny Ignatius | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=MYDxbeWzg7Q)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
