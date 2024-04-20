@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Manju Mazha | Animation Video #shortsfeed #shortsvideo #reels #kidscartoon #animation #cartoon](https://www.youtube.com/watch?v=msHFRPmgS1A)
-- [കേട്ടമാത്രയിൽ മനസിൽ പതിഞ്ഞുപോയ മലയാളസിനിമയിലെ സുന്ദര ഗാനങ്ങൾ | EVERGREEN SONGS MALAYALAM](https://www.youtube.com/watch?v=YedF1nUpPgg)
-- [മലയാളി പ്രേക്ഷകർ ഇരുകൈയ്യും നീട്ടി സ്വീകരിച്ച മലയാളസിനിമയിലെ അനശ്വര ഗാനങ്ങൾ | EVERGREEN FILM SONGS](https://www.youtube.com/watch?v=32f38r9iMps)
-- [വിശുദ്ധ ഗീവർഗീസ് സഹദാ | St. GEORGE SONG | ROY PUTHUR | REBA ROMY](https://www.youtube.com/watch?v=Fd0tA1c8s1I)
-- [Rakshakan | Malayalam Christian Devotional Songs |  Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=I7nPxO6TxD8)
-- [Aadadee Aadaadadee  | Ullam | Video Song | G Venugopal | Kaithapram | Suresh Gopi | Geethu Mohandas](https://www.youtube.com/watch?v=1C8OqjFxEUc)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 20th of April 2024](https://www.youtube.com/watch?v=d9cCT1xFaQ8)
+- [വേദനയിൽ തകർന്നുപോകാത്ത വിശ്വാസം . | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=lAgBIOdcw2s)
+- [Mezhuthirinalam ....#christiandevotionalsongsmalayalam #meeramanjeri #jojijohns #jesussong](https://www.youtube.com/watch?v=biPCgS41_W0)
+- [Akki Kokki | Vinodayathra | Vijay Yesudas | laiyaraaja | Vayalar Sarathchandra Varma](https://www.youtube.com/watch?v=KH6aTjaIMaQ)
+- [Smarikkan Padippicha Video Song | Dharmayudham | P Susheela | G Devarajan](https://www.youtube.com/watch?v=Q5E2R1_vSTE)
+- [Dhanumasa Kulirala | HD Video | Mazha Peyyunnu Maddalam Kottunnu | KJ Joy | P Jayachandran |](https://www.youtube.com/watch?v=sov47DzhZCU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
