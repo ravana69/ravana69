@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kaalathin Kai Theti Ezhuthiyo | HanuMan(Malayalam)| Prasanth Varma, Teja, Varalakshmi, Aravindakshan](https://www.youtube.com/watch?v=colW9q7vzgw)
+- [Pidiyana Pidiyana Video Song | Thuruppugulan | Mammootty | Sneha | Vineeth Sreenivasan | Alex Paul](https://www.youtube.com/watch?v=DWhY3WKonhI)
+- [Azhake Azhake | Super Stars Singing Film Songs #mohanlal #shortsfeed #shorts #shortsvideo #reels](https://www.youtube.com/watch?v=23q6-kX8uo4)
 - [Prem Nazir Old Malayalam Movie Songs | Lankadahanam  Remastered Malayalam Songs | L. R. Eeswari](https://www.youtube.com/watch?v=uKPu6SSbB0Q)
 - [Snehathin Koodu | College Kumaran | Shorts #ytshorts](https://www.youtube.com/watch?v=mUMHvtSRrZg)
 - [Thevaram Nokkunnunde | Rasathanthram | Gireesh Puthenchery | Shorts  #malayalammoviesongs #ytshorts](https://www.youtube.com/watch?v=B0HJU4nA0VI)
-- [ഇന്ന്  ഏപ്രിൽ 20 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala santhosh](https://www.youtube.com/watch?v=l_3FwEZvNws)
-- [Japamala 20th of April 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 20th of April 24](https://www.youtube.com/watch?v=yPeC7zXg_yc)
-- [Christian Video Songs Malayalam | Surya Narayanan | Christian Superhit Songs | Gagul Joseph](https://www.youtube.com/watch?v=VMx5vJVI8SM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
