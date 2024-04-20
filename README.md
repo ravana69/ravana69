@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Snehathin Koodu | College Kumaran | Shorts #ytshorts](https://www.youtube.com/watch?v=mUMHvtSRrZg)
+- [Thevaram Nokkunnunde | Rasathanthram | Gireesh Puthenchery | Shorts  #malayalammoviesongs #ytshorts](https://www.youtube.com/watch?v=B0HJU4nA0VI)
 - [ഇന്ന്  ഏപ്രിൽ 20 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala santhosh](https://www.youtube.com/watch?v=l_3FwEZvNws)
 - [Japamala 20th of April 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 20th of April 24](https://www.youtube.com/watch?v=yPeC7zXg_yc)
 - [Christian Video Songs Malayalam | Surya Narayanan | Christian Superhit Songs | Gagul Joseph](https://www.youtube.com/watch?v=VMx5vJVI8SM)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=fAQHhbw8ZC4)
-- [പ്രഭാത പ്രാര്‍ത്ഥന April 20 # Athiravile Prarthana 20th of April 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=dsNOrpUNzss)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 20th April 2024](https://www.youtube.com/watch?v=i6ONXrV5iCY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
