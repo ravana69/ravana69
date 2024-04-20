@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കേട്ടമാത്രയിൽ മനസിൽ പതിഞ്ഞുപോയ മലയാളസിനിമയിലെ സുന്ദര ഗാനങ്ങൾ | EVERGREEN SONGS MALAYALAM](https://www.youtube.com/watch?v=YedF1nUpPgg)
+- [മലയാളി പ്രേക്ഷകർ ഇരുകൈയ്യും നീട്ടി സ്വീകരിച്ച മലയാളസിനിമയിലെ അനശ്വര ഗാനങ്ങൾ | EVERGREEN FILM SONGS](https://www.youtube.com/watch?v=32f38r9iMps)
 - [വിശുദ്ധ ഗീവർഗീസ് സഹദാ | St. GEORGE SONG | ROY PUTHUR | REBA ROMY](https://www.youtube.com/watch?v=Fd0tA1c8s1I)
 - [Rakshakan | Malayalam Christian Devotional Songs |  Kristheeya Bhakthiganangal | Audio Jukebox](https://www.youtube.com/watch?v=I7nPxO6TxD8)
 - [Aadadee Aadaadadee  | Ullam | Video Song | G Venugopal | Kaithapram | Suresh Gopi | Geethu Mohandas](https://www.youtube.com/watch?v=1C8OqjFxEUc)
 - [Kaalathin Kai Theti Ezhuthiyo | HanuMan(Malayalam)| Prasanth Varma, Teja, Varalakshmi, Aravindakshan](https://www.youtube.com/watch?v=colW9q7vzgw)
-- [Pidiyana Pidiyana Video Song | Thuruppugulan | Mammootty | Sneha | Vineeth Sreenivasan | Alex Paul](https://www.youtube.com/watch?v=DWhY3WKonhI)
-- [Azhake Azhake | Super Stars Singing Film Songs #mohanlal #shortsfeed #shorts #shortsvideo #reels](https://www.youtube.com/watch?v=23q6-kX8uo4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
