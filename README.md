@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [charlie Movie Song Sneham Nee Nadha](https://www.youtube.com/watch?v=YwZwTQem5L8)
-- [കാണുന്നു ഞാൻ വിശ്വാസത്താൽ |KAANUNNU NJAAN |CHRISTIAN DEVOTIONAL|#christiandevotionalsongs #royputhur](https://www.youtube.com/watch?v=RcOcBdTSbDg)
-- [Karuthalum Vendilla | Vanadevatha | Yusufali Kecheri | G Devarajan | P Madhuri | Old is gold](https://www.youtube.com/watch?v=f9uMkv6H2ew)
-- [അവളുടെ തേങ്ങൽ കേക്കാതെ മയങ്ങി .... #evergreenhits #movieworldmusic #everlastingmalayalammelodysongs](https://www.youtube.com/watch?v=5t1tWwd2meE)
-- [Johny Mone Johny  | Animation Video  #shortsfeed #shortsvideo #shorts #reels #animation #cartoon](https://www.youtube.com/watch?v=fZFcuwNmzmU)
-- [Dayana Dayana | Animation Video | Shankar Mahadevan | Gopi Sundar |സൂപ്പർഹിറ്റ് സിനിമാഗാനം അനിമേഷനിൽ](https://www.youtube.com/watch?v=QmHpWYjk5bI)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 21st of April 2024](https://www.youtube.com/watch?v=wN0pp4iqbbI)
+- [നടക്കില്ലായെന്നുവിചാരിച്ചിരുന്നാൽ ഒരു കാര്യവും നടക്കില്ല |Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=CJMpA08jHYs)
+- [Nee vaada themmadi Video Song | Rasikan | Vidhu Prathap | Vidyasagar #shorts](https://www.youtube.com/watch?v=-1QyF8mgkd0)
+- [Chalanam Chalanam |  URUMI #deepakdev #prithvirajsukumaran #shortsfeed #shortsvideo #reels](https://www.youtube.com/watch?v=pL4-r0XXDtY)
+- [Peeli Veeshiyadi | Super Hit Malayalam Movie Song | Gamanam | Vijayakumar | Maathu - Chithra Hits](https://www.youtube.com/watch?v=jNwakG-Ec4o)
+- [Paadippazhakiya Video Song | Ithu Manjukaalam | KS Chithra | Urvashi | Malayalam Movie Songs](https://www.youtube.com/watch?v=ewcF-QJqhiI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
