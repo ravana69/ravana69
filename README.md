@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [charlie Movie Song Sneham Nee Nadha](https://www.youtube.com/watch?v=YwZwTQem5L8)
+- [കാണുന്നു ഞാൻ വിശ്വാസത്താൽ |KAANUNNU NJAAN |CHRISTIAN DEVOTIONAL|#christiandevotionalsongs #royputhur](https://www.youtube.com/watch?v=RcOcBdTSbDg)
 - [Karuthalum Vendilla | Vanadevatha | Yusufali Kecheri | G Devarajan | P Madhuri | Old is gold](https://www.youtube.com/watch?v=f9uMkv6H2ew)
 - [അവളുടെ തേങ്ങൽ കേക്കാതെ മയങ്ങി .... #evergreenhits #movieworldmusic #everlastingmalayalammelodysongs](https://www.youtube.com/watch?v=5t1tWwd2meE)
 - [Johny Mone Johny  | Animation Video  #shortsfeed #shortsvideo #shorts #reels #animation #cartoon](https://www.youtube.com/watch?v=fZFcuwNmzmU)
 - [Dayana Dayana | Animation Video | Shankar Mahadevan | Gopi Sundar |സൂപ്പർഹിറ്റ് സിനിമാഗാനം അനിമേഷനിൽ](https://www.youtube.com/watch?v=QmHpWYjk5bI)
-- [Poonkatte Poyi Chollamo Video Song | Shyama | KS Chithra | Unni Menon](https://www.youtube.com/watch?v=YJc7UtOdNyA)
-- [Jayabharathi Old Malayalam Movie Songs | Ladies Hostel Movie Song | Remastered Malayalam Songs](https://www.youtube.com/watch?v=RpicJR4S2gM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
