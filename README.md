@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 22nd April 2024](https://www.youtube.com/watch?v=fe4seuFaKvY)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=Co67Xv3nT9U)
 - [21 April 2024](https://www.youtube.com/watch?v=SitmYihcC7w)
 - [Venal Pakshi Thengi Paadi  | Kusruthikaatu | Gireesh Puthencheryr | KJ Yesudas](https://www.youtube.com/watch?v=lVGrhLwF1VA)
 - [Tharalitha Raavil | Sooryamaanasam | MM Keeravani | Kaithapram | KJ Yesudas #SongOfTheDay](https://www.youtube.com/watch?v=Qu6BtJK7g4w)
 - [Christian Melody Songs | Manoj Christy | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=DXE5JdfFmBE)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 21st of April 2024](https://www.youtube.com/watch?v=wN0pp4iqbbI)
-- [നടക്കില്ലായെന്നുവിചാരിച്ചിരുന്നാൽ ഒരു കാര്യവും നടക്കില്ല |Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=CJMpA08jHYs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
