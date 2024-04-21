@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Christian Melody Songs | Manoj Christy | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=DXE5JdfFmBE)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 21st of April 2024](https://www.youtube.com/watch?v=wN0pp4iqbbI)
 - [നടക്കില്ലായെന്നുവിചാരിച്ചിരുന്നാൽ ഒരു കാര്യവും നടക്കില്ല |Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=CJMpA08jHYs)
 - [Nee vaada themmadi Video Song | Rasikan | Vidhu Prathap | Vidyasagar #shorts](https://www.youtube.com/watch?v=-1QyF8mgkd0)
 - [Chalanam Chalanam |  URUMI #deepakdev #prithvirajsukumaran #shortsfeed #shortsvideo #reels](https://www.youtube.com/watch?v=pL4-r0XXDtY)
 - [Peeli Veeshiyadi | Super Hit Malayalam Movie Song | Gamanam | Vijayakumar | Maathu - Chithra Hits](https://www.youtube.com/watch?v=jNwakG-Ec4o)
-- [Paadippazhakiya Video Song | Ithu Manjukaalam | KS Chithra | Urvashi | Malayalam Movie Songs](https://www.youtube.com/watch?v=ewcF-QJqhiI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
