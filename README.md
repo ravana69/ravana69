@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Powerful Hanuman Chalisa | HanuMan(Malayalam) | Teja Sajja | Saicharan | Hanuman Jayanti Special](https://www.youtube.com/watch?v=Qp5Kip3XnTI)
+- [Kunje Ninakku Vendi Video Song | Kazhcha | Blessy | Mammootty | KJ Yesudas| Mohan Sithara|Kaithapram](https://www.youtube.com/watch?v=GogoBLoIlIo)
 - [Prem Nazir, Sheela Old Malayalam Movie Songs | Mindapennu Remastered Malayalam Songs | K. J. Yesudas](https://www.youtube.com/watch?v=SWtT5IXyPtk)
 - [Poo Kunkumappoo | Rasathanthram | Gireesh Puthencherry | Shorts #malayalammoviesongs  #manoramamusic](https://www.youtube.com/watch?v=9jfgyPzudUw)
 - [Japamala 22nd of April 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 22nd of April 24](https://www.youtube.com/watch?v=WIZrjBgDqFI)
 - [ഇന്ന്  ഏപ്രിൽ 22എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala santhosha](https://www.youtube.com/watch?v=PcEObRKUJhc)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=_nU1pu2NONg)
-- [പ്രഭാത പ്രാര്‍ത്ഥന April 22 # Athiravile Prarthana 22nd of April 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=IghYInkQTzo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
