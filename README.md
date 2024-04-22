@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രീയപ്പെട്ട ജാനകിയമ്മയുടെ ഹിറ്റ് പാട്ടുകൾ | മലയാളചലച്ചിത്രഗാനങ്ങൾ | Remastered Malayalam melodies](https://www.youtube.com/watch?v=XTmwtNswkF4)
+- [MAR GEEVARGHESE THAN | മാർ ഗീവർഗീസ് തൻ സ്‌മൃതിയേറ്റം | ST. GEORGE SONG #saintgeorge #royputhur](https://www.youtube.com/watch?v=ElR-TblNib4)
+- [Kattu Kattu Poonkattu | Achaneyanenikkishttam | Biju Menon | Kalabhavan Mani | MG Sreekumar](https://www.youtube.com/watch?v=LQolZurcwqM)
 - [22 April 2024](https://www.youtube.com/watch?v=ow0QZcVbcIY)
 - [Aakaashathaamara Pole | HD Video | Ayal Kadha Ezhthukayanu | Raveendran | KJ Yesudas](https://www.youtube.com/watch?v=vIzkBclO_98)
 - [Shilayil Ninnum. | Chronic Bachelor | Deepak Dev | P Jayachandran | Sujatha Mohan #SongOfTheDay](https://www.youtube.com/watch?v=wwxjQNeGsTs)
-- [Pavi Caretaker - Making Video | Dilieep | Johny Antony | Vineeth Kumar](https://www.youtube.com/watch?v=UydgW4mK7k4)
-- [Christian Superhit Songs | Sujatha | Christian Devotional Songs Malayalam | Manjeri | Joji Johns](https://www.youtube.com/watch?v=fWTXsXYQyAo)
-- [Muthum Pavizhavum | Darling Darling | S Ramesan Nair | Ouseppachan | Dileep | Kavya | Vineeth](https://www.youtube.com/watch?v=GZlOnsJc0P4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
