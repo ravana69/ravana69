@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Pavi Caretaker - Making Video | Dilieep | Johny Antony | Vineeth Kumar](https://www.youtube.com/watch?v=UydgW4mK7k4)
+- [Christian Superhit Songs | Sujatha | Christian Devotional Songs Malayalam | Manjeri | Joji Johns](https://www.youtube.com/watch?v=fWTXsXYQyAo)
+- [Muthum Pavizhavum | Darling Darling | S Ramesan Nair | Ouseppachan | Dileep | Kavya | Vineeth](https://www.youtube.com/watch?v=GZlOnsJc0P4)
 - [Oru Nooru Ninavukal  | Anuragam | Najeem Arshad | Bhadra Rejin | Joel Johns  | Titto P Thankachen](https://www.youtube.com/watch?v=vkD2qMwZaHM)
 - [കഷ്ടതയിൽ കൂടെയിരുന്ന ദൈവം നിന്നോടൊപ്പമുണ്ട്. | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=T6Il2NhlWJk)
 - [Prakashangale | Jai Ganesh | Ranjith Sankar | Unni Mukundan | Sankar Sharma| Vineeth Sreenivasan](https://www.youtube.com/watch?v=FsgTidKotRs)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 22nd of April 2024](https://www.youtube.com/watch?v=AMQvlhCX-jQ)
-- [Dukhathin Kaippuneer Video Song | Dharmayudham | P Jayachandran | G Devarajan](https://www.youtube.com/watch?v=MyaYbRQ2aNs)
-- [Nanniyodae njan Sthuthi padidum](https://www.youtube.com/watch?v=IBa7M15fatw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
