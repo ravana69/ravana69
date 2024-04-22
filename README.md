@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഏതൊരു മാനവഹൃദയവും വിതുമ്പി പോകുന്ന മലയാളസിനിമയിലെ മികച്ച വിഷാദ ഗാനങ്ങൾ |  EVERGREEN HITS](https://www.youtube.com/watch?v=Hj562A3jfiI)
+- [Thuduthudu Thudikum | Vanadevatha | Yusufali Kecheri | G Devarajan | P Madhuri | Old is gold](https://www.youtube.com/watch?v=FH8p2VIJCBQ)
 - [Thinthaka Tharo |  Valkannadi |  Folk Film Songs #kalabhavanmani #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=lK0syOkiJIg)
 - [ഓമൽ ചിരിയോ | Omal Chiriyo | Georgettans Pooram Video Song | Dileep | Rajisha Vijayan | K. Biju](https://www.youtube.com/watch?v=y4wH4jaeejs)
 - [Angotto Poyappo| Folk Song Cover | Kalleli Apooppan | Sajid Thentral | Prem C Prathap | Band KAAVA](https://www.youtube.com/watch?v=jtO77DeLCBg)
 - [Powerful Hanuman Chalisa | HanuMan(Malayalam) | Teja Sajja | Saicharan | Hanuman Jayanti Special](https://www.youtube.com/watch?v=Qp5Kip3XnTI)
-- [Kunje Ninakku Vendi Video Song | Kazhcha | Blessy | Mammootty | KJ Yesudas| Mohan Sithara|Kaithapram](https://www.youtube.com/watch?v=GogoBLoIlIo)
-- [Prem Nazir, Sheela Old Malayalam Movie Songs | Mindapennu Remastered Malayalam Songs | K. J. Yesudas](https://www.youtube.com/watch?v=SWtT5IXyPtk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
