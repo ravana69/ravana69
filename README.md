@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Kannippeeli Thoovalothukkum | HD Video | Thoovalsparsham  |  Ouseppachan | Kaithapram | KJ Yesudas](https://www.youtube.com/watch?v=GqNrFJT8rAQ)
-- [#KaalathinKaiThetiEzhuthiyo Full Song Out Now ❤️‍🔥#hanuman #malayalamsongs #tejasajja #ytshorts](https://www.youtube.com/watch?v=1zR-USb9TK8)
-- [ഏതൊരു മാനവഹൃദയവും വിതുമ്പി പോകുന്ന മലയാളസിനിമയിലെ മികച്ച വിഷാദ ഗാനങ്ങൾ |  EVERGREEN HITS](https://www.youtube.com/watch?v=Hj562A3jfiI)
-- [Thuduthudu Thudikum | Vanadevatha | Yusufali Kecheri | G Devarajan | P Madhuri | Old is gold](https://www.youtube.com/watch?v=FH8p2VIJCBQ)
-- [Thinthaka Tharo |  Valkannadi |  Folk Film Songs #kalabhavanmani #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=lK0syOkiJIg)
-- [ഓമൽ ചിരിയോ | Omal Chiriyo | Georgettans Pooram Video Song | Dileep | Rajisha Vijayan | K. Biju](https://www.youtube.com/watch?v=y4wH4jaeejs)
+- [Oru Nooru Ninavukal  | Anuragam | Najeem Arshad | Bhadra Rejin | Joel Johns  | Titto P Thankachen](https://www.youtube.com/watch?v=vkD2qMwZaHM)
+- [കഷ്ടതയിൽ കൂടെയിരുന്ന ദൈവം നിന്നോടൊപ്പമുണ്ട്. | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=T6Il2NhlWJk)
+- [Prakashangale | Jai Ganesh | Ranjith Sankar | Unni Mukundan | Sankar Sharma| Vineeth Sreenivasan](https://www.youtube.com/watch?v=FsgTidKotRs)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 22nd of April 2024](https://www.youtube.com/watch?v=AMQvlhCX-jQ)
+- [Dukhathin Kaippuneer Video Song | Dharmayudham | P Jayachandran | G Devarajan](https://www.youtube.com/watch?v=MyaYbRQ2aNs)
+- [Nanniyodae njan Sthuthi padidum](https://www.youtube.com/watch?v=IBa7M15fatw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
