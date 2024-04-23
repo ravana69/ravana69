@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഹൃദയത്തിൻ അറകളിൽ കൂടുകൂട്ടിയ മനം കൊതിക്കും മനോഹര ഗാനങ്ങൾ | EVERGREEN SONGS MALAYALAM](https://www.youtube.com/watch?v=xJ6SrUCzwiE)
+- [Ponnil Kulicha Rathri  | Sindooracheppu | Yusufali Kecheri | G Devarajan | KJ Yesudas  |Jayabharathi](https://www.youtube.com/watch?v=ETMnoMepcGE)
 - [Iniyum Kothiyode |Bhaarya Onnu Makkal Moonnu #sujatha #shortsfeed #shortsvideo #reels #mjayachandran](https://www.youtube.com/watch?v=MRixrmprgM8)
 - [Enne Nadathuka | Shorts #ytshorts](https://www.youtube.com/watch?v=SKm2ku0I_lI)
 - [Enne Nadathuka | Shorts #ytshorts](https://www.youtube.com/watch?v=VZnCMQ5sZng)
 - [Enne Nadathuka | Shorts #ytshorts](https://www.youtube.com/watch?v=KqI0rOZLF_w)
-- [Ishtam Ishtam | Amrutham | Video Song | K S Chithra | Kaithapram | M Jayachandran | Jayaram](https://www.youtube.com/watch?v=10N9CjzumJg)
-- [Praveen, Venust Pappadam](https://www.youtube.com/watch?v=yGxhcTTruHo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
