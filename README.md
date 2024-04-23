@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Quick Doubles of Sushin Shyam | Aadharanjali | PakalIravukal | Thalatherichavar](https://www.youtube.com/watch?v=bWJnys8ZKYE)
 - [പാതത്തിരയുന്നവർക്ക് പാതയൊരുക്കി അവനിന്നും കാത്തിരിക്കുന്നു  | Rev. Aneesh P Joseph | #short](https://www.youtube.com/watch?v=e7lgBpTdePc)
 - [Ganapathi Bappa Moriya Video Song | Abhimanyu | Malayalam Movie Songs | Mohanlal | MG Sreekumar](https://www.youtube.com/watch?v=VvpYt_T-S5Y)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 23rd of April 2024](https://www.youtube.com/watch?v=QSW35fb5tqw)
 - [Sindhoora Vaanil | Bhoomiyile Rajakkanmar | Unni Menon | SP Venkitesh | Shibu Chakravarthy](https://www.youtube.com/watch?v=-F0H4w7SUs8)
 - [Old Malayalam Songs | Venna Tholkumudalode | Oru Sundhariyude Kadha | K. J Yesudas #shorts](https://www.youtube.com/watch?v=Kgv6BwH7hcU)
-- [Shilayil Ninnum unaru nee|Chronic Bachelor||Mammootty|Rambha|Mukesh|Bhavana|](https://www.youtube.com/watch?v=b-VfrB2E4Ak)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
