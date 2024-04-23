@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [23 April 2024](https://www.youtube.com/watch?v=l0dBVSL7now)
 - [Krooshilninum | Maria Kolady | Raju Varghese   #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=2pIX2notTF0)
 - [Kattuthulli Kayalolam | Kavadiyattam | Jayaram | Siddique | Suchithra | Mohan Sithara](https://www.youtube.com/watch?v=P8TTtdVMGtc)
 - [Thoomanjin Nenjilothungi | Samooham | Johnson | KJ Yesudas | Kaithapram #SongOfTheDay](https://www.youtube.com/watch?v=WKtmJb9-xI0)
 - [Pichakappoomkavukal | No. 20 Madras Mai  | Ouseppachan | MG Sreekumar | Shibu Chakravar](https://www.youtube.com/watch?v=FWTT3tGusP4)
 - [Sneham enna Vakin artham](https://www.youtube.com/watch?v=sg83M8OTp_0)
-- [Singer Of The Week | Binoy Chacko | Christian Superhit Songs | Praise and Worship Songs | Joji Johns](https://www.youtube.com/watch?v=iiFkkZaW_4s)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
