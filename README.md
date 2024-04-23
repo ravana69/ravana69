@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ishtam Ishtam | Amrutham | Video Song | K S Chithra | Kaithapram | M Jayachandran | Jayaram](https://www.youtube.com/watch?v=10N9CjzumJg)
+- [Praveen, Venust Pappadam](https://www.youtube.com/watch?v=yGxhcTTruHo)
 - [Sreelatha Old Malayalam Movie Songs | Anadha Shilpangal Remastered Malayalam Songs](https://www.youtube.com/watch?v=AfC4iGFkVh8)
 - [Dileep Super Hit Song | നെഞ്ചിനകത്തോ...ജിഞ്ചക ജിഞ്ചക ചെമ്പട മേളം #dileep #songs #shorts](https://www.youtube.com/watch?v=9gVZumnKMBU)
 - [Konnappoo(Title Song) | Kinnaripuzhayoram | Sreenivasan | Devayani | M.G.Sreekumar | Chithra | M.G.R](https://www.youtube.com/watch?v=pHUY1-IdTh0)
 - [Pacha Panam Thathe Video Song | Nottam | Samvrutha Sunil | Ajeer | KJ Yesudas | M Jayachandran](https://www.youtube.com/watch?v=CBbSyoWWBW8)
-- [Kandu Kandu | Mambazhakkalam | Gireesh Puthencherry | Shorts  #manoramamusic #malayalammoviesongs](https://www.youtube.com/watch?v=FZKWTTghwks)
-- [ഇന്ന്  ഏപ്രിൽ 23എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala dhukkam](https://www.youtube.com/watch?v=jsea679q4rY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
