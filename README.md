@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Praveen, Venust Pappadam](https://www.youtube.com/watch?v=DnRs77OnrkY)
-- [Praveen, Venust Pappadam](https://www.youtube.com/watch?v=23jeY6OGgak)
-- [ഹൃദയത്തിൻ അറകളിൽ കൂടുകൂട്ടിയ മനം കൊതിക്കും മനോഹര ഗാനങ്ങൾ | EVERGREEN SONGS MALAYALAM](https://www.youtube.com/watch?v=xJ6SrUCzwiE)
-- [Ponnil Kulicha Rathri  | Sindooracheppu | Yusufali Kecheri | G Devarajan | KJ Yesudas  |Jayabharathi](https://www.youtube.com/watch?v=ETMnoMepcGE)
-- [Iniyum Kothiyode |Bhaarya Onnu Makkal Moonnu #sujatha #shortsfeed #shortsvideo #reels #mjayachandran](https://www.youtube.com/watch?v=MRixrmprgM8)
-- [Enne Nadathuka | Shorts #ytshorts](https://www.youtube.com/watch?v=SKm2ku0I_lI)
+- [പാതത്തിരയുന്നവർക്ക് പാതയൊരുക്കി അവനിന്നും കാത്തിരിക്കുന്നു  | Rev. Aneesh P Joseph | #short](https://www.youtube.com/watch?v=e7lgBpTdePc)
+- [Ganapathi Bappa Moriya Video Song | Abhimanyu | Malayalam Movie Songs | Mohanlal | MG Sreekumar](https://www.youtube.com/watch?v=VvpYt_T-S5Y)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 23rd of April 2024](https://www.youtube.com/watch?v=QSW35fb5tqw)
+- [Sindhoora Vaanil | Bhoomiyile Rajakkanmar | Unni Menon | SP Venkitesh | Shibu Chakravarthy](https://www.youtube.com/watch?v=-F0H4w7SUs8)
+- [Old Malayalam Songs | Venna Tholkumudalode | Oru Sundhariyude Kadha | K. J Yesudas #shorts](https://www.youtube.com/watch?v=Kgv6BwH7hcU)
+- [Shilayil Ninnum unaru nee|Chronic Bachelor||Mammootty|Rambha|Mukesh|Bhavana|](https://www.youtube.com/watch?v=b-VfrB2E4Ak)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
