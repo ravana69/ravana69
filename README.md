@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 25th April 2024](https://www.youtube.com/watch?v=3wNWIF02tRE)
+- [സങ്കടങ്ങൾ ഏറ്റെടുക്കുന്ന ഗാനങ്ങൾ | KESTER SONGS #KESTERHITS](https://www.youtube.com/watch?v=kvxOKiLxqak)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=5mhLQzRnUlY)
 - [Vaidooryakkammal | Ee Puzhayum Kadannu | Johnson #SongOfTheDay](https://www.youtube.com/watch?v=o0aK-0pf9Go)
 - [Othiri Othiri Swapnangal | Divya Unni | KS Chithra | Vidyasagar | Gireesh Puthenchery](https://www.youtube.com/watch?v=-YtWEmdNs9c)
 - [Christian Melody Songs | KG Markose | Holy Spirit Songs | Chrisian Melody Songs | Joji Johns](https://www.youtube.com/watch?v=PiCuVq1nCsg)
-- [Neeyoru Puzhayayi Thilakkam  | Dileep | Kavya Madhavan |  P Jayachandran | Evergreen Romantic Song](https://www.youtube.com/watch?v=Id8X-JKjIJw)
-- [സങ്കടങ്ങളിൽ കൂടെ നിൽക്കുക😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=yLIV5F8NVVc)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 24th of April 2024](https://www.youtube.com/watch?v=jd6wmaerd9I)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
