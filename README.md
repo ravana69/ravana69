@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നിത്യ നിരാമയ വരദാതാ | St. GEORGE SONG | ROY PUTHUR | REBA ROMY #stgeorge #royputhur](https://www.youtube.com/watch?v=zba_1tZzABo)
 - [മനസ്സ് ശാന്തമാക്കാൻ മനസ്സിണങ്ങിയ മലയാളസിനിമയിലെ മനോഹര ഗാനങ്ങൾ | EVERGREEN SONGS MALAYALAM](https://www.youtube.com/watch?v=5XveArtFoHU)
 - [Eatopya Eventures #ytshorts #youtube #youtubeshorts](https://www.youtube.com/watch?v=rGTzgMH04Mo)
 - [Swargam Thanirangi Vannatho | Vanadevatha | Yusufali Kecheri | G Devarajan | KJ Yesudas | PremNazeer](https://www.youtube.com/watch?v=XogrSZ3RU_o)
 - [Swarggathathane | Malayalam Christian Devotional Songs | Super Hit Album Songs | Kester Songs](https://www.youtube.com/watch?v=DDX9qYqvhZU)
 - [Kattile Kannan | Animation Video #kattilekannan #animation #malayalamcartoon #shorts #shortsfeed](https://www.youtube.com/watch?v=u2zs3d1yun4)
-- [Eatopya Eventures #ytshorts #youtube #youtubeshorts](https://www.youtube.com/watch?v=oDbHd6h9A24)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
