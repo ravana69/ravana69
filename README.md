@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thira Nurayum Video Song | Manoj K Jayan | Riya Sen | KJ Yesudas | Hemalatha | Gireesh Puthenchery](https://www.youtube.com/watch?v=De_vzBTjdfY)
 - [ശ്രീ. ശ്രീകുമാരൻ തമ്പിയുടെ രചന നിലമ്പൂർ കാർത്തികേയൻ നൽകിയ സംഗീതം ശ്രുതിമധുര ആലാപനവുമായ് ജാനിയ പീറ്റർ](https://www.youtube.com/watch?v=iuNEo9iafg8)
+- [ശ്രീ. ശ്രീകുമാരൻ തമ്പിയുടെ രചന നിലമ്പൂർ കാർത്തികേയൻ നൽകിയ സംഗീതം ശ്രുതിമധുര ആലാപനവുമായ് ജാനിയ പീറ്റർ](https://www.youtube.com/watch?v=RPxa5Pw612I)
+- [ശ്രീ. ശ്രീകുമാരൻ തമ്പിയുടെ രചന നിലമ്പൂർ കാർത്തികേയൻ നൽകിയ സംഗീതം ശ്രുതിമധുര ആലാപനവുമായ് ജാനിയ പീറ്റർ](https://www.youtube.com/watch?v=q8Ohz02dgRc)
 - [Prem Nazir Romantic Old Superhit Song l Lankadahanam Movie | K. P. Ummer,  Sreelatha, Adoor Bhasi](https://www.youtube.com/watch?v=MVbhhOrdYe8)
 - [Junile Nilamazhayil  Nammal Thammil | Gireesh Puthencherry | Shorts #malayalammoviesongs #ytshorts](https://www.youtube.com/watch?v=24NgBW-fTfE)
-- [ഇന്ന്  ഏപ്രിൽ 24എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala mahimayud](https://www.youtube.com/watch?v=HPBgrpfQ2ow)
-- [Japamala 24th of April 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 24th of April 2024](https://www.youtube.com/watch?v=qbWCsWrnHMk)
-- [രാവിലെ കേൾക്കാൻ ഏറ്റവും നല്ല ഗാനങ്ങൾ daily worship songs | christian devotional songs malayalam](https://www.youtube.com/watch?v=U9bhSGYM4LY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
