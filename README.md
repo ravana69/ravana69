@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vaidooryakkammal | Ee Puzhayum Kadannu | Johnson #SongOfTheDay](https://www.youtube.com/watch?v=o0aK-0pf9Go)
+- [Othiri Othiri Swapnangal | Divya Unni | KS Chithra | Vidyasagar | Gireesh Puthenchery](https://www.youtube.com/watch?v=-YtWEmdNs9c)
 - [Christian Melody Songs | KG Markose | Holy Spirit Songs | Chrisian Melody Songs | Joji Johns](https://www.youtube.com/watch?v=PiCuVq1nCsg)
 - [Neeyoru Puzhayayi Thilakkam  | Dileep | Kavya Madhavan |  P Jayachandran | Evergreen Romantic Song](https://www.youtube.com/watch?v=Id8X-JKjIJw)
 - [സങ്കടങ്ങളിൽ കൂടെ നിൽക്കുക😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=yLIV5F8NVVc)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 24th of April 2024](https://www.youtube.com/watch?v=jd6wmaerd9I)
-- [Pularkale Poovilikettu - Video Song | Pavi Caretaker | Dilieep | Midhun Mukundan | Vijay Yesudas](https://www.youtube.com/watch?v=i2oeV99uE_Y)
-- [Sankalpa Mandapathil Video Song | Dharmayudham | P Jayachandran | G Devarajan](https://www.youtube.com/watch?v=6-vRhWv0wuk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
