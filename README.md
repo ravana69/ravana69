@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ninviral Thumbil | Beautiful | Video | Gayatri Asokan | Anoop Menon | Ratheesh Vegha | Jayasurya](https://www.youtube.com/watch?v=erJXrKVktCA)
 - [Thira Nurayum Video Song | Manoj K Jayan | Riya Sen | KJ Yesudas | Hemalatha | Gireesh Puthenchery](https://www.youtube.com/watch?v=De_vzBTjdfY)
 - [ശ്രീ. ശ്രീകുമാരൻ തമ്പിയുടെ രചന നിലമ്പൂർ കാർത്തികേയൻ നൽകിയ സംഗീതം ശ്രുതിമധുര ആലാപനവുമായ് ജാനിയ പീറ്റർ](https://www.youtube.com/watch?v=iuNEo9iafg8)
 - [ശ്രീ. ശ്രീകുമാരൻ തമ്പിയുടെ രചന നിലമ്പൂർ കാർത്തികേയൻ നൽകിയ സംഗീതം ശ്രുതിമധുര ആലാപനവുമായ് ജാനിയ പീറ്റർ](https://www.youtube.com/watch?v=RPxa5Pw612I)
 - [ശ്രീ. ശ്രീകുമാരൻ തമ്പിയുടെ രചന നിലമ്പൂർ കാർത്തികേയൻ നൽകിയ സംഗീതം ശ്രുതിമധുര ആലാപനവുമായ് ജാനിയ പീറ്റർ](https://www.youtube.com/watch?v=q8Ohz02dgRc)
 - [Prem Nazir Romantic Old Superhit Song l Lankadahanam Movie | K. P. Ummer,  Sreelatha, Adoor Bhasi](https://www.youtube.com/watch?v=MVbhhOrdYe8)
-- [Junile Nilamazhayil  Nammal Thammil | Gireesh Puthencherry | Shorts #malayalammoviesongs #ytshorts](https://www.youtube.com/watch?v=24NgBW-fTfE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
