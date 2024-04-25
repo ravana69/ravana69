@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Paadiyum Paranjum |സംഗീതത്തിലെ കാഴ്ചപ്പാട് മാറ്റിയത് എം ബി ശ്രീനിവാസൻ|പാടിയും പറഞ്ഞും|M Jayachandran](https://www.youtube.com/watch?v=N0Pa8216i4U)
+- [En Prema Geetham  |Joanne Maria Jaison | Kings Queens band Kottayam](https://www.youtube.com/watch?v=q0a4s3T0V6k)
+- [Entha paryuka VS Enth Adhishyamae | Christian Devotional Song | kings & Queens band](https://www.youtube.com/watch?v=eXSswgocqPg)
+- [Divya Karuniymae Snehamae | Theresa Mathew &  Athulya Shaji \ Kings & Queens Band](https://www.youtube.com/watch?v=3BwfZVq0PJI)
+- [Nanniyodae Njan Sthuthi Padidum | Alana Mariya Gimmi & Rose Maria Jinu| Kings & Queens band Kottayam](https://www.youtube.com/watch?v=UhPIyaNTF38)
 - [Charlie Movie Song | Sneham Nee Nadha | Ambili peter | Kings & Queens Band](https://www.youtube.com/watch?v=k-wNPtjCwAE)
-- [Mayangi Poyi Njan Mayangi Poyi Video Song | Nottam | KS Chithra | M Jayachandran | Kaithapram](https://www.youtube.com/watch?v=RAuYL_jxxp8)
-- [Orupole Chimmum | Innanu Aa Kalyanam #bijibal  #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=B0jhEPYgEM0)
-- [Sheela Old Malayalam Movie Songs | Mindapennu Remastered Malayalam Songs | P. Susheela](https://www.youtube.com/watch?v=QEJPYVtPx2A)
-- [Aradhana Aradhana🤍❤️💖](https://www.youtube.com/watch?v=pdyasYQMkm4)
-- [Sun Sun Barasat Ki Dhun | Sir (1993) | Anu Malik | Kumar Sanu | Hi-Res Audio](https://www.youtube.com/watch?v=bTQXYzle-Uc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
