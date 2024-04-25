@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Arayilotta Mundedutha Penne Song | Malayalam Melodies | Oru Sundhariyude Kadha  #shorts](https://www.youtube.com/watch?v=h8hqwXtP2_o)
+- [Kanneer Meghangal |  Sachin #dhyansreenivasan #shaanrahman #shortsfeed #shortsvideo #reels](https://www.youtube.com/watch?v=hYWkobvE5fI)
+- [Thirayezhuthum Mannil | Meenakshi Kalyanam | KJ Yesudas | Nadhirshah | S Ramesan Nair](https://www.youtube.com/watch?v=gyfKv73X6vg)
+- [ST GEORGE SONG | നിത്യ നിരാമയ വരദാതാ | ROY PUTHUR | #saintgeorge #christiandevotionalsongs](https://www.youtube.com/watch?v=yYXnARqI6kg)
+- [ബുൾ ബുൾ മൈനേ | Evergreen Malayalam Film Song | Sandhyakku Virinja Poovu | K. J. Yesudas | Mammootty](https://www.youtube.com/watch?v=jNhemCxuaB0)
 - [Mahima Nambiar Cute Laughing Beauty| #NeelaNilave | #RDX |#KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=ivH2WGBPYa0)
-- [Romantic Songs of East Coast Vijayan  | K J Yesudas, K S Chithra | M Jayachandran | Ormakkai #Shorts](https://www.youtube.com/watch?v=hBuFMaRkEKE)
-- [Vaarmeghame - Audio Song | Bandra | Dileep, Tamannaah | Sam C.S | Shweta Mohan, Kapil Kapilan](https://www.youtube.com/watch?v=5TYhxorviWQ)
-- [Angepolen Daivame | Nithya Mammen | Brite Abraham | Super Hit Malayalam Christian Songs](https://www.youtube.com/watch?v=gXVhzBW_iRw)
-- [Theeyaga | Secret Home | Shankar Sharma | Devika Elumalai | Femila Mary | Sshivada | Aparna Das](https://www.youtube.com/watch?v=eIQweLYgB0w)
-- [അനവധി നിത്യഹരിത ഗാനങ്ങൾ ആലപിച്ച എം ജി ശ്രീകുമാറിന്റെ തെരഞ്ഞെടുത്ത ഗാനങ്ങൾ | MG SREEKUMAR HITS](https://www.youtube.com/watch?v=KuCidvlGmeU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
