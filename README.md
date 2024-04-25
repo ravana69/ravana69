@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Onnanam Kunninmel  | Mayilppeelikkavu | Kunchacko Boban | Jomol | Berny Ignatius #songoftheday](https://www.youtube.com/watch?v=9HrTeW1SCRs)
 - [Kalvari Kunnilae](https://www.youtube.com/watch?v=GGtluiRpKYA)
 - [Couple Dances for Neela Nilave | RDX |  #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=AnqW9jZgC4g)
 - [Christian Superhit Songs | Kester | Radhika Thilak | Christian Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=cqr__WxzALc)
 - [എത്രകേട്ടിട്ടും  മനസ്സിൽ നിന്നും മായാത്ത ഏവരുടെയും ഇഷ്ടഗാനങ്ങൾ | EVERGREEN SONGS MALAYALAM](https://www.youtube.com/watch?v=SaZh-5QNg_E)
 - [Amala Shaji's Recreates Neela Nilave| RDX | Neela Nilave | #KapilKapilan| #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=4VXJ6QSk_7k)
-- [മലയാളികൾ നെഞ്ചോട് ചേർത്തുവെച്ച സൂപ്പർഹിറ്റ് മെലഡി ഗാനങ്ങൾ | EVERGREEN HITS MALAYALAM](https://www.youtube.com/watch?v=AQk4R236KUg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
