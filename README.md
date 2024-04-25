@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [🩵എൻ ജീവനെ... എങ്ങാണു നീ...🩵](https://www.youtube.com/watch?v=rH5wRwiOaJU)
-- [Oru Poo Viriyunna | Vichaarana | MG Sreekumar | Ouseppachan | S Ramesan Nair](https://www.youtube.com/watch?v=_7AUCMA_f5Y)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 25th of April 2024](https://www.youtube.com/watch?v=VmlLv4vy1P4)
-- [നമുക്കും നല്ല വിളവ് നൽകാം 😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=crfsgw06bOY)
-- [Kunnum Keri | Lyrical Video | Cheenatrophy | Dhyan Sreenivasan | Sooraj Santhosh | Varkey |Film Song](https://www.youtube.com/watch?v=CNE_DlNUtYM)
-- [VELLICHIRAKULLA MALAKHAMAR | TEENU TREASA | Fr. LIBIN VARGHESE OIC | Fr. JERIN VALIYAPARAMBIL MCBS](https://www.youtube.com/watch?v=CdNWdU2UFXk)
+- [Kalvari Kunnilae](https://www.youtube.com/watch?v=GGtluiRpKYA)
+- [Couple Dances for Neela Nilave | RDX |  #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=AnqW9jZgC4g)
+- [Christian Superhit Songs | Kester | Radhika Thilak | Christian Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=cqr__WxzALc)
+- [എത്രകേട്ടിട്ടും  മനസ്സിൽ നിന്നും മായാത്ത ഏവരുടെയും ഇഷ്ടഗാനങ്ങൾ | EVERGREEN SONGS MALAYALAM](https://www.youtube.com/watch?v=SaZh-5QNg_E)
+- [Amala Shaji's Recreates Neela Nilave| RDX | Neela Nilave | #KapilKapilan| #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=4VXJ6QSk_7k)
+- [മലയാളികൾ നെഞ്ചോട് ചേർത്തുവെച്ച സൂപ്പർഹിറ്റ് മെലഡി ഗാനങ്ങൾ | EVERGREEN HITS MALAYALAM](https://www.youtube.com/watch?v=AQk4R236KUg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
