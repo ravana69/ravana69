@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന April 26 # Athiravile Prarthana 26th of April 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=N9faDb7HFTA)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 26th April 2024](https://www.youtube.com/watch?v=fx145HxCqNA)
 - [മംഗളങ്ങളരുളും മഴനീർക്കണങ്ങളേ.. |കെ ജെ യേശുദാസ് | chitra |മലയാളചലച്ചിത്രഗാനങ്ങൾ | Remastered melodies](https://www.youtube.com/watch?v=XVluvwmAkpM)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=qv9Ds7cozTo)
 - [25 April 2024](https://www.youtube.com/watch?v=RYLH10qe9gU)
 - [Madathakili Madathakili | Vajram | Mammootty | Vasundara Das | Aravind | Ouseppachan | Sujatha Mohan](https://www.youtube.com/watch?v=OGjP2a75i4I)
-- [Onnanam Kunninmel  | Mayilppeelikkavu | Kunchacko Boban | Jomol | Berny Ignatius #songoftheday](https://www.youtube.com/watch?v=9HrTeW1SCRs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
