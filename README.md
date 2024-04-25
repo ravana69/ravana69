@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Charlie Movie Song | Sneham Nee Nadha | Ambili peter | Kings & Queens Band](https://www.youtube.com/watch?v=k-wNPtjCwAE)
+- [Mayangi Poyi Njan Mayangi Poyi Video Song | Nottam | KS Chithra | M Jayachandran | Kaithapram](https://www.youtube.com/watch?v=RAuYL_jxxp8)
+- [Orupole Chimmum | Innanu Aa Kalyanam #bijibal  #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=B0jhEPYgEM0)
 - [Sheela Old Malayalam Movie Songs | Mindapennu Remastered Malayalam Songs | P. Susheela](https://www.youtube.com/watch?v=QEJPYVtPx2A)
 - [Aradhana Aradhana🤍❤️💖](https://www.youtube.com/watch?v=pdyasYQMkm4)
 - [Sun Sun Barasat Ki Dhun | Sir (1993) | Anu Malik | Kumar Sanu | Hi-Res Audio](https://www.youtube.com/watch?v=bTQXYzle-Uc)
-- [Innale Ente Nenjile | Balettan | Gireesh Puthencherry | Shorts #malayalammoviesongs](https://www.youtube.com/watch?v=ILsAZiLVTsg)
-- [ഇന്ന്  ഏപ്രിൽ 25എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala prakashat](https://www.youtube.com/watch?v=G-OGykHYzB0)
-- [അതിമനോഹരമായ പഴയകാല ഗാനങ്ങൾ old christian songs malayalam with lyrics ! daily worship songs malayalam](https://www.youtube.com/watch?v=mmLn178cgXs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
