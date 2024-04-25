@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Theeyaga | Secret Home | Shankar Sharma | Devika Elumalai | Femila Mary | Sshivada | Aparna Das](https://www.youtube.com/watch?v=eIQweLYgB0w)
 - [അനവധി നിത്യഹരിത ഗാനങ്ങൾ ആലപിച്ച എം ജി ശ്രീകുമാറിന്റെ തെരഞ്ഞെടുത്ത ഗാനങ്ങൾ | MG SREEKUMAR HITS](https://www.youtube.com/watch?v=KuCidvlGmeU)
 - [Malayalam Mashup Songs | Christian Songs | Kings & Queens Band Karaoke](https://www.youtube.com/watch?v=d28wdjnJ5uw)
 - [Ilamaan Mizhiyil.. | HD Video | Kusruthi Kattu | Gireesh Puthenchery | KS Chithra | P Unnikrishnan](https://www.youtube.com/watch?v=pEpjI6nWi-M)
 - [Paadiyum Paranjum |സംഗീതത്തിലെ കാഴ്ചപ്പാട് മാറ്റിയത് എം ബി ശ്രീനിവാസൻ|പാടിയും പറഞ്ഞും|M Jayachandran](https://www.youtube.com/watch?v=N0Pa8216i4U)
 - [En Prema Geetham  |Joanne Maria Jaison | Kings Queens band Kottayam](https://www.youtube.com/watch?v=q0a4s3T0V6k)
-- [Entha paryuka VS Enth Adhishyamae | Christian Devotional Song | kings & Queens band](https://www.youtube.com/watch?v=eXSswgocqPg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
