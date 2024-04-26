@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Fever of RDX |  #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=gP7lpvx1NPg)
+- [RDX Vibe travels all over | #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=g5wJ7hYceHo)
+- [കഷ്ടങ്ങൾ സാരമില്ലാ!! kashtangal saramila by kester | superhit christian video song with lyrics](https://www.youtube.com/watch?v=ZzUomLaYZD4)
 - [കരഞ്ഞാൽ കണ്ണീരൊപ്പുന്ന ദൈവം 😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=b_g9u5XBx9w)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 26th of April 2024](https://www.youtube.com/watch?v=Yls_TeHPRSE)
 - [Kaamukahrithil kavitha Video Song | Dharmayudham | P Madhuri | G Devarajan](https://www.youtube.com/watch?v=DY2XAMJJP_0)
-- [Kinavinte Minarathil | Adaminte Makan Abu #rameshnarayanan #shortsfeed #shortsvideo #reels](https://www.youtube.com/watch?v=tsyJeZWR5l0)
-- [Rakka Rakka - Audio Song | Bandra | Dileep, Tamannaah | Sam C.S | Shankar Mahadevan, Nakshathra](https://www.youtube.com/watch?v=ZbPkBGbceBY)
-- [കാതും മനസ്സും നിറയ്ക്കുന്ന സിനിമ  പാട്ടുകൾ Evergreen Malayalam Hits 80s 90s Malayalam Hits](https://www.youtube.com/watch?v=Tq9M4--H4T8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
