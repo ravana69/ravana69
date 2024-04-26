@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 27th April 2024](https://www.youtube.com/watch?v=KnbL3NzRBVs)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=5Nm1noP53xs)
 - [26 April 2024](https://www.youtube.com/watch?v=WQVj3XQvFDE)
 - [Makaranilavil | Snehithan | Mohan Sithara| KJ Yesudas | Yusufali Kecheri #SongOfTheDay](https://www.youtube.com/watch?v=Ye4CKUds_SM)
 - [Nadodi Poonthinkal | Gireesh Puthenchery | Vidyasagar | MG Sreekumar | Sujatha Mohan](https://www.youtube.com/watch?v=GlrDv7XkqLc)
 - [Fever of RDX |  #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=gP7lpvx1NPg)
-- [RDX Vibe travels all over | #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=g5wJ7hYceHo)
-- [കഷ്ടങ്ങൾ സാരമില്ലാ!! kashtangal saramila by kester | superhit christian video song with lyrics](https://www.youtube.com/watch?v=ZzUomLaYZD4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
