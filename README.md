@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Makaranilavil | Snehithan | Mohan Sithara| KJ Yesudas | Yusufali Kecheri #SongOfTheDay](https://www.youtube.com/watch?v=Ye4CKUds_SM)
+- [Nadodi Poonthinkal | Gireesh Puthenchery | Vidyasagar | MG Sreekumar | Sujatha Mohan](https://www.youtube.com/watch?v=GlrDv7XkqLc)
 - [Fever of RDX |  #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=gP7lpvx1NPg)
 - [RDX Vibe travels all over | #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=g5wJ7hYceHo)
 - [കഷ്ടങ്ങൾ സാരമില്ലാ!! kashtangal saramila by kester | superhit christian video song with lyrics](https://www.youtube.com/watch?v=ZzUomLaYZD4)
 - [കരഞ്ഞാൽ കണ്ണീരൊപ്പുന്ന ദൈവം 😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=b_g9u5XBx9w)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 26th of April 2024](https://www.youtube.com/watch?v=Yls_TeHPRSE)
-- [Kaamukahrithil kavitha Video Song | Dharmayudham | P Madhuri | G Devarajan](https://www.youtube.com/watch?v=DY2XAMJJP_0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
