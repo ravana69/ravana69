@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളത്തനിമയും നാടിൻ സുഗന്ധവും ചാലിച്ചെഴുതിയ മലയാളസിനിമയിലെ പ്രശസ്‌ത ഗാനങ്ങൾ | EVERGREEN SONGS](https://www.youtube.com/watch?v=XBERiEE4oYU)
+- [പ്രേക്ഷകരുടെ കണ്ണുകളെ ഈറനണിയിച്ച ഹൃദയസ്പർശിയായ മലയാളസിനിമാഗാനങ്ങൾ | SAD SONGS MALAYALAM](https://www.youtube.com/watch?v=TwKLaHCRssM)
 - [Annarakanna Vaa  | Animation Video  #shortsfeed #shortsvideo #shorts #reels #animation #cartoon](https://www.youtube.com/watch?v=A3WE6lNdVLk)
 - [Christian Video Songs Malayalam | KG Markose | Kester | Jayachandran | Christian Superhit Songs](https://www.youtube.com/watch?v=feGGxGu6lI8)
 - [പെണ്ണെ നിന്നെ പാട്ടിൽ ആക്കമേടി | Malayalee From India | Nivin Pauly | Jakes |Asal Kolaar | Dijo Jose](https://www.youtube.com/watch?v=7QUc9j1uy40)
 - [ലവ് യു ലവ് യു കൃഷ്‌ണ | Malayalee From India | Nivin Pauly | Jakes | Asal Kolaar  | Dijo Jose](https://www.youtube.com/watch?v=xJktdSleWYk)
-- [അന്നം ഇവിടെ മുടക്കില്ല | Malayalee From India | Nivin Pauly | Jakes | Asal Kolaar  | Dijo Jose](https://www.youtube.com/watch?v=ogUY0dySIO0)
-- [നെഞ്ചിൽ കുറിച്ചിട്ട പേര് നിന്റെ | Malayalee From India | Nivin Pauly | Anaswara Rajan](https://www.youtube.com/watch?v=DSmZOta_xhE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
