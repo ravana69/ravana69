@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nerinazhaku | Mammootty | Lal | P Jayachandran | Kaithapram | Alex Paul](https://www.youtube.com/watch?v=pPY1M6XFAdo)
+- [Poru Nee Vaarilam | Kaashmeeram | M G Radhakrishnan | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=CcP7c80WsxY)
+- [Kanthari Penne Video Song | Inspector Garud | Dileep | Kavya Madhavan | Afsal | Alex Paul](https://www.youtube.com/watch?v=gJ5ApR4gCeI)
 - [27 April 2024](https://www.youtube.com/watch?v=7ZZII6Oyyo4)
 - [Vaanam Neele | Qurbani | Yazin Nisar | Bhadra Rejin | M Jayachandran | Manu Manjith](https://www.youtube.com/watch?v=X1-nXsBc8X0)
 - [നിന്നെ തളർത്തിയവരുടെ മേലെ നീ തളിർക്കും. 😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=qsXjGCRFoI0)
-- [Puzhayude Geetham | Gayatri Asokan | Shahabaz Aman | Poovachal Khader | Malayalam Ghazal Video](https://www.youtube.com/watch?v=3QYvCWJmjT4)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 27th of April 2024](https://www.youtube.com/watch?v=RD5lMdEFmSk)
-- [BEHINDD - Official Teaser | Sonia Aggarwal, Jinu E Thomas | Amhan Raphy | Shija Jinu](https://www.youtube.com/watch?v=CgVKIgirWao)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
