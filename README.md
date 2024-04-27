@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Aaro Viral Neetti | Pranayavarnangal | Biju Menon | Manju Warrier | KJ Yesudas | Vidyasagar](https://www.youtube.com/watch?v=7e934CSvSdY)
-- [Oh En Daivame | Malayalam Christian Devotional Songs | Super Hit Christian Devotional Songs](https://www.youtube.com/watch?v=0H8tmFi5Y9o)
-- [Unstoppable Video Song | Jai Ganesh Movie | Ranjith Sankar | Unni Mukundan | Sankar Sharma | AI](https://www.youtube.com/watch?v=siIkFIK6fvs)
-- [മലയാളത്തനിമയും നാടിൻ സുഗന്ധവും ചാലിച്ചെഴുതിയ മലയാളസിനിമയിലെ പ്രശസ്‌ത ഗാനങ്ങൾ | EVERGREEN SONGS](https://www.youtube.com/watch?v=XBERiEE4oYU)
-- [പ്രേക്ഷകരുടെ കണ്ണുകളെ ഈറനണിയിച്ച ഹൃദയസ്പർശിയായ മലയാളസിനിമാഗാനങ്ങൾ | SAD SONGS MALAYALAM](https://www.youtube.com/watch?v=TwKLaHCRssM)
-- [Annarakanna Vaa  | Animation Video  #shortsfeed #shortsvideo #shorts #reels #animation #cartoon](https://www.youtube.com/watch?v=A3WE6lNdVLk)
+- [Vaanam Neele | Qurbani | Yazin Nisar | Bhadra Rejin | M Jayachandran | Manu Manjith](https://www.youtube.com/watch?v=X1-nXsBc8X0)
+- [നിന്നെ തളർത്തിയവരുടെ മേലെ നീ തളിർക്കും. 😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=qsXjGCRFoI0)
+- [Puzhayude Geetham | Gayatri Asokan | Shahabaz Aman | Poovachal Khader | Malayalam Ghazal Video](https://www.youtube.com/watch?v=3QYvCWJmjT4)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 27th of April 2024](https://www.youtube.com/watch?v=RD5lMdEFmSk)
+- [BEHINDD - Official Teaser | Sonia Aggarwal, Jinu E Thomas | Amhan Raphy | Shija Jinu](https://www.youtube.com/watch?v=CgVKIgirWao)
+- [Maalokam Maarunne | Panchavalsara Padhathi | Job Kurian | Engandiyoor Chandrasekharan | Shaan Rahman](https://www.youtube.com/watch?v=c8EqVecg8ZQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
