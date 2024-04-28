@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈണവും താളവും ഇല്ലെങ്കിലും| കെ ജെ യേശുദാസ് | G Venugopal |മലയാളചലച്ചിത്രഗാനങ്ങൾ | Remastered melodies](https://www.youtube.com/watch?v=D2p03gbN3FE)
 - [Karppaka Malare  | Mammootty | Laya | Lal | Madhu Balakrishnan | Afsal](https://www.youtube.com/watch?v=sm4S6FY3F3Q)
 - [Christian Melody Songs | Chithra Arun | Christian Devotional Songs Malayalam | Manoj Christy](https://www.youtube.com/watch?v=qqrou2_0P8g)
 - [Ponnambili Ponnambili | HD Video | Malsaram | S Ramesan Nair | M Jayachandran | KJ Yesudas](https://www.youtube.com/watch?v=PNR-0nZWvtU)
 - [#manjuwarrier #KanniluKannilu | #Ayisha | #Shorts | #YTShorts](https://www.youtube.com/watch?v=Koyf2Cp_G-s)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 28th of April 2024](https://www.youtube.com/watch?v=E3aDvxK-QvE)
-- [ഇന്ന് നീ പൊഴിക്കുന്ന കണ്ണുനീരിന് നാളെ ദൈവം പ്രതിഫലം തരും😇| Rev. Aneesh P Joseph |#shorts #motivation](https://www.youtube.com/watch?v=DT07fUePRPA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
