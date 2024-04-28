@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Japamala 28th of April 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 28th of April 2024](https://www.youtube.com/watch?v=E1SqzRFu_Sc)
-- [Christian Superhit Songs | Sudeep Kumar | Anna | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=6d82m3N8b4A)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=PXU7EEJE3Gg)
-- [പ്രഭാത പ്രാര്‍ത്ഥന April 28 # Athiravile Prarthana 28th of April 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=jL7MLg_VpVA)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 28th April 2024](https://www.youtube.com/watch?v=XRBtfICk8Tw)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=YdDZijp5cD0)
+- [Thennal Chirakundo | Payyans #jayasurya #shortsfeed #shortsvideo #reels #shorts](https://www.youtube.com/watch?v=aMbRT6iTDlY)
+- [Mandakini - Official Trailer | Altaf Salim | Anarkali Marikar | Vinod Leela](https://www.youtube.com/watch?v=cdcG9fYoCpI)
+- [Chinni Chinni | Lyrical  + Karaoke Video | Urumi | Prithviraj Sukumaran | Kaithapram | Deepak Dev](https://www.youtube.com/watch?v=IOq9EnyhfJ4)
+- [Iconic Song for Mahima Nambiar | #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=VkE3ot7QYgw)
+- [Sharada Old Malayalam Movie Songs | Mindapennu  Remastered Malayalam Songs |  S. Janaki](https://www.youtube.com/watch?v=aOWNozTyp9o)
+- [ഇന്ന്  ഏപ്രിൽ 28എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala mahimayud](https://www.youtube.com/watch?v=oEy_K3xhP4k)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
