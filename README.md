@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kandu Randu | Annayum Rasoolum | Video Song| Shahabaz Aman | M S Baburaj | Rajiv Ravi | Fahad Faazil](https://www.youtube.com/watch?v=ExBpFw2ecoY)
+- [Malaikottai Vaaliban - Video Jukebox | Mohanlal, Lijo Jose Pellissery | Prashant Pillai](https://www.youtube.com/watch?v=cIIyySa0vhw)
 - [Kanakam Mannil Video Song | Dr Pashupati | Parvathy| Risabava| Johnson | MG Sreekumar| Sujatha Mohan](https://www.youtube.com/watch?v=Fi_L7aOqoUU)
 - [ഹൃദയത്തിൽ പതിഞ്ഞു പോയ പഴയകാല സിനിമ ഗാനങ്ങൾ Evergreen Malayalam Hits 80s 90s Malayalam Hits](https://www.youtube.com/watch?v=qamxDAfj3y0)
 - [Pacha Theeyanu Nee | Bahubali 1#prabhas #ssrajamouli #mmkeeravani #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=9EbHH-iJf_w)
 - [Jayabharathi Old Malayalam Movie Songs | Mudramothiram Remastered Malayalam Songs | P. Susheela](https://www.youtube.com/watch?v=sfbIUABBLlw)
-- [Japamala 29th of April 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 29th of April 24](https://www.youtube.com/watch?v=qx69ovM98L0)
-- [ഇന്ന്  ഏപ്രിൽ 29എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  santhosha](https://www.youtube.com/watch?v=Ywf0bO_qwuk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
