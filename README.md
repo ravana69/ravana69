@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kanakam Mannil Video Song | Dr Pashupati | Parvathy| Risabava| Johnson | MG Sreekumar| Sujatha Mohan](https://www.youtube.com/watch?v=Fi_L7aOqoUU)
+- [ഹൃദയത്തിൽ പതിഞ്ഞു പോയ പഴയകാല സിനിമ ഗാനങ്ങൾ Evergreen Malayalam Hits 80s 90s Malayalam Hits](https://www.youtube.com/watch?v=qamxDAfj3y0)
+- [Pacha Theeyanu Nee | Bahubali 1#prabhas #ssrajamouli #mmkeeravani #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=9EbHH-iJf_w)
 - [Jayabharathi Old Malayalam Movie Songs | Mudramothiram Remastered Malayalam Songs | P. Susheela](https://www.youtube.com/watch?v=sfbIUABBLlw)
 - [Japamala 29th of April 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 29th of April 24](https://www.youtube.com/watch?v=qx69ovM98L0)
 - [ഇന്ന്  ഏപ്രിൽ 29എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  santhosha](https://www.youtube.com/watch?v=Ywf0bO_qwuk)
-- [Prabhatha Geethangal | Christian Melody Songs | Kester | Jessy Raju | Morning Prayer Songs](https://www.youtube.com/watch?v=7QWshLm76uI)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=ju7tvvgWnJ0)
-- [രാവിലെ പ്രാര്‍ത്ഥന April 29 # Athiravile Prarthana 29th of April 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=s6lz1CSOTOk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
