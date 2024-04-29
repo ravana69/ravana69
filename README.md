@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [വയലേലകൾതൻ ചാരത്തായ്.. #Edathuachurch #Shorts #frshajithumpechirayil #stgeorgesong #edathuafestival](https://www.youtube.com/watch?v=cgbiHzPOogE)
+- [Thalipoo Peelipoo - Sleep Lofi | Sujatha | Ravindra Jain | K.J. Yesudas | Chris Wayne](https://www.youtube.com/watch?v=LevG9gPkINc)
 - [Asadhyamay Enikkonnumilla | Lyrical Video | Franco | R.S. Vijayaraj | Malayalam Christian Songs](https://www.youtube.com/watch?v=FZVtUSfVYKA)
 - [മുത്തുപോൾ തിളങ്ങിയ മലയാളസിനിമയിലെ മികവുറ്റ ഗാനങ്ങൾ | EVERGREEN SONGS](https://www.youtube.com/watch?v=GkOXFGFWJco)
 - [UDHAYATHIN MALARAYI | #shorts | PORALI | Bobby Xavier | Fr. Shaji Thumpechirayil](https://www.youtube.com/watch?v=Gy_FYBO6ELE)
 - [Nin Mridhumozhiyil | Vanadevatha | Yusufali Kecheri | G Devarajan | KJ Yesudas | Prem Nazir](https://www.youtube.com/watch?v=yHz-mstuB-8)
-- [Jeevanadha | Malayalam Christian Devotional Songs | Super Hit Kester Songs | Album Songs of Jesus](https://www.youtube.com/watch?v=ALb_RXQead0)
-- [Kandu Randu | Annayum Rasoolum | Video Song| Shahabaz Aman | M S Baburaj | Rajiv Ravi | Fahad Faazil](https://www.youtube.com/watch?v=ExBpFw2ecoY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
