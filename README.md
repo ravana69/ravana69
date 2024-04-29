@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mazhavillin Kottarathil | Vidyasagar | Kaithapram | Sujatha Mohan | Biju Narayanan](https://www.youtube.com/watch?v=ir0eFhvUXY4)
+- [Maattupetti Koyilile | Mayilattam | Gireesh Puthenchery | Afsal | Chitra Iyer #songoftheday](https://www.youtube.com/watch?v=BaVoBlLfSao)
+- [Love Languages💕#Elamalakaadinullil from #PathaamValavu | #Shorts](https://www.youtube.com/watch?v=2h62KujO-sY)
 - [Jalthe He Kiske Video Song | Kaiyoppu | Mammootty | Kushboo | Gayathri Asokan | Vidyasagar](https://www.youtube.com/watch?v=vb-4LAszzrQ)
 - [Anshid MK   #ytshortsvideos #youtubeshorts](https://www.youtube.com/watch?v=n9OQdqnN9kU)
 - [Anshid MK   #ytshortsvideos #youtubeshorts](https://www.youtube.com/watch?v=PxewLEek36I)
-- [Anshid MK   #ytshortsvideos #youtubeshorts](https://www.youtube.com/watch?v=VrlhIXeecxI)
-- [Anshid MK   #ytshortsvideos #youtubeshorts](https://www.youtube.com/watch?v=J6iLeL8_dZ4)
-- [Enthe Enthe | Junior Senior | Kunjako Boban | Malayalam Romantic Song | MG Sreeumar | Kaithapram](https://www.youtube.com/watch?v=gkF6O1xrsHo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
