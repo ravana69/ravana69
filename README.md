@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മുത്തുപോൾ തിളങ്ങിയ മലയാളസിനിമയിലെ മികവുറ്റ ഗാനങ്ങൾ | EVERGREEN SONGS](https://www.youtube.com/watch?v=GkOXFGFWJco)
+- [UDHAYATHIN MALARAYI | #shorts | PORALI | Bobby Xavier | Fr. Shaji Thumpechirayil](https://www.youtube.com/watch?v=Gy_FYBO6ELE)
+- [Nin Mridhumozhiyil | Vanadevatha | Yusufali Kecheri | G Devarajan | KJ Yesudas | Prem Nazir](https://www.youtube.com/watch?v=yHz-mstuB-8)
+- [Jeevanadha | Malayalam Christian Devotional Songs | Super Hit Kester Songs | Album Songs of Jesus](https://www.youtube.com/watch?v=ALb_RXQead0)
 - [Kandu Randu | Annayum Rasoolum | Video Song| Shahabaz Aman | M S Baburaj | Rajiv Ravi | Fahad Faazil](https://www.youtube.com/watch?v=ExBpFw2ecoY)
 - [Malaikottai Vaaliban - Video Jukebox | Mohanlal, Lijo Jose Pellissery | Prashant Pillai](https://www.youtube.com/watch?v=cIIyySa0vhw)
-- [Kanakam Mannil Video Song | Dr Pashupati | Parvathy| Risabava| Johnson | MG Sreekumar| Sujatha Mohan](https://www.youtube.com/watch?v=Fi_L7aOqoUU)
-- [ഹൃദയത്തിൽ പതിഞ്ഞു പോയ പഴയകാല സിനിമ ഗാനങ്ങൾ Evergreen Malayalam Hits 80s 90s Malayalam Hits](https://www.youtube.com/watch?v=qamxDAfj3y0)
-- [Pacha Theeyanu Nee | Bahubali 1#prabhas #ssrajamouli #mmkeeravani #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=9EbHH-iJf_w)
-- [Jayabharathi Old Malayalam Movie Songs | Mudramothiram Remastered Malayalam Songs | P. Susheela](https://www.youtube.com/watch?v=sfbIUABBLlw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
