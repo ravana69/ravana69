@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Japamala 29th of April 24 # Mathavinte Japamala Santhoshathinte Rahasyangal 29th of April 24](https://www.youtube.com/watch?v=qx69ovM98L0)
+- [ഇന്ന്  ഏപ്രിൽ 29എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  santhosha](https://www.youtube.com/watch?v=Ywf0bO_qwuk)
+- [Prabhatha Geethangal | Christian Melody Songs | Kester | Jessy Raju | Morning Prayer Songs](https://www.youtube.com/watch?v=7QWshLm76uI)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=ju7tvvgWnJ0)
 - [രാവിലെ പ്രാര്‍ത്ഥന April 29 # Athiravile Prarthana 29th of April 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=s6lz1CSOTOk)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 29th April 2024](https://www.youtube.com/watch?v=Sf_fHjojHD0)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=fofoJ8fMpt8)
-- [ഈണവും താളവും ഇല്ലെങ്കിലും| കെ ജെ യേശുദാസ് | G Venugopal |മലയാളചലച്ചിത്രഗാനങ്ങൾ | Remastered melodies](https://www.youtube.com/watch?v=D2p03gbN3FE)
-- [Karppaka Malare  | Mammootty | Laya | Lal | Madhu Balakrishnan | Afsal](https://www.youtube.com/watch?v=sm4S6FY3F3Q)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
