@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mizhiyoram - Chill Lofi | Manjil Virinja Pookkal | Jerry Amaldev | S. Janaki | EternaLove](https://www.youtube.com/watch?v=_om5KKddvN8)
+- [Tamannaah's Movements | #Bandra | #Dileep, #Tamannaah | #SamCS | #ytshorts #shorts](https://www.youtube.com/watch?v=qLle0cFpUS4)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 29th of April 2024](https://www.youtube.com/watch?v=8ZStu3VJzf0)
+- [നേടുമെന്ന ലക്ഷ്യം മനസ്സിലുണ്ടെങ്കിൽ തോൽക്കുമെന്ന ഭയം താനേ മാറും 😇 | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=8DLroymS4Vc)
+- [Maamarangale |  Ee Pattanathil Bhootham #mammootty #shortsfeed #shortsvideo #reels #shaanrahman](https://www.youtube.com/watch?v=AvjW6oqCWK4)
 - [വയലേലകൾതൻ ചാരത്തായ്.. #Edathuachurch #Shorts #frshajithumpechirayil #stgeorgesong #edathuafestival](https://www.youtube.com/watch?v=cgbiHzPOogE)
-- [Thalipoo Peelipoo - Sleep Lofi | Sujatha | Ravindra Jain | K.J. Yesudas | Chris Wayne](https://www.youtube.com/watch?v=LevG9gPkINc)
-- [Asadhyamay Enikkonnumilla | Lyrical Video | Franco | R.S. Vijayaraj | Malayalam Christian Songs](https://www.youtube.com/watch?v=FZVtUSfVYKA)
-- [മുത്തുപോൾ തിളങ്ങിയ മലയാളസിനിമയിലെ മികവുറ്റ ഗാനങ്ങൾ | EVERGREEN SONGS](https://www.youtube.com/watch?v=GkOXFGFWJco)
-- [UDHAYATHIN MALARAYI | #shorts | PORALI | Bobby Xavier | Fr. Shaji Thumpechirayil](https://www.youtube.com/watch?v=Gy_FYBO6ELE)
-- [Nin Mridhumozhiyil | Vanadevatha | Yusufali Kecheri | G Devarajan | KJ Yesudas | Prem Nazir](https://www.youtube.com/watch?v=yHz-mstuB-8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
