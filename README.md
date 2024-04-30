@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 1st May 2024](https://www.youtube.com/watch?v=5GG4Fzs26fs)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=BJT4lEi3b0w)
 - [Entha paryuka🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵](https://www.youtube.com/watch?v=YmADXRCCA3w)
 - [Aaro Viral Neetti | Gireesh Puthenchery | Vidyasagar KJ Yesudas |Manju Warrier](https://www.youtube.com/watch?v=jpgP0jbuAes)
 - [#NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=sX8ivv_VWdw)
 - [Therirangum Mukile | Mazhathullikkilukkam | Suresh Peters | P Jayachandran  #SongOfTheDay](https://www.youtube.com/watch?v=WPbSEbz-T6c)
-- [Muthum Pavizhavum | Darling Darling | Ouseppachan | Hariharan | Sujatha Mohan #SongOfTheDay](https://www.youtube.com/watch?v=DzObIbAiAuU)
-- [Pathinalam Ravudichathu  | Maram  | Yusufali Kecheri  | G Devarajan  | KJ Yesudas | Prem Nazir](https://www.youtube.com/watch?v=cR2pb82b4Lk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
