@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [എടത്വാ പള്ളിയിൽ വാണരുളും ഗീവർഗീസിനെ.. Edathua Thirunal #frshajithumpechirayil #shorts #citycassetes](https://www.youtube.com/watch?v=e1UQCPLlWY0)
-- [Santhosh, eMithra #ytshortsvideos  #youtubeshorts](https://www.youtube.com/watch?v=ySsScnKTHpU)
-- [Update Your Play list 🎶|Pavi Caretaker | Dilieep | Vineeth Kumar | Kapil Kapilan | Midhun Mukundan](https://www.youtube.com/watch?v=h69r_F77kRQ)
-- [Santhosh, eMithra #ytshortsvideos  #youtubeshorts](https://www.youtube.com/watch?v=YlXfPxycNMA)
-- [Santhosh, eMithra #ytshortsvideos  #youtubeshorts](https://www.youtube.com/watch?v=XF0CpGhiWSM)
-- [Listen to the New Release 🎼 |  Pavi Caretaker | Dilieep | KS Harisankar | Midhun Mukundan |](https://www.youtube.com/watch?v=9GCH-aiOVPI)
+- [Santhosh, eMithra #ytshortsvideos  #youtubeshorts](https://www.youtube.com/watch?v=XEJPPfmkqAE)
+- [NikhilaVimal on jo & jo #PuzhayarikathuDumm | #Jo&Jo | , #Mathew, #Neslen | #GovindVasantha | #Arun](https://www.youtube.com/watch?v=8Qd-pcqXGec)
+- [Romantic Songs of East Coast Vijayan  | Balabhaskar | Sangeetha | #Shorts](https://www.youtube.com/watch?v=CTc2FlzIdUU)
+- [Santhosh, eMithra #ytshortsvideos  #youtubeshorts](https://www.youtube.com/watch?v=po4g9jzoBEk)
+- [Thumbi Vaa - Hip Hop Mix | Olangal | Ilaiyaraaja | S. Janaki | EternaLove](https://www.youtube.com/watch?v=ivs8SEIbfQY)
+- [Repeat Mode On 🎧| Pavi Caretaker | Dilieep | Vineeth Kumar | Kapil Kapilan | Midhun Mukundan](https://www.youtube.com/watch?v=CQhbaXochTs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
