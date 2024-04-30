@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Santhosh, eMithra #ytshortsvideos  #youtubeshorts](https://www.youtube.com/watch?v=XEJPPfmkqAE)
-- [NikhilaVimal on jo & jo #PuzhayarikathuDumm | #Jo&Jo | , #Mathew, #Neslen | #GovindVasantha | #Arun](https://www.youtube.com/watch?v=8Qd-pcqXGec)
-- [Romantic Songs of East Coast Vijayan  | Balabhaskar | Sangeetha | #Shorts](https://www.youtube.com/watch?v=CTc2FlzIdUU)
-- [Santhosh, eMithra #ytshortsvideos  #youtubeshorts](https://www.youtube.com/watch?v=po4g9jzoBEk)
-- [Thumbi Vaa - Hip Hop Mix | Olangal | Ilaiyaraaja | S. Janaki | EternaLove](https://www.youtube.com/watch?v=ivs8SEIbfQY)
-- [Repeat Mode On 🎧| Pavi Caretaker | Dilieep | Vineeth Kumar | Kapil Kapilan | Midhun Mukundan](https://www.youtube.com/watch?v=CQhbaXochTs)
+- [Mathavinte Vanakkamasam Songs Malayalam # Mother Mary songs Month of Mary May 2024 Special Songs](https://www.youtube.com/watch?v=QHp7569NaeI)
+- [കുടുംബം അത് സ്നേഹം കൊണ്ട് നിർമിച്ച ലോകം 😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=KAWvaOYAFXQ)
+- [Anuraghathin Velayil | Thattathin Marayathu | Vineeth Sreenivasan | Shaan Rahman](https://www.youtube.com/watch?v=3Npi10_e4DY)
+- [Dheem Thitha Tharikida Video Song | Moonnu Kodiyum 300 Pavanum | Gireesh Puthenchery](https://www.youtube.com/watch?v=uJD06-Qp8Vo)
+- [Kadambanattu Kalavela | Olympian Anthony Adam | Lyrical Video | Mohanlal | M G Sreekumar](https://www.youtube.com/watch?v=gqYM1z2s3hs)
+- [Chilu Chilum | Balettan #mohanlal #mjayachandran #gireeshputhenchery #shortsfeed #shortsvideo #reels](https://www.youtube.com/watch?v=JuedHtqPJTU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
