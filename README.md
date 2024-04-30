@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന May 1 # Athiravile Prarthana 1st of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=qAa8HdC1D-Y)
+- [Paadu Paatteduthu | Ennarukil Nee Irunthal | Ilaiyaraaja | Uma Ramanan & Mano | Hi-Res Audio](https://www.youtube.com/watch?v=ltmaSA2S7C8)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 1st May 2024](https://www.youtube.com/watch?v=5GG4Fzs26fs)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=BJT4lEi3b0w)
 - [Entha paryuka🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵](https://www.youtube.com/watch?v=YmADXRCCA3w)
 - [Aaro Viral Neetti | Gireesh Puthenchery | Vidyasagar KJ Yesudas |Manju Warrier](https://www.youtube.com/watch?v=jpgP0jbuAes)
-- [#NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=sX8ivv_VWdw)
-- [Therirangum Mukile | Mazhathullikkilukkam | Suresh Peters | P Jayachandran  #SongOfTheDay](https://www.youtube.com/watch?v=WPbSEbz-T6c)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
