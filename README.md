@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Pathinalam Ravudichathu  | Maram  | Yusufali Kecheri  | G Devarajan  | KJ Yesudas | Prem Nazir](https://www.youtube.com/watch?v=cR2pb82b4Lk)
+- [മലയാളികളുടെ ഹൃദയം കീഴടക്കിയ മെഗാഹിറ്റ് സിനിമാഗാനങ്ങൾ | MEGAHIT SONGS MALAYALAM | MOVIEWORLD MUSIC](https://www.youtube.com/watch?v=Khz48o-RkSQ)
+- [Singer Of The Week | Alenia | Christian Devotional Songs Malayalam | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=GnNcw5KIWLE)
 - [Mathavinte Vanakkamasam Songs Malayalam # Mother Mary songs Month of Mary May 2024 Special Songs](https://www.youtube.com/watch?v=QHp7569NaeI)
 - [കുടുംബം അത് സ്നേഹം കൊണ്ട് നിർമിച്ച ലോകം 😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=KAWvaOYAFXQ)
 - [Anuraghathin Velayil | Thattathin Marayathu | Vineeth Sreenivasan | Shaan Rahman](https://www.youtube.com/watch?v=3Npi10_e4DY)
-- [Dheem Thitha Tharikida Video Song | Moonnu Kodiyum 300 Pavanum | Gireesh Puthenchery](https://www.youtube.com/watch?v=uJD06-Qp8Vo)
-- [Kadambanattu Kalavela | Olympian Anthony Adam | Lyrical Video | Mohanlal | M G Sreekumar](https://www.youtube.com/watch?v=gqYM1z2s3hs)
-- [Chilu Chilum | Balettan #mohanlal #mjayachandran #gireeshputhenchery #shortsfeed #shortsvideo #reels](https://www.youtube.com/watch?v=JuedHtqPJTU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
