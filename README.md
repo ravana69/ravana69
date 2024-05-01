@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aayiram Swapnangal | Parishudha Amma | Ft. Manoj, Samji, Fr Moozhoor Mother Mary Song Malayalam](https://www.youtube.com/watch?v=gFihxGDMNEY)
+- [അനുരാഗിണി ഇതാ എൻ | Evergreen Malayalam Hit Song | Oru Kudakeezhil |  K. J. Yesudas](https://www.youtube.com/watch?v=RAsPd2UcakE)
+- [എല്ലാത്തരം ഹൃദയങ്ങളെയും സംതൃപ്തമാക്കും മലയാളസിനിമയിലെ ശ്രവണ സുന്ദര ഗാനങ്ങൾ](https://www.youtube.com/watch?v=ZWII_V-Pmd0)
+- [Aaluvappuzhayil Meen | Kasavuthattam | Vayalar | G Devarajan | P Susheela | Saradha | Old is Gold](https://www.youtube.com/watch?v=jNthosk3tcA)
 - [Moham Kondu Njan (Reprise) - Video Song | Pavi Caretaker | Dilieep | Midhun Mukundan](https://www.youtube.com/watch?v=96Du5KiaILE)
 - [Kutti Srank | Jukebox | Mammootty | Shaji N Karun | Issac Thomas Kottukappally | S Ramesan Nair](https://www.youtube.com/watch?v=LJ1ejQfIICY)
-- [Pavi Caretaker - Sneak Peek | Dilieep | Johny Antony | Vineeth Kumar](https://www.youtube.com/watch?v=Bj_SZ2Hg_jA)
-- [NikhilaVimal on jo & jo #PuzhayarikathuDumm | #Jo&Jo | , #Mathew, #Neslen | #GovindVasantha | #Arun](https://www.youtube.com/watch?v=XH5XUhT71l0)
-- [Raavil Aaro Video Song | Soothradharan | Dileep | Meera Jasmine | KJ Yesudas | Sujatha Mohan](https://www.youtube.com/watch?v=8oCeNqL7gvo)
-- [Sreelatha Old Malayalam Movie Songs | Anadha Shilpangal Remastered Malayalam Songs](https://www.youtube.com/watch?v=YVwqR1osbQ4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
