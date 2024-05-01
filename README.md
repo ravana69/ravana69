@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഇന്ന് മെയ്ഒന്ന്എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala mahimayu](https://www.youtube.com/watch?v=DUkjIvYtT4k)
+- [Doore Doore | Babu Chalakkudy | Christian Video Song | Joji Johns | baby John Kalayanathani](https://www.youtube.com/watch?v=rtKTaN28OCg)
+- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 1st May 2024 # Vanakkamasam Prayer 2024 May 1 # Japamala](https://www.youtube.com/watch?v=EiW_0EMBvzU)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=TK5Vt3jPwuI)
 - [രാവിലെ പ്രാര്‍ത്ഥന May 1 # Athiravile Prarthana 1st of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=qAa8HdC1D-Y)
 - [Paadu Paatteduthu | Ennarukil Nee Irunthal | Ilaiyaraaja | Uma Ramanan & Mano | Hi-Res Audio](https://www.youtube.com/watch?v=ltmaSA2S7C8)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 1st May 2024](https://www.youtube.com/watch?v=5GG4Fzs26fs)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=BJT4lEi3b0w)
-- [Entha paryuka🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵🩵](https://www.youtube.com/watch?v=YmADXRCCA3w)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
