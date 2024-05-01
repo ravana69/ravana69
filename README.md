@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Alakadalilu | Thuruppugulan | Alex Paul | Mammooty | Sneha | Kaithapram | Alex Paul](https://www.youtube.com/watch?v=sYf_DDTLZVA)
+- [Vaalittezhuthiya | Mohanlal | Samyuktha Varma | KJ Yesudas | Ouseppachan | Kaithapram](https://www.youtube.com/watch?v=qi1ENJ5nSfo)
+- [Raani from #Chathuram is a mystery |  #Shorts](https://www.youtube.com/watch?v=iGvFyliQKw8)
+- [Kannil Nilaavu| Chronic Bachelor | Deepak Dev | KS Chithra #SongOfTheDay](https://www.youtube.com/watch?v=OkUDC-7whoc)
 - [Athmavin Althara Thannil |Christian Video Songs | Blaison Sam Raju | Christian Devotional Songs](https://www.youtube.com/watch?v=ekGfcWh5S3M)
 - [KANYE KARUNA KADALE | കന്യേ കരുണാകടലേ | CHRISTIAN DEVOTIONAL | #christiandevotionalsongs #royputhur](https://www.youtube.com/watch?v=AaQsgQLItZA)
-- [Cheerapoovukalkumma | 720p Remastered | Dhanam | Raveendran | K.S Chithra | Evergreen movie songs](https://www.youtube.com/watch?v=rrTXTB-QyBs)
-- [നമ്മുടെ വാക്കുകൾ കൊണ്ട് ആരുടേയും കണ്ണ് നിറയരുത് 😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=lYJbOlux0tg)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 1st of May 2024](https://www.youtube.com/watch?v=5qMzZIkHDTI)
-- [Mukila Simhame Video Song | Anarkali | Vayalar | MS Baburaj #shorts](https://www.youtube.com/watch?v=cNDXHWaH3Iw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
