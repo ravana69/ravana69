@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ATHULITHA PARISHUDHE | അതുലിത പരിശുദ്ധ | ROY PUTHUR | MITHILA](https://www.youtube.com/watch?v=VcG8den79es)
 - [𝐄𝐧𝐧𝐞 𝐊𝐚𝐧𝐮𝐧𝐧𝐚 𝐀𝐦𝐦𝐚𝐲𝐚𝐥𝐥𝐞 | #shorts | 𝐌𝐨𝐭𝐡𝐞𝐫 𝐌𝐚𝐫𝐲 | 𝐋𝐚𝐭𝐞𝐬𝐭 𝐌𝐚𝐫𝐢𝐚𝐧 𝐒𝐨𝐧𝐠 | 𝐅𝐫 𝐒𝐡𝐚𝐣𝐢 𝐓𝐡𝐮𝐦𝐩𝐞𝐜𝐡𝐢𝐫𝐚𝐲𝐢𝐥](https://www.youtube.com/watch?v=q0Ts4ETWnrY)
+- [SWARGEEYA JEEVANTE APPAM | Fr. Thomas Poothara TOR | Fr. Anjo Karappilly MCBS| Narayani Gopan | Deny](https://www.youtube.com/watch?v=QrGNyyC1y9Q)
 - [Aayiram Swapnangal | Parishudha Amma | Ft. Manoj, Samji, Fr Moozhoor Mother Mary Song Malayalam](https://www.youtube.com/watch?v=gFihxGDMNEY)
 - [അനുരാഗിണി ഇതാ എൻ | Evergreen Malayalam Hit Song | Oru Kudakeezhil |  K. J. Yesudas](https://www.youtube.com/watch?v=RAsPd2UcakE)
 - [എല്ലാത്തരം ഹൃദയങ്ങളെയും സംതൃപ്തമാക്കും മലയാളസിനിമയിലെ ശ്രവണ സുന്ദര ഗാനങ്ങൾ](https://www.youtube.com/watch?v=ZWII_V-Pmd0)
-- [Aaluvappuzhayil Meen | Kasavuthattam | Vayalar | G Devarajan | P Susheela | Saradha | Old is Gold](https://www.youtube.com/watch?v=jNthosk3tcA)
-- [Moham Kondu Njan (Reprise) - Video Song | Pavi Caretaker | Dilieep | Midhun Mukundan](https://www.youtube.com/watch?v=96Du5KiaILE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
