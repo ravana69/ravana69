@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Pavi Caretaker - Sneak Peek | Dilieep | Johny Antony | Vineeth Kumar](https://www.youtube.com/watch?v=Bj_SZ2Hg_jA)
+- [NikhilaVimal on jo & jo #PuzhayarikathuDumm | #Jo&Jo | , #Mathew, #Neslen | #GovindVasantha | #Arun](https://www.youtube.com/watch?v=XH5XUhT71l0)
+- [Raavil Aaro Video Song | Soothradharan | Dileep | Meera Jasmine | KJ Yesudas | Sujatha Mohan](https://www.youtube.com/watch?v=8oCeNqL7gvo)
+- [Sreelatha Old Malayalam Movie Songs | Anadha Shilpangal Remastered Malayalam Songs](https://www.youtube.com/watch?v=YVwqR1osbQ4)
 - [Kattile Kannan | Animation Video #kattilekannan #animation #malayalamcartoon #shorts #shortsfeed](https://www.youtube.com/watch?v=GZaj5wg6Kak)
 - [മെയ്മാസം മരിയന്‍ ഭക്തി ഗാനങ്ങള്‍ # Mathavinte Vanakkamasam Mariyan Songs Malayalam](https://www.youtube.com/watch?v=FGHQMzdxaDc)
-- [ഇന്ന് മെയ്ഒന്ന്എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala mahimayu](https://www.youtube.com/watch?v=DUkjIvYtT4k)
-- [Doore Doore | Babu Chalakkudy | Christian Video Song | Joji Johns | baby John Kalayanathani](https://www.youtube.com/watch?v=rtKTaN28OCg)
-- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 1st May 2024 # Vanakkamasam Prayer 2024 May 1 # Japamala](https://www.youtube.com/watch?v=EiW_0EMBvzU)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=TK5Vt3jPwuI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
