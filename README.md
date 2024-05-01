@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [ATHULITHA PARISHUDHE | അതുലിത പരിശുദ്ധ | ROY PUTHUR | MITHILA](https://www.youtube.com/watch?v=VcG8den79es)
-- [𝐄𝐧𝐧𝐞 𝐊𝐚𝐧𝐮𝐧𝐧𝐚 𝐀𝐦𝐦𝐚𝐲𝐚𝐥𝐥𝐞 | #shorts | 𝐌𝐨𝐭𝐡𝐞𝐫 𝐌𝐚𝐫𝐲 | 𝐋𝐚𝐭𝐞𝐬𝐭 𝐌𝐚𝐫𝐢𝐚𝐧 𝐒𝐨𝐧𝐠 | 𝐅𝐫 𝐒𝐡𝐚𝐣𝐢 𝐓𝐡𝐮𝐦𝐩𝐞𝐜𝐡𝐢𝐫𝐚𝐲𝐢𝐥](https://www.youtube.com/watch?v=q0Ts4ETWnrY)
-- [SWARGEEYA JEEVANTE APPAM | Fr. Thomas Poothara TOR | Fr. Anjo Karappilly MCBS| Narayani Gopan | Deny](https://www.youtube.com/watch?v=QrGNyyC1y9Q)
-- [Aayiram Swapnangal | Parishudha Amma | Ft. Manoj, Samji, Fr Moozhoor Mother Mary Song Malayalam](https://www.youtube.com/watch?v=gFihxGDMNEY)
-- [അനുരാഗിണി ഇതാ എൻ | Evergreen Malayalam Hit Song | Oru Kudakeezhil |  K. J. Yesudas](https://www.youtube.com/watch?v=RAsPd2UcakE)
-- [എല്ലാത്തരം ഹൃദയങ്ങളെയും സംതൃപ്തമാക്കും മലയാളസിനിമയിലെ ശ്രവണ സുന്ദര ഗാനങ്ങൾ](https://www.youtube.com/watch?v=ZWII_V-Pmd0)
+- [Cheerapoovukalkumma | 720p Remastered | Dhanam | Raveendran | K.S Chithra | Evergreen movie songs](https://www.youtube.com/watch?v=rrTXTB-QyBs)
+- [നമ്മുടെ വാക്കുകൾ കൊണ്ട് ആരുടേയും കണ്ണ് നിറയരുത് 😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=lYJbOlux0tg)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 1st of May 2024](https://www.youtube.com/watch?v=5qMzZIkHDTI)
+- [Mukila Simhame Video Song | Anarkali | Vayalar | MS Baburaj #shorts](https://www.youtube.com/watch?v=cNDXHWaH3Iw)
+- [Thirusannidhi | Malayalam Christian Devotional Songs | Super Hit Songs of Kester | Audio Jukebox](https://www.youtube.com/watch?v=voMGYcqjfRo)
+- [Kanyakaye Kalvariyil | #shorts | MG Sreekumar | Fr Shaji Thumpechirayil | Hit Marian Song | Carmel](https://www.youtube.com/watch?v=iTiy9dJAOww)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
