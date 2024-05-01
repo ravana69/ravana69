@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 2nd of May 2024](https://www.youtube.com/watch?v=eLGjzKBFor0)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=lII-MNwIKNs)
 - [Alakadalilu | Thuruppugulan | Alex Paul | Mammooty | Sneha | Kaithapram | Alex Paul](https://www.youtube.com/watch?v=sYf_DDTLZVA)
 - [Vaalittezhuthiya | Mohanlal | Samyuktha Varma | KJ Yesudas | Ouseppachan | Kaithapram](https://www.youtube.com/watch?v=qi1ENJ5nSfo)
 - [Raani from #Chathuram is a mystery |  #Shorts](https://www.youtube.com/watch?v=iGvFyliQKw8)
 - [Kannil Nilaavu| Chronic Bachelor | Deepak Dev | KS Chithra #SongOfTheDay](https://www.youtube.com/watch?v=OkUDC-7whoc)
-- [Athmavin Althara Thannil |Christian Video Songs | Blaison Sam Raju | Christian Devotional Songs](https://www.youtube.com/watch?v=ekGfcWh5S3M)
-- [KANYE KARUNA KADALE | കന്യേ കരുണാകടലേ | CHRISTIAN DEVOTIONAL | #christiandevotionalsongs #royputhur](https://www.youtube.com/watch?v=AaQsgQLItZA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
