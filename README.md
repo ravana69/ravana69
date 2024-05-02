@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [അതിമനോഹരമായ പഴയകാല ഗാനങ്ങൾ old christian songs malayalam with lyrics ! daily worship songs malayalam](https://www.youtube.com/watch?v=irXsCl3XqOU)
+- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 2nd May 2024 # Vanakkamasam Prayer 2024 May 2 # Japamala](https://www.youtube.com/watch?v=mwntBqbX4ec)
+- [പരിശുദ്ധാൽമാവിന്റെ അഭിഷേകം ആവോളം ചൊരിയും ക്രിസ്തീയഗാനങ്ങൾ |Songs Of Holy Spirit| Pentakustha gaangal](https://www.youtube.com/watch?v=oXlnopy7ap0)
+- [ഇന്ന് മെയ് 2 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  prakashathin](https://www.youtube.com/watch?v=8CMhy-IoNBk)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=lSJ09WH3qbA)
 - [രാവിലെ പ്രാര്‍ത്ഥന May 2 # Athiravile Prarthana 2nd of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=zbnUxVggPIw)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 2nd of May 2024](https://www.youtube.com/watch?v=eLGjzKBFor0)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=lII-MNwIKNs)
-- [Alakadalilu | Thuruppugulan | Alex Paul | Mammooty | Sneha | Kaithapram | Alex Paul](https://www.youtube.com/watch?v=sYf_DDTLZVA)
-- [Vaalittezhuthiya | Mohanlal | Samyuktha Varma | KJ Yesudas | Ouseppachan | Kaithapram](https://www.youtube.com/watch?v=qi1ENJ5nSfo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
