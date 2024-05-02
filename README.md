@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [St.George Raasa Song | റാസാ ഗീതം | ROY PUTHUR #christiandevotionalsongs #saintgeorge #royputhur](https://www.youtube.com/watch?v=Lu7zH1fJJR4)
-- [Shunaka Yuvarajan - Audio Song | Neymar| Anwar Sadath| Shaan Rahman | Mathew,Naslen | Sudhi Maddison](https://www.youtube.com/watch?v=LTd_ezxIMno)
-- [മലയാളികളുടെ ഇഷ്ടഗാനങ്ങള്‍ | Malayalam Evergreen Songs | Sujatha Mohan | K. J. Yesudas](https://www.youtube.com/watch?v=-Io_y3OuJC8)
-- [ഒരിക്കൽ കൂടി കേൾക്കാൻ ആശിച്ചുപോയ മലയാളസിനിമയിലെ നിത്യസുന്ദര ഗാനങ്ങൾ | EVERGREEN SONGS MALAYALAM](https://www.youtube.com/watch?v=JGmvosOeFdM)
-- [BTS from Kannilu Kannilu #KanniluKannilu #Ayisha #ytshorts #shorts](https://www.youtube.com/watch?v=7Hh_6a1UTT0)
-- [Evergreen Super Hits Of Mollywood Video Jukebox | Selected Malayalam Love Hits | Malayalam Songs](https://www.youtube.com/watch?v=cz_SQR51qwM)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 2nd of May 2024](https://www.youtube.com/watch?v=rmHyHhkvBXA)
+- [Maarippeelikatte | Puthiya Theerangal | Madhu Balakrishnan | Ilayaraja | Kaithapram](https://www.youtube.com/watch?v=IvQVG0xDHwE)
+- [ചിലപ്പോഴൊക്കെ തോറ്റുകൊടുക്കുന്നത് മഹത്തരമാണ് 😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=6dPR4heAIeU)
+- [Mangalaam Kaavile Video Song | Dharmayudham | P Jayachandran | P Madhuri](https://www.youtube.com/watch?v=ubiljZp0mNM)
+- [Praanan Pol - Audio Song | Bandra | Dileep, Tamannaah | Sam C.S | Kapil Kapilan | Arun Gopy](https://www.youtube.com/watch?v=ZuZUgc4Q8Gk)
+- [Muthuchippi Poloru | Thattathin Marayathu | Sachin Warrier | Ramya Nambeessan | Shaan Rahman](https://www.youtube.com/watch?v=pwV26gHuiuU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
