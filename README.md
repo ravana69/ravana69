@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [BTS from Kannilu Kannilu #KanniluKannilu #Ayisha #ytshorts #shorts](https://www.youtube.com/watch?v=7Hh_6a1UTT0)
+- [Evergreen Super Hits Of Mollywood Video Jukebox | Selected Malayalam Love Hits | Malayalam Songs](https://www.youtube.com/watch?v=cz_SQR51qwM)
+- [Maarivillin chirakode  | HD Video | Cheppu |  Poovachal Khader | KJ Yesudas | Sujatha](https://www.youtube.com/watch?v=O-puWIUAgpU)
 - [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=nSGFhjngKxs)
 - [Sona Sona | Animation Version | Kalabhavan Mani | കലാഭവൻ മണിയുടെ ഹിറ്റ് ഗാനം അനിമേഷൻ രൂപത്തിൽ](https://www.youtube.com/watch?v=OotT7_FEJCU)
 - [Bahadur Old Malayalam Movie Songs | Chuzhi  Remastered Malayalam Songs |  Baburaj](https://www.youtube.com/watch?v=mHyCpGZ0oSM)
-- [Kannum Chimmi Chimmi Video Song | Inspector Garud | Dileep | Kavya Madhavan | Vineeth Sreenivasan](https://www.youtube.com/watch?v=AQi64a6gHdo)
-- [#HariHaraVeeraMallu: Sword vs Spirit - Teaser (MALAYALAM) | Pawan Kalyan | Marakathamani |AM Rathnam](https://www.youtube.com/watch?v=yit2SRb7k-A)
-- [Aavanithumbi |Snehaveedu #shreyaghoshal #shortsfeed #shortsvideo #shorts #reels #mohanlal #ilayaraja](https://www.youtube.com/watch?v=EC0cITRzt88)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
