@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 3rd of May 2024](https://www.youtube.com/watch?v=vzjJfb_ZCEc)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=0Jes_mtm6rw)
 - [സ്നേഹം മാത്രമെൻ മനസിൽ](https://www.youtube.com/watch?v=kB3uhpcyjIo)
 - [Daivame Daivame Video Song | Malayalee From India | Jakes Bejoy | Nivin Pauly | Dijo Jose Antony](https://www.youtube.com/watch?v=Kluqcsghpvc)
 - [Vennila Kombile | Gireesh Puthenchery | Vidyasagar | MG Sreekumar | Sujatha Mohan](https://www.youtube.com/watch?v=vHn8WWVW7MM)
 - [Aazhakkadalinte | Chaanthupottu | Vidyasagar |Vayalar Sarathchandra Varma | S Janaki | #SongOfTheDay](https://www.youtube.com/watch?v=RTE1gu43YPU)
-- [#Elamalakaadinullil from #PathaamValavu | #Shorts](https://www.youtube.com/watch?v=9PlbULKgIJ8)
-- [KARUNYAM THOOKUNNA MATHAVE/കാരുണ്യം തൂകുന്ന മാതാവേ /OWN MEDIA MUSIC COLLECTION/](https://www.youtube.com/watch?v=c0f3uGtznV8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
