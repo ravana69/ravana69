@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Bahadur Old Malayalam Movie Songs | Chuzhi  Remastered Malayalam Songs |  Baburaj](https://www.youtube.com/watch?v=mHyCpGZ0oSM)
+- [Kannum Chimmi Chimmi Video Song | Inspector Garud | Dileep | Kavya Madhavan | Vineeth Sreenivasan](https://www.youtube.com/watch?v=AQi64a6gHdo)
 - [#HariHaraVeeraMallu: Sword vs Spirit - Teaser (MALAYALAM) | Pawan Kalyan | Marakathamani |AM Rathnam](https://www.youtube.com/watch?v=yit2SRb7k-A)
 - [Aavanithumbi |Snehaveedu #shreyaghoshal #shortsfeed #shortsvideo #shorts #reels #mohanlal #ilayaraja](https://www.youtube.com/watch?v=EC0cITRzt88)
 - [Enne Kanunna Ammayalle ||#shorts || Mother Mary | Latest Marian Song | Fr Shaji Thumpechirayil](https://www.youtube.com/watch?v=oP-Dv3YnKb0)
 - [അതിമനോഹരമായ പഴയകാല ഗാനങ്ങൾ old christian songs malayalam with lyrics ! daily worship songs malayalam](https://www.youtube.com/watch?v=irXsCl3XqOU)
-- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 2nd May 2024 # Vanakkamasam Prayer 2024 May 2 # Japamala](https://www.youtube.com/watch?v=mwntBqbX4ec)
-- [പരിശുദ്ധാൽമാവിന്റെ അഭിഷേകം ആവോളം ചൊരിയും ക്രിസ്തീയഗാനങ്ങൾ |Songs Of Holy Spirit| Pentakustha gaangal](https://www.youtube.com/watch?v=oXlnopy7ap0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
