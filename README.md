@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [സ്നേഹം മാത്രമെൻ മനസിൽ](https://www.youtube.com/watch?v=kB3uhpcyjIo)
 - [Daivame Daivame Video Song | Malayalee From India | Jakes Bejoy | Nivin Pauly | Dijo Jose Antony](https://www.youtube.com/watch?v=Kluqcsghpvc)
 - [Vennila Kombile | Gireesh Puthenchery | Vidyasagar | MG Sreekumar | Sujatha Mohan](https://www.youtube.com/watch?v=vHn8WWVW7MM)
 - [Aazhakkadalinte | Chaanthupottu | Vidyasagar |Vayalar Sarathchandra Varma | S Janaki | #SongOfTheDay](https://www.youtube.com/watch?v=RTE1gu43YPU)
 - [#Elamalakaadinullil from #PathaamValavu | #Shorts](https://www.youtube.com/watch?v=9PlbULKgIJ8)
 - [KARUNYAM THOOKUNNA MATHAVE/കാരുണ്യം തൂകുന്ന മാതാവേ /OWN MEDIA MUSIC COLLECTION/](https://www.youtube.com/watch?v=c0f3uGtznV8)
-- [Oduvilee Sandhyayum Njanum | Kadha | Prithviraj | Kavya Madhavan | Ouseppachan | KS Chithra](https://www.youtube.com/watch?v=_KjI3vBwT-k)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
