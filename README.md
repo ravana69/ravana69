@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oduvilee Sandhyayum Njanum | Kadha | Prithviraj | Kavya Madhavan | Ouseppachan | KS Chithra](https://www.youtube.com/watch?v=_KjI3vBwT-k)
+- [പത്തരമാറ്റ് പവനേക്കാൾ സൗന്ദര്യവും മൂല്യവുമുള്ള സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | MALAYALAM CLASSIC SONGS](https://www.youtube.com/watch?v=NrPlK7J99pk)
+- [ജാനകിയമ്മ ആലപിച്ച കേൾക്കാൻ ഇമ്പമുള്ള അതുല്ല്യ ഗാനങ്ങൾ | S JANAKI HITS MALAYALAM](https://www.youtube.com/watch?v=YVfabMuyHLI)
+- [Chrisitan Superhit Songs | Abhijith Kollam | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=Ba2mbkonlkM)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 2nd of May 2024](https://www.youtube.com/watch?v=rmHyHhkvBXA)
 - [Maarippeelikatte | Puthiya Theerangal | Madhu Balakrishnan | Ilayaraja | Kaithapram](https://www.youtube.com/watch?v=IvQVG0xDHwE)
-- [ചിലപ്പോഴൊക്കെ തോറ്റുകൊടുക്കുന്നത് മഹത്തരമാണ് 😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=6dPR4heAIeU)
-- [Mangalaam Kaavile Video Song | Dharmayudham | P Jayachandran | P Madhuri](https://www.youtube.com/watch?v=ubiljZp0mNM)
-- [Praanan Pol - Audio Song | Bandra | Dileep, Tamannaah | Sam C.S | Kapil Kapilan | Arun Gopy](https://www.youtube.com/watch?v=ZuZUgc4Q8Gk)
-- [Muthuchippi Poloru | Thattathin Marayathu | Sachin Warrier | Ramya Nambeessan | Shaan Rahman](https://www.youtube.com/watch?v=pwV26gHuiuU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
