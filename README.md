@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vennila Kombile | Gireesh Puthenchery | Vidyasagar | MG Sreekumar | Sujatha Mohan](https://www.youtube.com/watch?v=vHn8WWVW7MM)
+- [Aazhakkadalinte | Chaanthupottu | Vidyasagar |Vayalar Sarathchandra Varma | S Janaki | #SongOfTheDay](https://www.youtube.com/watch?v=RTE1gu43YPU)
+- [#Elamalakaadinullil from #PathaamValavu | #Shorts](https://www.youtube.com/watch?v=9PlbULKgIJ8)
+- [KARUNYAM THOOKUNNA MATHAVE/കാരുണ്യം തൂകുന്ന മാതാവേ /OWN MEDIA MUSIC COLLECTION/](https://www.youtube.com/watch?v=c0f3uGtznV8)
 - [Oduvilee Sandhyayum Njanum | Kadha | Prithviraj | Kavya Madhavan | Ouseppachan | KS Chithra](https://www.youtube.com/watch?v=_KjI3vBwT-k)
 - [പത്തരമാറ്റ് പവനേക്കാൾ സൗന്ദര്യവും മൂല്യവുമുള്ള സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | MALAYALAM CLASSIC SONGS](https://www.youtube.com/watch?v=NrPlK7J99pk)
-- [ജാനകിയമ്മ ആലപിച്ച കേൾക്കാൻ ഇമ്പമുള്ള അതുല്ല്യ ഗാനങ്ങൾ | S JANAKI HITS MALAYALAM](https://www.youtube.com/watch?v=YVfabMuyHLI)
-- [Chrisitan Superhit Songs | Abhijith Kollam | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=Ba2mbkonlkM)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 2nd of May 2024](https://www.youtube.com/watch?v=rmHyHhkvBXA)
-- [Maarippeelikatte | Puthiya Theerangal | Madhu Balakrishnan | Ilayaraja | Kaithapram](https://www.youtube.com/watch?v=IvQVG0xDHwE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
