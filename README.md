@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [സങ്കടങ്ങൾ ഏറ്റെടുക്കുന്ന ഗാനങ്ങൾ | KESTER SONGS #KESTERHITS](https://www.youtube.com/watch?v=igXuo9wbOBg)
+- [Avante Vyakulamerum #frshajithumpechirayil #divinemercy #karunakontha #shorts](https://www.youtube.com/watch?v=QSr_Q4Cvo68)
 - [ഹൃദയത്തിലെന്നും ആരുമറിയാതെ കാത്തുസൂക്ഷിക്കുന്ന ഏതൊരു മലയാളികളുടെയും ഇഷ്ടഗാനങ്ങൾ | MALAYALAM SONGS](https://www.youtube.com/watch?v=7HvArnazwn4)
 - [Elelam Adi Elelam | Maram | Yusufali Kecheri | G Devarajan | KJ Yesudas | P Madhuri | Jayabharathi](https://www.youtube.com/watch?v=oZc6LDx8ryk)
 - [Anandhanandhane | Udayapuram Sulthan | Kaithapram | KJ Yesudas | KS Chithra | Dileep Hits](https://www.youtube.com/watch?v=DZtEAVtxc6c)
 - [Lines of orupennithaa💃|  #Kushi | #VijayDeverakonda,#Samantha| #ytshorts #shorts](https://www.youtube.com/watch?v=kQlNrT9B2iE)
-- [PRIYAMARIYAMBE KRIPAYUDE | #shorts | MG Sreekumar | Marian Song | Fr Shaji Thumpechirayil | Carmel](https://www.youtube.com/watch?v=Jh7xa6eIlWE)
-- [Podimeesa Mulakkana Kalam | Pa Va | Shorts  #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=YSlDf_m5v9A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
