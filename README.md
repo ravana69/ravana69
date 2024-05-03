@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Rathrimazha | Ghazals & Quawali Film Songs #ghazal #quawali #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=JA636GvG0uU)
 - [ഇന്ന് മെയ് 3 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  dhukkathinte](https://www.youtube.com/watch?v=_xi7AqRQqNI)
 - [Christian Superhit Songs | Kester | Christian Melody Songs | Madhu Balakrishnan | Joji Johns](https://www.youtube.com/watch?v=PXAS5mXDSWw)
 - [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 3rd May 2024 # Vanakkamasam Prayer 2024 May 3 # Japamala](https://www.youtube.com/watch?v=-SprZPkh9vE)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=hSqm8xRUR24)
 - [പ്രഭാത പ്രാര്‍ത്ഥന May 3 # Athiravile Prarthana 3rd of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=rv9FWjAPI84)
-- [ശ്രീലതികകൾ തളിരണിഞ്ഞുലയവേ..| കെ ജെ യേശുദാസ് | K S Chitra|മലയാളചലച്ചിത്രഗാനങ്ങൾ | Remastered melodies](https://www.youtube.com/watch?v=zJ3YHVqSQuQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
