@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Christian Superhit Songs | Kester | Christian Melody Songs | Madhu Balakrishnan | Joji Johns](https://www.youtube.com/watch?v=PXAS5mXDSWw)
+- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 3rd May 2024 # Vanakkamasam Prayer 2024 May 3 # Japamala](https://www.youtube.com/watch?v=-SprZPkh9vE)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=hSqm8xRUR24)
 - [പ്രഭാത പ്രാര്‍ത്ഥന May 3 # Athiravile Prarthana 3rd of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=rv9FWjAPI84)
 - [ശ്രീലതികകൾ തളിരണിഞ്ഞുലയവേ..| കെ ജെ യേശുദാസ് | K S Chitra|മലയാളചലച്ചിത്രഗാനങ്ങൾ | Remastered melodies](https://www.youtube.com/watch?v=zJ3YHVqSQuQ)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 3rd of May 2024](https://www.youtube.com/watch?v=vzjJfb_ZCEc)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=0Jes_mtm6rw)
-- [സ്നേഹം മാത്രമെൻ മനസിൽ](https://www.youtube.com/watch?v=kB3uhpcyjIo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
