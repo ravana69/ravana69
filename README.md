@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [K For...?? Promo Video | Guruvayoor Ambalanadayil | Aju Varghese | Prithviraj|Basil Joseph|Vipin Das](https://www.youtube.com/watch?v=lZQVaW-U5bE)
+- [Thinkalppoo Virinjuvo | Manthrikumaran | Mukesh | Biju Narayanan | Short Video](https://www.youtube.com/watch?v=9MsA2sVn7RM)
 - [Ozhuki Njan Varikayaay | Jawan of Vellimala | KS Chithra | Bijibal | Santhosh Varma](https://www.youtube.com/watch?v=RqTpHm8dpy4)
 - [ആരെയും വെറുക്കരുത് വെറുപ്പിക്കുകയുമരുത്  😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=lUwJPdiLwqw)
 - [Parayathe Peythennullil | BEHINDD | Najim Arshad | Sonia Agarwal | Jinu E Thomas | Arif Ansar |Raphy](https://www.youtube.com/watch?v=SuDQp8n35Ms)
 - [Baashpakudeerame Song | Anarkali | P Susheela #shorts](https://www.youtube.com/watch?v=ulmYBc0cmUo)
-- [Aru Paranju Myavo | Lyrical Video | Kathu | Childrens Nursery Song | Malayalam Cartoon | Animation](https://www.youtube.com/watch?v=xT8fTZjv8uE)
-- [Muthodu Muthum | 101 Weddings | Aalap Raju | Deepak Dev | Rafeeq Ahammed](https://www.youtube.com/watch?v=-y-Azw_VVzY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
