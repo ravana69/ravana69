@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Poove Oru Mazhamutham | S Ramesan Nair | Ouseppachan | Sujatha Mohan | Biju Narayanan](https://www.youtube.com/watch?v=pjltBg9vhiQ)
+- [Parakkumthalika |  Ee Parakkumthalika |Ouseppachan | MG Sreekumar #songoftheday](https://www.youtube.com/watch?v=uRwTR0_qj2k)
 - [Songs Of The Week | Bijoy | Christian Melody Songs | Shymol | Christian Songs | Joji Johns](https://www.youtube.com/watch?v=nN2vzDlhHso)
 - [#Thalatherichavar from #Romancham | #shorts #YTshorts](https://www.youtube.com/watch?v=S0seUE0LySQ)
 - [K For...?? Promo Video | Guruvayoor Ambalanadayil | Aju Varghese | Prithviraj|Basil Joseph|Vipin Das](https://www.youtube.com/watch?v=lZQVaW-U5bE)
 - [Thinkalppoo Virinjuvo | Manthrikumaran | Mukesh | Biju Narayanan | Short Video](https://www.youtube.com/watch?v=9MsA2sVn7RM)
-- [Ozhuki Njan Varikayaay | Jawan of Vellimala | KS Chithra | Bijibal | Santhosh Varma](https://www.youtube.com/watch?v=RqTpHm8dpy4)
-- [ആരെയും വെറുക്കരുത് വെറുപ്പിക്കുകയുമരുത്  😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=lUwJPdiLwqw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
