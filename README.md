@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=Dl4lo5ixKs0)
 - [രാവിലെ പ്രാര്‍ത്ഥന May 4 # Athiravile Prarthana 4th of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=dRBPRqfDnwQ)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 4th of May 2024](https://www.youtube.com/watch?v=wbvCR23da-k)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=go-UJm2rg9c)
 - [കാരുണ്യം തൂകുന്ന മാതാവേ...](https://www.youtube.com/watch?v=OymxptoPizA)
 - [Poove Oru Mazhamutham | S Ramesan Nair | Ouseppachan | Sujatha Mohan | Biju Narayanan](https://www.youtube.com/watch?v=pjltBg9vhiQ)
-- [Parakkumthalika |  Ee Parakkumthalika |Ouseppachan | MG Sreekumar #songoftheday](https://www.youtube.com/watch?v=uRwTR0_qj2k)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
