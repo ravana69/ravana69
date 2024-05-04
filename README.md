@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കന്യകാ മേരിയമ്മേ...](https://www.youtube.com/watch?v=t_2H-LwR8kw)
 - [Manjuneeril | Thirakkatha | Sharreth | Rafeeq Ahammed | Anoop Menon | Priyamani | Prithviraj](https://www.youtube.com/watch?v=1hfr8DAioPE)
 - [Oru Kunjupoovinte |  Chandranudikkunna Dikkil | Vidyasagar | KJ Yesudas |S Ramesan Nair#songoftheday](https://www.youtube.com/watch?v=QbJ7SIWv5CM)
 - [Vattolakkuda Choodiyethiya  | Mammootty | Lal | KJ Yesudas | KS Chithra | Kaithapram](https://www.youtube.com/watch?v=Qu2e7JnRLPY)
 - [HUTHOMO | ഹൂത്തോമോ | Fr. JUSTIN KURIAKOS #holyqurbana #royputhur](https://www.youtube.com/watch?v=zlSa_xST6AU)
 - [#KhalbileHoori 💕 #ShefeekkinteSanthosham |  #Shorts](https://www.youtube.com/watch?v=jyJTbZ-Mvis)
-- [Christian Superhit Songs | Abhijith Kollam | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=pRI_zxCBpNo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
