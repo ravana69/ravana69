@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manjuneeril | Thirakkatha | Sharreth | Rafeeq Ahammed | Anoop Menon | Priyamani | Prithviraj](https://www.youtube.com/watch?v=1hfr8DAioPE)
+- [Oru Kunjupoovinte |  Chandranudikkunna Dikkil | Vidyasagar | KJ Yesudas |S Ramesan Nair#songoftheday](https://www.youtube.com/watch?v=QbJ7SIWv5CM)
+- [Vattolakkuda Choodiyethiya  | Mammootty | Lal | KJ Yesudas | KS Chithra | Kaithapram](https://www.youtube.com/watch?v=Qu2e7JnRLPY)
 - [HUTHOMO | ഹൂത്തോമോ | Fr. JUSTIN KURIAKOS #holyqurbana #royputhur](https://www.youtube.com/watch?v=zlSa_xST6AU)
 - [#KhalbileHoori 💕 #ShefeekkinteSanthosham |  #Shorts](https://www.youtube.com/watch?v=jyJTbZ-Mvis)
 - [Christian Superhit Songs | Abhijith Kollam | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=pRI_zxCBpNo)
-- [നമുക്കും മറ്റുള്ളവരുടെ നൊമ്പരങ്ങളെ ഏറ്റെടുക്കാം 😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=xnXUnCxmte8)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 4th of May 2024](https://www.youtube.com/watch?v=7DTo7XyvjO8)
-- [Kaaverippoompattanathil Video Song | P Susheela | M Balamuralikrishna | Kodungallooramma](https://www.youtube.com/watch?v=Zhoqz8fX24o)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
