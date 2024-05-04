@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നമുക്കും മറ്റുള്ളവരുടെ നൊമ്പരങ്ങളെ ഏറ്റെടുക്കാം 😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=xnXUnCxmte8)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 4th of May 2024](https://www.youtube.com/watch?v=7DTo7XyvjO8)
+- [Kaaverippoompattanathil Video Song | P Susheela | M Balamuralikrishna | Kodungallooramma](https://www.youtube.com/watch?v=Zhoqz8fX24o)
 - [Veeran Pirakkanu - Audio Song | Neymar | Mathew, Naslen | Shaan Rahman| Sudhi Maddison](https://www.youtube.com/watch?v=wG80H-DgiXk)
 - [Eesho Mishihayude Vyakulamerum #frshajithumpechirayil #shorts #divinemercy #kesterhits](https://www.youtube.com/watch?v=aHVwq6sDIyM)
 - [Sreejayadeve kruthahariseve | HD Video |  Thaniyaavarthanam | Kaithapram | Kaithapram | MG Sreekumar](https://www.youtube.com/watch?v=lW_wzsSLytg)
-- [മോഹൻ സിത്താരയുടെ കേൾക്കാൻ കൊതിച്ച മലയാളസിനിമ ഗാനങ്ങൾ | MOHANSITHARA HITS | NISARI MUSIC](https://www.youtube.com/watch?v=_SyArBLwtcA)
-- [മലയാളികളുടെ മനസിൽ തങ്ങിയ ഒരുപിടി നല്ല ഗാനങ്ങൾ | BEST MELODY SONGS MALAYALAM | MOVIEWORLD MUSIC](https://www.youtube.com/watch?v=yYzSzz7gjZ8)
-- [അന്നും ഇന്നും എന്നും പ്രേമിക്കുന്നവരുടെ പ്രിയപ്പെട്ട ഗാനങ്ങൾ... Madanolsavam Movie Full Songs](https://www.youtube.com/watch?v=NNFZmwc_zpc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
