@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Veeran Pirakkanu - Audio Song | Neymar | Mathew, Naslen | Shaan Rahman| Sudhi Maddison](https://www.youtube.com/watch?v=wG80H-DgiXk)
 - [Eesho Mishihayude Vyakulamerum #frshajithumpechirayil #shorts #divinemercy #kesterhits](https://www.youtube.com/watch?v=aHVwq6sDIyM)
 - [Sreejayadeve kruthahariseve | HD Video |  Thaniyaavarthanam | Kaithapram | Kaithapram | MG Sreekumar](https://www.youtube.com/watch?v=lW_wzsSLytg)
 - [മോഹൻ സിത്താരയുടെ കേൾക്കാൻ കൊതിച്ച മലയാളസിനിമ ഗാനങ്ങൾ | MOHANSITHARA HITS | NISARI MUSIC](https://www.youtube.com/watch?v=_SyArBLwtcA)
 - [മലയാളികളുടെ മനസിൽ തങ്ങിയ ഒരുപിടി നല്ല ഗാനങ്ങൾ | BEST MELODY SONGS MALAYALAM | MOVIEWORLD MUSIC](https://www.youtube.com/watch?v=yYzSzz7gjZ8)
 - [അന്നും ഇന്നും എന്നും പ്രേമിക്കുന്നവരുടെ പ്രിയപ്പെട്ട ഗാനങ്ങൾ... Madanolsavam Movie Full Songs](https://www.youtube.com/watch?v=NNFZmwc_zpc)
-- [Aaranne Aaranne | URUMI | Prithiviraj |Santhosh Sivan | Deepak Dev | Prabhu Deva | Vidya Balan](https://www.youtube.com/watch?v=wRdwbMwDdPo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
