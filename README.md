@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മോഹൻ സിത്താരയുടെ കേൾക്കാൻ കൊതിച്ച മലയാളസിനിമ ഗാനങ്ങൾ | MOHANSITHARA HITS | NISARI MUSIC](https://www.youtube.com/watch?v=_SyArBLwtcA)
+- [മലയാളികളുടെ മനസിൽ തങ്ങിയ ഒരുപിടി നല്ല ഗാനങ്ങൾ | BEST MELODY SONGS MALAYALAM | MOVIEWORLD MUSIC](https://www.youtube.com/watch?v=yYzSzz7gjZ8)
+- [അന്നും ഇന്നും എന്നും പ്രേമിക്കുന്നവരുടെ പ്രിയപ്പെട്ട ഗാനങ്ങൾ... Madanolsavam Movie Full Songs](https://www.youtube.com/watch?v=NNFZmwc_zpc)
 - [Aaranne Aaranne | URUMI | Prithiviraj |Santhosh Sivan | Deepak Dev | Prabhu Deva | Vidya Balan](https://www.youtube.com/watch?v=wRdwbMwDdPo)
 - [Prem Nazir, Old Malayalam Movie Songs | Postmane Kananilla Remastered Malayalam Songs | K.J. Yesudas](https://www.youtube.com/watch?v=vkBhQLHFKco)
 - [Cute Couples 💕 #Elamalakkadinullil ✨ | #Shorts](https://www.youtube.com/watch?v=iHPrdTUmEsQ)
-- [Kadanja Chandanamo Video Song | Kunjikoonan | Dileep | Navya Nair | KJ Yesudas | Mohan Sithara](https://www.youtube.com/watch?v=HKD1mYje-HU)
-- [Nira Thinkaley | My Big Father | Malayalam Lullaby Film Songs #kjyesudas #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=juQk9oGGtw0)
-- [Krooshilninnum | Maria Kolady | Raju Varghese   #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=nPdrlokGxmk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
