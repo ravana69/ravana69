@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [#KhalbileHoori from #ShefeekkinteSanthosham is out now! | #Shorts](https://www.youtube.com/watch?v=tkvWCjyvxDk)
+- [Christian Melody Songs | Sherin Rajan | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=81QD7TrKdlo)
 - [മറ്റുള്ളവരെ സ്നേഹപൂർവ്വം കേൾക്കാം നമുക്ക്.  😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=cecM7-Bq4GM)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 5th of May 2024](https://www.youtube.com/watch?v=MgdnKL8igKE)
 - [Chakravarthikumaaraa Song | Anarkali |  LR Eeswari | MS Baburaj #shorts](https://www.youtube.com/watch?v=3VGOz1QUAjU)
 - [Yamune Ninnude Nenjil | Yaathra | Super Hit Malayalam Movie Song | Shobana | Mammootty - Janaki Hits](https://www.youtube.com/watch?v=PB6sr5f1ajY)
-- [HIT Collections of Roy Puthur & Mithila Michael | CHRSTIAN DEVOTIONAL #christiandevotionalsongs](https://www.youtube.com/watch?v=tEOenit339g)
-- [കണ്ണിണകൾ കടുക് വറുക്കണ സുഖമാണല്ലോ  #dileep #kavyamadhavan #chirimanimulle | lionmalayalammoviesongs](https://www.youtube.com/watch?v=f_gT7yTrQx0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
