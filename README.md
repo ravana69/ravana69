@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മറ്റുള്ളവരെ സ്നേഹപൂർവ്വം കേൾക്കാം നമുക്ക്.  😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=cecM7-Bq4GM)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 5th of May 2024](https://www.youtube.com/watch?v=MgdnKL8igKE)
+- [Chakravarthikumaaraa Song | Anarkali |  LR Eeswari | MS Baburaj #shorts](https://www.youtube.com/watch?v=3VGOz1QUAjU)
+- [Yamune Ninnude Nenjil | Yaathra | Super Hit Malayalam Movie Song | Shobana | Mammootty - Janaki Hits](https://www.youtube.com/watch?v=PB6sr5f1ajY)
+- [HIT Collections of Roy Puthur & Mithila Michael | CHRSTIAN DEVOTIONAL #christiandevotionalsongs](https://www.youtube.com/watch?v=tEOenit339g)
 - [കണ്ണിണകൾ കടുക് വറുക്കണ സുഖമാണല്ലോ  #dileep #kavyamadhavan #chirimanimulle | lionmalayalammoviesongs](https://www.youtube.com/watch?v=f_gT7yTrQx0)
-- [Manamadante Kodiyadayalam| Vanadevatha (1976) | Yusufali Kecheri | G Devarajan | KJ Yesudas](https://www.youtube.com/watch?v=0kBbd0pH-r8)
-- [Paadiyum Paranjum | ഒളിച്ചിരുന്ന് ദാസേട്ടൻ്റെ ഗാനമേള കണ്ടു |പാടിയും പറഞ്ഞും | Ouseppachan |Interview](https://www.youtube.com/watch?v=Qf_9MAo59HQ)
-- [Ariyathe Ariyathe Video Song | Ravanaprabhu | Mohanlal | Vasundhara Das | KS Chithra| P Jayachandran](https://www.youtube.com/watch?v=dikC8UmxxnE)
-- [Mood swings on Teen with #AshubhaMangalakaari | #Shorts](https://www.youtube.com/watch?v=yfX0-F_cmFk)
-- [Sweet Chakkara Umma - Official Trailer | RMR Zayir Pathan, Jinu Vadakkemuriyil, Shimjith Shivan](https://www.youtube.com/watch?v=jJiy__J7s90)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
