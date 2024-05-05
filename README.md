@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=DIWPDBKWjCo)
+- [Aniyathipraavinu | Aniyathipraavu | Ouseppachan | K S Chithra | S Ramesan Nair #SongOfTheDay](https://www.youtube.com/watch?v=VSugn_3y-ZE)
+- [Oru Raajamalli  | Kunchacko Boban | Shalini | MG Sreekumar | Ouseppachan | S Ramesan Nair](https://www.youtube.com/watch?v=L3e7tqF4LdY)
 - [#KhalbileHoori from #ShefeekkinteSanthosham is out now! | #Shorts](https://www.youtube.com/watch?v=tkvWCjyvxDk)
 - [Christian Melody Songs | Sherin Rajan | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=81QD7TrKdlo)
 - [മറ്റുള്ളവരെ സ്നേഹപൂർവ്വം കേൾക്കാം നമുക്ക്.  😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=cecM7-Bq4GM)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 5th of May 2024](https://www.youtube.com/watch?v=MgdnKL8igKE)
-- [Chakravarthikumaaraa Song | Anarkali |  LR Eeswari | MS Baburaj #shorts](https://www.youtube.com/watch?v=3VGOz1QUAjU)
-- [Yamune Ninnude Nenjil | Yaathra | Super Hit Malayalam Movie Song | Shobana | Mammootty - Janaki Hits](https://www.youtube.com/watch?v=PB6sr5f1ajY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
