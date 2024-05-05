@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=A6n3ag_ropA)
 - [പ്രഭാത പ്രാര്‍ത്ഥന May 5 # Athiravile Prarthana 5th of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=rjOKky2apuk)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 5th of May 2024](https://www.youtube.com/watch?v=wei-kNyLKRI)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=IAx4lHgMxik)
 - [കന്യകാ മേരിയമ്മേ...](https://www.youtube.com/watch?v=t_2H-LwR8kw)
 - [Manjuneeril | Thirakkatha | Sharreth | Rafeeq Ahammed | Anoop Menon | Priyamani | Prithviraj](https://www.youtube.com/watch?v=1hfr8DAioPE)
-- [Oru Kunjupoovinte |  Chandranudikkunna Dikkil | Vidyasagar | KJ Yesudas |S Ramesan Nair#songoftheday](https://www.youtube.com/watch?v=QbJ7SIWv5CM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
