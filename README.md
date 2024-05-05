@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ariyathe Ariyathe Video Song | Ravanaprabhu | Mohanlal | Vasundhara Das | KS Chithra| P Jayachandran](https://www.youtube.com/watch?v=dikC8UmxxnE)
+- [Mood swings on Teen with #AshubhaMangalakaari | #Shorts](https://www.youtube.com/watch?v=yfX0-F_cmFk)
+- [Sweet Chakkara Umma - Official Trailer | RMR Zayir Pathan, Jinu Vadakkemuriyil, Shimjith Shivan](https://www.youtube.com/watch?v=jJiy__J7s90)
 - [Prem Nazir Old  Superhit Movie Song | Maram Remastered Malayalam movie Song](https://www.youtube.com/watch?v=NHfyL85LXM0)
 - [Sona Sona | Mollywood DJ Party Hits #kalabhavanmani #deepakdev #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=8iHGgQZps6c)
 - [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 5th May 2024 # Vanakkamasam Prayer 2024 May 5 # Japamala](https://www.youtube.com/watch?v=z7HjCa2ZXsY)
-- [ഇന്ന് മെയ് 6 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala santhoshathi](https://www.youtube.com/watch?v=yOGYM3YgYGw)
-- [വാടിത്തകർന്ന ഹൃദയങ്ങൾക്ക് പ്രാത്ഥനയായി നിന്ന ഗാനങ്ങൾ | Christian Devotional Songs malayalam](https://www.youtube.com/watch?v=8ElVXM25-K8)
-- [ഇന്ന് മെയ് 5 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala mahimayude](https://www.youtube.com/watch?v=0Xg9gXNG6gY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
