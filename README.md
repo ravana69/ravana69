@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [സിന്ദൂരപ്പൂ മനസ്സിൽ | Sindhoora Poomanasil | Gamanam Malayalam Movie Song | K.JYesudas, K. S Chithra](https://www.youtube.com/watch?v=NfnqoBkk9J0)
+- [എന്നും എപ്പോഴും മൂളി നടക്കുന്ന അത്രമേൽ പ്രിയമുള്ള സിനിമാഗാനങ്ങൾ  | EVERGREEN SONGS MALAYALAM](https://www.youtube.com/watch?v=Xrk7TfIK5kc)
+- [Omalale Kandu Njan | Sindooracheppu | Yusufali Kecheri | G Devarajan | KJ Yesudas | Madhu](https://www.youtube.com/watch?v=PyQpNKamjpc)
 - [Chembazhukka | Kunjaliyan |Video| K J Yesudas | Sujatha | M G Sreekumar | Jayasurya | Vayalar Sarath](https://www.youtube.com/watch?v=hbHOabMZzrI)
 - [Prabhtha Geethangal | Biju Narayaan | Morning Prayer Songs | Christian Melody Songs | Joji Johns](https://www.youtube.com/watch?v=PzcATitaXZY)
 - [Kuttanadan Kayalile | Kazhcha | Mammootty | Manoj K Jayan | Kalabhavan Mani | Madhu Balakrishnan](https://www.youtube.com/watch?v=ht7z-r7z4f0)
-- [Kunchacko Boban, Old Malayalam Movie Hit  Songs | Sathyam Sivam Sundaram Remastered Malayalam Songs](https://www.youtube.com/watch?v=RvHTHKzmgWo)
-- [Kannoram | Award Winning Film Songs #shreyaghoshal #mjayachandran #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=NzMPL3qYGY8)
-- [SAHADHA | സഹദാ | ST GEORGE SONG | ROY PUTHUR | REBA ROMY #stgeorge #worshipsongs](https://www.youtube.com/watch?v=S9fTumUOClM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
