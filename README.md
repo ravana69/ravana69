@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നിൻ തിരുസുതനെ കാണാതിരുന്നപ്പോൾ തേടിയരികിൽ നീ കണ്ടെത്തിയപോൽ](https://www.youtube.com/watch?v=XxoImPrNpBA)
+- [Christian Melody Songs | KG Markose | Songs Of Holy Spirit | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=t7sdC0cDM5c)
 - [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=xO5MKR4MlJI)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 6th of May 2024](https://www.youtube.com/watch?v=i5NSnaXQ7dI)
 - [ഇല്ലായ്മകളെയോർത്ത് സങ്കടപ്പെടേണ്ട...😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=I0w9f5gxBdk)
 - [Aakasham Minniyunarnnuvo | I Love Me | Karthik | Shweta Mohan | Deepak Dev | Rafeeq Ahammed](https://www.youtube.com/watch?v=K1Wg1V6kokk)
-- [Gu - Official Trailer | Manu Radhakrishnan |Deva Nandha | Saiju Kurup | Niranj](https://www.youtube.com/watch?v=DASZC2cpCGI)
-- [Kinavin Sangamam | Ghazal Video | Shahabaz Aman | Gayathri Ashokan | Poovachal Khader](https://www.youtube.com/watch?v=H790oZcWUqk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
