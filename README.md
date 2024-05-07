@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [HOLY QURBANA | Fr. JASTIN P KURIAKOSE | CHOIR : ROY PUTHUR & TEAM #holyqurbana #orthodox](https://www.youtube.com/watch?v=I9C7fjlAT38)
+- [Kakkattile Koo Kootile |  Ee Parakkumthalika |Ouseppachan | KJ Yesudas  #songoftheday](https://www.youtube.com/watch?v=HUSY7T7-99E)
+- [Onnam vattam kandappol | Gireesh Puthenchery | Berny Ignatius | MG Sreekumar | Chandralekha](https://www.youtube.com/watch?v=BmOaeLYsCEw)
+- [കൈകൂപ്പി നിൽക്കുന്നു നിൻ മുന്നിലമ്മേ...](https://www.youtube.com/watch?v=Eich6B_KUF8)
 - [Singer Of The Week | Kuttiyachan | Christian Devotional Songs Malayalam | Praise and Worship Songs](https://www.youtube.com/watch?v=5ZDMrOQwGtM)
 - [Omale Aaromale | Chirakodinja Kinavukal | Siddharth Mahadevan | Manjari | Deepak Dev](https://www.youtube.com/watch?v=cbJts55ailQ)
-- [Pineapple Poloru Pennu | Midumidukki | Baburaj | Sreekumaran Thambi |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=c78-awBtmAI)
-- [Vibe on the go 💃|  #RakkaRakka #Bandra #ytshorts #shorts](https://www.youtube.com/watch?v=DqD8V8Eezjw)
-- [Kanamarayathu Video Song | Pradakshinam | Malayalam Movie Songs | K.S. Chitra](https://www.youtube.com/watch?v=DgM8X1tmtdg)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 7th of May 2024](https://www.youtube.com/watch?v=G1EBKj226Kk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
