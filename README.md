@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Etho Nidrathan | ഏതോ നിദ്രതൻ | Ayal Kadha Ezhuthukayanu Film Song | K.J.Yesudas | Mohanlal | Nandini](https://www.youtube.com/watch?v=ss9GRlFw9Nw)
 - [Thinkalppoo Virinjuvo | Manthrikumaran | Mukesh | Biju Narayanan | Mohan Sithara](https://www.youtube.com/watch?v=WgF-dFDUlX8)
+- [Poonkuyil Koovum (Keerthanam) - Video Song | Pavi Caretaker | Dilieep | Midhun Mukundan](https://www.youtube.com/watch?v=gZ1yOo0PQW0)
 - [കേരളമാകെ ആഘോഷിച്ച സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ  | EVERGREEN SONGS MALAYALAM | KJ YESUDAS](https://www.youtube.com/watch?v=axhC9mD2Yoc)
 - [Daivam Thannathallathonnum...... #christianvideosongs #jojijohns #nehathomas #rajeshathikayam](https://www.youtube.com/watch?v=ckm06oo0cQ4)
-- [Wedding Film Songs Malayalam  | Jukebox | കല്യാണ ആഘോഷ സിനിമാ ഗാനങ്ങൾ #weddingsong #filmsongs](https://www.youtube.com/watch?v=nlKwxXkTe_U)
-- [Shalomile Soundaryamayi | Kester | Fr Shaji Thumpechirayil | Sunil V Joy | Mannapedakam -Marian Song](https://www.youtube.com/watch?v=yti6XRH3mQo)
-- [മഞ്ഞണിഞ്ഞ മലരിയിൽ നിനവുകൾ മഞ്ഞളാടി വന്ന നാൾ #jayaram #shorts #shotsfeed](https://www.youtube.com/watch?v=pZVY9_6a0qU)
+- [Aluvappuzhayude | Album Video | P Jayachandran | Girish Chethiattu | Sakthi Paravur | Siniyadas](https://www.youtube.com/watch?v=7cUN4dxkEV4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
