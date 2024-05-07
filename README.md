@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Singer Of The Week | Kuttiyachan | Christian Devotional Songs Malayalam | Praise and Worship Songs](https://www.youtube.com/watch?v=5ZDMrOQwGtM)
 - [Omale Aaromale | Chirakodinja Kinavukal | Siddharth Mahadevan | Manjari | Deepak Dev](https://www.youtube.com/watch?v=cbJts55ailQ)
 - [Pineapple Poloru Pennu | Midumidukki | Baburaj | Sreekumaran Thambi |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=c78-awBtmAI)
 - [Vibe on the go 💃|  #RakkaRakka #Bandra #ytshorts #shorts](https://www.youtube.com/watch?v=DqD8V8Eezjw)
 - [Kanamarayathu Video Song | Pradakshinam | Malayalam Movie Songs | K.S. Chitra](https://www.youtube.com/watch?v=DgM8X1tmtdg)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 7th of May 2024](https://www.youtube.com/watch?v=G1EBKj226Kk)
-- [ഉള്ളിൽ കരഞ്ഞിട്ടാണെങ്കിലും പുറമേ പുഞ്ചിരിക്കണം ..😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=Ahd0ak5me4A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
