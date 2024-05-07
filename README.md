@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Shalomile Soundaryamayi | Kester | Fr Shaji Thumpechirayil | Sunil V Joy | Mannapedakam -Marian Song](https://www.youtube.com/watch?v=yti6XRH3mQo)
+- [മഞ്ഞണിഞ്ഞ മലരിയിൽ നിനവുകൾ മഞ്ഞളാടി വന്ന നാൾ #jayaram #shorts #shotsfeed](https://www.youtube.com/watch?v=pZVY9_6a0qU)
+- [Pottu Kuthedi Video Song | Ravanaprabhu | Vasundhara Das | Gireesh Puthenchery | Suresh Peters](https://www.youtube.com/watch?v=xD6T1gR7Wl4)
+- [Malaikottai vaaliban #Raakk #MalaikottaiVaaliban #Mohanlal #shorts #ytshorts](https://www.youtube.com/watch?v=NaWewgnt7Sc)
+- [Aswathi Menon Old Malayalam Movie Hit Song | Sathyam Sivam Sundaram Remastered Malayalam Song](https://www.youtube.com/watch?v=YMMuY8CnyCo)
 - [Mamarangale |Ee Pattanathil Bhootham | Gireesh Puthencherry  #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=gRxmQRw54Bc)
-- [Taarapadham Thedumbolum | Christian Devotional | Shorts  #christiansongsmalayalamdevotional](https://www.youtube.com/watch?v=30rbd6CbVeo)
-- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 7th May 2024 # Vanakkamasam Prayer 2024 May 7 # Japamala](https://www.youtube.com/watch?v=XlHu6uC4UGY)
-- [Athiravile Thirusannidhiyil | Elizabeth Raju | Prayer and Worship Songs | Christian Melody Songs](https://www.youtube.com/watch?v=TbAahWKLLTo)
-- [ഇന്ന് മെയ് 7 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala dhukkathinte](https://www.youtube.com/watch?v=ULj4oOjRITc)
-- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=mMvOJRNU4b0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
