@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thinkalppoo Virinjuvo | Manthrikumaran | Mukesh | Biju Narayanan | Mohan Sithara](https://www.youtube.com/watch?v=WgF-dFDUlX8)
 - [കേരളമാകെ ആഘോഷിച്ച സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ  | EVERGREEN SONGS MALAYALAM | KJ YESUDAS](https://www.youtube.com/watch?v=axhC9mD2Yoc)
 - [Daivam Thannathallathonnum...... #christianvideosongs #jojijohns #nehathomas #rajeshathikayam](https://www.youtube.com/watch?v=ckm06oo0cQ4)
 - [Wedding Film Songs Malayalam  | Jukebox | കല്യാണ ആഘോഷ സിനിമാ ഗാനങ്ങൾ #weddingsong #filmsongs](https://www.youtube.com/watch?v=nlKwxXkTe_U)
 - [Shalomile Soundaryamayi | Kester | Fr Shaji Thumpechirayil | Sunil V Joy | Mannapedakam -Marian Song](https://www.youtube.com/watch?v=yti6XRH3mQo)
 - [മഞ്ഞണിഞ്ഞ മലരിയിൽ നിനവുകൾ മഞ്ഞളാടി വന്ന നാൾ #jayaram #shorts #shotsfeed](https://www.youtube.com/watch?v=pZVY9_6a0qU)
-- [Pottu Kuthedi Video Song | Ravanaprabhu | Vasundhara Das | Gireesh Puthenchery | Suresh Peters](https://www.youtube.com/watch?v=xD6T1gR7Wl4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
