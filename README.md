@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ദേവീ ആത്മരാഗമേകാൻ കന്യാവനിയിൽ| കെ ജെ യേശുദാസ് | K S Chitra|മലയാളചലച്ചിത്രഗാനങ്ങൾ|Remastered melodies](https://www.youtube.com/watch?v=xe75tGVoZWY)
 - [HOLY QURBANA | Fr. JASTIN P KURIAKOSE | CHOIR : ROY PUTHUR & TEAM #holyqurbana #orthodox](https://www.youtube.com/watch?v=I9C7fjlAT38)
 - [Kakkattile Koo Kootile |  Ee Parakkumthalika |Ouseppachan | KJ Yesudas  #songoftheday](https://www.youtube.com/watch?v=HUSY7T7-99E)
 - [Onnam vattam kandappol | Gireesh Puthenchery | Berny Ignatius | MG Sreekumar | Chandralekha](https://www.youtube.com/watch?v=BmOaeLYsCEw)
 - [കൈകൂപ്പി നിൽക്കുന്നു നിൻ മുന്നിലമ്മേ...](https://www.youtube.com/watch?v=Eich6B_KUF8)
 - [Singer Of The Week | Kuttiyachan | Christian Devotional Songs Malayalam | Praise and Worship Songs](https://www.youtube.com/watch?v=5ZDMrOQwGtM)
-- [Omale Aaromale | Chirakodinja Kinavukal | Siddharth Mahadevan | Manjari | Deepak Dev](https://www.youtube.com/watch?v=cbJts55ailQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
