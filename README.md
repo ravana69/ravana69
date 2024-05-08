@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [സൂര്യതേജസോടെ വാഴുന്ന...](https://www.youtube.com/watch?v=ouUQ23o_Js4)
+- [Doore Mamarakombil | Varnapakittu | Vidyasagar | M G Sreekumar | KS Chithra #SongOfTheDay](https://www.youtube.com/watch?v=j0bscp9jm-4)
+- [Pookkalam Vannu Pookkaalam | Video Song | Bichu Thirumala | S Balakrishnan | KS Chithra | Unni Menon](https://www.youtube.com/watch?v=GZAwNzUn1M0)
+- [nalacharithathile](https://www.youtube.com/watch?v=_J-GtJq107w)
 - [Dharma Shasthave | Ayyappanum Vaavarum | Remastered Video Songs | Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=YGbn-yju-D8)
 - [ARADHANA PRABHU | BEAUTIFUL NEW HINDI SONG | @JinoKunnumpurathu  @HindiChristianson100   #shorts](https://www.youtube.com/watch?v=hkUBP86F4b8)
-- [Nanniyode #chithraarun #jojijohnschristiansongs #christiandevotionalsongs #christiandevotionalsongs](https://www.youtube.com/watch?v=mSb1BBC-koQ)
-- [#Elamalakaadinullil from #PathaamValavu | #Shorts](https://www.youtube.com/watch?v=cQyaYCm5Rc0)
-- [Ethrayo Dinagal .... #christiansuperhitsongs #jojijohnschristiansongs #chithraarun #shijosebastian](https://www.youtube.com/watch?v=pbZiiC1jLDQ)
-- [ജീവിതത്തിന്റെ അതികഠിനമായ വേദനകളിൽ തളർന്നുപോകരുത്..😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=fTSBGNTocvg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
