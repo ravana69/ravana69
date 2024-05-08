@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ARADHANA PRABHU | BEAUTIFUL NEW HINDI SONG | @JinoKunnumpurathu  @HindiChristianson100   #shorts](https://www.youtube.com/watch?v=hkUBP86F4b8)
+- [Nanniyode #chithraarun #jojijohnschristiansongs #christiandevotionalsongs #christiandevotionalsongs](https://www.youtube.com/watch?v=mSb1BBC-koQ)
+- [#Elamalakaadinullil from #PathaamValavu | #Shorts](https://www.youtube.com/watch?v=cQyaYCm5Rc0)
 - [Ethrayo Dinagal .... #christiansuperhitsongs #jojijohnschristiansongs #chithraarun #shijosebastian](https://www.youtube.com/watch?v=pbZiiC1jLDQ)
 - [ജീവിതത്തിന്റെ അതികഠിനമായ വേദനകളിൽ തളർന്നുപോകരുത്..😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=fTSBGNTocvg)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 8th of May 2024](https://www.youtube.com/watch?v=HrAq4LqrNAw)
-- [Bhadradeepam Video Song | Kodungallooramma | S Janaki | K Raghavan | Vayalar](https://www.youtube.com/watch?v=9hQ8L0UZaoQ)
-- [Oru Kaliman pathrampol....#christianvideosongs #chithraarun #jojijohns #christiandevotionalsongs](https://www.youtube.com/watch?v=b3Tgv1yAhMg)
-- [Oru Kalimanpathram Pol | Christain Video Song | Chithra Arun | Shijo Sebastian | Joji Johns](https://www.youtube.com/watch?v=iEL0I2xCXjw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
