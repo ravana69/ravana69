@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Krooshilninnum | Maria Kolady | Raju Varghese   #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=7dJaxx5DBuI)
+- [ആ വഴിയോരത്ത് അന്നാർദ്രമാം സന്ധ്യയിൽ ആവണിപ്പൂവായ് നീ നിന്നുവെന്നോ... #mohanlal #evergreenhits](https://www.youtube.com/watch?v=uhFFzaPoSJk)
+- [Mullappoo - Audio Song | Agni | S. Janaki | A.T. Ummer](https://www.youtube.com/watch?v=12qdXFKuk9A)
 - [Manassil Viriyunna |  Madhuchandralekha | Video | Sujatha | Kanesh Punoor | M Jayachandran | Jayaram](https://www.youtube.com/watch?v=8EhoXiCuaEU)
 - [Madhu Romantic Old Superhit Song l Themmaadi Velappan Movie |  Madhu, Jayabharathi, KPAC Lalitha](https://www.youtube.com/watch?v=hQa0a2E63dA)
 - [Daddy My Daddy Video | Daddy Cool | Mammootty | Dhananjay | Bijibal | Swetha Menon | Aashiq Abu](https://www.youtube.com/watch?v=Urn7ViWbw2Q)
-- [Thelu Thele | Urumi |  Folk Film Songs #prithvirajsukumaran  #shortsfeed #shorts #reels #urumisong](https://www.youtube.com/watch?v=7lNy2gFxMSI)
-- [Christian Melody Songs | Ben E Mohan | Christian Devotional Songs Malayalam | Christian Songs](https://www.youtube.com/watch?v=qceZ-QjjCQ8)
-- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 8th May 2024 # Vanakkamasam Prayer 2024 May 8 # Japamala](https://www.youtube.com/watch?v=Teay0iZC5p0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
