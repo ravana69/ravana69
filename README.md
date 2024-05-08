@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thelu Thele | Urumi |  Folk Film Songs #prithvirajsukumaran  #shortsfeed #shorts #reels #urumisong](https://www.youtube.com/watch?v=7lNy2gFxMSI)
 - [Christian Melody Songs | Ben E Mohan | Christian Devotional Songs Malayalam | Christian Songs](https://www.youtube.com/watch?v=qceZ-QjjCQ8)
 - [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 8th May 2024 # Vanakkamasam Prayer 2024 May 8 # Japamala](https://www.youtube.com/watch?v=Teay0iZC5p0)
 - [ജനഹൃദയങ്ങളിൽ കയറിപ്പറ്റിയ 9 അനശ്വരഗാനങ്ങൾ Top 9 christian video songs | Kester superhits with lyrics](https://www.youtube.com/watch?v=CTiwcoSeBXk)
 - [ഇന്ന് മെയ് 8 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala mahimayude](https://www.youtube.com/watch?v=JqiImNQUMPM)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=UjuRsLRssVY)
-- [രാവിലെ പ്രാര്‍ത്ഥന May 8 # Athiravile Prarthana 8th of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=UPzRRVXWpwg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
