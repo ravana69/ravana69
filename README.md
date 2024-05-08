@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=UjuRsLRssVY)
 - [രാവിലെ പ്രാര്‍ത്ഥന May 8 # Athiravile Prarthana 8th of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=UPzRRVXWpwg)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 8th of May 2024](https://www.youtube.com/watch?v=eY9H-rzT344)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=_qyHsb2l_pM)
 - [ദേവീ ആത്മരാഗമേകാൻ കന്യാവനിയിൽ| കെ ജെ യേശുദാസ് | K S Chitra|മലയാളചലച്ചിത്രഗാനങ്ങൾ|Remastered melodies](https://www.youtube.com/watch?v=xe75tGVoZWY)
 - [HOLY QURBANA | Fr. JASTIN P KURIAKOSE | CHOIR : ROY PUTHUR & TEAM #holyqurbana #orthodox](https://www.youtube.com/watch?v=I9C7fjlAT38)
-- [Kakkattile Koo Kootile |  Ee Parakkumthalika |Ouseppachan | KJ Yesudas  #songoftheday](https://www.youtube.com/watch?v=HUSY7T7-99E)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
