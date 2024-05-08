@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [കേൾക്കാൻ കൊതിക്കുന്ന യുഗ്മഗാനങ്ങൾ | Malayalam Film Duet Songs | Satyam Audios](https://www.youtube.com/watch?v=fzJTHlGIevc)
-- [Annarakanna Vaa | Film song Animation Video  #shortsfeed #kidscartoon #animation #shortsvideo](https://www.youtube.com/watch?v=DsGuJ4hc5sw)
-- [Pichakappoomkavukal | HD Video | No. 20 Madras Mail | Ouseppachan |MG Sreekumar | Shibu Chakravarthy](https://www.youtube.com/watch?v=NAZidYFGCuI)
-- [കഷ്ടതകളിൽ ആശ്വാസമേകിയ ഗാനങ്ങൾ | KESTER SONGS #KESTERHITS](https://www.youtube.com/watch?v=_NQzHuGr9jo)
-- [Vanaville Minnalkodiye | Vakkalath Narayanankutty | Jayaram | Yesudas | Speeed Audios](https://www.youtube.com/watch?v=vJBlhRpXVeM)
-- [ഇളം മഞ്ഞിൻ | Ilam Manjin  | Ninnishttam Ennishttam Malayalam Movie Song | K.J Yesudas & S Janaki](https://www.youtube.com/watch?v=MdQNif71K4c)
+- [Ethrayo Dinagal .... #christiansuperhitsongs #jojijohnschristiansongs #chithraarun #shijosebastian](https://www.youtube.com/watch?v=pbZiiC1jLDQ)
+- [ജീവിതത്തിന്റെ അതികഠിനമായ വേദനകളിൽ തളർന്നുപോകരുത്..😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=fTSBGNTocvg)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 8th of May 2024](https://www.youtube.com/watch?v=HrAq4LqrNAw)
+- [Bhadradeepam Video Song | Kodungallooramma | S Janaki | K Raghavan | Vayalar](https://www.youtube.com/watch?v=9hQ8L0UZaoQ)
+- [Oru Kaliman pathrampol....#christianvideosongs #chithraarun #jojijohns #christiandevotionalsongs](https://www.youtube.com/watch?v=b3Tgv1yAhMg)
+- [Oru Kalimanpathram Pol | Christain Video Song | Chithra Arun | Shijo Sebastian | Joji Johns](https://www.youtube.com/watch?v=iEL0I2xCXjw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
