@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കേൾക്കാൻ കൊതിക്കുന്ന യുഗ്മഗാനങ്ങൾ | Malayalam Film Duet Songs | Satyam Audios](https://www.youtube.com/watch?v=fzJTHlGIevc)
+- [Annarakanna Vaa | Film song Animation Video  #shortsfeed #kidscartoon #animation #shortsvideo](https://www.youtube.com/watch?v=DsGuJ4hc5sw)
 - [Pichakappoomkavukal | HD Video | No. 20 Madras Mail | Ouseppachan |MG Sreekumar | Shibu Chakravarthy](https://www.youtube.com/watch?v=NAZidYFGCuI)
 - [കഷ്ടതകളിൽ ആശ്വാസമേകിയ ഗാനങ്ങൾ | KESTER SONGS #KESTERHITS](https://www.youtube.com/watch?v=_NQzHuGr9jo)
 - [Vanaville Minnalkodiye | Vakkalath Narayanankutty | Jayaram | Yesudas | Speeed Audios](https://www.youtube.com/watch?v=vJBlhRpXVeM)
 - [ഇളം മഞ്ഞിൻ | Ilam Manjin  | Ninnishttam Ennishttam Malayalam Movie Song | K.J Yesudas & S Janaki](https://www.youtube.com/watch?v=MdQNif71K4c)
-- [Movement’s of Mujhepaale| #MujhePaale | #Bandra | #Dileep | #Tamannaah | #SamCS |#shorts | #ytshorts](https://www.youtube.com/watch?v=TYjJ-cVtabU)
-- [എല്ലാ തലമുറകളും ഏറ്റുപാടുന്ന ഏറ്റവും നല്ല സിനിമ ഗാനങ്ങൾ  |  Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=GawlgBQ-TCs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
