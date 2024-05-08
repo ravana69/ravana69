@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aanandhapuram Diaries | K S Chithra | Meena | Jaya Jose Raj | Latest Malayalam Film Songs | Jukebox](https://www.youtube.com/watch?v=xT8JULENQMM)
 - [സൂര്യതേജസോടെ വാഴുന്ന...](https://www.youtube.com/watch?v=ouUQ23o_Js4)
 - [Doore Mamarakombil | Varnapakittu | Vidyasagar | M G Sreekumar | KS Chithra #SongOfTheDay](https://www.youtube.com/watch?v=j0bscp9jm-4)
 - [Pookkalam Vannu Pookkaalam | Video Song | Bichu Thirumala | S Balakrishnan | KS Chithra | Unni Menon](https://www.youtube.com/watch?v=GZAwNzUn1M0)
 - [nalacharithathile](https://www.youtube.com/watch?v=_J-GtJq107w)
 - [Dharma Shasthave | Ayyappanum Vaavarum | Remastered Video Songs | Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=YGbn-yju-D8)
-- [ARADHANA PRABHU | BEAUTIFUL NEW HINDI SONG | @JinoKunnumpurathu  @HindiChristianson100   #shorts](https://www.youtube.com/watch?v=hkUBP86F4b8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
