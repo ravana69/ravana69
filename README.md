@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന May 9 # Athiravile Prarthana 9th of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=M0rrt1aGBBk)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 9th of May 2024](https://www.youtube.com/watch?v=QpftGkbI3J4)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=ArPmM0j8NEg)
 - [ആഷാഢരതിയിൽ അലിയുന്നൂ ഭൂമി..| കെ ജെ യേശുദാസ് | K S Chitra|മലയാളചലച്ചിത്രഗാനങ്ങൾ|Remastered melodies](https://www.youtube.com/watch?v=0z2qLS-bYjU)
 - [Aanandhapuram Diaries | K S Chithra | Meena | Jaya Jose Raj | Latest Malayalam Film Songs | Jukebox](https://www.youtube.com/watch?v=xT8JULENQMM)
 - [സൂര്യതേജസോടെ വാഴുന്ന...](https://www.youtube.com/watch?v=ouUQ23o_Js4)
-- [Doore Mamarakombil | Varnapakittu | Vidyasagar | M G Sreekumar | KS Chithra #SongOfTheDay](https://www.youtube.com/watch?v=j0bscp9jm-4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
