@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രണയത്തെക്കുറിച്ച്‌  വെട്ടിത്തുറന്നു പറഞ്ഞ് കെ. പി. ഉദയഭാനു | K P Udayabhanu | East Coast  Vijayan](https://www.youtube.com/watch?v=BKTURqhx5qI)
 - [Malare Mathala Malare - Audio Song | Aa Nimisham | K.J. Yesudas | G. Devarajan](https://www.youtube.com/watch?v=KSC9o3XynNM)
 - [#KhalbileHoori from #ShefeekkinteSanthosham is out now! | #Shorts](https://www.youtube.com/watch?v=BymsNVVCjrA)
 - [MARIYAMBIKE | #shorts | Ammakkuvendi | M G Sreekumar | Fr Shaji Thumpechirayil](https://www.youtube.com/watch?v=Im3zbwtzrOk)
 - [മനസിനാനന്ദം പകരുന്ന മലയാളത്തിലെ  എണ്ണം പറഞ്ഞ മെലഡി ഗാനങ്ങൾ | Evergreen Malayalam film Songs](https://www.youtube.com/watch?v=ml2NZ3R15YE)
 - [Jayabharathi Romantic Old Superhit Song l Kuttyedathi  Movie | Sathyan, S. P. Pillai](https://www.youtube.com/watch?v=AFwnkGwvF8k)
-- [Cherathilaay Lyrical|Guardian Angel|Saju S DaslSooraj Santhosh|Ram Surendar|Jyothish Kassi|Shobika](https://www.youtube.com/watch?v=ijK6LRdS6CA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
