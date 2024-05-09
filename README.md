@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 10th of May 2024](https://www.youtube.com/watch?v=am7-iiC3xlU)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=7R0YDjGy75s)
 - [Kunnimani Kannazhakil | KJ Yesudas | KS Chithra | Berny Ignatius | S Ramesan Nair](https://www.youtube.com/watch?v=7LD0FRgyqMI)
 - [Oru Raathri Koodi | Summer in Bethelehem | Gireesh Puthanchery| KJ Yesudas | KS Chithra#SongOfTheDay](https://www.youtube.com/watch?v=239Z7K3g6Wo)
 - [ഗാനഗന്ധർവനും താരരാജാവും ഒന്നിച്ച മലയാളികൾ കേൾക്കാൻ കൊതിക്കുന്ന മനോഹര ഗാനങ്ങൾ |ReMastered Video Songs](https://www.youtube.com/watch?v=qU-B_96xkFs)
 - [Christian Superhit Songs | Benny Pandalam | Kester | Christian Melody Songs | Joji Johns](https://www.youtube.com/watch?v=Fy1Av50nQtw)
-- [ARADHANA PRABHU | BEAUTIFUL NEW HINDI SONG |  @HindiChristianson100 @JinoKunnumpurathu #shorts](https://www.youtube.com/watch?v=pft2YdTjYks)
-- [മൃത്യുവരിച്ച പെന്നോമൽ സുതനെ മടിയിൽ കിടത്തിയ സ്നേഹ നാഥേ ...](https://www.youtube.com/watch?v=pml-GvIT6yY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
