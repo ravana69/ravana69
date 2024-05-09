@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 9th May 2024 # Vanakkamasam Prayer 20243 May 9 # Japamala](https://www.youtube.com/watch?v=x9UzCujmCI8)
+- [പള്ളികളിൽ പാടുന്ന ജനപ്രിയ ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Christian Songs](https://www.youtube.com/watch?v=TGdWJgNjnEQ)
+- [ഇന്ന് മെയ് 9 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala prakashathin](https://www.youtube.com/watch?v=oqVTFbpmU9A)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=t6Zn1MJNqnc)
 - [പ്രഭാത പ്രാര്‍ത്ഥന May 9 # Athiravile Prarthana 9th of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=M0rrt1aGBBk)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 9th of May 2024](https://www.youtube.com/watch?v=QpftGkbI3J4)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=ArPmM0j8NEg)
-- [ആഷാഢരതിയിൽ അലിയുന്നൂ ഭൂമി..| കെ ജെ യേശുദാസ് | K S Chitra|മലയാളചലച്ചിത്രഗാനങ്ങൾ|Remastered melodies](https://www.youtube.com/watch?v=0z2qLS-bYjU)
-- [Aanandhapuram Diaries | K S Chithra | Meena | Jaya Jose Raj | Latest Malayalam Film Songs | Jukebox](https://www.youtube.com/watch?v=xT8JULENQMM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
