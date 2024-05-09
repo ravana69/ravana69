@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Jayabharathi Romantic Old Superhit Song l Kuttyedathi  Movie | Sathyan, S. P. Pillai](https://www.youtube.com/watch?v=AFwnkGwvF8k)
+- [Neelukkuttiyum Koottukaarum  | ACTION SONG | Animation Video | അവധിക്കാലം കൊച്ചുകൂട്ടുകാർക്കൊപ്പം](https://www.youtube.com/watch?v=RWNVeGu3ZXw)
+- [MARIYAMBIKE | #shorts | Ammakkuvendi | M G Sreekumar | Marian Song | Fr Shaji Thumpechirayil](https://www.youtube.com/watch?v=ReH7UucRj5Q)
 - [Minnale Minnale Video Song | Vesham | Gopika | KS Chithra | Kaithapram | SA Rajkumar](https://www.youtube.com/watch?v=xNObCYiUFL4)
 - [Neermathalapoo | Aami #manjuwarrier #shreyaghoshal   #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=VF2Ra_zyAsA)
 - [Oru Mazhapakshi Padunnu | Kuberan | Dileep | Samyuktha | MG Sreekumar | Mohan Sithara | Sujatha](https://www.youtube.com/watch?v=9h6eTiFkUyI)
-- [Uyirinum Uyiraya Nadha | Mridula  Warrier | BK Hari Naryanan | Shorts #ytshorts #christiansongs](https://www.youtube.com/watch?v=WIeNWRUkkEA)
-- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 9th May 2024 # Vanakkamasam Prayer 20243 May 9 # Japamala](https://www.youtube.com/watch?v=x9UzCujmCI8)
-- [പള്ളികളിൽ പാടുന്ന ജനപ്രിയ ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Christian Songs](https://www.youtube.com/watch?v=TGdWJgNjnEQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
