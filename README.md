@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [🙏🏻❤️ Thank you for 1 Million views for reels🙏🏻❤️ അൾത്താരയിൽ നിന്നും അകതാരിലേക്ക് | #youtubeshorts](https://www.youtube.com/watch?v=w5WF_Rl7WBU)
 - [നിങ്ങളെ തകർക്കാൻ നിങ്ങൾക്ക് മാത്രമേ സാധിക്കത്തൊള്ളൂ.😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=obK_kCKFQN8)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 10th of May 2024](https://www.youtube.com/watch?v=WNGSlyCjsxQ)
 - [Kalakaanchi | Vaarikkuzhiyile Kolapathakam | Vaishnav Girish | Vipin Xavier|Anju Joseph|Saviolaz.C S](https://www.youtube.com/watch?v=BL0jphLK1fE)
 - [Allithaamara Video Song | Pappan Priyappetta Pappan | P Jayachandran | Alleppey Ranganath](https://www.youtube.com/watch?v=s4WxGV5djXw)
 - [My Savior | Super Hit Christian Devotional Songs | Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=m8PyMaFN4bY)
-- [𝐕𝐈𝐒𝐇𝐖𝐀𝐒𝐈𝐊𝐀𝐋𝐄 𝐊𝐄𝐋𝐏𝐏𝐈𝐍 | 𝐒𝐘𝐑𝐎 𝐌𝐀𝐋𝐀𝐁𝐀𝐑 𝐇𝐎𝐋𝐘 𝐌𝐀𝐒𝐒 𝐒𝐎𝐍𝐆 | തൂയൈ രീതി](https://www.youtube.com/watch?v=pwjniY-iDOo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
