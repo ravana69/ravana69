@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Padasmarana sukham | Sallaapam | Kaithapram | Johnson | K J Yesudas | Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=HtjcYRM9QTY)
+- [പ്രേക്ഷക സ്വീകാര്യത നേടിയ ചിത്ര ചേച്ചിയുടെ മനം മയക്കുന്ന സിനിമാഗാനങ്ങൾ | KS CHITHRA HITS](https://www.youtube.com/watch?v=J2b3UgONgWI)
 - [Kunuku Penmaniye | കുണുക്കുപെണ്മണിയെ  | Mr.Butler Malayalam Movie Song | Innocent | Dileep](https://www.youtube.com/watch?v=Nm550jdptlU)
 - [Neeyam Thanalinu | Live with UNTAGGED | Cover Version | Rajesh Ramachandran | Ratheesh Vegha](https://www.youtube.com/watch?v=5DIVE-Dl4Q4)
 - [Prem Nazir Romantic Old Superhit Song l Themmaadi Velappan Movie | Madhu, Jayabharathi, KPAC Lalitha](https://www.youtube.com/watch?v=uKMnCZ8eBBU)
-- [Thakilu Pukilu Video Song| Ravanaprabhu | Mohanlal| MG Sreekumar| Sujatha Mohan| Gireesh Puthenchery](https://www.youtube.com/watch?v=62b3ESDiaM8)
-- [Vel Muruga Haro Hara |  Naran #mgsreekumar #mohanlal #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=9u6X7mFt_hw)
-- [Nenchakam Neerunna Neram | Captain Sajan John #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=JQ1G_wHmICI)
+- [Cherathilaay Lyrical|Guardian Angel|Saju S DaslSooraj Santhosh|Ram Surendar|Jyothish Kassi|Shobika](https://www.youtube.com/watch?v=VpnWTkejeDU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
