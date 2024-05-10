@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Guruvayoorambala Nadayil - Official Trailer | Prithviraj Sukumaran | Basil Joseph | Vipin Das](https://www.youtube.com/watch?v=IEm9X8yvivk)
+- [Kannadi Koodum Kootti| Pranayavarnangal | Suresh Gopi | Manju Warrier | KS Chithra | Vidyasagar](https://www.youtube.com/watch?v=EL_3pqm92u4)
 - [Nila Nilave #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=DLldwo9Fn6w)
 - [Njanoru Paattu Paadaam | Megham | Mammootty | Priya Gill | KJ Yesudas | Gireesh Puthenchery](https://www.youtube.com/watch?v=ta__F2L1ESI)
 - [Karutha Penne | Thenmavin Kombath  | Berny Ignatius | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=HfqdngeePx0)
 - [Oru Ponkiviletho|Georgekutty c/o Georgekutty|Jayaram|Sunitha|](https://www.youtube.com/watch?v=gReCiAZ0c-I)
-- [Sing along with the Lyrics #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=bWARKPxdIPw)
-- [Nattuvazhiyorathe | Gadhama | Rafeeq Ahamed | Bennet | Vijay Yesudas | KS Chithra | Superhit Songs](https://www.youtube.com/watch?v=qtGvKMd9TaY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
