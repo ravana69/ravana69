@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vel Muruga Haro Hara |  Naran #mgsreekumar #mohanlal #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=9u6X7mFt_hw)
 - [Nenchakam Neerunna Neram | Captain Sajan John #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=JQ1G_wHmICI)
 - [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 10th May 2024 # Vanakkamasam Prayer 2024 May 10 Japamala](https://www.youtube.com/watch?v=sSpwsvSvlBk)
 - [Christian Superhit Songs | Chithra Arun | Jayachandran | Christian Melody Songs | Joji Johns](https://www.youtube.com/watch?v=R2DMkNRDv_Q)
 - [Beautiful Malayalam Film Songs | Super Hit Movie Songs | Cinemapattukal | Audio Jukebox | 1983 | 916](https://www.youtube.com/watch?v=-6EQCzDHsRE)
 - [ഇന്ന് മെയ് 10 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala dhukkathinte](https://www.youtube.com/watch?v=rXiiCmTmQBM)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=HX2HK5e9pjo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
