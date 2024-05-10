@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oru Ponkiviletho|Georgekutty c/o Georgekutty|Jayaram|Sunitha|](https://www.youtube.com/watch?v=gReCiAZ0c-I)
+- [Sing along with the Lyrics #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=bWARKPxdIPw)
+- [Nattuvazhiyorathe | Gadhama | Rafeeq Ahamed | Bennet | Vijay Yesudas | KS Chithra | Superhit Songs](https://www.youtube.com/watch?v=qtGvKMd9TaY)
+- [Songs Of The Week | Kester | KG Markose | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=r1n2gYRt0J8)
 - [🙏🏻❤️ Thank you for 1 Million views for reels🙏🏻❤️ അൾത്താരയിൽ നിന്നും അകതാരിലേക്ക് | #youtubeshorts](https://www.youtube.com/watch?v=w5WF_Rl7WBU)
 - [നിങ്ങളെ തകർക്കാൻ നിങ്ങൾക്ക് മാത്രമേ സാധിക്കത്തൊള്ളൂ.😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=obK_kCKFQN8)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 10th of May 2024](https://www.youtube.com/watch?v=WNGSlyCjsxQ)
-- [Kalakaanchi | Vaarikkuzhiyile Kolapathakam | Vaishnav Girish | Vipin Xavier|Anju Joseph|Saviolaz.C S](https://www.youtube.com/watch?v=BL0jphLK1fE)
-- [Allithaamara Video Song | Pappan Priyappetta Pappan | P Jayachandran | Alleppey Ranganath](https://www.youtube.com/watch?v=s4WxGV5djXw)
-- [My Savior | Super Hit Christian Devotional Songs | Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=m8PyMaFN4bY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
