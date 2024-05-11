@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Tron Legacy &lpar;2010&rpar; IMAX 2160p 4K IMAX BluRay HDR HEVC 10Bit Multi Original Audios &lpar;BD 5 1 ~ 640Kbps&rpar;- [Hindi - English - Telugu - Tamil] - AC3 - x265 - ESubs.mkv - [10GB] :](https://www.1tamilmv.eu/index.php?/forums/topic/179699-tron-legacy-2010-imax-2160p-4k-imax-bluray-hdr-hevc-10bit-multi-original-audios-bd-5-1-~-640kbps-hindi-english-telugu-tamil-ac3-x265-esubsmkv-10gb/&do=findComment&comment=365455)
+- [Tron Legacy &lpar;2010&rpar; IMAX 2160p 4K IMAX BluRay HDR HEVC 10Bit Multi Original Audios &lpar;BD 5 1 ~ 640Kbps&rpar;- [Hindi - English - Telugu - Tamil] - AC3 - x265 - ESubs.mkv - [10GB] :](https://www.1tamilmv.eu/index.php?/forums/topic/179699-tron-legacy-2010-imax-2160p-4k-imax-bluray-hdr-hevc-10bit-multi-original-audios-bd-5-1-~-640kbps-hindi-english-telugu-tamil-ac3-x265-esubsmkv-10gb/&do=findComment&comment=365454)
+- [Amma Cheppindi &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.6GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179609-amma-cheppindi-2008-telugu-dvd9-untouched-480p-dts-1510kbps-dd51-448kbps-66gb-esub/&do=findComment&comment=365453)
 - [Boys &lpar;2003&rpar; Tamil DVD9 REMUXED - UNTOUCHED - MPEG - &lpar;DD.5.1&rpar; - 6.3GB - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/179713-boys-2003-tamil-dvd9-remuxed-untouched-mpeg-dd51-63gb-gdflix/&do=findComment&comment=365452)
 - [Muthu &lpar;1995&rpar; Tamil - BluRay - 1080p &amp; 720p - AVC - DTS-HDMA 2.0&lpar;1580kbps&rpar; - 10GB - 5.5GB - 2.7GB &amp; 1.4GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179695-muthu-1995-tamil-bluray-1080p-720p-avc-dts-hdma-201580kbps-10gb-55gb-27gb-14gb-gdrive/&do=findComment&comment=365451)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [11-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179712-movies-collection-all-languages-4k-1080p-720p-576p-480p-11-05-2024/&do=findComment&comment=365450)
-- [Alaikyaa &lpar;2024&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/179711-alaikyaa-2024-kannada-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=365449)
-- [Ramana Avatara &lpar;2024&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/179710-ramana-avatara-2024-kannada-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=365448)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
