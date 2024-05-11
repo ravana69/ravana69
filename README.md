@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [എത്ര കേട്ടാലും കൊതി തീരാത്ത അത്രമേൽ പ്രിയമുള്ള മനോഹര ഗാനങ്ങൾ | EVERGREEN HIT SONGS](https://www.youtube.com/watch?v=xQDSs-pjZW0)
+- [കേൾക്കാൻ ഇമ്പമുള്ള മലയാള ചലച്ചിത്ര ഗാനങ്ങൾ | EVERGREEN SONGS MALAYALAM | MOVIEWORLD MUSIC](https://www.youtube.com/watch?v=OVLtiGoBtEU)
+- [മലയാളികളുടെ മനം കവർന്ന നിത്യഹരിത ഗാനങ്ങൾ 80S 90S Malayalam Hits | Evergreen Malayalam Hits](https://www.youtube.com/watch?v=UqgUa60hX_k)
 - [മമ്മൂക്കയുടെ പഴയകാല അടിപൊളി ഗാനം കേൾക്കാം #mammootty #shorts](https://www.youtube.com/watch?v=UU4TNMKs39o)
 - [Madhuramee Subhayathriyil | Innanu Aa Kalyanam | Vayalar Sarathchandra Varma| Bijibal | Shweta Mohan](https://www.youtube.com/watch?v=anr_FgCuUdg)
 - [#Aniyarayil from #Khedda | #shorts #ytshorts](https://www.youtube.com/watch?v=j7P0gcOvGF8)
-- [Poomukha Vathilkkal Video Song | Rakkuyilin Ragasadassil | Mammootty | Suhasini | KJ Yesudas](https://www.youtube.com/watch?v=RkCjoOr2SFo)
-- [Jayabharathi Romantic Old Superhit Song l Kuttyedathi  Movie | Sathyan, S. P. Pillai](https://www.youtube.com/watch?v=d0RNW_zF7_E)
-- [Kattile Kannan | Animation Video #kattilekannan #animation #malayalamcartoon #shorts #shortsfeed](https://www.youtube.com/watch?v=n2I9s0YY9ZI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
