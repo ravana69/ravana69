@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [75 Telugu Movies - BluRay/WEB DL - 1080p - x264 - DD5.1/AAC2.0 - ESub - 200GB](https://www.1tamilmv.eu/index.php?/forums/topic/119959-75-telugu-movies-blurayweb-dl-1080p-x264-dd51aac20-esub-200gb/&do=findComment&comment=365447)
 - [Osthe &lpar;2011&rpar; Tamil - SS WEB-DL - 1080p &amp; 720p - ×264 - &lpar;DD+ 5.1 - 192kbps&rpar; - 3.5GB &amp; 1.9GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179709-osthe-2011-tamil-ss-web-dl-1080p-720p-%C3%97264-dd-51-192kbps-35gb-19gb-gdrive/&do=findComment&comment=365446)
 - [Oru kal Oru Kannadi &lpar;2012&rpar; Tamil - SS WEB-DL - 1080p &amp; 720p - ×264 - &lpar;DD+ 5.1 - 192kbps&rpar; - 4.1GB &amp; 2.1GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179708-oru-kal-oru-kannadi-2012-tamil-ss-web-dl-1080p-720p-%C3%97264-dd-51-192kbps-41gb-21gb-gdrive/&do=findComment&comment=365445)
 - [Journey Of East &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264- &lpar;Tamil + Telugu + Hindi&rpar; - 1.6GB &amp; 900MB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179707-journey-of-east-2022-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-16gb-900mb-x264-tamil-telugu-hindi-400mb/&do=findComment&comment=365444)
 - [Megha &lpar;2014&rpar; Tamil - SS WEB-DL - 1080p &amp; 720p - ×264 - &lpar;DD+ 5.1 - 192kbps&rpar; - 3.3GB &amp; 1.7GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179706-megha-2014-tamil-ss-web-dl-1080p-720p-%C3%97264-dd-51-192kbps-33gb-17gb-gdrive/&do=findComment&comment=365443)
-- [Ocean Rescue &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264- &lpar;Tamil + Telugu + Hindi&rpar; - 1.9GB &amp; 1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179705-ocean-rescue-2023-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-19gb-1gb-x264-tamil-telugu-hindi-400mb/&do=findComment&comment=365442)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
