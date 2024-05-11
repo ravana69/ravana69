@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മമ്മൂക്കയുടെ പഴയകാല അടിപൊളി ഗാനം കേൾക്കാം #mammootty #shorts](https://www.youtube.com/watch?v=UU4TNMKs39o)
 - [Madhuramee Subhayathriyil | Innanu Aa Kalyanam | Vayalar Sarathchandra Varma| Bijibal | Shweta Mohan](https://www.youtube.com/watch?v=anr_FgCuUdg)
 - [#Aniyarayil from #Khedda | #shorts #ytshorts](https://www.youtube.com/watch?v=j7P0gcOvGF8)
 - [Poomukha Vathilkkal Video Song | Rakkuyilin Ragasadassil | Mammootty | Suhasini | KJ Yesudas](https://www.youtube.com/watch?v=RkCjoOr2SFo)
 - [Jayabharathi Romantic Old Superhit Song l Kuttyedathi  Movie | Sathyan, S. P. Pillai](https://www.youtube.com/watch?v=d0RNW_zF7_E)
 - [Kattile Kannan | Animation Video #kattilekannan #animation #malayalamcartoon #shorts #shortsfeed](https://www.youtube.com/watch?v=n2I9s0YY9ZI)
-- [രാവിലെ കേൾക്കാൻ ഏറ്റവും നല്ല ഗാനങ്ങൾ daily worship songs | christian devotional songs malayalam](https://www.youtube.com/watch?v=uw6qOS5be1c)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
