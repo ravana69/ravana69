@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Cooku With Comali &lpar;2024&rpar; Tamil - S05 EP05 TRUE WEB-DL - [1080p, 720p, 360p - AVC - UNTOUCHED - 950MB - 800MB &amp; 150MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179704-cooku-with-comali-2024-tamil-s05-ep05-true-web-dl-1080p-720p-360p-avc-untouched-950mb-800mb-150mb/&do=findComment&comment=365441)
-- [Magamuni &lpar;2019&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 4.3GB - ESub - UE](https://www.1tamilmv.eu/index.php?/forums/topic/179703-magamuni-2019-tamil-true-web-dl-1080p-avc-untouched-ddp51-43gb-esub-ue/&do=findComment&comment=365440)
-- [Marivillin Gopurangal &lpar;2024&rpar; Malayalam HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/179690-marivillin-gopurangal-2024-malayalam-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=365439)
-- [[REMUX] Predators &lpar;2010&rpar; 1080p BluRay REMUX Multi BD5.1 Esubs x264 - 25 GB](https://www.1tamilmv.eu/index.php?/forums/topic/179701-remux-predators-2010-1080p-bluray-remux-multi-bd51-esubs-x264-25-gb/&do=findComment&comment=365437)
-- [[REMUX] Predators &lpar;2010&rpar; 1080p BluRay REMUX Multi BD5.1 Esubs x264 - 25 GB](https://www.1tamilmv.eu/index.php?/forums/topic/179701-remux-predators-2010-1080p-bluray-remux-multi-bd51-esubs-x264-25-gb/&do=findComment&comment=365436)
+- [Osthe &lpar;2011&rpar; Tamil - SS WEB-DL - 1080p &amp; 720p - ×264 - &lpar;DD+ 5.1 - 192kbps&rpar; - 3.5GB &amp; 1.9GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179709-osthe-2011-tamil-ss-web-dl-1080p-720p-%C3%97264-dd-51-192kbps-35gb-19gb-gdrive/&do=findComment&comment=365446)
+- [Oru kal Oru Kannadi &lpar;2012&rpar; Tamil - SS WEB-DL - 1080p &amp; 720p - ×264 - &lpar;DD+ 5.1 - 192kbps&rpar; - 4.1GB &amp; 2.1GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179708-oru-kal-oru-kannadi-2012-tamil-ss-web-dl-1080p-720p-%C3%97264-dd-51-192kbps-41gb-21gb-gdrive/&do=findComment&comment=365445)
+- [Journey Of East &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264- &lpar;Tamil + Telugu + Hindi&rpar; - 1.6GB &amp; 900MB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179707-journey-of-east-2022-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-16gb-900mb-x264-tamil-telugu-hindi-400mb/&do=findComment&comment=365444)
+- [Megha &lpar;2014&rpar; Tamil - SS WEB-DL - 1080p &amp; 720p - ×264 - &lpar;DD+ 5.1 - 192kbps&rpar; - 3.3GB &amp; 1.7GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179706-megha-2014-tamil-ss-web-dl-1080p-720p-%C3%97264-dd-51-192kbps-33gb-17gb-gdrive/&do=findComment&comment=365443)
+- [Ocean Rescue &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264- &lpar;Tamil + Telugu + Hindi&rpar; - 1.9GB &amp; 1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179705-ocean-rescue-2023-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-19gb-1gb-x264-tamil-telugu-hindi-400mb/&do=findComment&comment=365442)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
