@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Magamuni &lpar;2019&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 4.3GB - ESub - UE](https://www.1tamilmv.eu/index.php?/forums/topic/179703-magamuni-2019-tamil-true-web-dl-1080p-avc-untouched-ddp51-43gb-esub-ue/&do=findComment&comment=365440)
+- [Marivillin Gopurangal &lpar;2024&rpar; Malayalam HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/179690-marivillin-gopurangal-2024-malayalam-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=365439)
 - [[REMUX] Predators &lpar;2010&rpar; 1080p BluRay REMUX Multi BD5.1 Esubs x264 - 25 GB](https://www.1tamilmv.eu/index.php?/forums/topic/179701-remux-predators-2010-1080p-bluray-remux-multi-bd51-esubs-x264-25-gb/&do=findComment&comment=365437)
 - [[REMUX] Predators &lpar;2010&rpar; 1080p BluRay REMUX Multi BD5.1 Esubs x264 - 25 GB](https://www.1tamilmv.eu/index.php?/forums/topic/179701-remux-predators-2010-1080p-bluray-remux-multi-bd51-esubs-x264-25-gb/&do=findComment&comment=365436)
 - [Sarkaar &lpar;2024&rpar; S04 EP04 Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.1GB &amp; 600MB] - [x264 - 350MB] - [Google Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/179700-sarkaar-2024-s04-ep04-telugu-true-web-dl-1080p-720p-avc-aac-20-11gb-600mb-x264-350mb-google-drive/&do=findComment&comment=365435)
-- [Tron Legacy &lpar;2010&rpar; IMAX 2160p 4K IMAX BluRay HDR HEVC 10Bit Multi Original Audios &lpar;BD 5 1 ~ 640Kbps&rpar;- [Hindi - English - Telugu - Tamil] - AC3 - x265 - ESubs.mkv - [10GB] :](https://www.1tamilmv.eu/index.php?/forums/topic/179699-tron-legacy-2010-imax-2160p-4k-imax-bluray-hdr-hevc-10bit-multi-original-audios-bd-5-1-~-640kbps-hindi-english-telugu-tamil-ac3-x265-esubsmkv-10gb/&do=findComment&comment=365434)
-- [Future Pondatti &lpar;2024&rpar; Tamil - S01 EP&lpar;01-02&rpar; TRUE WEB-DL - [1080p, 720p, 480p - AVC - UNTOUCHED - 650MB - 300MB &amp; 100MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179694-future-pondatti-2024-tamil-s01-ep01-02-true-web-dl-1080p-720p-480p-avc-untouched-650mb-300mb-100mb/&do=findComment&comment=365433)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
