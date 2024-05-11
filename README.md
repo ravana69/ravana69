@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Varavelkkumo En Rajakumari | Pachakuthira | Dileep | Salim Kumar | Ilayaraja | Kamal | Gopika](https://www.youtube.com/watch?v=E_kjCQHOgXg)
 - [Vellinilaa Thullikalo | Varnapakittu | Vidyasagar | M G Sreekumar | KS Chithra #SongOfTheDay](https://www.youtube.com/watch?v=R2IBFfgq6CM)
 - [Ramayanakatte | Mohanlal | KS Chithra | MG Sreekumar | Raveendran | Kaithapram | Abhimanyu](https://www.youtube.com/watch?v=2zEqxmM7pxM)
 - [കനിവിൻ ഉറവയാം നാഥേ...](https://www.youtube.com/watch?v=x0PpPlSbyOs)
 - [Oru Nalilum ... #christiandevotionalsongsmalayalam #jojijohns #lijoshvezhapally #josepaul](https://www.youtube.com/watch?v=GBAhpTzuOWY)
 - [Anudhinavum Altharamunnil....#christianvideosongs #holycommunionsong #jojijohns](https://www.youtube.com/watch?v=nZvmLc8PrtU)
-- [ARADHANA PRABHU | BEAUTIFUL NEW HINDI SONG |  @HindiChristianson100 @JinoKunnumpurathu #shorts](https://www.youtube.com/watch?v=gbE0omt8ZkM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
