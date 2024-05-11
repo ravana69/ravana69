@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Boys &lpar;2003&rpar; Tamil DVD9 REMUXED - UNTOUCHED - MPEG - &lpar;DD.5.1&rpar; - 6.3GB - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/179713-boys-2003-tamil-dvd9-remuxed-untouched-mpeg-dd51-63gb-gdflix/&do=findComment&comment=365452)
+- [Muthu &lpar;1995&rpar; Tamil - BluRay - 1080p &amp; 720p - AVC - DTS-HDMA 2.0&lpar;1580kbps&rpar; - 10GB - 5.5GB - 2.7GB &amp; 1.4GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179695-muthu-1995-tamil-bluray-1080p-720p-avc-dts-hdma-201580kbps-10gb-55gb-27gb-14gb-gdrive/&do=findComment&comment=365451)
+- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [11-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179712-movies-collection-all-languages-4k-1080p-720p-576p-480p-11-05-2024/&do=findComment&comment=365450)
 - [Alaikyaa &lpar;2024&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/179711-alaikyaa-2024-kannada-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=365449)
 - [Ramana Avatara &lpar;2024&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/179710-ramana-avatara-2024-kannada-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=365448)
-- [75 Telugu Movies - BluRay/WEB DL - 1080p - x264 - DD5.1/AAC2.0 - ESub - 200GB](https://www.1tamilmv.eu/index.php?/forums/topic/119959-75-telugu-movies-blurayweb-dl-1080p-x264-dd51aac20-esub-200gb/&do=findComment&comment=365447)
-- [Osthe &lpar;2011&rpar; Tamil - SS WEB-DL - 1080p &amp; 720p - ×264 - &lpar;DD+ 5.1 - 192kbps&rpar; - 3.5GB &amp; 1.9GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179709-osthe-2011-tamil-ss-web-dl-1080p-720p-%C3%97264-dd-51-192kbps-35gb-19gb-gdrive/&do=findComment&comment=365446)
-- [Oru kal Oru Kannadi &lpar;2012&rpar; Tamil - SS WEB-DL - 1080p &amp; 720p - ×264 - &lpar;DD+ 5.1 - 192kbps&rpar; - 4.1GB &amp; 2.1GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179708-oru-kal-oru-kannadi-2012-tamil-ss-web-dl-1080p-720p-%C3%97264-dd-51-192kbps-41gb-21gb-gdrive/&do=findComment&comment=365445)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
