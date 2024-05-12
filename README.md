@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാള സിനിമയിലെ അടിപൊളി ഗാനങ്ങൾ | MG Sreekumar | Vidyasagar | Gireesh Puthenchery | Sujatha Mohan](https://www.youtube.com/watch?v=bHWWU1K359s)
+- [Kandu Njan | Abhimanyu | Raveendran | MG Sreekumar | Kaithapram #SongOfTheDay](https://www.youtube.com/watch?v=czJdjOSQLBM)
+- [Ponne Ponnambili | Mammootty| Mohanlal| Babi Shamili| KJ Yesudas| Ouseppachan| Kaithapram](https://www.youtube.com/watch?v=OvkaLQnE5Vc)
 - [Christian Melody Songs | Jayachandran | Christian Superhit Songs Malayalam | Joji Johns | KG Markose](https://www.youtube.com/watch?v=US4ofFs0Ypo)
 - [Thulyam Chollan](https://www.youtube.com/watch?v=rs0M2Y65XjE)
 - [ബന്ധങ്ങൾ ഏറെ വിലപ്പെട്ടതാണ്....😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=yMOvRptMIH0)
-- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=qcEwZQlmfFo)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 12th of May 2024](https://www.youtube.com/watch?v=R6hguERmHRE)
-- [#Raani thrills from #Chathuram | #shorts](https://www.youtube.com/watch?v=55Eu5BYNnRA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
