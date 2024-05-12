@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Friends &lpar;2001&rpar; REMASTERED - Tamil - TRUE WEB-DL - 4K , 1080p &amp; 720p - AVC - UNTOUCHED - AAC2.0&lpar;256kbps&rpar; - 8.6GB - 4.8GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179734-friends-2001-remastered-tamil-true-web-dl-4k-1080p-720p-avc-untouched-aac20256kbps-86gb-48gb-27gb-14gb-x264-700mb-400mb-gdrive/&do=findComment&comment=365494)
+- [Lakshmi Kataksham &lpar;2024&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/179733-lakshmi-kataksham-2024-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=365493)
+- [Aarambham &lpar;2024&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/179732-aarambham-2024-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=365492)
 - [Bridgerton &lpar;2022&rpar; S02 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 7GB - 3.2GB &amp; 1GB]](https://www.1tamilmv.eu/index.php?/forums/topic/179730-bridgerton-2022-s02-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-7gb-32gb-1gb/&do=findComment&comment=365491)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [12-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179731-movies-collection-all-languages-4k-1080p-720p-576p-480p-12-05-2024/&do=findComment&comment=365490)
-- [Bridgerton &lpar;2022&rpar; S02 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 7GB - 3.2GB &amp; 1GB]](https://www.1tamilmv.eu/index.php?/forums/topic/179730-bridgerton-2022-s02-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-7gb-32gb-1gb/&do=findComment&comment=365489)
-- [Bridgerton &lpar;2022&rpar; S02 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 7GB - 3.2GB &amp; 1GB]](https://www.1tamilmv.eu/index.php?/forums/topic/179730-bridgerton-2022-s02-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-7gb-32gb-1gb/&do=findComment&comment=365488)
-- [Autograph &lpar;2004&rpar; Tamil AYN DVDRip - x265 HEVC - &lpar;DTS.5.1&rpar; - 3.2GB - ESub - UE](https://www.1tamilmv.eu/index.php?/forums/topic/179729-autograph-2004-tamil-ayn-dvdrip-x265-hevc-dts51-32gb-esub-ue/&do=findComment&comment=365487)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
