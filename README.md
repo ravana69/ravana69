@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=zDgHAgZ7KJ4)
+- [തകരുന്ന ഹൃദയങ്ങളെ ഈ ഗാനങ്ങൾ നിങ്ങൾ കേൾക്കു | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=mEFLPBkPtjU)
+- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 12th May 2024 # Vanakkamasam Prayer 23 May 12 # Japamala](https://www.youtube.com/watch?v=Mn4H5f-28eU)
+- [Krooshilninnum | Maria Kolady | Raju Varghese #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=uZpKUgE8Heg)
+- [ഇന്ന് മെയ് 12 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala mahimayude](https://www.youtube.com/watch?v=lytvt9GMXdE)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=tkb2yCWbgx0)
-- [പ്രഭാത പ്രാര്‍ത്ഥന May 12 # Athiravile Prarthana 12th of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=GbxFpO1cNIM)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 12th of May 2024](https://www.youtube.com/watch?v=uSqZSIFIH58)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=we49fl3B8J4)
-- [Varavelkkumo En Rajakumari | Pachakuthira | Dileep | Salim Kumar | Ilayaraja | Kamal | Gopika](https://www.youtube.com/watch?v=E_kjCQHOgXg)
-- [Vellinilaa Thullikalo | Varnapakittu | Vidyasagar | M G Sreekumar | KS Chithra #SongOfTheDay](https://www.youtube.com/watch?v=R2IBFfgq6CM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
