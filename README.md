@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [BTS from Jawanum Mullapoovum #JingaJinga #JawanumMullapoovum #ytshorts #shorts](https://www.youtube.com/watch?v=eeLGSxL28Is)
+- [Chirimanimulle Video Song | Lion | Dileep | Kavya Madhavan| Afsal | Jyotsna | Deepak Dev| Kaithapram](https://www.youtube.com/watch?v=Qsyzi89H9jA)
 - [Sharada Malayalam Romantic Old Superhit Song l Udayam Movie | Madhu, Sharada, Adoor Bhasi](https://www.youtube.com/watch?v=lhn15yTaLIY)
 - [Eeran Maarum | Uncle #shreyaghoshal #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=D9K8goGMC8Q)
 - [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=zDgHAgZ7KJ4)
 - [തകരുന്ന ഹൃദയങ്ങളെ ഈ ഗാനങ്ങൾ നിങ്ങൾ കേൾക്കു | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=mEFLPBkPtjU)
-- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 12th May 2024 # Vanakkamasam Prayer 23 May 12 # Japamala](https://www.youtube.com/watch?v=Mn4H5f-28eU)
-- [Krooshilninnum | Maria Kolady | Raju Varghese #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=uZpKUgE8Heg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
