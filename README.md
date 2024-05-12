@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 13th of May 2024](https://www.youtube.com/watch?v=rjrwFM8CKzg)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=50zQ3d3krW0)
 - [ചന്ദന മണിവാതിൽ പാതിചാരി..| കെ ജെ യേശുദാസ് | K S Chitra |മലയാളചലച്ചിത്രഗാനങ്ങൾ | Remastered melodies](https://www.youtube.com/watch?v=UoDXMZzITFU)
 - [ഇവിടെ ഈ തണലിൽ..- അമ്മതൻ വാത്സല്യ തണലിൽ](https://www.youtube.com/watch?v=ynjrAa3yr6s)
 - [Pathiravayi Neram | Vietnam Colony | Mohanlal | Kanaka | Minmini | Siddiquelal](https://www.youtube.com/watch?v=kJYFxB_IniU)
 - [മലയാള സിനിമയിലെ അടിപൊളി ഗാനങ്ങൾ | MG Sreekumar | Vidyasagar | Gireesh Puthenchery | Sujatha Mohan](https://www.youtube.com/watch?v=bHWWU1K359s)
-- [Kandu Njan | Abhimanyu | Raveendran | MG Sreekumar | Kaithapram #SongOfTheDay](https://www.youtube.com/watch?v=czJdjOSQLBM)
-- [Ponne Ponnambili | Mammootty| Mohanlal| Babi Shamili| KJ Yesudas| Ouseppachan| Kaithapram](https://www.youtube.com/watch?v=OvkaLQnE5Vc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
