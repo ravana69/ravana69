@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [വേനൽ മഴയുടെ സുഖവും സുഗന്ധവും പേറും മലയാളസിനിമയിലെ ശ്രവണ മനോഹര ഗാനങ്ങൾ  | EVERGREEN SONGS](https://www.youtube.com/watch?v=6GsT3v0UOUY)
-- [Eswara Jagatheesha | Sree Ayyappanum Vaavarum (1982) | Poovachal Khader | AT Ummer | KJ Yesudas](https://www.youtube.com/watch?v=MPniL-Kj6_0)
-- [Ponnurukum Pookkalam | Koodevide | ONV Kuruppu | Johnson | S Janaki | Suhasini | Evergreen Songs](https://www.youtube.com/watch?v=91Iih90N3dA)
-- [Mundiri Paadam | Kochi Rajavu  |Video| Dileep | Kavya Madhavan | Udit Narayan | Sujatha | Vidyasagar](https://www.youtube.com/watch?v=siprAVDdSgg)
-- [Kadhayoravarthanam Video Song | Daddy Cool | Hariharan | Mammootty| Richa Pallod| Dhananjay| Bijibal](https://www.youtube.com/watch?v=KGXg7m6Wno0)
-- [Aaru Nee Kanmani Lyrical Video | Anandhapuram Diaries | KS Chithra | Albert Vijayan | Rafeeq Ahammed](https://www.youtube.com/watch?v=3FNDEqQvY3I)
+- [M Shankar, Swamy's Food Products | #business #foodie #ytshortsvideos](https://www.youtube.com/watch?v=2ylZ9Mo-O28)
+- [Vishnu Rajendran | #business #businessstrategy #businessideas](https://www.youtube.com/watch?v=JbpJaNCGA2s)
+- [Vishnu Rajendran | #business #businessstrategy #businessideas](https://www.youtube.com/watch?v=7sQI4RSRzLw)
+- [Vishnu Rajendran | #business #businessstrategy #businessideas](https://www.youtube.com/watch?v=j10k-yucKww)
+- [Vishnu Rajendran | #business #businessstrategy #businessideas](https://www.youtube.com/watch?v=H05eN-0Ek0E)
+- [Vishnu Rajendran | #business #businessstrategy #businessideas](https://www.youtube.com/watch?v=hAXzLUp2Te8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
