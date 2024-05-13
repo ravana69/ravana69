@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [അമലയാമെൻ അംബികേ...](https://www.youtube.com/watch?v=yMB6Ethdt70)
 - [M Shankar, Swamy's Food Products | #business #foodie #ytshortsvideos](https://www.youtube.com/watch?v=pgMOkfZlSXc)
 - [വിലകൊടുത്ത് വാങ്ങാൻ പറ്റുന്ന ഒന്നല്ല സന്തോഷം ...😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=bw2ZCc-sPXU)
 - [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=_IG3R_Xqh_4)
 - [Chillu Vilakkumaay Video Song | Churam | Malayalam Movie Songs | KJ Yesudas #malayalammoviesongs](https://www.youtube.com/watch?v=n8M7UI08D40)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 13th of May 2024](https://www.youtube.com/watch?v=OgRc_Yu98To)
-- [Oridathoru Puzhayunde | Aalorukkam | Sithara Krishnakumar | Ronnie Raphel | Ajesh Chandran](https://www.youtube.com/watch?v=5cB4CQznAcQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
