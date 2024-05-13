@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Godzilla x Kong: The New Empire &lpar;2024&rpar; &lpar;UHD + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 14GB - 3.2GB &amp; 1.3GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179741-godzilla-x-kong-the-new-empire-2024-uhd-original-audios-4k-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-14gb-32gb-13gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=365539)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [13-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179750-movies-collection-all-languages-4k-1080p-720p-576p-480p-13-05-2024/&do=findComment&comment=365538)
 - [Godzilla x Kong - The New Empire &lpar;2024&rpar; 1080p 10bit DS4K AMZN WEBRip x265 HEVC [Hindi AAC 5.1 + English AAC 5.1] ESub - Immortal [TipsMovieZ].mkv [4.55 GB]](https://www.1tamilmv.eu/index.php?/forums/topic/179748-godzilla-x-kong-the-new-empire-2024-1080p-10bit-ds4k-amzn-webrip-x265-hevc-hindi-aac-51-english-aac-51-esub-immortal-tipsmoviezmkv-455-gb/&do=findComment&comment=365537)
 - [Godzilla x Kong - The New Empire &lpar;2024&rpar; 720p 10bit DS4K AMZN WEBRip x265 HEVC [Hindi AAC 5.1 + English AAC 5.1] ESub - Immortal [TipsMovieZ].mkv [1.41 GB]](https://www.1tamilmv.eu/index.php?/forums/topic/179749-godzilla-x-kong-the-new-empire-2024-720p-10bit-ds4k-amzn-webrip-x265-hevc-hindi-aac-51-english-aac-51-esub-immortal-tipsmoviezmkv-141-gb/&do=findComment&comment=365536)
 - [Naan Kadavul &lpar;2009&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.9GB - 1.5GB &amp; 950MB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179751-naan-kadavul-2009-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-29gb-15gb-950mb-x264-700mb-400mb/&do=findComment&comment=365535)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [13-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179750-movies-collection-all-languages-4k-1080p-720p-576p-480p-13-05-2024/&do=findComment&comment=365534)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
