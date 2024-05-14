@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Hook Step Of #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=DuF6R56bLrc)
-- [Oru Ponkinaviletho | ഒരു പൊൻ കിനാവിൽ |  George kutty C/o George kutty | Malayalam Film Song](https://www.youtube.com/watch?v=-4f6hfqukuw)
-- [കുളിരേകും കാറ്റ് പോൽ നിറമേഴും പൂവുപോൽ മനസിനെ മോഹിപ്പിക്കും മനോഹര ഗാനങ്ങൾ | EVERGREEN HITS](https://www.youtube.com/watch?v=5Frv8KIpzZA)
-- [Ezhazhake Noorazhake | Sree Ayyappanum Vaavarum (1982) | Poovachal Khade | AT Ummer | Ambili](https://www.youtube.com/watch?v=5SIzjNM-Nzc)
-- [K For Kalyanam - Video Song | Guruvayoorambala Nadayil | Prithviraj | Basil | Anaswara | Ankit Menon](https://www.youtube.com/watch?v=wupHz8BTSm8)
-- [Aaranne Aaranne | Lyrical + Karaoke Video | Urumi | Deepak Dev | Prithviraj | Job Kurian | Rita](https://www.youtube.com/watch?v=xswvXHE8Gao)
+- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=xX1wAYV5_6I)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 14th of May 2024](https://www.youtube.com/watch?v=klmfLdKGOYQ)
+- [മൺമയമാം ഈയുലകിൽ | Manmayamam Eeyulakil | Chithra Arun | Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=O3PIDq6elQI)
+- [ദൈവം നമ്മുടെ ഹൃദയങ്ങളിൽ ഇട്ടിരിക്കുന്ന വിത്താണ് സ്നേഹം 😇 Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=E8KvskJ-mPs)
+- [Devi paadam Video Song | Kuttettan | KS Chithra | Kaithapram | Raveendran](https://www.youtube.com/watch?v=sQP4m7tIxRA)
+- [Swapnalekhe Ninte | HD Video | Ankathattu | G Devarajan | P Jayachandran | P Madhuri](https://www.youtube.com/watch?v=YKrb17sHI9w)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
