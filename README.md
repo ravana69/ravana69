@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 14th May 2024 # Vanakkamasam Prayer 2024 May 14 Japamala](https://www.youtube.com/watch?v=VVbPYDBaVTY)
+- [Ente Yeshu Enikku Nallavan | Praise and Worship Songs | Binoy Chacko | Christian Melody Songs](https://www.youtube.com/watch?v=6GdukNqZIuE)
+- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=EhB21Agyc9s)
+- [ഇന്ന് മെയ് 14 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala dhukkathint](https://www.youtube.com/watch?v=z9_gpo1o5hU)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=SVkY0TgSjm0)
 - [പ്രഭാത പ്രാര്‍ത്ഥന May 14 # Athiravile Prarthana 14th of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=Gq3X1_tjtKc)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 14th of May 2024](https://www.youtube.com/watch?v=j7ohO9-CmpI)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=hfwRXjZcllw)
-- [M Shankar, Swamy's Food Products | #business #foodie #ytshortsvideos](https://www.youtube.com/watch?v=ez6wmtU9KtE)
-- [M Shankar, Swamy's Food Products | #business #foodie #ytshortsvideos](https://www.youtube.com/watch?v=RRy4J7OW1lo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
