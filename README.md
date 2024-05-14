@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aaranne Aaranne | Lyrical + Karaoke Video | Urumi | Deepak Dev | Prithviraj | Job Kurian | Rita](https://www.youtube.com/watch?v=xswvXHE8Gao)
 - [Veshangal Janmangal Video Song | Vesham | Mammootty | KJ Yesudas | Kaithapram | SA Rajkumar](https://www.youtube.com/watch?v=OgosiUtLskc)
 - [Lets Vibe for Vatteppam | Mandakini | Dabzee | Altaf Salim | Bibin Ashok | #shorts #ytshorts](https://www.youtube.com/watch?v=VuQwZJtAF0s)
 - [Sharada Malayalam Romantic Old Superhit Song l Udayam Movie | Madhu, Sharada, Adoor Bhasi](https://www.youtube.com/watch?v=aY4HQU08k_Y)
 - [Lalee Lalee | Kalimannu |  Malayalam Lullaby Film Songs #mjayachandran #shortsfeed #shorts #onvkurup](https://www.youtube.com/watch?v=IP-bN8ENMsU)
 - [Nenchakam Neerunna Neram | Captain Sajan John #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=GatneX22_qQ)
-- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 14th May 2024 # Vanakkamasam Prayer 2024 May 14 Japamala](https://www.youtube.com/watch?v=VVbPYDBaVTY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
