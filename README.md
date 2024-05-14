@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Sharada Malayalam Romantic Old Superhit Song l Udayam Movie | Madhu, Sharada, Adoor Bhasi](https://www.youtube.com/watch?v=aY4HQU08k_Y)
+- [Lalee Lalee | Kalimannu |  Malayalam Lullaby Film Songs #mjayachandran #shortsfeed #shorts #onvkurup](https://www.youtube.com/watch?v=IP-bN8ENMsU)
 - [Nenchakam Neerunna Neram | Captain Sajan John #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=GatneX22_qQ)
 - [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 14th May 2024 # Vanakkamasam Prayer 2024 May 14 Japamala](https://www.youtube.com/watch?v=VVbPYDBaVTY)
 - [Ente Yeshu Enikku Nallavan | Praise and Worship Songs | Binoy Chacko | Christian Melody Songs](https://www.youtube.com/watch?v=6GdukNqZIuE)
 - [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=EhB21Agyc9s)
-- [ഇന്ന് മെയ് 14 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala dhukkathint](https://www.youtube.com/watch?v=z9_gpo1o5hU)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=SVkY0TgSjm0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
