@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Sakkarakatti &lpar;2008&rpar; Tamil HD DVD - 720p HQ - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 4GB - UE](https://www.1tamilmv.eu/index.php?/forums/topic/179765-sakkarakatti-2008-tamil-hd-dvd-720p-hq-avc-untouched-aac20-4gb-ue/&do=findComment&comment=365566)
+- [Uyyala Jampala &lpar;2013&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.1GB &amp; 750MB] - [x264 - 400MB] - [Google Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/179760-uyyala-jampala-2013-telugu-true-web-dl-1080p-720p-avc-aac-20-11gb-750mb-x264-400mb-google-drive/&do=findComment&comment=365565)
 - [Panchatanthiram &lpar;2002&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - AAC2.0&lpar;128kbps&rpar; - 5.4GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179764-panchatanthiram-2002-tamil-true-web-dl-1080p-720p-avc-untouched-aac20128kbps-54gb-27gb-14gb-x264-700mb-400mb-gdrive/&do=findComment&comment=365564)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [14-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179763-movies-collection-all-languages-4k-1080p-720p-576p-480p-14-05-2024/&do=findComment&comment=365563)
 - [The Covid Killer &lpar;2021&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.5GB &amp; 900MB | x264 - &lpar;Tamil + Hindi&rpar; - 350MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179762-the-covid-killer-2021-hd-original-audios-1080p-720p-x264-tamil-hindi-eng-15gb-900mb-x264-tamil-hindi-350mb-esub/&do=findComment&comment=365562)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [14-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179763-movies-collection-all-languages-4k-1080p-720p-576p-480p-14-05-2024/&do=findComment&comment=365561)
-- [Vazhakku &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.5GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - HC-ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179761-vazhakku-2022-malayalam-true-web-dl-1080p-720p-avc-aac-20-25gb-12gb-x264-700mb-400mb-hc-esub/&do=findComment&comment=365560)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
