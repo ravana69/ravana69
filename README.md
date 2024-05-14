@@ -36,8 +36,8 @@
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 14th of May 2024](https://www.youtube.com/watch?v=klmfLdKGOYQ)
 - [മൺമയമാം ഈയുലകിൽ | Manmayamam Eeyulakil | Chithra Arun | Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=O3PIDq6elQI)
 - [ദൈവം നമ്മുടെ ഹൃദയങ്ങളിൽ ഇട്ടിരിക്കുന്ന വിത്താണ് സ്നേഹം 😇 Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=E8KvskJ-mPs)
+- [Fall in love with #KForKrishna Shorts | Guruvayoorambala Nadayil | Prithviraj | #shorts #ytshorts](https://www.youtube.com/watch?v=BhpAYQ4fc8o)
 - [Devi paadam Video Song | Kuttettan | KS Chithra | Kaithapram | Raveendran](https://www.youtube.com/watch?v=sQP4m7tIxRA)
-- [Swapnalekhe Ninte | HD Video | Ankathattu | G Devarajan | P Jayachandran | P Madhuri](https://www.youtube.com/watch?v=YKrb17sHI9w)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
