@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Covid Killer &lpar;2021&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.5GB &amp; 900MB | x264 - &lpar;Tamil + Hindi&rpar; - 350MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179762-the-covid-killer-2021-hd-original-audios-1080p-720p-x264-tamil-hindi-eng-15gb-900mb-x264-tamil-hindi-350mb-esub/&do=findComment&comment=365559)
+- [Turn Back &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Chi&rpar; - 2.2GB &amp; 1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179743-turn-back-2022-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-chi-22gb-1gb-x264-tamil-telugu-hindi-400mb-esub/&do=findComment&comment=365558)
+- [Vazhakku &lpar;2022&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.5GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB] - HC-ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179761-vazhakku-2022-malayalam-true-web-dl-1080p-720p-avc-aac-20-25gb-12gb-x264-700mb-400mb-hc-esub/&do=findComment&comment=365557)
 - [Kuruvi &lpar;2008&rpar; Tamil BluRay - 1080p HQ - AVC - UNTOUCHED - &lpar;DTS.5.1&rpar; - 8GB - ESub - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/179759-kuruvi-2008-tamil-bluray-1080p-hq-avc-untouched-dts51-8gb-esub-gdflix/&do=findComment&comment=365556)
 - [Uyyala Jampala &lpar;2013&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.1GB &amp; 750MB] - [x264 - 400MB] - [Google Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/179760-uyyala-jampala-2013-telugu-true-web-dl-1080p-720p-avc-aac-20-11gb-750mb-x264-400mb-google-drive/&do=findComment&comment=365555)
-- [Kuruvi &lpar;2008&rpar; Tamil BluRay - 1080p HQ - AVC - UNTOUCHED - &lpar;DTS.5.1&rpar; - 8GB - ESub - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/179759-kuruvi-2008-tamil-bluray-1080p-hq-avc-untouched-dts51-8gb-esub-gdflix/&do=findComment&comment=365554)
-- [60 Telugu Movies - BluRay/WEB DL - 1080p - x264 - DD5.1/DD2.0/AAC2.0 - ESub - 150GB](https://www.1tamilmv.eu/index.php?/forums/topic/118314-60-telugu-movies-blurayweb-dl-1080p-x264-dd51dd20aac20-esub-150gb/&do=findComment&comment=365553)
-- [The Boys &lpar;2024&rpar; Tamil - AHA &amp; SS WEB-DL - 4K , 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - DD+5.1&lpar;384kbps&rpar; - 3GB - 2.1GB - 1.5GB - 1.2GB &amp; 850MB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179758-the-boys-2024-tamil-aha-ss-web-dl-4k-1080p-720p-avc-hevc-untouched-dd51384kbps-3gb-21gb-15gb-12gb-850mb-esub-gdrive/&do=findComment&comment=365552)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
