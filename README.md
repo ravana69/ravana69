@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [അമ്മേ അമലേ അനുഗ്രഹീതേ...](https://www.youtube.com/watch?v=_fbOY7EIPCg)
+- [എത്രകേട്ടാലും മതി വരാത്ത പ്രണയം തുളുമ്പുന്ന സിനിമാഗാനങ്ങൾ | EVERGREEN LOVE SONGS MALAYALAM](https://www.youtube.com/watch?v=sDNfJH7DxJo)
+- [lജനലക്ഷങ്ങളുടെ ഇഷ്ടം നേടിയെടുത്ത പ്രിയ ഗായകൻ ഗാഗുൽ ജോസെഫിന്റെ ജനപ്രിയ ഗാനങ്ങൾ | Singer Of The Week](https://www.youtube.com/watch?v=aOvVxQSztjg)
 - [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=xX1wAYV5_6I)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 14th of May 2024](https://www.youtube.com/watch?v=klmfLdKGOYQ)
 - [മൺമയമാം ഈയുലകിൽ | Manmayamam Eeyulakil | Chithra Arun | Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=O3PIDq6elQI)
-- [ദൈവം നമ്മുടെ ഹൃദയങ്ങളിൽ ഇട്ടിരിക്കുന്ന വിത്താണ് സ്നേഹം 😇 Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=E8KvskJ-mPs)
-- [Fall in love with #KForKrishna Shorts | Guruvayoorambala Nadayil | Prithviraj | #shorts #ytshorts](https://www.youtube.com/watch?v=BhpAYQ4fc8o)
-- [Devi paadam Video Song | Kuttettan | KS Chithra | Kaithapram | Raveendran](https://www.youtube.com/watch?v=sQP4m7tIxRA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
