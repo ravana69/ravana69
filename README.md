@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oru Ponkinaviletho | ഒരു പൊൻ കിനാവിൽ |  George kutty C/o George kutty | Malayalam Film Song](https://www.youtube.com/watch?v=-4f6hfqukuw)
+- [കുളിരേകും കാറ്റ് പോൽ നിറമേഴും പൂവുപോൽ മനസിനെ മോഹിപ്പിക്കും മനോഹര ഗാനങ്ങൾ | EVERGREEN HITS](https://www.youtube.com/watch?v=5Frv8KIpzZA)
+- [Ezhazhake Noorazhake | Sree Ayyappanum Vaavarum (1982) | Poovachal Khade | AT Ummer | Ambili](https://www.youtube.com/watch?v=5SIzjNM-Nzc)
 - [Aaranne Aaranne | Lyrical + Karaoke Video | Urumi | Deepak Dev | Prithviraj | Job Kurian | Rita](https://www.youtube.com/watch?v=xswvXHE8Gao)
 - [Veshangal Janmangal Video Song | Vesham | Mammootty | KJ Yesudas | Kaithapram | SA Rajkumar](https://www.youtube.com/watch?v=OgosiUtLskc)
 - [Lets Vibe for Vatteppam | Mandakini | Dabzee | Altaf Salim | Bibin Ashok | #shorts #ytshorts](https://www.youtube.com/watch?v=VuQwZJtAF0s)
-- [Sharada Malayalam Romantic Old Superhit Song l Udayam Movie | Madhu, Sharada, Adoor Bhasi](https://www.youtube.com/watch?v=aY4HQU08k_Y)
-- [Lalee Lalee | Kalimannu |  Malayalam Lullaby Film Songs #mjayachandran #shortsfeed #shorts #onvkurup](https://www.youtube.com/watch?v=IP-bN8ENMsU)
-- [Nenchakam Neerunna Neram | Captain Sajan John #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=GatneX22_qQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
