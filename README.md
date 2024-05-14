@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Outer Range &lpar;2022&rpar; S01 EP&lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Eng] - 4.5GB - 2GB &amp; 850MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179771-outer-range-2022-s01-ep01-08-true-web-dl-1080p-720p-x264-dd51-192kbps-tamil-telugu-eng-45gb-2gb-850mb-esub/&do=findComment&comment=365573)
 - [Kuruvi &lpar;2008&rpar; Tamil BluRay - 1080p HQ - AVC - UNTOUCHED - &lpar;DTS.5.1&rpar; - 8GB - ESub - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/179759-kuruvi-2008-tamil-bluray-1080p-hq-avc-untouched-dts51-8gb-esub-gdflix/&do=findComment&comment=365572)
 - [Pachinko.S01.2160p.ATVP.WEB- DL.DDP5.1.Atmos.HDR &lpar;Direct Download&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/179770-pachinkos012160patvpweb-dlddp51atmoshdr-direct-download/&do=findComment&comment=365571)
 - [Incision &lpar;2020&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179769-incision-2020-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=365570)
 - [Bawaal &lpar;2023&rpar; Hindi &lpar;MUSIC VIDEO ALBUM&rpar; AMZN 4K-CBR WEB-DL UNTOUCHED - HEVC - [Hindi DD+5.1 &lpar;640k&rpar;] E-Sub By-Vincenzo](https://www.1tamilmv.eu/index.php?/forums/topic/179768-bawaal-2023-hindi-music-video-album-amzn-4k-cbr-web-dl-untouched-hevc-hindi-dd51-640k-e-sub-by-vincenzo/&do=findComment&comment=365569)
-- [Bawaal &lpar;2023&rpar; Hindi &lpar;MUSIC VIDEO ALBUM&rpar; AMZN 4K-HDR WEB-DL UNTOUCHED - HEVC - [Hindi DD+5.1 &lpar;640k&rpar;] E-Sub By-Vincenzo](https://www.1tamilmv.eu/index.php?/forums/topic/179767-bawaal-2023-hindi-music-video-album-amzn-4k-hdr-web-dl-untouched-hevc-hindi-dd51-640k-e-sub-by-vincenzo/&do=findComment&comment=365568)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
