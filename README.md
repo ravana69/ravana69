@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന May 15 # Athiravile Prarthana 15th of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=5qJoXhLjrNo)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 15th of May 2024](https://www.youtube.com/watch?v=VsCPnTEm4bw)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=uAb2Petghdw)
 - [രവീന്ദ്രസംഗീതം| ഓർമകളിലൂടെ ഇന്നും ജീവിക്കുന്ന മാഷിൻറെ ഗാനങ്ങൾ | Raveendrasangeetham | കെ ജെ യേശുദാസ്](https://www.youtube.com/watch?v=Lypf3pAc8jY)
 - [സഹായകൻ-Vol 2 | SAHAYAKAN -vol 2 | HOLY SPIRIT](https://www.youtube.com/watch?v=JYvcOO2kKew)
 - [Guruvayoorambala Nadayil - Release Teaser | Prithviraj | Basil | Vipin Das | Ankit Menon](https://www.youtube.com/watch?v=_nv4yQbKA0A)
-- [Pookunnitha Mulla | Vajram | Mammootty | Vasundara Das | Aravind | Ouseppachan | Sujatha Mohan](https://www.youtube.com/watch?v=Y1Xdl8JVrHQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
