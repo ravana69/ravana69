@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Boys &lpar;2024&rpar; Tamil - AHA &amp; SS WEB-DL - 4K , 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - DD+5.1&lpar;384kbps&rpar; - 3GB - 2.1GB - 1.5GB - 1.2GB &amp; 850MB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179758-the-boys-2024-tamil-aha-ss-web-dl-4k-1080p-720p-avc-hevc-untouched-dd51384kbps-3gb-21gb-15gb-12gb-850mb-esub-gdrive/&do=findComment&comment=365552)
 - [Godzilla x Kong: The New Empire &lpar;2024&rpar; &lpar;UHD + Original Audios&rpar; - [4K, 1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/179757-godzilla-x-kong-the-new-empire-2024-uhd-original-audios-4k-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng/&do=findComment&comment=365551)
 - [Godzilla x Kong_ The New Empire &lpar;2024&rpar; 2160p HDR10Plus WEBRip HEVC Multi Original Audios [ Telugu + Tamil + Hindi &lpar;AMZN Org DDP 5.1~640Kbps&rpar; + English &lpar;AAC 5.1&rpar; ] - x265  - ESub.mkv [5.81 GB]](https://www.1tamilmv.eu/index.php?/forums/topic/179754-godzilla-x-kong_-the-new-empire-2024-2160p-hdr10plus-webrip-hevc-multi-original-audios-telugu-tamil-hindi-amzn-org-ddp-51~640kbps-english-aac-51-x265-esubmkv-581-gb/&do=findComment&comment=365550)
 - [[60FPS] Godzilla x Kong: The New Empire &lpar;2024&rpar; 1080p 10bit AMZN WEBRip Multi DDP5.1 MSubs H.265 - 1080p [60FPS] - 9.6 GB](https://www.1tamilmv.eu/index.php?/forums/topic/179755-60fps-godzilla-x-kong-the-new-empire-2024-1080p-10bit-amzn-webrip-multi-ddp51-msubs-h265-1080p-60fps-96-gb/&do=findComment&comment=365549)
 - [Undercover Counter Attack &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Chi&rpar; - 2GB &amp; 950MB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179756-undercover-counter-attack-2022-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-chi-2gb-950mb-x264-tamil-telugu-hindi-400mb-esub/&do=findComment&comment=365548)
-- [[60FPS] Godzilla x Kong: The New Empire &lpar;2024&rpar; 1080p 10bit AMZN WEBRip Multi DDP5.1 MSubs H.265 - 1080p [60FPS] - 9.6 GB](https://www.1tamilmv.eu/index.php?/forums/topic/179755-60fps-godzilla-x-kong-the-new-empire-2024-1080p-10bit-amzn-webrip-multi-ddp51-msubs-h265-1080p-60fps-96-gb/&do=findComment&comment=365547)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
