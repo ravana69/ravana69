@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [[60FPS] Godzilla x Kong: The New Empire &lpar;2024&rpar; 1080p 10bit AMZN WEBRip Multi DDP5.1 MSubs H.265 - 1080p [60FPS] - 9.6 GB](https://www.1tamilmv.eu/index.php?/forums/topic/179755-60fps-godzilla-x-kong-the-new-empire-2024-1080p-10bit-amzn-webrip-multi-ddp51-msubs-h265-1080p-60fps-96-gb/&do=findComment&comment=365549)
+- [[60FPS] Godzilla x Kong: The New Empire &lpar;2024&rpar; 1080p 10bit AMZN WEBRip Multi DDP5.1 MSubs H.265 - 1080p [60FPS] - 9.6 GB](https://www.1tamilmv.eu/index.php?/forums/topic/179755-60fps-godzilla-x-kong-the-new-empire-2024-1080p-10bit-amzn-webrip-multi-ddp51-msubs-h265-1080p-60fps-96-gb/&do=findComment&comment=365547)
 - [Godzilla x Kong_ The New Empire &lpar;2024&rpar; 2160p HDR10Plus WEBRip HEVC Multi Original Audios [ Telugu + Tamil + Hindi &lpar;AMZN Org DDP 5.1~640Kbps&rpar; + English &lpar;AAC 5.1&rpar; ] - x265  - ESub.mkv [5.81 GB]](https://www.1tamilmv.eu/index.php?/forums/topic/179754-godzilla-x-kong_-the-new-empire-2024-2160p-hdr10plus-webrip-hevc-multi-original-audios-telugu-tamil-hindi-amzn-org-ddp-51~640kbps-english-aac-51-x265-esubmkv-581-gb/&do=findComment&comment=365546)
 - [The Boys &lpar;2024&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.2GB - 2.3GB - 1.2GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179752-the-boys-2024-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-32gb-23gb-12gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=365545)
 - [Kutty &lpar;2010&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 9GB - 3GB - 1.4GB &amp; 1.1GB] - [x264 - 700MB - 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179702-kutty-2010-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-9gb-3gb-14gb-11gb-x264-700mb-400mb/&do=findComment&comment=365544)
-- [Naan Kadavul &lpar;2009&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.9GB - 1.5GB &amp; 950MB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179751-naan-kadavul-2009-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-29gb-15gb-950mb-x264-700mb-400mb/&do=findComment&comment=365543)
-- [Kalvan &lpar;2024&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Telugu + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179753-kalvan-2024-true-web-dl-1080p-720p-avc-telugu-malayalam-kannada-dd51-192kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=365542)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
