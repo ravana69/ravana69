@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രവീന്ദ്രസംഗീതം| ഓർമകളിലൂടെ ഇന്നും ജീവിക്കുന്ന മാഷിൻറെ ഗാനങ്ങൾ | Raveendrasangeetham | കെ ജെ യേശുദാസ്](https://www.youtube.com/watch?v=Lypf3pAc8jY)
+- [സഹായകൻ-Vol 2 | SAHAYAKAN -vol 2 | HOLY SPIRIT](https://www.youtube.com/watch?v=JYvcOO2kKew)
 - [Pookunnitha Mulla | Vajram | Mammootty | Vasundara Das | Aravind | Ouseppachan | Sujatha Mohan](https://www.youtube.com/watch?v=Y1Xdl8JVrHQ)
 - [Chillu Vilakkumaay Song | Shorts | Churam | Malayalam Movie Songs | KJ Yesudas #malayalammoviesongs](https://www.youtube.com/watch?v=aslMbe7lats)
 - [Muthumani Thooval Tharam|  kauravar  |SP Venkitesh|KJ Yesudas  #songoftheday](https://www.youtube.com/watch?v=-qdu01XIuLk)
 - [അമ്മേ അമലേ അനുഗ്രഹീതേ...](https://www.youtube.com/watch?v=_fbOY7EIPCg)
-- [എത്രകേട്ടാലും മതി വരാത്ത പ്രണയം തുളുമ്പുന്ന സിനിമാഗാനങ്ങൾ | EVERGREEN LOVE SONGS MALAYALAM](https://www.youtube.com/watch?v=sDNfJH7DxJo)
-- [lജനലക്ഷങ്ങളുടെ ഇഷ്ടം നേടിയെടുത്ത പ്രിയ ഗായകൻ ഗാഗുൽ ജോസെഫിന്റെ ജനപ്രിയ ഗാനങ്ങൾ | Singer Of The Week](https://www.youtube.com/watch?v=aOvVxQSztjg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
