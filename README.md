@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Madhu Malayalam Romantic Old Superhit Movie Song l Udayam  Movie | Sharada, Adoor Bhasi](https://www.youtube.com/watch?v=pAmKY3lH-0s)
+- [Sundari Onnu Parayu Video Song | Lion | Dileep | Kavya Madhavan | Udit Narayan | Shweta Mohan](https://www.youtube.com/watch?v=xeDQmV5I7jE)
+- [Ente Mavum Poothe |  Mollywood DJ Party Hits #vineethsreenivasan #shaanrahman #shortsfeed #shorts](https://www.youtube.com/watch?v=Oq_eL6rwPAc)
 - [Suruma | Camel Safari | Shorts #ytshorts #manoramamusic](https://www.youtube.com/watch?v=DV5swK13lsE)
 - [Adipoli Bhootham | Pattanathil Bhootham   #manoramamusic #shorts](https://www.youtube.com/watch?v=2ugCPOUdyYo)
 - [Krooshilninnum | Maria Kolady | Raju Varghese #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=PL7_BIuqG_A)
-- [Swarga Santhoshavum | Christian Video Song | KG Markose | Praise and Worship Songs](https://www.youtube.com/watch?v=2m3CIq7gJpg)
-- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 15th May 2024 # Vanakkamasam Prayer 24 May 15 # Japamala](https://www.youtube.com/watch?v=-mHRWPBNjps)
-- [കൃപാസന മാതാവിന്റെ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kripasanam  mother mary songs malayalam](https://www.youtube.com/watch?v=-JxcKTA8sN4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
