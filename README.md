@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Ammo Bomma &lpar;2001&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 3.1GB &amp; 1.6GB] - [x264 - 850MB] - [Google Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/179782-ammo-bomma-2001-telugu-true-web-dl-1080p-720p-avc-aac-20-31gb-16gb-x264-850mb-google-drive/&do=findComment&comment=365603)
 - [Ashley Madison: Sex, Lies &amp; Scandal &lpar;2024&rpar; S01 EP &lpar;01-03&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 1.8GB - 800MB &amp; 500MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179780-ashley-madison-sex-lies-scandal-2024-s01-ep-01-03-true-web-dl-1080p-720p-avc-tamil-hindi-eng-dd51-192kbps-18gb-800mb-500mb-esub/&do=findComment&comment=365602)
 - [Uyyala Jampala &lpar;2013&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.1GB &amp; 750MB] - [x264 - 400MB] - [Google Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/179760-uyyala-jampala-2013-telugu-true-web-dl-1080p-720p-avc-aac-20-11gb-750mb-x264-400mb-google-drive/&do=findComment&comment=365601)
 - [Ammo Bomma &lpar;2001&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 3.1GB &amp; 1.6GB] - [x264 - 850MB] - [Google Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/179782-ammo-bomma-2001-telugu-true-web-dl-1080p-720p-avc-aac-20-31gb-16gb-x264-850mb-google-drive/&do=findComment&comment=365600)
 - [M.Kumaran Son of Mahalakshmi &lpar;2004&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 9.8GB - 3GB - 1.4GB &amp; 1.2GB] - [x264 - 700MB - 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179735-mkumaran-son-of-mahalakshmi-2004-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-98gb-3gb-14gb-12gb-x264-700mb-400mb/&do=findComment&comment=365599)
-- [Thirupathi &lpar;2006&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 4.2GB - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179779-thirupathi-2006-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-42gb-27gb-14gb-850mb-x264-700mb-400mb/&do=findComment&comment=365598)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
