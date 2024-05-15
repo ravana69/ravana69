@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Suruma | Camel Safari | Shorts #ytshorts #manoramamusic](https://www.youtube.com/watch?v=DV5swK13lsE)
+- [Adipoli Bhootham | Pattanathil Bhootham   #manoramamusic #shorts](https://www.youtube.com/watch?v=2ugCPOUdyYo)
+- [Krooshilninnum | Maria Kolady | Raju Varghese #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=PL7_BIuqG_A)
 - [Swarga Santhoshavum | Christian Video Song | KG Markose | Praise and Worship Songs](https://www.youtube.com/watch?v=2m3CIq7gJpg)
 - [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 15th May 2024 # Vanakkamasam Prayer 24 May 15 # Japamala](https://www.youtube.com/watch?v=-mHRWPBNjps)
 - [കൃപാസന മാതാവിന്റെ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kripasanam  mother mary songs malayalam](https://www.youtube.com/watch?v=-JxcKTA8sN4)
-- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=1JIYHGH9KpA)
-- [ഇന്ന് മെയ് 15 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala mahimayude](https://www.youtube.com/watch?v=_Hue3oYEAvo)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=wp1Xb1OaATk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
