@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kung Fu Dunk &lpar;2008&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Chi&rpar; - 2GB &amp; 1.2GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179648-kung-fu-dunk-2008-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-chi-2gb-12gb-x264-tamil-telugu-hindi-400mb-esub/&do=findComment&comment=365580)
 - [Vel &lpar;2007&rpar; 480p AYN DVD9 REMUX DTS.5.1 Esubs x264 - 7.1 GB](https://www.1tamilmv.eu/index.php?/forums/topic/179773-vel-2007-480p-ayn-dvd9-remux-dts51-esubs-x264-71-gb/&do=findComment&comment=365579)
 - [[DoVi] Godzilla x Kong: The New Empire &lpar;2024&rpar; 2160p HDR10-DV AMZN WEB-DL Multi DDP5.1 Esubs x265 HEVC - 18.1 GB](https://www.1tamilmv.eu/index.php?/forums/topic/179772-dovi-godzilla-x-kong-the-new-empire-2024-2160p-hdr10-dv-amzn-web-dl-multi-ddp51-esubs-x265-hevc-181-gb/&do=findComment&comment=365578)
 - [Incision &lpar;2020&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179769-incision-2020-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=365577)
 - [Incision &lpar;2020&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179769-incision-2020-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=365576)
-- [M.Kumaran Son of Mahalakshmi &lpar;2004&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 9.8GB - 3GB - 1.4GB &amp; 1.2GB] - [x264 - 700MB - 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179735-mkumaran-son-of-mahalakshmi-2004-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-98gb-3gb-14gb-12gb-x264-700mb-400mb/&do=findComment&comment=365575)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
