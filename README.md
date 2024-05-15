@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [പ്രണയവസന്തം | Njan Ekananu Malayalam Movie Song | Poornima Jayaram | K J Yesudas | K S Chithra](https://www.youtube.com/watch?v=K6f7e9TvlEw)
-- [Chimmi Chimmi  | Film song Animation Video  #shortsfeed #kidscartoon #animation #shortsvideo  #reels](https://www.youtube.com/watch?v=lQ1ZDg4z-e0)
-- [സങ്കടങ്ങൾ ഏറ്റെടുക്കുന്ന ഗാനങ്ങൾ | KESTER SONGS #KESTERHITS](https://www.youtube.com/watch?v=CiVoPRroU9Y)
-- [Aarum Kaana Video Song | CID Ramachandran Retd SI | Vidhu Prathap | Anu B Ivar | Deepak](https://www.youtube.com/watch?v=B3l7E79MOww)
-- [സൂഗീസൊ | SUGEESO | പുരോഹിതന്മാരുടെ കബറടക്ക ശുശ്രൂഷയിലെ ഗീതം | ROY PUTHUR #funeral](https://www.youtube.com/watch?v=3bdeft39R8o)
-- [Mizhinanayum Neram | Malayalam Christian Devotional Songs | Kester Songs | ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ](https://www.youtube.com/watch?v=wz8xadV-Sr8)
+- [ഹാ മനോഹരം യാഹേ | ROY PUTHUR | MONBY PODIMON | #christiandevotionalsongs](https://www.youtube.com/watch?v=DZ0uoVzGvzg)
+- [Monica: Oru AI Story - Official Trailer | EM Ashraf | Aparna Mulberry | Gopinath Muthukad](https://www.youtube.com/watch?v=dyxpTOmoPQs)
+- [ദൈവം നിന്റെ കൂടെയുണ്ട്   | 😇 Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=WWv6qCspe14)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 15th of May 2024](https://www.youtube.com/watch?v=Sie0hlIuLJk)
+- [Get ready to Dance for #KForKrishna | Guruvayoorambala Nadayil | Prithviraj | #shorts #ytshorts](https://www.youtube.com/watch?v=MexqCv1wYPc)
+- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=PMi7GLQDRyY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
