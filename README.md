@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Angadi Theru &lpar;2010&rpar; Tamil BluRay - [1080p &amp; 720p - AVC / HEVC - &lpar;DTS 5.1- 1509Kbps + DD5.1 - 640Kbps + AAC 2.0&rpar; - 11.7GB - 3.1GB - 1.6GB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179776-angadi-theru-2010-tamil-bluray-1080p-720p-avc-hevc-dts-51-1509kbps-dd51-640kbps-aac-20-117gb-31gb-16gb-x264-700mb-400mb-esub/&do=findComment&comment=365614)
+- [Angadi Theru &lpar;2010&rpar; Tamil BluRay - [1080p &amp; 720p - AVC / HEVC - &lpar;DTS 5.1- 1509Kbps + DD5.1 - 640Kbps + AAC 2.0&rpar; - 11.7GB - 3.1GB - 1.6GB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179776-angadi-theru-2010-tamil-bluray-1080p-720p-avc-hevc-dts-51-1509kbps-dd51-640kbps-aac-20-117gb-31gb-16gb-x264-700mb-400mb-esub/&do=findComment&comment=365613)
+- [Lampan &lpar;2024&rpar; S01 EP&lpar;01-07&rpar; TRUE WEB-DL - [1080p - 720p &amp; 360p - AVC - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 5.2GB - 2.5GB &amp; 850MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179787-lampan-2024-s01-ep01-07-true-web-dl-1080p-720p-360p-avc-aac-20-tamil-telugu-hindi-malayalam-kannada-52gb-25gb-850mb-esub/&do=findComment&comment=365612)
 - [Lampan &lpar;2024&rpar; S01 EP&lpar;01-07&rpar; TRUE WEB-DL - [1080p - 720p &amp; 360p - AVC - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Malayalam + Kannada] - 5.2GB - 2.5GB &amp; 850MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179787-lampan-2024-s01-ep01-07-true-web-dl-1080p-720p-360p-avc-aac-20-tamil-telugu-hindi-malayalam-kannada-52gb-25gb-850mb-esub/&do=findComment&comment=365611)
 - [Endukante Premanta &lpar;2012&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; Ai 1080p WEB-HD UNTOUCHED - AVC - [Telugu DTS 5.1 &lpar;755Kbps&rpar;] E-Sub By-Vincenzo](https://www.1tamilmv.eu/index.php?/forums/topic/179784-endukante-premanta-2012-telugu-music-video-album-ai-1080p-web-hd-untouched-avc-telugu-dts-51-755kbps-e-sub-by-vincenzo/&do=findComment&comment=365610)
-- [Dark.Matter.2024.S01 &lpar;E01-E02-E03].The.Box.2160p.ATVP.WEB- DL.DDP5.1.Atmos.DV.HDR](https://www.1tamilmv.eu/index.php?/forums/topic/179786-darkmatter2024s01-e01-e02-e03thebox2160patvpweb-dlddp51atmosdvhdr/&do=findComment&comment=365609)
-- [Yellowstone.S01-S05 .2160p.PCOK.WEB-DL.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/179785-yellowstones01-s05-2160ppcokweb-dlddp51-direct-download/&do=findComment&comment=365608)
-- [Endukante Premanta &lpar;2012&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; Ai 1080p WEB-HD UNTOUCHED - AVC - [Telugu DTS 5.1 &lpar;755Kbps&rpar;] E-Sub By-Vincenzo](https://www.1tamilmv.eu/index.php?/forums/topic/179784-endukante-premanta-2012-telugu-music-video-album-ai-1080p-web-hd-untouched-avc-telugu-dts-51-755kbps-e-sub-by-vincenzo/&do=findComment&comment=365607)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
