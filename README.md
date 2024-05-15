@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Neermizhi Peeliyil|Vachanam|Jayaram|Sithara|Suresh Gopi|](https://www.youtube.com/watch?v=PDDrQhEE6kQ)
+- [Rasaleela | Itha Ivide Vare | Yusufali Kecheri | G Devarajan | KJ Yesudas | Jayabharathi | Soman](https://www.youtube.com/watch?v=VN6GCkI2-Lo)
+- [Christian Melody Songs | Rajkumar Radhakrishnan | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=hUtAWI7CZE0)
+- [Athira Varavaayi | Thudarkadha | Saikumar | Maathu | Jagathi Sreekumar | Kunchan | Sukumari](https://www.youtube.com/watch?v=DEyHAS2zJXQ)
 - [ഹാ മനോഹരം യാഹേ | ROY PUTHUR | MONBY PODIMON | #christiandevotionalsongs](https://www.youtube.com/watch?v=DZ0uoVzGvzg)
 - [Monica: Oru AI Story - Official Trailer | EM Ashraf | Aparna Mulberry | Gopinath Muthukad](https://www.youtube.com/watch?v=dyxpTOmoPQs)
-- [ദൈവം നിന്റെ കൂടെയുണ്ട്   | 😇 Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=WWv6qCspe14)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 15th of May 2024](https://www.youtube.com/watch?v=Sie0hlIuLJk)
-- [Get ready to Dance for #KForKrishna | Guruvayoorambala Nadayil | Prithviraj | #shorts #ytshorts](https://www.youtube.com/watch?v=MexqCv1wYPc)
-- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=PMi7GLQDRyY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
