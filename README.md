@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Santhwanam Karthika Rathriyil | Kanalkkattu | Mammootty | Yesudas | Urvashi | Sound of Arts](https://www.youtube.com/watch?v=mrY-BA35AXQ)
+- [Maarathavan | K S Chithra |  R S V #ytshorts](https://www.youtube.com/watch?v=SVwvg8deOi4)
 - [Kalla Kalla Kochukalla | Youth Festival | Video | Shibu Chakravarthi | M.Jayachandran | Jose Thomas](https://www.youtube.com/watch?v=jrJvSp79qog)
 - [Dance for Vatteppam | Mandakini | Dabzee | Altaf Salim | Bibin Ashok | #shorts #ytshorts](https://www.youtube.com/watch?v=mbVLk3NcL4o)
 - [Edan Poove Video Song | Daivathinte Makan | Vidyasagar | KS Chithra | P Jayachandran |S Ramesan Nair](https://www.youtube.com/watch?v=MmlRosahgHg)
 - [Sharada Malayalam Romantic Old Superhit Song l Udayam Movie | Madhu, Sharada, Adoor Bhasi](https://www.youtube.com/watch?v=-jspaqjKQtM)
-- [Kalakkatha | Award Winning Film Songs #nanjamma #jakesbejoy #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=Rw6VTYbJuqY)
-- [En Khalbiloru | OneWay Ticket  #shortsvideo #ytshorts #malayalammoviesongs](https://www.youtube.com/watch?v=hbHZgGukRBw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
