@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Zara Hatke Zara Bachke &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; &lpar;Tamil + Telugu + Malayalam + Kannada&rpar; - 2.8GB - 1.6GB &amp; 950MB] - [x264 - 850MB &amp; 500MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179816-zara-hatke-zara-bachke-2023-true-web-dl-1080p-720p-avc-aac-20-tamil-telugu-malayalam-kannada-28gb-16gb-950mb-x264-850mb-500mb-esub/&do=findComment&comment=365664)
+- [Zara Hatke Zara Bachke &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179815-zara-hatke-zara-bachke-2023-hindi-true-web-dl-1080p-720p-avc-dd51-384kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=365663)
 - [Magamuni &lpar;2019&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 4.3GB - ESub - UE](https://www.1tamilmv.eu/index.php?/forums/topic/179703-magamuni-2019-tamil-true-web-dl-1080p-avc-untouched-ddp51-43gb-esub-ue/&do=findComment&comment=365661)
 - [Vil Ambu &lpar;2016&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 5GB - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/179802-vil-ambu-2016-tamil-true-web-dl-1080p-hq-avc-untouched-dd51-5gb-gdflix/&do=findComment&comment=365660)
 - [Sureshanteyum Sumalathayudeyum Hrudayahariyaya Pranayakadha &lpar;2024&rpar; Malayalam HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/179797-sureshanteyum-sumalathayudeyum-hrudayahariyaya-pranayakadha-2024-malayalam-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=365649)
-- [Pudhupettai &lpar;2006&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 12.7GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179803-pudhupettai-2006-tamil-true-web-dl-1080p-720p-avc-untouched-dd51640kbps-127gb-55gb-27gb-14gb-x264-700mb-400mb-esub-gdrive/&do=findComment&comment=365648)
-- [Vil Ambu &lpar;2016&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 5GB - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/179802-vil-ambu-2016-tamil-true-web-dl-1080p-hq-avc-untouched-dd51-5gb-gdflix/&do=findComment&comment=365647)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
