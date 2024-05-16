@@ -23,7 +23,7 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Prince &lpar;2022&rpar; - Tamil Video Songs - 1080p - WEB-DL - DD5.1 - ESubs](https://www.1tamilmv.eu/index.php?/forums/topic/179795-prince-2022-tamil-video-songs-1080p-web-dl-dd51-esubs/&do=findComment&comment=365634)
+- [Prince &lpar;2022&rpar; - Tamil Video Songs - 2160p - WEB-DL - DD5.1 - ESubs](https://www.1tamilmv.eu/index.php?/forums/topic/179795-prince-2022-tamil-video-songs-2160p-web-dl-dd51-esubs/&do=findComment&comment=365634)
 - [Prince &lpar;2022&rpar; - Tamil Video Songs - 1080p - WEB-DL - DD5.1 - ESubs](https://www.1tamilmv.eu/index.php?/forums/topic/179794-prince-2022-tamil-video-songs-1080p-web-dl-dd51-esubs/&do=findComment&comment=365633)
 - [Outer Range &lpar;2024&rpar; S02 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 6.4GB - 2.5GB &amp; 950MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179792-outer-range-2024-s02-ep-01-07-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-eng-dd51-192kbps-64gb-25gb-950mb-esub/&do=findComment&comment=365632)
 - [Ashley Madison: Sex, Lies &amp; Scandal &lpar;2024&rpar; S01 EP &lpar;01-03&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 1.8GB - 800MB &amp; 500MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179780-ashley-madison-sex-lies-scandal-2024-s01-ep-01-03-true-web-dl-1080p-720p-avc-tamil-hindi-eng-dd51-192kbps-18gb-800mb-500mb-esub/&do=findComment&comment=365631)
