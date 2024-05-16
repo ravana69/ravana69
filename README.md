@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Wrong Place &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tamil + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179791-wrong-place-2022-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-2gb-1gb-x264-tamil-hindi-450mb-esub/&do=findComment&comment=365627)
 - [Pachaikili Muthucharam &lpar;2007&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 4.9GB - ESub - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/179790-pachaikili-muthucharam-2007-tamil-true-web-dl-1080p-avc-untouched-dd51-49gb-esub-gdflix/&do=findComment&comment=365626)
 - [Jagadeka Veerudu Athiloka Sundari &lpar;1990&rpar; Telugu HQ HDTV-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 4.2GB &amp; 2.6GB]](https://www.1tamilmv.eu/index.php?/forums/topic/178891-jagadeka-veerudu-athiloka-sundari-1990-telugu-hq-hdtv-dl-1080p-720p-avc-aac-20-42gb-26gb/&do=findComment&comment=365623)
 - [Jagadeka Veerudu Athiloka Sundari &lpar;1990&rpar; Telugu HQ HDTV-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 4.2GB &amp; 2.6GB]](https://www.1tamilmv.eu/index.php?/forums/topic/178891-jagadeka-veerudu-athiloka-sundari-1990-telugu-hq-hdtv-dl-1080p-720p-avc-aac-20-42gb-26gb/&do=findComment&comment=365622)
 - [Anegan &lpar;2015&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;192kbps&rpar; - 3.4GB &amp; 1.4GB - x264 - 700MB &amp; 400MB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179781-anegan-2015-tamil-true-web-dl-1080p-720p-avc-untouched-dd51192kbps-34gb-14gb-x264-700mb-400mb-esub-gdrive/&do=findComment&comment=365621)
-- [Ammo Bomma &lpar;2001&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 3.1GB &amp; 1.6GB] - [x264 - 850MB] - [Google Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/179782-ammo-bomma-2001-telugu-true-web-dl-1080p-720p-avc-aac-20-31gb-16gb-x264-850mb-google-drive/&do=findComment&comment=365620)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
