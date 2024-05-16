@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പരിശുദ്ധ അമ്മേ മാതാവേ...](https://www.youtube.com/watch?v=PDTCpsybXSo)
 - [Akkam Pakkam | www.anukudumbam.com | Ranjini Jose | Kottayam Naseer | Suresh Gopi](https://www.youtube.com/watch?v=0E86dKnY83A)
 - [Vilichathenthinu Veendum  | Dileep | Meera Jasmine | Revathi | KJ Yesudas | Vidyasagar](https://www.youtube.com/watch?v=bv4owDUcXyw)
 - [Manju Pole | Dosth | Vidyasagar | Sreenivas | S Ramesan Nair | Kunchacko Boban | Kavya #SongOfTheDay](https://www.youtube.com/watch?v=31dYeMJV6FQ)
 - [Mizhiyariyathe Video Song | Kunchacko Boban | Shalini | KJ Yesudas | Vidyasagar | Bichu Thirumala](https://www.youtube.com/watch?v=9Jw7lRex4Dk)
 - [Poonkanavin Song | Shorts | Churam | Malayalam Movie Songs | KS Chithra #malayalammoviesongs](https://www.youtube.com/watch?v=82pVxz0ngrU)
-- [മലയാളസിനിമയിലെ തെരഞ്ഞെടുത്ത തേൻതുള്ളിപോൽ തുളുമ്പും മധുര ഗാനങ്ങൾ | EVERGREEN HIT SONGS](https://www.youtube.com/watch?v=gUzk0u_w1OY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
