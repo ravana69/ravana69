@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Kalki 2898 - A.D  Music on Saregama! 💥| #Prabhas #Amithabh #KamalHaasan #SanthoshNarayanan #Shorts](https://www.youtube.com/watch?v=PYCUnB0Y2WI)
-- [മേലാകെ കുളിരു കോരണ മലയാളസിനിമയിലെ അനുഭൂതി പകരും ഗാനങ്ങൾ | EVERGREEN HIT SONGS MALAYALAM](https://www.youtube.com/watch?v=wb--5r7zWgg)
-- [Santhwanam Karthika Rathriyil | Kanalkkattu | Mammootty | Yesudas | Urvashi | Sound of Arts](https://www.youtube.com/watch?v=mrY-BA35AXQ)
-- [Maarathavan | K S Chithra |  R S V #ytshorts](https://www.youtube.com/watch?v=SVwvg8deOi4)
-- [Kalla Kalla Kochukalla | Youth Festival | Video | Shibu Chakravarthi | M.Jayachandran | Jose Thomas](https://www.youtube.com/watch?v=jrJvSp79qog)
-- [Dance for Vatteppam | Mandakini | Dabzee | Altaf Salim | Bibin Ashok | #shorts #ytshorts](https://www.youtube.com/watch?v=mbVLk3NcL4o)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 16th of May 2024](https://www.youtube.com/watch?v=rMkY0QoagFk)
+- [Get into the Beats of Vatteppam | Mandakini | Dabzee | Altaf Salim | Bibin Ashok | #shorts #ytshorts](https://www.youtube.com/watch?v=pWUsxsE4E1A)
+- [തളരുന്ന മനസ്സിന് പുതു ജീവൻ നൽകുന്ന സ്നേഹമാണ് ദൈവം | 😇 Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=gjBkE0CHH0Y)
+- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=VyifEv0CKRc)
+- [Time To Dance For Nadanna Sambhavam |Biju Menon | Vishnu Narayan | Ankit Menon | Shabareesh Varma](https://www.youtube.com/watch?v=Fcuxk3jvhMQ)
+- [Oh Maara - Video Song | Mandakini | Altaf Salim | Anarkali Marikar | Vinod Leela | Bibin Ashok](https://www.youtube.com/watch?v=YRbmIduCYgU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
