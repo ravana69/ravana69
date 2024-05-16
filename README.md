@@ -24,10 +24,10 @@
 
 <!-- BLOG-POST-LIST:START -->
 - [Guruvayoorambala Nadayil &lpar;2024&rpar; Malayalam HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/179796-guruvayoorambala-nadayil-2024-malayalam-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=365644)
+- [DreadOut &lpar;2019&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Indonesian&rpar; - 1.8GB - 950MB &amp; 350MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179800-dreadout-2019-hd-original-audios-1080p-720p-x264-tamil-indonesian-18gb-950mb-350mb-esub/&do=findComment&comment=365643)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [16-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179799-movies-collection-all-languages-4k-1080p-720p-576p-480p-16-05-2024/&do=findComment&comment=365642)
 - [Inspector Rishi &lpar;2024&rpar; S01 EP &lpar;01-10&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 640Kbps&rpar; - 8GB - 3.5GB &amp; 1GB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/178702-inspector-rishi-2024-s01-ep-01-10-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-640kbps-8gb-35gb-1gb-esub/&do=findComment&comment=365641)
 - [Bridgerton &lpar;2024&rpar; S03 EP &lpar;01-04&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 4.3GB - 2GB &amp; 800MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179793-bridgerton-2024-s03-ep-01-04-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-eng-dd51-192kbps-43gb-2gb-800mb-esub/&do=findComment&comment=365640)
-- [Inspector Rishi &lpar;2024&rpar; S01 EP &lpar;01-10&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 640Kbps&rpar; - 8GB - 3.5GB &amp; 1GB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/178702-inspector-rishi-2024-s01-ep-01-10-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-640kbps-8gb-35gb-1gb-esub/&do=findComment&comment=365639)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
