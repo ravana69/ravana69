@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളസിനിമയിലെ തെരഞ്ഞെടുത്ത തേൻതുള്ളിപോൽ തുളുമ്പും മധുര ഗാനങ്ങൾ | EVERGREEN HIT SONGS](https://www.youtube.com/watch?v=gUzk0u_w1OY)
+- [Find your Vibe in #KForKrishna💥😍| #GuruvayoorambalaNadayil | #Prithviraj | #shorts #ytshorts](https://www.youtube.com/watch?v=hNbuFo3lmuc)
+- [Christian Superhit Songs | Manoj Christy | Christian Melody Songs | Jayachandran | Joji Johns](https://www.youtube.com/watch?v=ycsKC91ZxnQ)
+- [സംഭ്രമ വൃത്താന്തങ്ങളുമായി ചിത്തിനി ഒരുങ്ങുന്നു | Chithini Movie | East Coast Vijayan |Location Video](https://www.youtube.com/watch?v=tfZZCR0g4Zw)
 - [Soubhagyam | Pattanapravesham | Satheesh Babu | Cochin Ibrahim | Shyam | Yusufali Kechery](https://www.youtube.com/watch?v=WxhP60uz4NE)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 16th of May 2024](https://www.youtube.com/watch?v=rMkY0QoagFk)
-- [Get into the Beats of Vatteppam | Mandakini | Dabzee | Altaf Salim | Bibin Ashok | #shorts #ytshorts](https://www.youtube.com/watch?v=pWUsxsE4E1A)
-- [തളരുന്ന മനസ്സിന് പുതു ജീവൻ നൽകുന്ന സ്നേഹമാണ് ദൈവം | 😇 Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=gjBkE0CHH0Y)
-- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=VyifEv0CKRc)
-- [Time To Dance For Nadanna Sambhavam |Biju Menon | Vishnu Narayan | Ankit Menon | Shabareesh Varma](https://www.youtube.com/watch?v=Fcuxk3jvhMQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
