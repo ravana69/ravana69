@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pachaikili Muthucharam &lpar;2007&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 4.9GB - ESub - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/179790-pachaikili-muthucharam-2007-tamil-true-web-dl-1080p-avc-untouched-dd51-49gb-esub-gdflix/&do=findComment&comment=365626)
+- [Jagadeka Veerudu Athiloka Sundari &lpar;1990&rpar; Telugu HQ HDTV-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 4.2GB &amp; 2.6GB]](https://www.1tamilmv.eu/index.php?/forums/topic/178891-jagadeka-veerudu-athiloka-sundari-1990-telugu-hq-hdtv-dl-1080p-720p-avc-aac-20-42gb-26gb/&do=findComment&comment=365623)
+- [Jagadeka Veerudu Athiloka Sundari &lpar;1990&rpar; Telugu HQ HDTV-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 4.2GB &amp; 2.6GB]](https://www.1tamilmv.eu/index.php?/forums/topic/178891-jagadeka-veerudu-athiloka-sundari-1990-telugu-hq-hdtv-dl-1080p-720p-avc-aac-20-42gb-26gb/&do=findComment&comment=365622)
 - [Anegan &lpar;2015&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;192kbps&rpar; - 3.4GB &amp; 1.4GB - x264 - 700MB &amp; 400MB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179781-anegan-2015-tamil-true-web-dl-1080p-720p-avc-untouched-dd51192kbps-34gb-14gb-x264-700mb-400mb-esub-gdrive/&do=findComment&comment=365621)
 - [Ammo Bomma &lpar;2001&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 3.1GB &amp; 1.6GB] - [x264 - 850MB] - [Google Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/179782-ammo-bomma-2001-telugu-true-web-dl-1080p-720p-avc-aac-20-31gb-16gb-x264-850mb-google-drive/&do=findComment&comment=365620)
-- [Ammo Bomma &lpar;2001&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 3.1GB &amp; 1.6GB] - [x264 - 850MB] - [Google Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/179782-ammo-bomma-2001-telugu-true-web-dl-1080p-720p-avc-aac-20-31gb-16gb-x264-850mb-google-drive/&do=findComment&comment=365619)
-- [Angadi Theru &lpar;2010&rpar; Tamil BluRay - [1080p &amp; 720p - AVC / HEVC - &lpar;DTS 5.1- 1509Kbps + DD5.1 - 640Kbps + AAC 2.0&rpar; - 11.7GB - 3.1GB - 1.6GB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179776-angadi-theru-2010-tamil-bluray-1080p-720p-avc-hevc-dts-51-1509kbps-dd51-640kbps-aac-20-117gb-31gb-16gb-x264-700mb-400mb-esub/&do=findComment&comment=365618)
-- [Ashley Madison: Sex, Lies &amp; Scandal &lpar;2024&rpar; S01 EP &lpar;01-03&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 1.8GB - 800MB &amp; 500MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179780-ashley-madison-sex-lies-scandal-2024-s01-ep-01-03-true-web-dl-1080p-720p-avc-tamil-hindi-eng-dd51-192kbps-18gb-800mb-500mb-esub/&do=findComment&comment=365617)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
