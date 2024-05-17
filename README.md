@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 18th of May 2024](https://www.youtube.com/watch?v=XTadSy2ePy8)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=apf81FetJk0)
 - [നിദ്ര വീണുടയും രാവിൽ.. | കെ ജെ യേശുദാസ് | K S Chitra | Remastered songs](https://www.youtube.com/watch?v=xK283OHHqi8)
 - [സ്വർഗമൊരുക്കിയ സ്വർണ്ണാലയമേ...](https://www.youtube.com/watch?v=L5ydnt11Nz8)
 - [Paathiraamazhayetho  | Ulladakkam | Ouseppachan | KJ Yesudas | K S Chithra #SongOfTheDay](https://www.youtube.com/watch?v=1b6lfEKcPMk)
 - [Songs Of The Week | Madhu Balakrishnan | Kester | Christian Superhit Songs | Joji Johns](https://www.youtube.com/watch?v=9rJcsN8OQSw)
-- [Dance sets you free with #KForKrishna | #GuruvayoorambalaNadayil | #Prithviraj | #shorts #ytshorts](https://www.youtube.com/watch?v=hcXvWndlG8c)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 17th of May 2024](https://www.youtube.com/watch?v=Z4lQlfLuj4Q)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
