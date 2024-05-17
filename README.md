@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Adipoli Bhootham | Pattanathil Bhootham | Shorts #shortsvideo #manoramamusic](https://www.youtube.com/watch?v=B-3AnRwMXZA)
-- [Uyirinum Uyiraya Nadha | Mridula  Warrier | BK Hari Naryanan | Shorts #ytshorts #christiansongs](https://www.youtube.com/watch?v=s9iz5EHpkM4)
-- [Kripasanam Mother Mary daily prayer and songs for May 17th, 2024 #mothermarysongsmalayalam](https://www.youtube.com/watch?v=hmRZLIuEgmE)
-- [Mathavinte Vanakkamasam Ganangal | Sreya Jayadeep | Kester | Mariyan Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=n1M-a8MyiWM)
-- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=jKT6bpeEFUw)
-- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 17th May 2024 # Vanakkamasam Prayer 2024 May 17 Japamala](https://www.youtube.com/watch?v=3Stz292I9C8)
+- [Sthuthi Sthuthi En Maname | Madhu Balakrishnan #christiandevotionalsongs  #shortsvideo](https://www.youtube.com/watch?v=23AKJY-GNCo)
+- [Sthuthi Sthuthi En Maname | Madhu Balakrishnan #christiandevotionalsongs  #shortsvideo](https://www.youtube.com/watch?v=Yvt440yVeeU)
+- [Sthuthi Sthuthi En Maname | Madhu Balakrishnan #christiandevotionalsongs  #shortsvideo](https://www.youtube.com/watch?v=3sLF-LxZJiU)
+- [Nandhi Allathonnumilla | Kester | Graham Varghese #shortsvideo](https://www.youtube.com/watch?v=DZ1ZPdXAn1k)
+- [Nandhi Allathonnumilla | Kester | Graham Varghese #shortsvideo](https://www.youtube.com/watch?v=07FwODLF8NY)
+- [Nandhi Allathonnumilla | Kester | Graham Varghese #shortsvideo](https://www.youtube.com/watch?v=bgI2cViQHpc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
