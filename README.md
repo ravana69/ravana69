@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Athirukalillatha Sneham | Fr.Thadevus Aravindath | Nonstop Malayalam Christian Songs | Audio Jukebox](https://www.youtube.com/watch?v=WErnnuzFP3c)
+- [Paadiyum Paranjum | വയലാറിൻ്റെ ഡ്രൈവറായി പോയ അനുഭവം  | പാടിയും പറഞ്ഞും |  K Jayakumar](https://www.youtube.com/watch?v=dWd2mU_Ys8w)
 - [Cheapest Therapy for life #KForKrishna | #GuruvayoorambalaNadayil | #Prithviraj | #shorts #ytshorts](https://www.youtube.com/watch?v=iUm54ecKRy4)
 - [Nadhiye Nile Nadhiye Video Song | Runway | Dileep | Kavya Madhavan | Sujatha Mohan | Vidhu Prathap](https://www.youtube.com/watch?v=5WEdyHnsoxs)
 - [Jayabharathi Romantic Old Superhit Song l Themmaadi Velappan Movie|  Prem Nazir, Madhu, KPAC Lalitha](https://www.youtube.com/watch?v=m55ihGdA3RY)
 - [Sthuthi Sthuthi En Maname | Madhu Balakrishnan #christiandevotionalsongs  #shortsvideo](https://www.youtube.com/watch?v=23AKJY-GNCo)
-- [Sthuthi Sthuthi En Maname | Madhu Balakrishnan #christiandevotionalsongs  #shortsvideo](https://www.youtube.com/watch?v=Yvt440yVeeU)
-- [Sthuthi Sthuthi En Maname | Madhu Balakrishnan #christiandevotionalsongs  #shortsvideo](https://www.youtube.com/watch?v=3sLF-LxZJiU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
