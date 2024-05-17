@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Skins &lpar;2024&rpar; S05 EP &lpar;01-04&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - 1.7GB - 1GB &amp; 600MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179812-skins-2024-s05-ep-01-04-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-17gb-1gb-600mb-esub/&do=findComment&comment=365730)
+- [Singam &lpar;2010&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - [DD+5.1&lpar;192kbps&rpar; + AAC] - 5.6GB - 2.7GB - 1.8GB &amp; 1.4GB - x264 - 700MB &amp; 400MB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179843-singam-2010-tamil-true-web-dl-1080p-720p-avc-hevc-untouched-dd51192kbps-aac-56gb-27gb-18gb-14gb-x264-700mb-400mb-gdrive/&do=findComment&comment=365729)
 - [Inga Naan Thaan Kingu &lpar;2024&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/179827-inga-naan-thaan-kingu-2024-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=365728)
 - [Skins &lpar;2024&rpar; S05 EP &lpar;01-04&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - 1.7GB - 1GB &amp; 600MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179812-skins-2024-s05-ep-01-04-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-17gb-1gb-600mb-esub/&do=findComment&comment=365727)
 - [Skins &lpar;2024&rpar; S05 EP &lpar;01-04&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - 1.7GB - 1GB &amp; 600MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179812-skins-2024-s05-ep-01-04-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-17gb-1gb-600mb-esub/&do=findComment&comment=365726)
-- [The 8 Show &lpar;2024&rpar; EP&lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Hindi + Eng] - 7.3GB - 2.5GB &amp; 1.2GB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179838-the-8-show-2024-ep01-08-true-web-dl-1080p-720p-x264-dd51-192kbps-tamil-hindi-eng-73gb-25gb-12gb-esub/&do=findComment&comment=365725)
-- [Thelma the Unicorn &lpar;2024&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.2GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179837-thelma-the-unicorn-2024-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-32gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=365724)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
