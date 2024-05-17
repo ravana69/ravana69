@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Baahubali: Crown of Blood &lpar;2024&rpar; S01 EP &lpar;01-02&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 1.4GB - 800MB &amp; 200MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179806-baahubali-crown-of-blood-2024-s01-ep-01-02-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-14gb-800mb-200mb-esub/&do=findComment&comment=365682)
 - [Pachaikili Muthucharam &lpar;2007&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 4.9GB - ESub - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/179790-pachaikili-muthucharam-2007-tamil-true-web-dl-1080p-avc-untouched-dd51-49gb-esub-gdflix/&do=findComment&comment=365681)
 - [PT Sir - Official Trailer | Hiphop Tamizha | Kashmira Pardeshi | Karthik Venugopalan | Vels](https://www.1tamilmv.eu/index.php?/forums/topic/179801-pt-sir-official-trailer-hiphop-tamizha-kashmira-pardeshi-karthik-venugopalan-vels/&do=findComment&comment=365680)
 - [Vil Ambu &lpar;2016&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 5GB - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/179802-vil-ambu-2016-tamil-true-web-dl-1080p-hq-avc-untouched-dd51-5gb-gdflix/&do=findComment&comment=365679)
 - [Magamuni &lpar;2019&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 4.3GB - ESub - UE](https://www.1tamilmv.eu/index.php?/forums/topic/179703-magamuni-2019-tamil-true-web-dl-1080p-avc-untouched-ddp51-43gb-esub-ue/&do=findComment&comment=365678)
-- [Baahubali: Crown of Blood &lpar;2024&rpar; S01 EP &lpar;01-02&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 1.4GB - 800MB &amp; 200MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179806-baahubali-crown-of-blood-2024-s01-ep-01-02-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-14gb-800mb-200mb-esub/&do=findComment&comment=365677)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
