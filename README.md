@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Jaanu &lpar;2020&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; AMZN 1080p WEB-DL UNTOUCHED - AVC - [Telugu DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-Vincenzo](https://www.1tamilmv.eu/index.php?/forums/topic/179842-jaanu-2020-telugu-music-video-album-amzn-1080p-web-dl-untouched-avc-telugu-dd51-640kbps-e-sub-by-vincenzo/&do=findComment&comment=365722)
 - [The Garfield Movie &lpar;2024&rpar; Tamil HDTS - [1080p &amp; 720p - x264 - &lpar;Tam + Eng&rpar; - 2.5GB - 1.2GB | x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/179829-the-garfield-movie-2024-tamil-hdts-1080p-720p-x264-tam-eng-25gb-12gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=365721)
 - [Saaho &lpar;2019&rpar; Tamil - SS WEB-DL - 1080p &amp; 720p - ×264 - &lpar;DD+ 5.1 - 192kbps&rpar; - 3.9GB &amp; 2GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179839-saaho-2019-tamil-ss-web-dl-1080p-720p-%C3%97264-dd-51-192kbps-39gb-2gb-gdrive/&do=findComment&comment=365720)
 - [Thelma the Unicorn &lpar;2024&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.2GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179837-thelma-the-unicorn-2024-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-32gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=365719)
 - [Baahubali: Crown of Blood &lpar;2024&rpar; S01 EP &lpar;01-02&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 1.4GB - 800MB &amp; 200MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179806-baahubali-crown-of-blood-2024-s01-ep-01-02-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-14gb-800mb-200mb-esub/&do=findComment&comment=365718)
-- [Semma &lpar;2018&rpar; Tamil - SS WEB-DL - 1080p &amp; 720p - ×264 - &lpar;DD+ 5.1 - 192kbps&rpar; - 2.6GB &amp; 1.4GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179841-semma-2018-tamil-ss-web-dl-1080p-720p-%C3%97264-dd-51-192kbps-26gb-14gb-gdrive/&do=findComment&comment=365717)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
