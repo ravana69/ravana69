@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kripasanam Mother Mary daily prayer and songs for May 17th, 2024 #mothermarysongsmalayalam](https://www.youtube.com/watch?v=hmRZLIuEgmE)
+- [Mathavinte Vanakkamasam Ganangal | Sreya Jayadeep | Kester | Mariyan Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=n1M-a8MyiWM)
+- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=jKT6bpeEFUw)
+- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 17th May 2024 # Vanakkamasam Prayer 2024 May 17 Japamala](https://www.youtube.com/watch?v=3Stz292I9C8)
+- [ഇന്ന് മെയ് 17 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala dhukkathint](https://www.youtube.com/watch?v=YCWqhksGcKI)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=eXimEaQjqaA)
-- [രാവിലെ പ്രാര്‍ത്ഥന May 17 # Athiravile Prarthana 17th of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=2jBeEWFp4LE)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 17th of May 2024](https://www.youtube.com/watch?v=V3ih3IEXzsI)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=Nd3LWgdaU04)
-- [പരിശുദ്ധ അമ്മേ മാതാവേ...](https://www.youtube.com/watch?v=PDTCpsybXSo)
-- [Akkam Pakkam | www.anukudumbam.com | Ranjini Jose | Kottayam Naseer | Suresh Gopi](https://www.youtube.com/watch?v=0E86dKnY83A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
