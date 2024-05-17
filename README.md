@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Thelma the Unicorn &lpar;2024&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.2GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179837-thelma-the-unicorn-2024-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-32gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=365724)
 - [Pudhupettai &lpar;2006&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 12.7GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179803-pudhupettai-2006-tamil-true-web-dl-1080p-720p-avc-untouched-dd51640kbps-127gb-55gb-27gb-14gb-x264-700mb-400mb-esub-gdrive/&do=findComment&comment=365723)
 - [Jaanu &lpar;2020&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; AMZN 1080p WEB-DL UNTOUCHED - AVC - [Telugu DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-Vincenzo](https://www.1tamilmv.eu/index.php?/forums/topic/179842-jaanu-2020-telugu-music-video-album-amzn-1080p-web-dl-untouched-avc-telugu-dd51-640kbps-e-sub-by-vincenzo/&do=findComment&comment=365722)
 - [The Garfield Movie &lpar;2024&rpar; Tamil HDTS - [1080p &amp; 720p - x264 - &lpar;Tam + Eng&rpar; - 2.5GB - 1.2GB | x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/179829-the-garfield-movie-2024-tamil-hdts-1080p-720p-x264-tam-eng-25gb-12gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=365721)
 - [Saaho &lpar;2019&rpar; Tamil - SS WEB-DL - 1080p &amp; 720p - ×264 - &lpar;DD+ 5.1 - 192kbps&rpar; - 3.9GB &amp; 2GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179839-saaho-2019-tamil-ss-web-dl-1080p-720p-%C3%97264-dd-51-192kbps-39gb-2gb-gdrive/&do=findComment&comment=365720)
-- [Thelma the Unicorn &lpar;2024&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.2GB &amp; 1.2GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179837-thelma-the-unicorn-2024-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-32gb-12gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=365719)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
