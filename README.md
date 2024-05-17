@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Dayaparanaya Karthave | Malayalam Christian Devotional Songs | Super Hit Christian Devotional Songs](https://www.youtube.com/watch?v=HAuK-BGnC_o)
+- [Cholamalankattadikkanu | Sradha | MG Sreekumar | Sujatha Mohan | Bharadwaj | Gireesh Puthenchery](https://www.youtube.com/watch?v=U2kicQ2GBJw)
 - [ഹാ മനോഹരം യാഹേ നിന്റെ ആലയം  | ROY PUTHUR | MONBY PODIMON | #christiandevotionalsongs #royputhur](https://www.youtube.com/watch?v=NoND20OPXYo)
 - [May 17, 2024](https://www.youtube.com/watch?v=bHgSW9kWz4c)
 - [Kaaveri Padamini | കാവേരീ പാടാമിനി | Raajashilpi | Malayalam Film Song | Mohanlal | K J Yesudas](https://www.youtube.com/watch?v=ro9A0ZpWc0c)
 - [Eshoyae nee ❣️🩵💖](https://www.youtube.com/watch?v=ZkvKtF5keZc)
-- [Ithile Nee Enthe Vannilla | Manjupoloru Penkutty (2004) | Alphons Joseph | Kaithapram |Malyalam Song](https://www.youtube.com/watch?v=VuFDrzHojvY)
-- [മലയാളികളെന്നു വിസ്മയത്തോടെ കേട്ട മഹാപ്രതിഭകളുടെ മഹനീയ ഗാനങ്ങൾ | AMAZING FILM SONGS MALAYALAM](https://www.youtube.com/watch?v=cExYg2nDHF4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
