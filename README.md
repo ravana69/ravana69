@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Dayaparanaya Karthave | Malayalam Christian Devotional Songs | Super Hit Christian Devotional Songs](https://www.youtube.com/watch?v=HAuK-BGnC_o)
-- [Cholamalankattadikkanu | Sradha | MG Sreekumar | Sujatha Mohan | Bharadwaj | Gireesh Puthenchery](https://www.youtube.com/watch?v=U2kicQ2GBJw)
-- [ഹാ മനോഹരം യാഹേ നിന്റെ ആലയം  | ROY PUTHUR | MONBY PODIMON | #christiandevotionalsongs #royputhur](https://www.youtube.com/watch?v=NoND20OPXYo)
-- [May 17, 2024](https://www.youtube.com/watch?v=bHgSW9kWz4c)
-- [Kaaveri Padamini | കാവേരീ പാടാമിനി | Raajashilpi | Malayalam Film Song | Mohanlal | K J Yesudas](https://www.youtube.com/watch?v=ro9A0ZpWc0c)
-- [Eshoyae nee ❣️🩵💖](https://www.youtube.com/watch?v=ZkvKtF5keZc)
+- [Dance sets you free with #KForKrishna | #GuruvayoorambalaNadayil | #Prithviraj | #shorts #ytshorts](https://www.youtube.com/watch?v=hcXvWndlG8c)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 17th of May 2024](https://www.youtube.com/watch?v=Z4lQlfLuj4Q)
+- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=eapeSW9BZxc)
+- [പ്രാർത്ഥന തരുന്ന  ഊർജ്ജം | 😇 Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=II1_hzxRB0U)
+- [Sapthaswararaagadhaarayil Video Song | Nizhal Yudham | Malayalam Movie Songs | P Susheela](https://www.youtube.com/watch?v=-j8VQfLGxz0)
+- [Monica: Oru AI Story - Promo Song | EM Ashraf | Aparna Mulberry | Yunuseo | Mansoor Pallur](https://www.youtube.com/watch?v=rn0xoyJGbCQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
