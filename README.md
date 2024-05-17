@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Dead Boy Detectives &lpar;2024&rpar; Complete S01 EP &lpar;01-08&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 6.5GB - 2.9GB &amp; 1GB] - ESub [Google Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/179824-dead-boy-detectives-2024-complete-s01-ep-01-08-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-65gb-29gb-1gb-esub-google-drive/&do=findComment&comment=365688)
-- [Hot Spot &lpar;2024&rpar; Tamil TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar;  [Google Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/179823-hot-spot-2024-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-google-drive/&do=findComment&comment=365687)
-- [Bastar.The.Naxal.Story.2024.2160p, 1080p .ZEE5.WEB-DL.DD+5.1 [Google Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/179822-bastarthenaxalstory20242160p-1080p-zee5web-dldd51-google-drive/&do=findComment&comment=365686)
-- [Yuvaraj.Hindi.2024 [Hindi].1080p, 720p .AMZN.WEB-DL.DDP5.1.H.264](https://www.1tamilmv.eu/index.php?/forums/topic/179821-yuvarajhindi2024-hindi1080p-720p-amznweb-dlddp51h264/&do=findComment&comment=365685)
-- [Krishnamma &lpar;2024&rpar; Telugu TRUE WEB-DL - [4K &lpar;DD+5.1 - 640Kbps&rpar; ] Google drive](https://www.1tamilmv.eu/index.php?/forums/topic/179820-krishnamma-2024-telugu-true-web-dl-4k-dd51-640kbps-google-drive/&do=findComment&comment=365684)
+- [Kattis Gang &lpar;2024&rpar; Malayalam HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/179826-kattis-gang-2024-malayalam-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=365693)
+- [Jagadeka Veerudu Athiloka Sundari &lpar;1990&rpar; Telugu HQ HDTV-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 4.2GB &amp; 2.6GB]](https://www.1tamilmv.eu/index.php?/forums/topic/178891-jagadeka-veerudu-athiloka-sundari-1990-telugu-hq-hdtv-dl-1080p-720p-avc-aac-20-42gb-26gb/&do=findComment&comment=365692)
+- [Thalaimai Seyalagam &lpar;2024&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.6GB - 3.5GB &amp; 900MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179805-thalaimai-seyalagam-2024-s01-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-dd51-192kbps-26gb-35gb-900mb-esub/&do=findComment&comment=365691)
+- [Hot Spot &lpar;2024&rpar; Tamil - AMZN , TK &amp; AHA WEB-DL - 4K , 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 9.8GB - 7GB - 5.6GB - 2.6GB - 1.6GB - 950MB &amp; 650MB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179825-hot-spot-2024-tamil-amzn-tk-aha-web-dl-4k-1080p-720p-avc-hevc-untouched-dd51640kbps-98gb-7gb-56gb-26gb-16gb-950mb-650mb-esub-gdrive/&do=findComment&comment=365690)
+- [50 Telugu Movies - 1080p WEB DL - x264 - DD5.1/DD2.0/AAC2.0 - ESub - 125GB](https://www.1tamilmv.eu/index.php?/forums/topic/123131-50-telugu-movies-1080p-web-dl-x264-dd51dd20aac20-esub-125gb/&do=findComment&comment=365689)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
