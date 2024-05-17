@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Baahubali: Crown of Blood &lpar;2024&rpar; S01 EP &lpar;01-02&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 1.4GB - 800MB &amp; 200MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179806-baahubali-crown-of-blood-2024-s01-ep-01-02-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-14gb-800mb-200mb-esub/&do=findComment&comment=365682)
-- [Pachaikili Muthucharam &lpar;2007&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 4.9GB - ESub - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/179790-pachaikili-muthucharam-2007-tamil-true-web-dl-1080p-avc-untouched-dd51-49gb-esub-gdflix/&do=findComment&comment=365681)
-- [PT Sir - Official Trailer | Hiphop Tamizha | Kashmira Pardeshi | Karthik Venugopalan | Vels](https://www.1tamilmv.eu/index.php?/forums/topic/179801-pt-sir-official-trailer-hiphop-tamizha-kashmira-pardeshi-karthik-venugopalan-vels/&do=findComment&comment=365680)
-- [Vil Ambu &lpar;2016&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 5GB - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/179802-vil-ambu-2016-tamil-true-web-dl-1080p-hq-avc-untouched-dd51-5gb-gdflix/&do=findComment&comment=365679)
-- [Magamuni &lpar;2019&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 4.3GB - ESub - UE](https://www.1tamilmv.eu/index.php?/forums/topic/179703-magamuni-2019-tamil-true-web-dl-1080p-avc-untouched-ddp51-43gb-esub-ue/&do=findComment&comment=365678)
+- [Hot Spot &lpar;2024&rpar; Tamil TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar;  [Google Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/179823-hot-spot-2024-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-google-drive/&do=findComment&comment=365687)
+- [Bastar.The.Naxal.Story.2024.2160p, 1080p .ZEE5.WEB-DL.DD+5.1 [Google Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/179822-bastarthenaxalstory20242160p-1080p-zee5web-dldd51-google-drive/&do=findComment&comment=365686)
+- [Yuvaraj.Hindi.2024 [Hindi].1080p, 720p .AMZN.WEB-DL.DDP5.1.H.264](https://www.1tamilmv.eu/index.php?/forums/topic/179821-yuvarajhindi2024-hindi1080p-720p-amznweb-dlddp51h264/&do=findComment&comment=365685)
+- [Krishnamma &lpar;2024&rpar; Telugu TRUE WEB-DL - [4K &lpar;DD+5.1 - 640Kbps&rpar; ] Google drive](https://www.1tamilmv.eu/index.php?/forums/topic/179820-krishnamma-2024-telugu-true-web-dl-4k-dd51-640kbps-google-drive/&do=findComment&comment=365684)
+- [Zara Hatke Zara Bachke &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; &lpar;Tamil + Telugu + Malayalam + Kannada&rpar;  &lpar;Google drive&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/179819-zara-hatke-zara-bachke-2023-true-web-dl-1080p-720p-avc-aac-20-tamil-telugu-malayalam-kannada-google-drive/&do=findComment&comment=365683)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
