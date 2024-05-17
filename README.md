@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [സ്വർഗമൊരുക്കിയ സ്വർണ്ണാലയമേ...](https://www.youtube.com/watch?v=L5ydnt11Nz8)
+- [Paathiraamazhayetho  | Ulladakkam | Ouseppachan | KJ Yesudas | K S Chithra #SongOfTheDay](https://www.youtube.com/watch?v=1b6lfEKcPMk)
 - [Songs Of The Week | Madhu Balakrishnan | Kester | Christian Superhit Songs | Joji Johns](https://www.youtube.com/watch?v=9rJcsN8OQSw)
 - [Dance sets you free with #KForKrishna | #GuruvayoorambalaNadayil | #Prithviraj | #shorts #ytshorts](https://www.youtube.com/watch?v=hcXvWndlG8c)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 17th of May 2024](https://www.youtube.com/watch?v=Z4lQlfLuj4Q)
 - [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=eapeSW9BZxc)
-- [പ്രാർത്ഥന തരുന്ന  ഊർജ്ജം | 😇 Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=II1_hzxRB0U)
-- [Sapthaswararaagadhaarayil Video Song | Nizhal Yudham | Malayalam Movie Songs | P Susheela](https://www.youtube.com/watch?v=-j8VQfLGxz0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
