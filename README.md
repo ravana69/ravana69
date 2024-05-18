@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Attagasam &lpar;2004&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 3.3GB - HC-ESub - UE](https://www.1tamilmv.eu/index.php?/forums/topic/179853-attagasam-2004-tamil-true-web-dl-1080p-avc-untouched-aac20-33gb-hc-esub-ue/&do=findComment&comment=365749)
+- [Sarkaar &lpar;2024&rpar; S04 EP05 Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.2GB &amp; 600MB] - [x264 - 350MB] - [Google Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/179852-sarkaar-2024-s04-ep05-telugu-true-web-dl-1080p-720p-avc-aac-20-12gb-600mb-x264-350mb-google-drive/&do=findComment&comment=365748)
 - [Criminal &lpar;1994&rpar; Telugu 1080p HDTVRip - x264 - AAC - 4.5GB - DUSTIN - 4.56 GB](https://www.1tamilmv.eu/index.php?/forums/topic/179851-criminal-1994-telugu-1080p-hdtvrip-x264-aac-45gb-dustin%C2%A0-456-gb/&do=findComment&comment=365747)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [18-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179850-movies-collection-all-languages-4k-1080p-720p-576p-480p-18-05-2024/&do=findComment&comment=365746)
 - [Jagadeka Veerudu Athiloka Sundari &lpar;1990&rpar; Telugu HQ HDTV-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 4.2GB &amp; 2.6GB]](https://www.1tamilmv.eu/index.php?/forums/topic/178891-jagadeka-veerudu-athiloka-sundari-1990-telugu-hq-hdtv-dl-1080p-720p-avc-aac-20-42gb-26gb/&do=findComment&comment=365745)
-- [Godzilla x Kong: The New Empire &lpar;2024&rpar; AMZN WEB-DL - AVC/HEVC - Original Audios [Tamil + Telugu + Hindi + Eng] DDP5.1 - [4K, 1080p &amp; 720p - 14GB - 8.2GB - 3.3GB - 1.5GB] [GDRIVE]](https://www.1tamilmv.eu/index.php?/forums/topic/122449-godzilla-x-kong-the-new-empire-2024-amzn-web-dl-avchevc-original-audios-tamil-telugu-hindi-eng-ddp51-4k-1080p-720p-14gb-82gb-33gb-15gb-gdrive/&do=findComment&comment=365744)
-- [Resident Evil Hexalogy &lpar;2002 to 2016&rpar; [2160p 4K BDRip &amp; 1080p Open Matte WEBDL]  Multi Original &lpar;DD5.1&rpar; Audios - [Tamil + Telugu + Hindi + English] - ESubs](https://www.1tamilmv.eu/index.php?/forums/topic/179847-resident-evil-hexalogy-2002-to-2016-2160p-4k-bdrip-1080p-open-matte-webdl-multi-original-dd51-audios-tamil-telugu-hindi-english-esubs/&do=findComment&comment=365741)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
