@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Maska &lpar;2009&rpar; Telugu Hybrid 1080p AMZN WEB Rips - [ 10GB - 7GB - 4GB -2.7GB ] - x264 - [DD 5.1 &lpar;448kbps&rpar; + DTS 5.1 &lpar;754kbps&rpar;] - ESub-Boon](https://www.1tamilmv.eu/index.php?/forums/topic/179861-maska-2009-telugu-hybrid-1080p-amzn-web-rips-10gb-7gb-4gb-27gb-x264-dd-51-448kbps-dts-51-754kbps-esub-boon/&do=findComment&comment=365769)
 - [50 Telugu Movies - 1080p - BluRay/WEB-DL/HDTV - x264 - DD5.1/DD2.0/AAC2.0 - ESub - 120GB](https://www.1tamilmv.eu/index.php?/forums/topic/118637-50-telugu-movies-1080p-blurayweb-dlhdtv-x264-dd51dd20aac20-esub-120gb/&do=findComment&comment=365768)
 - [Maska &lpar;2009&rpar; Telugu Hybrid 1080p AMZN WEB Rips - [ 10GB - 7GB - 4GB -2.7GB ] - x264 - [DD 5.1 &lpar;448kbps&rpar; + DTS 5.1 &lpar;754kbps&rpar;] - ESub-Boon](https://www.1tamilmv.eu/index.php?/forums/topic/179861-maska-2009-telugu-hybrid-1080p-amzn-web-rips-10gb-7gb-4gb-27gb-x264-dd-51-448kbps-dts-51-754kbps-esub-boon/&do=findComment&comment=365767)
 - [Criminal &lpar;1994&rpar; Telugu 1080p HDTVRip - x264 - AAC - 4.5GB - DUSTIN - 4.56 GB](https://www.1tamilmv.eu/index.php?/forums/topic/179851-criminal-1994-telugu-1080p-hdtvrip-x264-aac-45gb-dustin%C2%A0-456-gb/&do=findComment&comment=365766)
 - [7G Rainbow Colony &lpar;2004&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - AAC2.0&lpar;192kbps&rpar; - 8.6GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179860-7g-rainbow-colony-2004-tamil-true-web-dl-1080p-720p-avc-untouched-aac20192kbps-86gb-55gb-27gb-14gb-x264-700mb-400mb-gdrive/&do=findComment&comment=365765)
-- [7G Rainbow Colony &lpar;2004&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - AAC2.0&lpar;192kbps&rpar; - 8.6GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179860-7g-rainbow-colony-2004-tamil-true-web-dl-1080p-720p-avc-untouched-aac20192kbps-86gb-55gb-27gb-14gb-x264-700mb-400mb-gdrive/&do=findComment&comment=365764)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
