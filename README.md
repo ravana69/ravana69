@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thallu Thallu | Hariharanpilla Happiyaanu | Mohanlal | Stephen Devassy | Ambili Devi | Nikhil](https://www.youtube.com/watch?v=Q7noDQeYwyM)
+- [സ്വർഗീയാഗ്നിയേ ഇറങ്ങിയെന്നിൽ വാ...](https://www.youtube.com/watch?v=jnzBGzFj5wE)
+- [Pookkaalam Vannu | Godfather | S Balakrishnan | Unni Menon | K S Chithra #SongOfTheDay](https://www.youtube.com/watch?v=WueELPDK_CE)
 - [Christian Superhit Songs | Elizabeth Raju | Joji Johns | Manoj Christy | Christian Songs Malayalam](https://www.youtube.com/watch?v=oDbrIoRXqIM)
 - [സ്നേഹം ദീർഘമായി ക്ഷമിക്കുകയും ദയകാണിക്കുകയും ചെയ്യുന്നു 😇 Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=kkMFk_qOck8)
 - [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=b312t4V-If0)
-- [Thaaraattin Cheru Song | Shorts | Churam | Malayalam Movie Songs | KS Chithra #malayalammoviesongs](https://www.youtube.com/watch?v=SIpuuDXUkug)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 18th of May 2024](https://www.youtube.com/watch?v=OM_eXrEM218)
-- [Jimbilappa Jimbile | Tribal Songs | Anjana S Kumar | Abhijith | Ram Surendar | Viral Folk Songs](https://www.youtube.com/watch?v=WCg5aGh7_xk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
