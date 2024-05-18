@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=-Q_ZzRHXZiI)
+- [Christian Video Songs Malayalam | Sreya Jayadeep | Kester | Manoj Christy | Christian Melody Songs](https://www.youtube.com/watch?v=o7ACr4gpPy4)
+- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 18th May 2024 # Vanakkamasam Prayer 2024 May 18 Japamala](https://www.youtube.com/watch?v=EJ_YTPatos0)
+- [ഇന്ന് മെയ് 18 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala santhoshath](https://www.youtube.com/watch?v=JIroKmQkKO0)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mother  mary songs for May 18th 2024](https://www.youtube.com/watch?v=lRHVg_qLcZs)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=0Q6K03GuM1I)
-- [പ്രഭാത പ്രാര്‍ത്ഥന May 18 # Athiravile Prarthana 18th of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=yH_SIejZ8DM)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 18th of May 2024](https://www.youtube.com/watch?v=XTadSy2ePy8)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=apf81FetJk0)
-- [നിദ്ര വീണുടയും രാവിൽ.. | കെ ജെ യേശുദാസ് | K S Chitra | Remastered songs](https://www.youtube.com/watch?v=xK283OHHqi8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
