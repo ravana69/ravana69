@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 19th of May 2024](https://www.youtube.com/watch?v=fUCKYgakLTY)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=DRu8IIkqqsI)
 - [Thallu Thallu | Hariharanpilla Happiyaanu | Mohanlal | Stephen Devassy | Ambili Devi | Nikhil](https://www.youtube.com/watch?v=Q7noDQeYwyM)
 - [സ്വർഗീയാഗ്നിയേ ഇറങ്ങിയെന്നിൽ വാ...](https://www.youtube.com/watch?v=jnzBGzFj5wE)
 - [Pookkaalam Vannu | Godfather | S Balakrishnan | Unni Menon | K S Chithra #SongOfTheDay](https://www.youtube.com/watch?v=WueELPDK_CE)
 - [Christian Superhit Songs | Elizabeth Raju | Joji Johns | Manoj Christy | Christian Songs Malayalam](https://www.youtube.com/watch?v=oDbrIoRXqIM)
-- [സ്നേഹം ദീർഘമായി ക്ഷമിക്കുകയും ദയകാണിക്കുകയും ചെയ്യുന്നു 😇 Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=kkMFk_qOck8)
-- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=b312t4V-If0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
