@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Resident Evil Hexalogy &lpar;2002 to 2016&rpar; [2160p 4K BDRip &amp; 1080p Open Matte WEBDL]  Multi Original &lpar;DD5.1&rpar; Audios - [Tamil + Telugu + Hindi + English] - ESubs](https://www.1tamilmv.eu/index.php?/forums/topic/179847-resident-evil-hexalogy-2002-to-2016-2160p-4k-bdrip-1080p-open-matte-webdl-multi-original-dd51-audios-tamil-telugu-hindi-english-esubs/&do=findComment&comment=365741)
 - [Bastar: The Naxal Story &lpar;2024&rpar; Hindi -Telugu TRUE WEB-DL - [4k - 1080p - AVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; Google drive](https://www.1tamilmv.eu/index.php?/forums/topic/179846-bastar-the-naxal-story-2024-hindi-telugu-true-web-dl-4k-1080p-avc-dd51-atmos-448kbps-google-drive/&do=findComment&comment=365740)
 - [Sharathulu Varthisthai &lpar;2024&rpar; Telugu TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.9GB - 2.5GB - 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179845-sharathulu-varthisthai-2024-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-39gb-25gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=365739)
 - [Miral &lpar;2024&rpar; Telugu HD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/179830-miral-2024-telugu-hd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=365738)
 - [The Garfield Movie &lpar;2024&rpar; Tamil HDTS - [1080p &amp; 720p - x264 - &lpar;Tam + Eng&rpar; - 2.5GB - 1.2GB | x264 - 700MB &amp; 400MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/179829-the-garfield-movie-2024-tamil-hdts-1080p-720p-x264-tam-eng-25gb-12gb-x264-700mb-400mb-hq-clean-audio/&do=findComment&comment=365737)
-- [Padikkadha Pakkangal &lpar;2024&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/179831-padikkadha-pakkangal-2024-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=365736)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
