@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Top Cooku Dupe Cooku &lpar;2024&rpar; Tamil - S01 EP01 TRUE WEB-DL - [1080p, 720p, 360p - AVC - UNTOUCHED - 850MB - 750MB &amp; 150MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179874-top-cooku-dupe-cooku-2024-tamil-s01-ep01-true-web-dl-1080p-720p-360p-avc-untouched-850mb-750mb-150mb/&do=findComment&comment=365802)
 - [Top Cooku Dupe Cooku &lpar;2024&rpar; Tamil - S01 EP01 TRUE WEB-DL - [1080p, 720p, 360p - AVC - UNTOUCHED - 850MB - 750MB &amp; 150MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179874-top-cooku-dupe-cooku-2024-tamil-s01-ep01-true-web-dl-1080p-720p-360p-avc-untouched-850mb-750mb-150mb/&do=findComment&comment=365799)
 - [Two Worlds Apart S01 1080p AMZN WEB-DL x264 &lpar;DDP 2.0&rpar; [MULTI] Google Drive](https://www.1tamilmv.eu/index.php?/forums/topic/179873-two-worlds-apart-s01-1080p-amzn-web-dl-x264-ddp-20-multi-google-drive/&do=findComment&comment=365798)
 - [Thalaimai Seyalagam &lpar;2024&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu] - &lpar;DD+5.1 - 192Kbps&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/179872-thalaimai-seyalagam-2024-s01-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-dd51-192kbps/&do=findComment&comment=365797)
 - [Krishnamma &lpar;2024&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; Google Drive](https://www.1tamilmv.eu/index.php?/forums/topic/179871-krishnamma-2024-telugu-true-web-dl-4k-1080p-720p-avc-dd51-640kbps-google-drive/&do=findComment&comment=365796)
-- [Meendum.Kokila.1981.1080p, 720p .AMZN.WEB-DL.DDP2.0](https://www.1tamilmv.eu/index.php?/forums/topic/179870-meendumkokila19811080p-720p-amznweb-dlddp20/&do=findComment&comment=365795)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
