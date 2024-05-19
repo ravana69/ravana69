@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Paalaivanam &lpar;2023&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 1.6GB &amp; 950MB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179867-paalaivanam-2023-tamil-true-web-dl-1080p-720p-avc-hevc-aac-20-16gb-950mb-x264-700mb-400mb/&do=findComment&comment=365781)
+- [Endukante Premanta &lpar;2012&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; Ai 1080p WEB-HD UNTOUCHED - AVC - [Telugu DTS 5.1 &lpar;755Kbps&rpar;] E-Sub By-Vincenzo](https://www.1tamilmv.eu/index.php?/forums/topic/179784-endukante-premanta-2012-telugu-music-video-album-ai-1080p-web-hd-untouched-avc-telugu-dts-51-755kbps-e-sub-by-vincenzo/&do=findComment&comment=365783)
+- [Malliswari &lpar;2004&rpar; Telugu 1080p HYBRID JC WEB-DL Videosongs - [DD 5.1 + DTS 5.1] - DUSTIN](https://www.1tamilmv.eu/index.php?/forums/topic/179865-malliswari-2004-telugu-1080p-hybrid-jc-web-dl-videosongs-dd-51-dts-51-dustin/&do=findComment&comment=365782)
 - [Malliswari &lpar;2004&rpar; Telugu 1080p HYBRID JC WEB-DL Videosongs - [DD 5.1 + DTS 5.1] - DUSTIN](https://www.1tamilmv.eu/index.php?/forums/topic/179865-malliswari-2004-telugu-1080p-hybrid-jc-web-dl-videosongs-dd-51-dts-51-dustin/&do=findComment&comment=365780)
 - [Malliswari &lpar;2004&rpar; Telugu 1080p HYBRID JC WEB-DL Videosongs - [DD 5.1 + DTS 5.1] - DUSTIN](https://www.1tamilmv.eu/index.php?/forums/topic/179865-malliswari-2004-telugu-1080p-hybrid-jc-web-dl-videosongs-dd-51-dts-51-dustin/&do=findComment&comment=365779)
 - [The Funeral Home &lpar;2020&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Spa&rpar; - 1.9GB &amp; 1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179866-the-funeral-home-2020-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-spa-19gb-1gb-x264-tamil-telugu-hindi-400mb/&do=findComment&comment=365778)
-- [Malliswari &lpar;2004&rpar; Telugu 1080p HYBRID JC WEB-DL Videosongs - [DD 5.1 + DTS 5.1] - DUSTIN](https://www.1tamilmv.eu/index.php?/forums/topic/179865-malliswari-2004-telugu-1080p-hybrid-jc-web-dl-videosongs-dd-51-dts-51-dustin/&do=findComment&comment=365777)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
