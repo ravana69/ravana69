@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Song by Bijibal from Kattis Gang #shortsfeed #shortsvideo #reels #bijibal](https://www.youtube.com/watch?v=MRcN0mKdbmY)
+- [Peeliyezhum Veeshi Vaa Video Song | Poovinu Puthiya Poonthennal | Mammootty |KJ Yesudas | KS Chithra](https://www.youtube.com/watch?v=ueMlYuWd8VE)
+- [Manchadi Mani Kondu | Aadhaaram | Murali | Geetha | K J Yesudas | Johnson](https://www.youtube.com/watch?v=nUFkcZqlVwg)
+- [Kattis Gang | Sneak Peek | Aneel Dev | Oceanic Movies |  Bijibal | Latest Malayalam Movie](https://www.youtube.com/watch?v=44CJT-mjhMA)
 - [Sheela Old Superhit Movie Song l Omana Movie | Prem Nazir, Ravichandran](https://www.youtube.com/watch?v=hMvS9hVBqKg)
 - [Mayangoo Nee Sakhi | Living Together #kjyesudas #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=BXqiCF8Y524)
-- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=WCywc-BR0AU)
-- [ഈ ഗാനങ്ങൾ കേട്ട്  തമ്പുരാന് നന്ദി പറഞ്ഞു ഉണരാം | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=zPFzKUgMiHg)
-- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 19th May 2024 # Vanakkamasam Prayer 24 May 19 # Japamala](https://www.youtube.com/watch?v=Po0Jdg1xJIg)
-- [ഇന്ന് മെയ് 19 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala mahimayude](https://www.youtube.com/watch?v=6zjNFxFgpoo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
