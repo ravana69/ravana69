@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Gurudev Hoysala &lpar;2024&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; [Telugu + Kannada] - 2.3GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179867-gurudev-hoysala-2024-true-web-dl-1080p-720p-avc-aac-20-telugu-kannada-23gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=365809)
+- [Mad Max: Fury Road &lpar;2015&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/166206-mad-max-fury-road-2015-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-24gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=365808)
 - [Fighter &lpar;2024&rpar; Hindi &lpar;MUSIC VIDEO ALBUM&rpar; NF 1080p WEB-DL UNTOUCHED - AVC - [Hindi DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-Vincenzo](https://www.1tamilmv.eu/index.php?/forums/topic/179879-fighter-2024-hindi-music-video-album-nf-1080p-web-dl-untouched-avc-hindi-dd51-640kbps-e-sub-by-vincenzo/&do=findComment&comment=365807)
 - [Top Cooku Dupe Cooku &lpar;2024&rpar; Tamil - S01 EP01 TRUE WEB-DL - [1080p, 720p, 360p - AVC - UNTOUCHED - 850MB - 750MB &amp; 150MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179874-top-cooku-dupe-cooku-2024-tamil-s01-ep01-true-web-dl-1080p-720p-360p-avc-untouched-850mb-750mb-150mb/&do=findComment&comment=365806)
 - [Money Train &lpar;1995&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179878-money-train-1995-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-hindi-eng-2gb-1gb-x264-tam-hin-450mb-esub/&do=findComment&comment=365805)
-- [Money Train &lpar;1995&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179878-money-train-1995-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-hindi-eng-2gb-1gb-x264-tam-hin-450mb-esub/&do=findComment&comment=365804)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [19-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179877-movies-collection-all-languages-4k-1080p-720p-576p-480p-19-05-2024/&do=findComment&comment=365803)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
