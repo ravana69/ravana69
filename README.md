@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [7G Rainbow Colony &lpar;2004&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - AAC2.0&lpar;192kbps&rpar; - 8.6GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179860-7g-rainbow-colony-2004-tamil-true-web-dl-1080p-720p-avc-untouched-aac20192kbps-86gb-55gb-27gb-14gb-x264-700mb-400mb-gdrive/&do=findComment&comment=365812)
 - [Mad Max Fury Road &lpar;2015&rpar; BluRay - 4K [2160p] 10bit SDR - HEVC - [Tamil + Telugu + Hindi + English] - DD+5.1&lpar;640kbps&rpar; - 7.2GB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179881-mad-max-fury-road-2015-bluray-4k-2160p-10bit-sdr-hevc-tamil-telugu-hindi-english-dd51640kbps-72gb-esub-gdrive/&do=findComment&comment=365811)
 - [Billa &lpar;2007&rpar; - Tamil - 1080p - BluRay - x264 - [DD5.1&lpar;448Kbps&rpar; + PCM5.1&lpar;6192Kbps&rpar;] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179880-billa-2007-tamil-1080p-bluray-x264-dd51448kbps-pcm516192kbps-esub/&do=findComment&comment=365810)
 - [Gurudev Hoysala &lpar;2024&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; [Telugu + Kannada] - 2.3GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179867-gurudev-hoysala-2024-true-web-dl-1080p-720p-avc-aac-20-telugu-kannada-23gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=365809)
 - [Mad Max: Fury Road &lpar;2015&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/166206-mad-max-fury-road-2015-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-24gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=365808)
-- [Fighter &lpar;2024&rpar; Hindi &lpar;MUSIC VIDEO ALBUM&rpar; NF 1080p WEB-DL UNTOUCHED - AVC - [Hindi DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-Vincenzo](https://www.1tamilmv.eu/index.php?/forums/topic/179879-fighter-2024-hindi-music-video-album-nf-1080p-web-dl-untouched-avc-hindi-dd51-640kbps-e-sub-by-vincenzo/&do=findComment&comment=365807)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
