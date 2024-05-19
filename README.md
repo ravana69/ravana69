@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Fighter &lpar;2024&rpar; Hindi &lpar;MUSIC VIDEO ALBUM&rpar; NF 1080p WEB-DL UNTOUCHED - AVC - [Hindi DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-Vincenzo](https://www.1tamilmv.eu/index.php?/forums/topic/179879-fighter-2024-hindi-music-video-album-nf-1080p-web-dl-untouched-avc-hindi-dd51-640kbps-e-sub-by-vincenzo/&do=findComment&comment=365807)
+- [Top Cooku Dupe Cooku &lpar;2024&rpar; Tamil - S01 EP01 TRUE WEB-DL - [1080p, 720p, 360p - AVC - UNTOUCHED - 850MB - 750MB &amp; 150MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179874-top-cooku-dupe-cooku-2024-tamil-s01-ep01-true-web-dl-1080p-720p-360p-avc-untouched-850mb-750mb-150mb/&do=findComment&comment=365806)
+- [Money Train &lpar;1995&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179878-money-train-1995-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-hindi-eng-2gb-1gb-x264-tam-hin-450mb-esub/&do=findComment&comment=365805)
 - [Money Train &lpar;1995&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179878-money-train-1995-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-hindi-eng-2gb-1gb-x264-tam-hin-450mb-esub/&do=findComment&comment=365804)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [19-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179877-movies-collection-all-languages-4k-1080p-720p-576p-480p-19-05-2024/&do=findComment&comment=365803)
-- [Top Cooku Dupe Cooku &lpar;2024&rpar; Tamil - S01 EP01 TRUE WEB-DL - [1080p, 720p, 360p - AVC - UNTOUCHED - 850MB - 750MB &amp; 150MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179874-top-cooku-dupe-cooku-2024-tamil-s01-ep01-true-web-dl-1080p-720p-360p-avc-untouched-850mb-750mb-150mb/&do=findComment&comment=365802)
-- [Top Cooku Dupe Cooku &lpar;2024&rpar; Tamil - S01 EP01 TRUE WEB-DL - [1080p, 720p, 360p - AVC - UNTOUCHED - 850MB - 750MB &amp; 150MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179874-top-cooku-dupe-cooku-2024-tamil-s01-ep01-true-web-dl-1080p-720p-360p-avc-untouched-850mb-750mb-150mb/&do=findComment&comment=365799)
-- [Two Worlds Apart S01 1080p AMZN WEB-DL x264 &lpar;DDP 2.0&rpar; [MULTI] Google Drive](https://www.1tamilmv.eu/index.php?/forums/topic/179873-two-worlds-apart-s01-1080p-amzn-web-dl-x264-ddp-20-multi-google-drive/&do=findComment&comment=365798)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
