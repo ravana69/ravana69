@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Solo Leveling &lpar;2024&rpar; Complete S01 EP &lpar;01-12&rpar; Merged BR-Rip 10bit - [1080p - 720p] - x265 HEVC - [Telugu + Tamil + Hindi + English + Japanese] - &lpar;AAC 2.0 - 128Kbps&rpar; - ESub [Google Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/179862-solo-leveling-2024-complete-s01-ep-01-12-merged-br-rip-10bit-1080p-720p-x265-hevc-telugu-tamil-hindi-english-japanese-aac-20-128kbps-esub-google-drive/&do=findComment&comment=365771)
 - [50 Telugu Movies - 1080p - BluRay/WEB-DL/HDTV - x264 - DD5.1/DD2.0/AAC2.0 - ESub - 120GB](https://www.1tamilmv.eu/index.php?/forums/topic/118637-50-telugu-movies-1080p-blurayweb-dlhdtv-x264-dd51dd20aac20-esub-120gb/&do=findComment&comment=365770)
 - [Maska &lpar;2009&rpar; Telugu Hybrid 1080p AMZN WEB Rips - [ 10GB - 7GB - 4GB -2.7GB ] - x264 - [DD 5.1 &lpar;448kbps&rpar; + DTS 5.1 &lpar;754kbps&rpar;] - ESub-Boon](https://www.1tamilmv.eu/index.php?/forums/topic/179861-maska-2009-telugu-hybrid-1080p-amzn-web-rips-10gb-7gb-4gb-27gb-x264-dd-51-448kbps-dts-51-754kbps-esub-boon/&do=findComment&comment=365769)
 - [50 Telugu Movies - 1080p - BluRay/WEB-DL/HDTV - x264 - DD5.1/DD2.0/AAC2.0 - ESub - 120GB](https://www.1tamilmv.eu/index.php?/forums/topic/118637-50-telugu-movies-1080p-blurayweb-dlhdtv-x264-dd51dd20aac20-esub-120gb/&do=findComment&comment=365768)
 - [Maska &lpar;2009&rpar; Telugu Hybrid 1080p AMZN WEB Rips - [ 10GB - 7GB - 4GB -2.7GB ] - x264 - [DD 5.1 &lpar;448kbps&rpar; + DTS 5.1 &lpar;754kbps&rpar;] - ESub-Boon](https://www.1tamilmv.eu/index.php?/forums/topic/179861-maska-2009-telugu-hybrid-1080p-amzn-web-rips-10gb-7gb-4gb-27gb-x264-dd-51-448kbps-dts-51-754kbps-esub-boon/&do=findComment&comment=365767)
-- [Criminal &lpar;1994&rpar; Telugu 1080p HDTVRip - x264 - AAC - 4.5GB - DUSTIN - 4.56 GB](https://www.1tamilmv.eu/index.php?/forums/topic/179851-criminal-1994-telugu-1080p-hdtvrip-x264-aac-45gb-dustin%C2%A0-456-gb/&do=findComment&comment=365766)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
