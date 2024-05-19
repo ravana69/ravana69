@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 19th of May 2024](https://www.youtube.com/watch?v=sHD_myWp6D4)
+- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=gIkCgRdVeqs)
+- [നിന്റെ സങ്കടങ്ങൾ ദൈവത്തോട് പറയുക.. | 😇 Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=a4ocisF5UR0)
+- [Kaalanillakkaalathoru Video Song | Pappan Priyappetta Pappan | Balagopalan Thampi #shorts](https://www.youtube.com/watch?v=bCEtqk-S4oA)
 - [Krooshilninnum | Maria Kolady | Raju Varghese   #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=Hgn6NF_u8Tk)
 - [Ilamai Kadhal - Audio Song | Neymar | Mathew Thomas, Naslen | Shaan Rahman | Sudhi Maddison](https://www.youtube.com/watch?v=F2ENnylEQj4)
-- [Naagendraharaya | Sree Ayyappanum Vavarum | Sankaracharyar | AT Ummer | KJ Yesudas | Soman](https://www.youtube.com/watch?v=UxvE8BQjQ6w)
-- [Kulirilam Kattathu Video Song | Saraswatheeyamam | Malayalam Movie Songs | S Janaki](https://www.youtube.com/watch?v=IlglXdP06rw)
-- [Song by Bijibal from the movie Kattis Gang #shortsvideo #reels #shorts #bijib](https://www.youtube.com/watch?v=mtL35rcl-rE)
-- [NAAVIL NEEYE NAAMAM NEEYE |FR.LIBIN VARGHES|FR.JERIN VALIYAPARAMBIL|DR. SHERIN #christiandevotional](https://www.youtube.com/watch?v=RnRPYK3ntN4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
