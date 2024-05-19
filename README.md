@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Endukante Premanta &lpar;2012&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; Ai 1080p WEB-HD UNTOUCHED - AVC - [Telugu DTS 5.1 &lpar;755Kbps&rpar;] E-Sub By-Vincenzo](https://www.1tamilmv.eu/index.php?/forums/topic/179784-endukante-premanta-2012-telugu-music-video-album-ai-1080p-web-hd-untouched-avc-telugu-dts-51-755kbps-e-sub-by-vincenzo/&do=findComment&comment=365783)
-- [Malliswari &lpar;2004&rpar; Telugu 1080p HYBRID JC WEB-DL Videosongs - [DD 5.1 + DTS 5.1] - DUSTIN](https://www.1tamilmv.eu/index.php?/forums/topic/179865-malliswari-2004-telugu-1080p-hybrid-jc-web-dl-videosongs-dd-51-dts-51-dustin/&do=findComment&comment=365782)
-- [Malliswari &lpar;2004&rpar; Telugu 1080p HYBRID JC WEB-DL Videosongs - [DD 5.1 + DTS 5.1] - DUSTIN](https://www.1tamilmv.eu/index.php?/forums/topic/179865-malliswari-2004-telugu-1080p-hybrid-jc-web-dl-videosongs-dd-51-dts-51-dustin/&do=findComment&comment=365780)
-- [Malliswari &lpar;2004&rpar; Telugu 1080p HYBRID JC WEB-DL Videosongs - [DD 5.1 + DTS 5.1] - DUSTIN](https://www.1tamilmv.eu/index.php?/forums/topic/179865-malliswari-2004-telugu-1080p-hybrid-jc-web-dl-videosongs-dd-51-dts-51-dustin/&do=findComment&comment=365779)
-- [The Funeral Home &lpar;2020&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Spa&rpar; - 1.9GB &amp; 1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179866-the-funeral-home-2020-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-spa-19gb-1gb-x264-tamil-telugu-hindi-400mb/&do=findComment&comment=365778)
+- [Two Worlds Apart S01 1080p AMZN WEB-DL x264 &lpar;DDP 2.0&rpar; [MULTI] Google Drive](https://www.1tamilmv.eu/index.php?/forums/topic/179873-two-worlds-apart-s01-1080p-amzn-web-dl-x264-ddp-20-multi-google-drive/&do=findComment&comment=365798)
+- [Thalaimai Seyalagam &lpar;2024&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu] - &lpar;DD+5.1 - 192Kbps&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/179872-thalaimai-seyalagam-2024-s01-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-dd51-192kbps/&do=findComment&comment=365797)
+- [Krishnamma &lpar;2024&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; Google Drive](https://www.1tamilmv.eu/index.php?/forums/topic/179871-krishnamma-2024-telugu-true-web-dl-4k-1080p-720p-avc-dd51-640kbps-google-drive/&do=findComment&comment=365796)
+- [Meendum.Kokila.1981.1080p, 720p .AMZN.WEB-DL.DDP2.0](https://www.1tamilmv.eu/index.php?/forums/topic/179870-meendumkokila19811080p-720p-amznweb-dlddp20/&do=findComment&comment=365795)
+- [Dhaakad.2022.1080p, 720p. Hindi AMZN.WEB-DL.DDP5.1 &lpar;Google Drive&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/179869-dhaakad20221080p-720p-hindi-amznweb-dlddp51-google-drive/&do=findComment&comment=365794)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
