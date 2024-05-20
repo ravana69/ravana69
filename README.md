@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കണിമലരായ് മണിമുകിലായ് കവിതകളായ് #kavya #shorts #malayalam #song](https://www.youtube.com/watch?v=psqk-M1Ya1U)
+- [Chimmi Chimmi | Live with UNTAGGED | Cover Version | Anila Rajeev | Deepak Dev | Kaithapram | Urumi](https://www.youtube.com/watch?v=UzVhMVX5rEw)
 - [Jayabharathi Romantic Old Superhit Song l Mooladhanam Movie | Prem Nazir, Sathyan, Sharada](https://www.youtube.com/watch?v=XA2jdd_D5sc)
 - [Midu Midu Midukkan | Rajadhi Raja #mammootty #shortsfeed #shortsvideo #shorts #madhubalakrishnan](https://www.youtube.com/watch?v=cR9gXs7AQD8)
 - [En Khalbiloru | OneWay Ticket  #shortsvideo #ytshorts #malayalammoviesongs](https://www.youtube.com/watch?v=VQ27_UtCfCU)
 - [Maarathavan | K S Chithra |  R S V #ytshorts #christiansongs](https://www.youtube.com/watch?v=SBqI43MLFF4)
-- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=oQQr276lfYU)
-- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 20th May 2024 # Vanakkamasam Prayer 24 May 20 # Japamala](https://www.youtube.com/watch?v=_gD_NV3aZBY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
