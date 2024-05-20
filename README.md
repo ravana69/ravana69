@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Keep Vibing For Vatteppam | Mandakini | Dabzee | Altaf Salim | Bibin Ashok | #shorts #ytshorts](https://www.youtube.com/watch?v=P-b6z5nQ7NI)
-- [Hits of Mohan Lal | വീണ്ടും കാതോർക്കുന്ന മോഹൻലാൽ ഗാനങ്ങൾ | Malayalam Film Songs | Satyam audios](https://www.youtube.com/watch?v=EkGmFN2ahl4)
-- [Manju Peyyana Video Song | Chandranudikkunna Dikhil| Kavya Madhavan Dileep| Sujatha Mohan|Vidyasagar](https://www.youtube.com/watch?v=50ff5ocPW0E)
-- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=hjMJGSl2ZYA)
-- [Yahovayude Vishudhare | Super Hit Christian Devotional Songs |  Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=fLplZb8mS7w)
-- [ഒരു ദിവസം പോലും മുടങ്ങാതെ സ്ഥിരമായി കേൾക്കുന്ന മലയാളസിനിമയിലെ പ്രശസ്‌ത ഗാനങ്ങൾ | EVERGREEN HIT SONGS](https://www.youtube.com/watch?v=qfZOfojrX-8)
+- [Aaradhana - Audio Song | Pathaam Valavu | Suraj Venjaramoodu | Ranjin Raj | M Padmakumar](https://www.youtube.com/watch?v=Osn6c5_kRDo)
+- [ഒരിക്കലും ഞാൻ നിന്നെ ഉപേക്ഷിക്കുകയില്ല ...| 😇 Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=xszdZhf8XlA)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 20th of May 2024](https://www.youtube.com/watch?v=M7_eIEvxAEc)
+- [Dayana Dayana | Remix | Ring Master | DJ Savyo | Shankar Mahadevan | Gopi Sundar | Harinarayanan BK](https://www.youtube.com/watch?v=NY6aWeiSX_M)
+- [Anjanakkannezhuthi Video Song | Thacholi Othenan | S Janaki | MS Baburaj | P Bhaskaran](https://www.youtube.com/watch?v=xNzZ2cXwJZI)
+- [Pranayapoorvam Mohanlal | AUDIO JUKEBOX | Selected Romantic Songs | Malayalam Film Songs | Melodies](https://www.youtube.com/watch?v=semAKaChEEU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
