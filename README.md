@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pushpa Pushpa &lpar;From &#39;&#39;Pushpa 2 The Rule&#39;&#39;&rpar; - Telugu - Single - &lpar;T-Series&rpar; [24Bit-48kHz] - FLAC - 57MB - DSP Musical](https://www.1tamilmv.eu/index.php?/forums/topic/179886-pushpa-pushpa-from-pushpa-2-the-rule-telugu-single-t-series-24bit-48khz-flac-57mb-dsp-musical/&do=findComment&comment=365819)
+- [Fear Song &lpar;From &#39;&#39;Devara Part 1&#39;&#39;&rpar; - Telugu - Single - &lpar;T-Series&rpar; [24Bit-48kHz] - FLAC - 44MB - Anirudh Ravichander Musical](https://www.1tamilmv.eu/index.php?/forums/topic/179885-fear-song-from-devara-part-1-telugu-single-t-series-24bit-48khz-flac-44mb-anirudh-ravichander-musical/&do=findComment&comment=365818)
 - [Bad Manners &lpar;2023&rpar; Kannada HQ HDTV - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.6GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179884-bad-manners-2023-kannada-hq-hdtv-1080p-720p-avc-aac-20-26gb-13gb-x264-700mb-400mb/&do=findComment&comment=365817)
 - [Mad Max: Fury Road &lpar;2015&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/166206-mad-max-fury-road-2015-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-24gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=365816)
 - [Jawan &lpar;2024&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.6GB &amp; 1.5GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179882-jawan-2024-kannada-true-web-dl-1080p-720p-avc-26gb-15gb-x264-700mb-400mb-esub/&do=findComment&comment=365815)
-- [Jawan &lpar;2024&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.6GB &amp; 1.5GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179882-jawan-2024-kannada-true-web-dl-1080p-720p-avc-26gb-15gb-x264-700mb-400mb-esub/&do=findComment&comment=365813)
-- [7G Rainbow Colony &lpar;2004&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - AAC2.0&lpar;192kbps&rpar; - 8.6GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179860-7g-rainbow-colony-2004-tamil-true-web-dl-1080p-720p-avc-untouched-aac20192kbps-86gb-55gb-27gb-14gb-x264-700mb-400mb-gdrive/&do=findComment&comment=365812)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
