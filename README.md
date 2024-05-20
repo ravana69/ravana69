@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Uriyadi &lpar;2016&rpar; Tamil - SS WEB-DL - 1080p &amp; 720p - ×264 - &lpar;DD+ 5.1 - 192kbps&rpar; - 2GB &amp; 1GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179892-uriyadi-2016-tamil-ss-web-dl-1080p-720p-%C3%97264-dd-51-192kbps-2gb-1gb-gdrive/&do=findComment&comment=365835)
+- [Thirumanam Ennum Nikkah &lpar;2014&rpar; Tamil - SS WEB-DL - 1080p &amp; 720p - ×264 - &lpar;DD+ 5.1 - 192kbps&rpar; - 2.9GB &amp; 1.5GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179891-thirumanam-ennum-nikkah-2014-tamil-ss-web-dl-1080p-720p-%C3%97264-dd-51-192kbps-29gb-15gb-gdrive/&do=findComment&comment=365834)
 - [Life Is Beautiful &lpar;2012&rpar;.Telugu.DVD9Rip.HEVC.DD5.1 448Kbps.ESub - 3.5GB](https://www.1tamilmv.eu/index.php?/forums/topic/178537-life-is-beautiful-2012telugudvd9riphevcdd51-448kbpsesub-35gb/&do=findComment&comment=365833)
 - [Lakshyam &lpar;2007&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB](https://www.1tamilmv.eu/index.php?/forums/topic/178531-lakshyam-2007-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-71gb/&do=findComment&comment=365832)
 - [HAPPY &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/178514-happy-2006-telugu-dvd9-untouched-480p-dd51-448kbps-6gb-esub/&do=findComment&comment=365831)
-- [Sampoorna Ramayanam &lpar;1972&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD3.0 - 224Kbps&rpar; - 5.7GB - ESub - KAD DVD](https://www.1tamilmv.eu/index.php?/forums/topic/179108-sampoorna-ramayanam-1972-telugu-dvd9-untouched-480p-dd30-224kbps-57gb-esub-kad-dvd/&do=findComment&comment=365830)
-- [Andala Ramudu &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.8GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179051-andala-ramudu-2006-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-68gb-esub/&do=findComment&comment=365829)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
