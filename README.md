@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Padakaali Video Song | Yodha | AR Rahman | KJ Yesudas | MG Sreekumar | Mohanlal](https://www.youtube.com/watch?v=bU1cdkTpQIk)
 - [ജീവിതഭാര കുരിശുമായ് ഞാൻ, ഈ ലോക കാൽവരി കയറിടുമ്പോൾ](https://www.youtube.com/watch?v=raUbmDLNiVY)
 - [Ezhimala Poonchola Song | Shorts | Spadikam | Mohanlal | K. S. Chithra | Silk Smitha](https://www.youtube.com/watch?v=jf11imKTn2k)
 - [Kaathu Kaathoru |  Nammal |Mohan Sithara| KJ Yesudas #SongOfTheDay](https://www.youtube.com/watch?v=KKzHMr0X8q8)
 - [Now Vibe With Your Krishna | Guruvayoorambala Nadayil | Prithviraj | Basil | Aju | Ankit | Vipin Das](https://www.youtube.com/watch?v=10S1paqZ9yM)
 - [Aaradhana - Audio Song | Pathaam Valavu | Suraj Venjaramoodu | Ranjin Raj | M Padmakumar](https://www.youtube.com/watch?v=Osn6c5_kRDo)
-- [ഒരിക്കലും ഞാൻ നിന്നെ ഉപേക്ഷിക്കുകയില്ല ...| 😇 Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=xszdZhf8XlA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
