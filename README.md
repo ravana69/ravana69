@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Hits of Mohan Lal | വീണ്ടും കാതോർക്കുന്ന മോഹൻലാൽ ഗാനങ്ങൾ | Malayalam Film Songs | Satyam audios](https://www.youtube.com/watch?v=EkGmFN2ahl4)
+- [Manju Peyyana Video Song | Chandranudikkunna Dikhil| Kavya Madhavan Dileep| Sujatha Mohan|Vidyasagar](https://www.youtube.com/watch?v=50ff5ocPW0E)
+- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=hjMJGSl2ZYA)
 - [Yahovayude Vishudhare | Super Hit Christian Devotional Songs |  Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=fLplZb8mS7w)
 - [ഒരു ദിവസം പോലും മുടങ്ങാതെ സ്ഥിരമായി കേൾക്കുന്ന മലയാളസിനിമയിലെ പ്രശസ്‌ത ഗാനങ്ങൾ | EVERGREEN HIT SONGS](https://www.youtube.com/watch?v=qfZOfojrX-8)
 - [Saranam Viliyude | Sree Ayyappanum Vavarum | AT Ummer | KJ Yesudas | Old is Gold | Evergreen Hits](https://www.youtube.com/watch?v=TzwCo__3wcM)
-- [Pericham Pazhathinte | Swagatham | Bichu Thirumala | Rajamani | MG Sreekumar | Minmini | Urvashi](https://www.youtube.com/watch?v=6BYaC5eSmw4)
-- [Kanimalarai Manimukilay | കണിമലരായ് മണിമുകിലായ് | Mazha Mega Pravukal Movie Song | K S Chithra](https://www.youtube.com/watch?v=uYQuuMh_x7I)
-- [കണിമലരായ് മണിമുകിലായ് കവിതകളായ് #kavya #shorts #malayalam #song](https://www.youtube.com/watch?v=psqk-M1Ya1U)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
