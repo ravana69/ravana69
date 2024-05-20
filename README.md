@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [CoComelon Lane &lpar;2024&rpar; Complete S02 EP &lpar;01-05&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.2GB - 700MB &amp; 400MB] - ESub [Google Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/179887-cocomelon-lane-2024-complete-s02-ep-01-05-merged-true-web-dl-1080p-720p-avc-tamil-hindi-eng-dd51-192kbps-22gb-700mb-400mb-esub-google-drive/&do=findComment&comment=365821)
-- [Ordinary Person &lpar;From &quot;Leo&quot;&rpar; Master Quality 24bit 96kHz - FLAC - Anirudh Ravichander Musical - 47 MB](https://www.1tamilmv.eu/index.php?/forums/topic/175906-ordinary-person-from-leo-master-quality-24bit-96khz-flac-anirudh-ravichander-musical-47-mb/&do=findComment&comment=365820)
-- [Pushpa Pushpa &lpar;From &#39;&#39;Pushpa 2 The Rule&#39;&#39;&rpar; - Telugu - Single - &lpar;T-Series&rpar; [24Bit-48kHz] - FLAC - 57MB - DSP Musical](https://www.1tamilmv.eu/index.php?/forums/topic/179886-pushpa-pushpa-from-pushpa-2-the-rule-telugu-single-t-series-24bit-48khz-flac-57mb-dsp-musical/&do=findComment&comment=365819)
-- [Fear Song &lpar;From &#39;&#39;Devara Part 1&#39;&#39;&rpar; - Telugu - Single - &lpar;T-Series&rpar; [24Bit-48kHz] - FLAC - 44MB - Anirudh Ravichander Musical](https://www.1tamilmv.eu/index.php?/forums/topic/179885-fear-song-from-devara-part-1-telugu-single-t-series-24bit-48khz-flac-44mb-anirudh-ravichander-musical/&do=findComment&comment=365818)
-- [Bad Manners &lpar;2023&rpar; Kannada HQ HDTV - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.6GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179884-bad-manners-2023-kannada-hq-hdtv-1080p-720p-avc-aac-20-26gb-13gb-x264-700mb-400mb/&do=findComment&comment=365817)
+- [Life Is Beautiful &lpar;2012&rpar;.Telugu.DVD9Rip.HEVC.DD5.1 448Kbps.ESub - 3.5GB](https://www.1tamilmv.eu/index.php?/forums/topic/178537-life-is-beautiful-2012telugudvd9riphevcdd51-448kbpsesub-35gb/&do=findComment&comment=365833)
+- [Lakshyam &lpar;2007&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.1GB](https://www.1tamilmv.eu/index.php?/forums/topic/178531-lakshyam-2007-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-71gb/&do=findComment&comment=365832)
+- [HAPPY &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/178514-happy-2006-telugu-dvd9-untouched-480p-dd51-448kbps-6gb-esub/&do=findComment&comment=365831)
+- [Sampoorna Ramayanam &lpar;1972&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD3.0 - 224Kbps&rpar; - 5.7GB - ESub - KAD DVD](https://www.1tamilmv.eu/index.php?/forums/topic/179108-sampoorna-ramayanam-1972-telugu-dvd9-untouched-480p-dd30-224kbps-57gb-esub-kad-dvd/&do=findComment&comment=365830)
+- [Andala Ramudu &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.8GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179051-andala-ramudu-2006-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-68gb-esub/&do=findComment&comment=365829)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
