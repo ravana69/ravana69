@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 21st of May 2024](https://www.youtube.com/watch?v=Xn49zgLw-HI)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=nZw1VejpweE)
 - [The complete Actor ലാലേട്ടൻ। മോഹൻലാൽ ഹിറ്റ്‌സ് | Hits Of Mohanlal | മലയാളചലച്ചിത്രഗാനങ്ങൾ](https://www.youtube.com/watch?v=2JbHfOIwUA4)
 - [Ariyathe Ariyathe | Ravanaprabhu | Mohanlal | Vasundara | Suresh Peters | Jayachandran | Chithra](https://www.youtube.com/watch?v=iJ0Hs-EP4wE)
 - [Padakaali Video Song | Yodha | AR Rahman | KJ Yesudas | MG Sreekumar | Mohanlal](https://www.youtube.com/watch?v=bU1cdkTpQIk)
 - [ജീവിതഭാര കുരിശുമായ് ഞാൻ, ഈ ലോക കാൽവരി കയറിടുമ്പോൾ](https://www.youtube.com/watch?v=raUbmDLNiVY)
-- [Ezhimala Poonchola Song | Shorts | Spadikam | Mohanlal | K. S. Chithra | Silk Smitha](https://www.youtube.com/watch?v=jf11imKTn2k)
-- [Kaathu Kaathoru |  Nammal |Mohan Sithara| KJ Yesudas #SongOfTheDay](https://www.youtube.com/watch?v=KKzHMr0X8q8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
