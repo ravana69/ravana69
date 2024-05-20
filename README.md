@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=oQQr276lfYU)
+- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 20th May 2024 # Vanakkamasam Prayer 24 May 20 # Japamala](https://www.youtube.com/watch?v=_gD_NV3aZBY)
+- [Prabhatha Geethangal | Prayer and Worship Songs | Morning Prayer Songs | Christian Songs](https://www.youtube.com/watch?v=6APWXkQkUWA)
+- [ഇന്ന് മെയ് 20 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala santhosham](https://www.youtube.com/watch?v=tLStMwQD9RQ)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=SlED8nGTxko)
 - [പ്രഭാത പ്രാര്‍ത്ഥന May 20 # Athiravile Prarthana 20th of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=anI22EjFZ4c)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 20th of May 2024](https://www.youtube.com/watch?v=SYkNalF_NK0)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=U6fOEyDq_DM)
-- [സ്വപ്നമാലിനീ തീരത്തുണ്ടൊരു..| കെ ജെ യേശുദാസ് | K S Chitra | Remastered songs| മലയാളചലച്ചിത്രഗാനങ്ങൾ](https://www.youtube.com/watch?v=5Hp5esbz7s8)
-- [ആത്മീയ സന്തോഷ തണലേകാൻഅമ്മേ നീ വിടരേണം അരികത്തെന്നും മലരായ്.](https://www.youtube.com/watch?v=2Kc2k2KxbQE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
