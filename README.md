@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Yahovayude Vishudhare | Super Hit Christian Devotional Songs |  Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=fLplZb8mS7w)
+- [ഒരു ദിവസം പോലും മുടങ്ങാതെ സ്ഥിരമായി കേൾക്കുന്ന മലയാളസിനിമയിലെ പ്രശസ്‌ത ഗാനങ്ങൾ | EVERGREEN HIT SONGS](https://www.youtube.com/watch?v=qfZOfojrX-8)
+- [Saranam Viliyude | Sree Ayyappanum Vavarum | AT Ummer | KJ Yesudas | Old is Gold | Evergreen Hits](https://www.youtube.com/watch?v=TzwCo__3wcM)
+- [Pericham Pazhathinte | Swagatham | Bichu Thirumala | Rajamani | MG Sreekumar | Minmini | Urvashi](https://www.youtube.com/watch?v=6BYaC5eSmw4)
 - [Kanimalarai Manimukilay | കണിമലരായ് മണിമുകിലായ് | Mazha Mega Pravukal Movie Song | K S Chithra](https://www.youtube.com/watch?v=uYQuuMh_x7I)
 - [കണിമലരായ് മണിമുകിലായ് കവിതകളായ് #kavya #shorts #malayalam #song](https://www.youtube.com/watch?v=psqk-M1Ya1U)
-- [Chimmi Chimmi | Live with UNTAGGED | Cover Version | Anila Rajeev | Deepak Dev | Kaithapram | Urumi](https://www.youtube.com/watch?v=UzVhMVX5rEw)
-- [Jayabharathi Romantic Old Superhit Song l Mooladhanam Movie | Prem Nazir, Sathyan, Sharada](https://www.youtube.com/watch?v=XA2jdd_D5sc)
-- [Midu Midu Midukkan | Rajadhi Raja #mammootty #shortsfeed #shortsvideo #shorts #madhubalakrishnan](https://www.youtube.com/watch?v=cR9gXs7AQD8)
-- [En Khalbiloru | OneWay Ticket  #shortsvideo #ytshorts #malayalammoviesongs](https://www.youtube.com/watch?v=VQ27_UtCfCU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
