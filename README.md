@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Hits of Mohanlal | Mohanlal Evergreen Hit Songs | Mohanlal Video Songs | Video Jukebox |](https://www.youtube.com/watch?v=6CB8eScUJms)
 - [Nadodipoonthinkal | Usthad | Indraja | Vidyasagar | M G Sreekumar | Happy Birthday Mohanlal](https://www.youtube.com/watch?v=p--XP7nWp8M)
 - [Malarum Kiliyum - Mohanlal Hits | Valittezhuthiya | Kannodu Kannaya | Thoomanjin Thulli](https://www.youtube.com/watch?v=HvT3QPFNhhI)
 - [Kattile Kannan | Animation Video #kattilekannan #animation #malayalamcartoon #shorts #shortsfeed](https://www.youtube.com/watch?v=A8uEbkozimU)
 - [Palavattam Pookkalam Video Song | Manichitrathazhu | Mohanlal | KJ Yesudas | MG Radhakrishnan](https://www.youtube.com/watch?v=0DMbbOhK1fM)
 - [Hits of Kester | Jukebox | Malayalam Christian Devotional Songs | NonStop Kester Christian Songs](https://www.youtube.com/watch?v=B8pRX2_g7n4)
-- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=rYYL81nnt6E)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
