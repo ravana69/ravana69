@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pain Threshold &lpar;2019&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Rus&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179934-pain-threshold-2019-hd-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-rus-2gb-1gb-x264-tam-tel-hin-400mb/&do=findComment&comment=365926)
 - [Street Warrior &lpar;2008&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + French&rpar; - 1.8GB &amp; 850MB | x264 - &lpar;Tamil&rpar; - 350MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179933-street-warrior-2008-hd-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-french-18gb-850mb-x264-tamil-350mb/&do=findComment&comment=365925)
-- [Maidaan &lpar;2024&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 3.5GB - 1.6GB &amp; 950MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179932-maidaan-2024-hindi-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-35gb-16gb-950mb-x264-700mb-400mb-esub/&do=findComment&comment=365924)
+- [Maidaan &lpar;2024&rpar; Hindi TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 19GB - 3.5GB - 1.6GB &amp; 950MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179932-maidaan-2024-hindi-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-19gb-35gb-16gb-950mb-x264-700mb-400mb-esub/&do=findComment&comment=365924)
 - [Shakhahaari &lpar;2024&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179931-shakhahaari-2024-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=365923)
 - [Villu &lpar;2009&rpar; Tamil BluRay - [1080p &amp; 720p - AVC / HEVC - &lpar;DTS 5.1- 1500Kbps + DD5.1 - 448Kbps + AAC 2.0&rpar; - 10.3GB - 3.3GB - 1.6GB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179916-villu-2009-tamil-bluray-1080p-720p-avc-hevc-dts-51-1500kbps-dd51-448kbps-aac-20-103gb-33gb-16gb-x264-700mb-400mb-esub/&do=findComment&comment=365922)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [20-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179894-movies-collection-all-languages-4k-1080p-720p-576p-480p-20-05-2024/&do=findComment&comment=365921)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
