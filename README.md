@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=rYYL81nnt6E)
+- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 21st May 2024 # Vanakkamasam Prayer 2024 May 21 Japamala](https://www.youtube.com/watch?v=dAwGSu5JgUU)
+- [ഇന്ന് മെയ് 21 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala dhukkathint](https://www.youtube.com/watch?v=UtfmNOoiNuI)
+- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=q3A-ENtZTJc)
 - [രാവിലെ പ്രാര്‍ത്ഥന May 21 # Athiravile Prarthana 21st of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=XET2UCu2OJc)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 21st of May 2024](https://www.youtube.com/watch?v=Xn49zgLw-HI)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=nZw1VejpweE)
-- [The complete Actor ലാലേട്ടൻ। മോഹൻലാൽ ഹിറ്റ്‌സ് | Hits Of Mohanlal | മലയാളചലച്ചിത്രഗാനങ്ങൾ](https://www.youtube.com/watch?v=2JbHfOIwUA4)
-- [Ariyathe Ariyathe | Ravanaprabhu | Mohanlal | Vasundara | Suresh Peters | Jayachandran | Chithra](https://www.youtube.com/watch?v=iJ0Hs-EP4wE)
-- [Padakaali Video Song | Yodha | AR Rahman | KJ Yesudas | MG Sreekumar | Mohanlal](https://www.youtube.com/watch?v=bU1cdkTpQIk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
