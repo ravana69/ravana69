@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [75 Telugu Movies - BluRay/WEB DL - 1080p - x264 - DD5.1/AAC2.0 - ESub - 200GB](https://www.1tamilmv.eu/index.php?/forums/topic/119959-75-telugu-movies-blurayweb-dl-1080p-x264-dd51aac20-esub-200gb/&do=findComment&comment=365868)
 - [Aavi &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 1.9GB &amp; 1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179907-aavi-2024-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-19gb-1gb-x264-700mb-400mb-esub/&do=findComment&comment=365867)
 - [Black &amp; White &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 1.8GB &amp; 1GB] - [x264 - 700MB &amp; 350MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179906-black-white-2024-tamil-true-web-dl-1080p-720p-avc-hevc-18gb-1gb-x264-700mb-350mb-esub/&do=findComment&comment=365866)
 - [Dil Pasand &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179905-dil-pasand-2024-tamil-true-web-dl-1080p-720p-avc-hevc-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=365865)
 - [Money Train &lpar;1995&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179878-money-train-1995-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-hindi-eng-2gb-1gb-x264-tam-hin-450mb-esub/&do=findComment&comment=365864)
-- [Bad Manners &lpar;2023&rpar; Kannada HQ HDTV - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.6GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179884-bad-manners-2023-kannada-hq-hdtv-1080p-720p-avc-aac-20-26gb-13gb-x264-700mb-400mb/&do=findComment&comment=365863)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
