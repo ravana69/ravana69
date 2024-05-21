@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Shakhahaari &lpar;2024&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179931-shakhahaari-2024-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=365923)
 - [Villu &lpar;2009&rpar; Tamil BluRay - [1080p &amp; 720p - AVC / HEVC - &lpar;DTS 5.1- 1500Kbps + DD5.1 - 448Kbps + AAC 2.0&rpar; - 10.3GB - 3.3GB - 1.6GB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179916-villu-2009-tamil-bluray-1080p-720p-avc-hevc-dts-51-1500kbps-dd51-448kbps-aac-20-103gb-33gb-16gb-x264-700mb-400mb-esub/&do=findComment&comment=365922)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [20-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179894-movies-collection-all-languages-4k-1080p-720p-576p-480p-20-05-2024/&do=findComment&comment=365921)
 - [Blood Bite [Horror Shark] &lpar;2020&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 1.7GB &amp; 950MB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179924-blood-bite-horror-shark-2020-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-17gb-950mb-x264-tamil-telugu-hindi-400mb/&do=findComment&comment=365920)
 - [Guruvayoorambala Nadayil &lpar;2024&rpar; Hindi HQ PreDVD - [1080p &amp; 720p - x264 - 1GB &amp; 400MB] - HQ Fan Dub](https://www.1tamilmv.eu/index.php?/forums/topic/179930-guruvayoorambala-nadayil-2024-hindi-hq-predvd-1080p-720p-x264-1gb-400mb-hq-fan-dub/&do=findComment&comment=365919)
-- [Aquaman And The Lost Kingdom &lpar;2023&rpar; 2160p HQ JC WEB-DL x264 &lpar;AAC 2.0&rpar; [MULTI] Google Drive](https://www.1tamilmv.eu/index.php?/forums/topic/179929-aquaman-and-the-lost-kingdom-2023-2160p-hq-jc-web-dl-x264-aac-20-multi-google-drive/&do=findComment&comment=365918)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
