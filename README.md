@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Mad Max Fury Road &lpar;2015&rpar; AMZN WEB DL 1080p H264 - [Tamil + Telugu + Hindi + English] DDP5.1 - 9.8GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/169074-mad-max-fury-road-2015-amzn-web-dl-1080p-h264-tamil-telugu-hindi-english-ddp51-98gb-gdrive/&do=findComment&comment=365892)
-- [Garuda Purana &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179915-garuda-purana-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=365891)
-- [Whistle &lpar;2019&rpar; Telugu 1080p AMZN WEB-DL Music Video Album - x264 - DDP 5.1 &lpar;640kbps&rpar; - ESubs - Shyam](https://www.1tamilmv.eu/index.php?/forums/topic/179918-whistle-2019-telugu-1080p-amzn-web-dl-music-video-album-x264-ddp-51-640kbps-esubs-shyam/&do=findComment&comment=365890)
-- [Garudan - Trailer | Soori, Sasikumar, Unni Mukundan | Yuvan | Vetrimaaran | RS Durai Senthilkumar](https://www.1tamilmv.eu/index.php?/forums/topic/179917-garudan-trailer-soori-sasikumar-unni-mukundan-yuvan-vetrimaaran-rs-durai-senthilkumar/&do=findComment&comment=365889)
-- [Garuda Purana &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179915-garuda-purana-2023-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=365887)
+- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [21-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179919-movies-collection-all-languages-4k-1080p-720p-576p-480p-21-05-2024/&do=findComment&comment=365898)
+- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [20-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179894-movies-collection-all-languages-4k-1080p-720p-576p-480p-20-05-2024/&do=findComment&comment=365897)
+- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [20-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179894-movies-collection-all-languages-4k-1080p-720p-576p-480p-20-05-2024/&do=findComment&comment=365896)
+- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [20-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179894-movies-collection-all-languages-4k-1080p-720p-576p-480p-20-05-2024/&do=findComment&comment=365895)
+- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [20-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179894-movies-collection-all-languages-4k-1080p-720p-576p-480p-20-05-2024/&do=findComment&comment=365894)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
