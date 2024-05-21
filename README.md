@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Happy Birthday to the Phenomenal Actor #Mohanlal🔥| #MalaikottaiVaaliban #shorts #ytshorts](https://www.youtube.com/watch?v=wUGaNHNNcpo)
+- [Prem Nazir Old Superhit Movie Song l Iniyum Kaanaa Movie | Vincent, Ushakumari](https://www.youtube.com/watch?v=TS_LyKPvf1s)
+- [Oh Sainaba | Amrutham |Video Song| K J Yesudas | K S Chithra | Kaithapram | M Jayachandran | Jayaram](https://www.youtube.com/watch?v=DbY6ahd25GA)
 - [Hits of Mohanlal | Mohanlal Evergreen Hit Songs | Mohanlal Video Songs | Video Jukebox |](https://www.youtube.com/watch?v=6CB8eScUJms)
 - [Nadodipoonthinkal | Usthad | Indraja | Vidyasagar | M G Sreekumar | Happy Birthday Mohanlal](https://www.youtube.com/watch?v=p--XP7nWp8M)
 - [Malarum Kiliyum - Mohanlal Hits | Valittezhuthiya | Kannodu Kannaya | Thoomanjin Thulli](https://www.youtube.com/watch?v=HvT3QPFNhhI)
-- [Kattile Kannan | Animation Video #kattilekannan #animation #malayalamcartoon #shorts #shortsfeed](https://www.youtube.com/watch?v=A8uEbkozimU)
-- [Palavattam Pookkalam Video Song | Manichitrathazhu | Mohanlal | KJ Yesudas | MG Radhakrishnan](https://www.youtube.com/watch?v=0DMbbOhK1fM)
-- [Hits of Kester | Jukebox | Malayalam Christian Devotional Songs | NonStop Kester Christian Songs](https://www.youtube.com/watch?v=B8pRX2_g7n4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
