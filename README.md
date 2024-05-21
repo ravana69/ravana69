@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [K For Krishna 1.5 X - Lyrical | Guruvayoorambala Nadayil | Prithviraj | Basil | Ankit Menon](https://www.youtube.com/watch?v=iptmAM2k7PQ)
+- [Songs Of The Week | Rithuraj | Christian Superhit Songs | Joji Johns | Christian Songs Malayalam](https://www.youtube.com/watch?v=ziKfaATxRJ8)
+- [Enthamme Chundathu 1080p Remastered   Kulam   KS Chithra   Bhanupriya   Malayalam Film Song](https://www.youtube.com/watch?v=9dKroxs3M1I)
+- [Okela Okela | Varnapakitt | Gireesh Puthenchery | Vidyasagar | M G Sreekumar |  Evergreen Songs](https://www.youtube.com/watch?v=5D5O2Jc-bL0)
 - [Manju Thullikal |   Four  #shortsfeed #shorts #malayalamromanticsongs #mamithabaiju](https://www.youtube.com/watch?v=p_95xYQK4Tw)
 - [Get Into The Beats Of Vatteppam | Mandakini | Dabzee | Altaf Salim | Bibin Ashok | #shorts #ytshorts](https://www.youtube.com/watch?v=CF7xWPXElxg)
-- [മാതാപിതാക്കളെ സ്നേഹിക്കുക, ബഹുമാനിക്കുക | 😇 Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=iPHltGpskV8)
-- [Entharo Mahaanubhaavulu | Devadoothan | Harmony | Vidyasagar | Thyagaraja](https://www.youtube.com/watch?v=cVqG4R_GDOA)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 21st of May 2024](https://www.youtube.com/watch?v=H70mADQty8o)
-- [Kottum Njaan Kettilla Song | Thacholi Othenan | MS Baburaj #shorts](https://www.youtube.com/watch?v=plHrgamw7Wg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
