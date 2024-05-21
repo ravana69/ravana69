@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [DANGER &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.9GB](https://www.1tamilmv.eu/index.php?/forums/topic/179895-danger-2005-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-69gb/&do=findComment&comment=365872)
 - [Manjummel Boys &lpar;2024&rpar; Malayalam TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 6GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179529-manjummel-boys-2024-malayalam-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-6gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=365871)
 - [Murder In Mahim &lpar;2024&rpar; Complete S01 EP&lpar;01-08&rpar; Merged TRUE WEB-DL - [1080p - 720p &amp; 360p - AVC - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Kannada] - 4.3GB - 2.1GB &amp; 1GB] - ESub [Google Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/179909-murder-in-mahim-2024-complete-s01-ep01-08-merged-true-web-dl-1080p-720p-360p-avc-aac-20-tamil-telugu-hindi-kannada-43gb-21gb-1gb-esub-google-drive/&do=findComment&comment=365870)
 - [Label &lpar;2023&rpar; Complete S01 EP &lpar;01-10&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 6GB - 3.7GB &amp; 1.4GB] - ESub [Google Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/179908-label-2023-complete-s01-ep-01-10-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-6gb-37gb-14gb-esub-google-drive/&do=findComment&comment=365869)
 - [75 Telugu Movies - BluRay/WEB DL - 1080p - x264 - DD5.1/AAC2.0 - ESub - 200GB](https://www.1tamilmv.eu/index.php?/forums/topic/119959-75-telugu-movies-blurayweb-dl-1080p-x264-dd51aac20-esub-200gb/&do=findComment&comment=365868)
-- [Aavi &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 1.9GB &amp; 1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179907-aavi-2024-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-19gb-1gb-x264-700mb-400mb-esub/&do=findComment&comment=365867)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
