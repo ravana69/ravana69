@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Azhagiya Tamilmagan &lpar;2007&rpar; Tamil - BluRay - 1080p &amp; 720p - AVC - DTS-HDMA 5.1&lpar;4463kbps&rpar; - 14.4GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179920-azhagiya-tamilmagan-2007-tamil-bluray-1080p-720p-avc-dts-hdma-514463kbps-144gb-55gb-27gb-14gb-x264-700mb-400mb-gdrive/&do=findComment&comment=365902)
+- [Water Margin&#39;s Revenge &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+2.0 - 224Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Chi&rpar; - 2.1GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179911-water-margins-revenge-2022-hd-original-audios-1080p-720p-x264-dd20-224kbps-tamil-telugu-hindi-chi-21gb-1gb-x264-tam-tel-hin-400mb-esub/&do=findComment&comment=365901)
+- [Andhrawala &lpar;2004&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; JC 576p WEB-DL UNTOUCHED - AVC - [Telugu DD5.1 &lpar;448Kbps&rpar;] By-Vincenzo](https://www.1tamilmv.eu/index.php?/forums/topic/179897-andhrawala-2004-telugu-music-video-album-jc-576p-web-dl-untouched-avc-telugu-dd51-448kbps-by-vincenzo/&do=findComment&comment=365900)
+- [DANGER &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 576p - &lpar;DTS - 1510Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.9GB](https://www.1tamilmv.eu/index.php?/forums/topic/179895-danger-2005-telugu-dvd9-untouched-576p-dts-1510kbps-dd51-448kbps-69gb/&do=findComment&comment=365899)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [21-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179919-movies-collection-all-languages-4k-1080p-720p-576p-480p-21-05-2024/&do=findComment&comment=365898)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [20-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179894-movies-collection-all-languages-4k-1080p-720p-576p-480p-20-05-2024/&do=findComment&comment=365897)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [20-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179894-movies-collection-all-languages-4k-1080p-720p-576p-480p-20-05-2024/&do=findComment&comment=365896)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [20-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179894-movies-collection-all-languages-4k-1080p-720p-576p-480p-20-05-2024/&do=findComment&comment=365895)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [20-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179894-movies-collection-all-languages-4k-1080p-720p-576p-480p-20-05-2024/&do=findComment&comment=365894)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
