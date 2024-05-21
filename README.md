@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=NLosWUqcImA)
-- [Mohanlal Birthday Hit Song | Maane..Malaramban Valarthunna | Ayal Kadha Ezhthukayanu | Mohanlal](https://www.youtube.com/watch?v=gwohE7vV4gM)
-- [മറക്കാനാവാത്ത  ലാലേട്ടൻ ഗാനങ്ങൾ | Mohanlal Birthday Special Hits | KJ Yesudas |  M.G Sreekumar](https://www.youtube.com/watch?v=G1HGO85LpIA)
-- [Happy Birthday to the Phenomenal Actor #Mohanlal🔥| #MalaikottaiVaaliban #shorts #ytshorts](https://www.youtube.com/watch?v=wUGaNHNNcpo)
-- [Prem Nazir Old Superhit Movie Song l Iniyum Kaanaa Movie | Vincent, Ushakumari](https://www.youtube.com/watch?v=TS_LyKPvf1s)
-- [Oh Sainaba | Amrutham |Video Song| K J Yesudas | K S Chithra | Kaithapram | M Jayachandran | Jayaram](https://www.youtube.com/watch?v=DbY6ahd25GA)
+- [മാതാപിതാക്കളെ സ്നേഹിക്കുക, ബഹുമാനിക്കുക | 😇 Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=iPHltGpskV8)
+- [Entharo Mahaanubhaavulu | Devadoothan | Harmony | Vidyasagar | Thyagaraja](https://www.youtube.com/watch?v=cVqG4R_GDOA)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 21st of May 2024](https://www.youtube.com/watch?v=H70mADQty8o)
+- [Kottum Njaan Kettilla Song | Thacholi Othenan | MS Baburaj #shorts](https://www.youtube.com/watch?v=plHrgamw7Wg)
+- [Your Krishna | Guruvayoorambala Nadayil | Prithviraj | Basil | Aju | Ankit | Vipin Das](https://www.youtube.com/watch?v=LvZWtY4vP-I)
+- [Chithini Movie | MAKING VIDEO | East Coast Vijayan | Amith Chakalakkal | Vinay Forrt | Mokksha](https://www.youtube.com/watch?v=dBA4nP6VJ1Q)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
