@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന May 23 # Athiravile Prarthana 23rd of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=j1tT1xP3n40)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 23rd of May 2024](https://www.youtube.com/watch?v=TlDfm2VaJmM)
 - [ഇളംമഞ്ഞിൻ കുളിരുമായൊരു കുയിൽ..| കെ ജെ യേശുദാസ് | Chitra | Remastered songs | മലയാളചലച്ചിത്രഗാനങ്ങൾ](https://www.youtube.com/watch?v=NrXarW6jyTc)
 - [സ്നേഹത്തിൻ ഉറവിടമാകും കന്യേ...](https://www.youtube.com/watch?v=G2qXdhfOaKk)
 - [Olakkayyil Neeraadi Song | Mukesh | Vani Viswanath | KJ Yesudas, KS Chithra | Bichu Thirumala](https://www.youtube.com/watch?v=lSzvvrzttU8)
 - [Enthe Innum Vanneela | Gramophone | Vidyasagar | P Jayachandran |  Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=r0P9qqsbWYQ)
-- [Vara Chandralekhayalle | HD Video Song | Gireesh Puthenchery  | SP Venkitesh  |Yesudas |](https://www.youtube.com/watch?v=Nw7simFr9EA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
