@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Creatures &lpar;2021&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Eng&rpar; - 1.9GB &amp; 1GB | x264 - &lpar;Tamil + Telugu&rpar; - 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179940-creatures-2021-bluray-original-audios-1080p-720p-x264-tamil-telugu-eng-19gb-1gb-x264-tamil-telugu-400mb-esub/&do=findComment&comment=365952)
 - [The Hangover Part II &lpar;2011&rpar; UNRATED - EXTENDED - BluRay - 1080p &amp; 720p - AVC - [Tamil + Hindi + English] - AAC2.0&lpar;128kbps&rpar; - 2GB &amp; 1GB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179923-the-hangover-part-ii-2011-unrated-extended-bluray-1080p-720p-avc-tamil-hindi-english-aac20128kbps-2gb-1gb-esub-gdrive/&do=findComment&comment=365951)
 - [Maidaan &lpar;2024&rpar; Hindi TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 19GB - 3.5GB - 1.6GB &amp; 950MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179932-maidaan-2024-hindi-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-19gb-35gb-16gb-950mb-x264-700mb-400mb-esub/&do=findComment&comment=365950)
 - [Aayirathil Oruvan &lpar;2010&rpar; UNCUT - Tamil - AYN DVD - 1080p &amp; 720p - AVC / HEVC - DD5.1&lpar;448kbps&rpar; - 4GB - 2.7GB - 1.8GB &amp; 1.4GB - x264 - 700MB &amp; 400MB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179896-aayirathil-oruvan-2010-uncut-tamil-ayn-dvd-1080p-720p-avc-hevc-dd51448kbps-4gb-27gb-18gb-14gb-x264-700mb-400mb-esub-gdrive/&do=findComment&comment=365949)
 - [Blood Bite [Horror Shark] &lpar;2020&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 1.7GB &amp; 950MB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179924-blood-bite-horror-shark-2020-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-17gb-950mb-x264-tamil-telugu-hindi-400mb/&do=findComment&comment=365948)
-- [Maidaan &lpar;2024&rpar; Hindi TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 19GB - 3.5GB - 1.6GB &amp; 950MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179932-maidaan-2024-hindi-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-19gb-35gb-16gb-950mb-x264-700mb-400mb-esub/&do=findComment&comment=365947)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
