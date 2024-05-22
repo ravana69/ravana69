@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Aaro Nee | Gayathry Rajiv | Urumi | The Salt Session #shortsvideo  #manoramamusic](https://www.youtube.com/watch?v=84sA63KMCEE)
+- [Aaro Nee | Gayathry Rajiv | Urumi | The Salt Session #shortsvideo  #manoramamusic](https://www.youtube.com/watch?v=XDKbDnYI_2E)
+- [Aaro Nee | Gayathry Rajiv | Urumi | The Salt Session #shortsvideo  #manoramamusic](https://www.youtube.com/watch?v=Ksv-iHR3AFc)
+- [നിലാവിന്റെ ചാരുത പോൽ മനസ്സിൽ മിന്നി തിളങ്ങും മലയാള സിനിമ ഗാനങ്ങൾ |Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=ogLREohYrLw)
+- [അണ്ണാറക്കണ്ണാ വാ പൂവാലാ | Annarakanna Va Puvala | Sharan Appus](https://www.youtube.com/watch?v=YnnXSJIRwEc)
 - [Prem Nazir, Old Superhit Movie Song l  Iniyum Kaanaam Movie | Vincent, Ushakumari](https://www.youtube.com/watch?v=UzeTARYTu2Y)
-- [Naattumaaviloru | 916 #shreyaghoshal #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=0Gw6syy1Jt0)
-- [Krooshilninnum | Maria Kolady | Raju Varghese   #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=nQBohXw9vLY)
-- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=Ekn2l5pZx9o)
-- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 22nd May 2024 # Vanakkamasam Prayer May 22 # Japamala](https://www.youtube.com/watch?v=VRCDWbPgnCo)
-- [Daivame Nin Hrudayam | Christian Video Song | Sheril Mathew | Lijo Chembakassery | joji Johns](https://www.youtube.com/watch?v=EZdz_ClPESo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
