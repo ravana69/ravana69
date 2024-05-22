@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vara Chandralekhayalle | HD Video Song | Gireesh Puthenchery  | SP Venkitesh  |Yesudas |](https://www.youtube.com/watch?v=Nw7simFr9EA)
+- [Christian Superhit Songs | Abhijith Kollam | KG Markose | Christian Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=tj0Au8MgAGA)
+- [Padha Smarana Sukham | Sallapam (1996)| Kaithapram | Johnson | K.J.Yesudas | Dileep | Malayalam Song](https://www.youtube.com/watch?v=tGva53CDlPo)
 - [Vibe For K For Krishna Join Your Hands| Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=piWYEkiQpng)
 - [Jumbochan 2 | Kattile Shakthiman | Kids Animation Video | Children Video | New Animation Video](https://www.youtube.com/watch?v=x0h5-687tRE)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 22nd of May 2024](https://www.youtube.com/watch?v=Dr_AM4BGeEQ)
-- [Pottuthottorungi Lyrical Video | Aanandhapuram Diaries | Shaan Rahman | Sooraj Santhosh | Meena](https://www.youtube.com/watch?v=joDH9iIAAYM)
-- [സമയമുള്ളപ്പോൾ മിണ്ടുന്നതും സമയമുണ്ടാക്കി മിണ്ടുന്നതും ഒരുപാട് വ്യത്യാസം ഉണ്ട് |Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=2DTMAXWURW8)
-- [Eerakkombinmele Video Song | Kuttetan | KJ Yesudas | Kaithapram](https://www.youtube.com/watch?v=KtUCegTcD5M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
