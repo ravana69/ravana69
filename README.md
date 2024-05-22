@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [MARAMON CONVENTION SONG 2020 | രാത്രിയിലുള്ള നിന്റെ കരുതലിനും | ROY PUTHUR | #maramonconvention](https://www.youtube.com/watch?v=wwcgAVL1NJs)
-- [Arikil Nee | Flash | Karthik | Gopi Sundar #manoramamusic](https://www.youtube.com/watch?v=g19OIr6rOPk)
-- [Arikil Nee | Flash | Karthik | Gopi Sundar #manoramamusic #shorts](https://www.youtube.com/watch?v=xs5jdA_hfSU)
-- [Adhyam Kaanum | Aviyal | Shorts | Harishankar KS  #malayalamfilmsongs #shortsvideo](https://www.youtube.com/watch?v=8ZM5vJ0L998)
-- [Adhyam Kaanum | Aviyal | Shorts | Harishankar KS  #malayalamfilmsongs #shortsvideo](https://www.youtube.com/watch?v=NY6JxFqfPZM)
-- [Dayana Dayana  | Film song Animation Video  #shortsfeed #kidscartoon #animation #shortsvideo #reels](https://www.youtube.com/watch?v=bvPv7je7fpo)
+- [Jumbochan 2 | Kattile Shakthiman | Kids Animation Video | Children Video | New Animation Video](https://www.youtube.com/watch?v=x0h5-687tRE)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 22nd of May 2024](https://www.youtube.com/watch?v=Dr_AM4BGeEQ)
+- [Pottuthottorungi Lyrical Video | Aanandhapuram Diaries | Shaan Rahman | Sooraj Santhosh | Meena](https://www.youtube.com/watch?v=joDH9iIAAYM)
+- [സമയമുള്ളപ്പോൾ മിണ്ടുന്നതും സമയമുണ്ടാക്കി മിണ്ടുന്നതും ഒരുപാട് വ്യത്യാസം ഉണ്ട് |Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=2DTMAXWURW8)
+- [Eerakkombinmele Video Song | Kuttetan | KJ Yesudas | Kaithapram](https://www.youtube.com/watch?v=KtUCegTcD5M)
+- [Chinkari Katte - Lyrical | Gu | Gulikan | Manu Radhakrishnan | Jonathan Bruce | Deva Nandha](https://www.youtube.com/watch?v=-C4FNpIkP7o)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
