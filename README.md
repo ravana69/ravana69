@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Aarambham &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.4GB &amp; 700MB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179959-aarambham-2024-telugu-true-web-dl-1080p-720p-avc-aac-20-14gb-700mb-x264-700mb-400mb/&do=findComment&comment=365974)
+- [Prasanna Vadanam &lpar;2024&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 4.2GB - 2.6GB - 1.4GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179958-prasanna-vadanam-2024-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-42gb-26gb-14gb-900mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=365973)
+- [Rathnam &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179957-rathnam-2024-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-8gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=365972)
+- [Rathnam &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 8GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179956-rathnam-2024-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-8gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=365971)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [20-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179894-movies-collection-all-languages-4k-1080p-720p-576p-480p-20-05-2024/&do=findComment&comment=365970)
-- [Shaadi X Change &lpar;2024&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 384Kbps&rpar; - 1.4GB - 800MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179955-shaadi-x-change-2024-hindi-true-web-dl-1080p-720p-avc-dd51-384kbps-14gb-800mb-400mb-esub/&do=findComment&comment=365969)
-- [Guru &lpar;2007&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 7GB - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/179943-guru-2007-tamil-true-web-dl-1080p-hq-avc-untouched-aac20-7gb-gdflix/&do=findComment&comment=365968)
-- [Maidaan &lpar;2024&rpar; Hindi TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/179954-maidaan-2024-hindi-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps/&do=findComment&comment=365967)
-- [Shakhahaari &lpar;2024&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/179953-shakhahaari-2024-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps/&do=findComment&comment=365966)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
