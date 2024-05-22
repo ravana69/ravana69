@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Cute Little Krishna | Guruvayoorambala Nadayil | Prithviraj | Basil | Aju | Ankit | #ytshorts](https://www.youtube.com/watch?v=gp0xUKzQ7UQ)
+- [Maya Devakikku Video Song | Dileep | Kavya Madhavan | Lal | KS Chithra | Vidyasagar | S Ramesan Nair](https://www.youtube.com/watch?v=HKfIZp9-G5c)
+- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=uUP0NlCMtOI)
+- [Nanmakkuyil | Beautiful Malayalam Christian Devotional Songs | Christian Album Songs | Audio Jukebox](https://www.youtube.com/watch?v=HwnDgUvth6Y)
 - [സങ്കടങ്ങൾ ഏറ്റെടുക്കുന്ന ഗാനങ്ങൾ | KESTER SONGS #KESTERHITS](https://www.youtube.com/watch?v=1ZrfkdM1WZ4)
 - [RDX - Original Soundtrack | Shane Nigam, Antony Varghese, Neeraj Madhav | Nahas Hidhayath | Sam C S](https://www.youtube.com/watch?v=WRSvzM-lYqs)
-- [Kanna Karmukilolivarna | Krishna Guruvayoorappa | V Dakshinamoorthy | Kalyani Menon | Old is Gold](https://www.youtube.com/watch?v=LIVhEMFAmkM)
-- [Thaaraattin Cheru Song | Shorts | Churam | Malayalam Movie Songs | KS Chithra #malayalammoviesongs](https://www.youtube.com/watch?v=MSfbh8EU8y4)
-- [Nadha Onnu Kelkkoo  | Super Hit Malayalam Christian Devotional Songs | Christian Album Songs](https://www.youtube.com/watch?v=itvUrMj0MG0)
-- [Aaro Nee | Gayathry Rajiv | Urumi | The Salt Session #shortsvideo  #manoramamusic](https://www.youtube.com/watch?v=84sA63KMCEE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
