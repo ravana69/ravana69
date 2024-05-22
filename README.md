@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vai Raja Vai &lpar;2015&rpar; Tamil - SS WEB-DL - 1080p &amp; 720p - ×264 - &lpar;DD+ 5.1 - 192kbps&rpar; - 2.5GB &amp; 1.3GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179947-vai-raja-vai-2015-tamil-ss-web-dl-1080p-720p-%C3%97264-dd-51-192kbps-25gb-13gb-gdrive/&do=findComment&comment=365960)
+- [Valiyavan &lpar;2015&rpar; Tamil - SS WEB-DL - 1080p &amp; 720p - ×264 - &lpar;DD+ 5.1 - 192kbps&rpar; - 3.1GB &amp; 1.6GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179946-valiyavan-2015-tamil-ss-web-dl-1080p-720p-%C3%97264-dd-51-192kbps-31gb-16gb-gdrive/&do=findComment&comment=365959)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [22-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179944-movies-collection-all-languages-4k-1080p-720p-576p-480p-22-05-2024/&do=findComment&comment=365957)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [20-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179894-movies-collection-all-languages-4k-1080p-720p-576p-480p-20-05-2024/&do=findComment&comment=365956)
 - [Guru &lpar;2007&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 7GB - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/179943-guru-2007-tamil-true-web-dl-1080p-hq-avc-untouched-aac20-7gb-gdflix/&do=findComment&comment=365955)
-- [Indian 2 - Paaraa Lyric Video | Kamal Haasan | Shankar | Anirudh | Subaskaran | Lyca](https://www.1tamilmv.eu/index.php?/forums/topic/179942-indian-2-paaraa-lyric-video-kamal-haasan-shankar-anirudh-subaskaran-lyca/&do=findComment&comment=365954)
-- [Bootcut Balaraju &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; &lpar;Tamil + Telugu&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179941-bootcut-balaraju-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-20-tamil-telugu-28gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=365953)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
