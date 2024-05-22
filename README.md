@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഇളംമഞ്ഞിൻ കുളിരുമായൊരു കുയിൽ..| കെ ജെ യേശുദാസ് | Chitra | Remastered songs | മലയാളചലച്ചിത്രഗാനങ്ങൾ](https://www.youtube.com/watch?v=NrXarW6jyTc)
 - [സ്നേഹത്തിൻ ഉറവിടമാകും കന്യേ...](https://www.youtube.com/watch?v=G2qXdhfOaKk)
 - [Olakkayyil Neeraadi Song | Mukesh | Vani Viswanath | KJ Yesudas, KS Chithra | Bichu Thirumala](https://www.youtube.com/watch?v=lSzvvrzttU8)
 - [Enthe Innum Vanneela | Gramophone | Vidyasagar | P Jayachandran |  Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=r0P9qqsbWYQ)
 - [Vara Chandralekhayalle | HD Video Song | Gireesh Puthenchery  | SP Venkitesh  |Yesudas |](https://www.youtube.com/watch?v=Nw7simFr9EA)
 - [Christian Superhit Songs | Abhijith Kollam | KG Markose | Christian Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=tj0Au8MgAGA)
-- [Padha Smarana Sukham | Sallapam (1996)| Kaithapram | Johnson | K.J.Yesudas | Dileep | Malayalam Song](https://www.youtube.com/watch?v=tGva53CDlPo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
