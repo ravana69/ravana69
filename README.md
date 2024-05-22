@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Krooshilninnum | Maria Kolady | Raju Varghese   #manoramachristiandevotionalsongs #shortsvideo](https://www.youtube.com/watch?v=nQBohXw9vLY)
 - [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=Ekn2l5pZx9o)
 - [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 22nd May 2024 # Vanakkamasam Prayer May 22 # Japamala](https://www.youtube.com/watch?v=VRCDWbPgnCo)
 - [Daivame Nin Hrudayam | Christian Video Song | Sheril Mathew | Lijo Chembakassery | joji Johns](https://www.youtube.com/watch?v=EZdz_ClPESo)
 - [ഇന്ന് മെയ് 22 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala mahimayude](https://www.youtube.com/watch?v=LsAacm0Z-Zw)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=cHFUWqa2N68)
-- [പ്രഭാത പ്രാര്‍ത്ഥന May 22 # Athiravile Prarthana 22nd of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=eZhY5HVLKiQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
