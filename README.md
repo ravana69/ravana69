@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Cute Little Krishna | Guruvayoorambala Nadayil | Prithviraj | Basil | Aju | Ankit | #ytshorts](https://www.youtube.com/watch?v=gp0xUKzQ7UQ)
-- [Maya Devakikku Video Song | Dileep | Kavya Madhavan | Lal | KS Chithra | Vidyasagar | S Ramesan Nair](https://www.youtube.com/watch?v=HKfIZp9-G5c)
-- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=uUP0NlCMtOI)
-- [Nanmakkuyil | Beautiful Malayalam Christian Devotional Songs | Christian Album Songs | Audio Jukebox](https://www.youtube.com/watch?v=HwnDgUvth6Y)
-- [സങ്കടങ്ങൾ ഏറ്റെടുക്കുന്ന ഗാനങ്ങൾ | KESTER SONGS #KESTERHITS](https://www.youtube.com/watch?v=1ZrfkdM1WZ4)
-- [RDX - Original Soundtrack | Shane Nigam, Antony Varghese, Neeraj Madhav | Nahas Hidhayath | Sam C S](https://www.youtube.com/watch?v=WRSvzM-lYqs)
+- [MARAMON CONVENTION SONG 2020 | രാത്രിയിലുള്ള നിന്റെ കരുതലിനും | ROY PUTHUR | #maramonconvention](https://www.youtube.com/watch?v=wwcgAVL1NJs)
+- [Arikil Nee | Flash | Karthik | Gopi Sundar #manoramamusic](https://www.youtube.com/watch?v=g19OIr6rOPk)
+- [Arikil Nee | Flash | Karthik | Gopi Sundar #manoramamusic #shorts](https://www.youtube.com/watch?v=xs5jdA_hfSU)
+- [Adhyam Kaanum | Aviyal | Shorts | Harishankar KS  #malayalamfilmsongs #shortsvideo](https://www.youtube.com/watch?v=8ZM5vJ0L998)
+- [Adhyam Kaanum | Aviyal | Shorts | Harishankar KS  #malayalamfilmsongs #shortsvideo](https://www.youtube.com/watch?v=NY6JxFqfPZM)
+- [Dayana Dayana  | Film song Animation Video  #shortsfeed #kidscartoon #animation #shortsvideo #reels](https://www.youtube.com/watch?v=bvPv7je7fpo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
