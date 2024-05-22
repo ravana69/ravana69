@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [100 Hollywood Movies - BluRay - H264/H265 - [Tamil + Telugu + Hindi + Eng] - ESub - [4K, 1080p &amp; 720p - 700GB] [GDRIVE]](https://www.1tamilmv.eu/index.php?/forums/topic/168182-100-hollywood-movies-bluray-h264h265-tamil-telugu-hindi-eng-esub-4k-1080p-720p-700gb-gdrive/&do=findComment&comment=365943)
+- [[4KHDR10-DV] The Fall Guy &lpar;2024&rpar; iTunes WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10-DV] | 1080p - 22.9 GB | 7.9 GB](https://www.1tamilmv.eu/index.php?/forums/topic/179936-4khdr10-dv-the-fall-guy-2024-itunes-web-dl-ddp51-atmos-esubs-2160p-hdr10-dv-1080p-229-gb-79-gb/&do=findComment&comment=365942)
 - [Jagadeka Veerudu Athiloka Sundari &lpar;1990&rpar; Telugu HQ HDTV-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 4.2GB &amp; 2.6GB]](https://www.1tamilmv.eu/index.php?/forums/topic/178891-jagadeka-veerudu-athiloka-sundari-1990-telugu-hq-hdtv-dl-1080p-720p-avc-aac-20-42gb-26gb/&do=findComment&comment=365941)
 - [My Secret Terrius &lpar;2024&rpar; S01 EP &lpar;01-16&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kor] - 6GB &amp; 2GB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179928-my-secret-terrius-2024-s01-ep-01-16-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kor-6gb-2gb-esub/&do=findComment&comment=365940)
 - [Snake Island: Python &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0&rpar; &lpar;Tamil + Telugu + Hindi + Chi&rpar; - 1.3GB &amp; 850MB | x264 - &lpar;Tam + Tel + Hin&rpar; - 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/163925-snake-island-python-2022-hd-original-audios-1080p-720p-x264-aac-20-tamil-telugu-hindi-chi-13gb-850mb-x264-tam-tel-hin-400mb/&do=findComment&comment=365939)
-- [Black &amp; White &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 1.8GB &amp; 1GB] - [x264 - 700MB &amp; 350MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179906-black-white-2024-tamil-true-web-dl-1080p-720p-avc-hevc-18gb-1gb-x264-700mb-350mb-esub/&do=findComment&comment=365938)
-- [Operation Arctic Cure &lpar;2024&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - [Tamil + Telugu + Hindi + Eng] - 1.1GB - 550MB &amp; 200MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179883-operation-arctic-cure-2024-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-11gb-550mb-200mb-esub/&do=findComment&comment=365937)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
