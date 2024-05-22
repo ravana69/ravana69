@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Vai Raja Vai &lpar;2015&rpar; Tamil - SS WEB-DL - 1080p &amp; 720p - ×264 - &lpar;DD+ 5.1 - 192kbps&rpar; - 2.5GB &amp; 1.3GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179947-vai-raja-vai-2015-tamil-ss-web-dl-1080p-720p-%C3%97264-dd-51-192kbps-25gb-13gb-gdrive/&do=findComment&comment=365960)
-- [Valiyavan &lpar;2015&rpar; Tamil - SS WEB-DL - 1080p &amp; 720p - ×264 - &lpar;DD+ 5.1 - 192kbps&rpar; - 3.1GB &amp; 1.6GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179946-valiyavan-2015-tamil-ss-web-dl-1080p-720p-%C3%97264-dd-51-192kbps-31gb-16gb-gdrive/&do=findComment&comment=365959)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [22-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179944-movies-collection-all-languages-4k-1080p-720p-576p-480p-22-05-2024/&do=findComment&comment=365957)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [20-05-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179894-movies-collection-all-languages-4k-1080p-720p-576p-480p-20-05-2024/&do=findComment&comment=365956)
-- [Guru &lpar;2007&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 7GB - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/179943-guru-2007-tamil-true-web-dl-1080p-hq-avc-untouched-aac20-7gb-gdflix/&do=findComment&comment=365955)
+- [Guru &lpar;2007&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 7GB - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/179943-guru-2007-tamil-true-web-dl-1080p-hq-avc-untouched-aac20-7gb-gdflix/&do=findComment&comment=365968)
+- [Maidaan &lpar;2024&rpar; Hindi TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/179954-maidaan-2024-hindi-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps/&do=findComment&comment=365967)
+- [Shakhahaari &lpar;2024&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/179953-shakhahaari-2024-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps/&do=findComment&comment=365966)
+- [The Hangover Part III &lpar;2013&rpar; UNRATED - EXTENDED - BluRay - 1080p &amp; 720p - AVC - [Tamil + Hindi + English] - AAC2.0&lpar;128kbps&rpar; - 1.6GB &amp; 900MB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179952-the-hangover-part-iii-2013-unrated-extended-bluray-1080p-720p-avc-tamil-hindi-english-aac20128kbps-16gb-900mb-esub-gdrive/&do=findComment&comment=365965)
+- [Golden.Island.2019.[Hindi, Tamil, Telugu, Chinese] 1080p,720p AMZN.WEB-DL.MULTI.DDP2.0 &lpar;Google Drive&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/179951-goldenisland2019hindi-tamil-telugu-chinese-1080p720p-amznweb-dlmultiddp20-google-drive/&do=findComment&comment=365964)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
