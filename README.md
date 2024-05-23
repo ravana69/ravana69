@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Enundodee | Celluloid | Shorts  #manoramamusic](https://www.youtube.com/watch?v=yOs8HX0uVtY)
+- [Maarathavan | K S Chithra |  R S V #ytshorts #shortsvideo](https://www.youtube.com/watch?v=OOlbDUqtoL0)
 - [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=pFe_iiZ_jOE)
 - [ജനഹൃദയങ്ങളിൽ കയറിപ്പറ്റിയ അനശ്വരഗാനങ്ങൾ Exclusive Hits!! Kester Superhit praise & worship songs](https://www.youtube.com/watch?v=fE-ca4wqfrw)
+- [ഏതൊരു ശ്രോതാവിന്റെയും മനം നിറയ്ക്കും ഭക്തി തുളുമ്പും മനോഹര ഗാനങ്ങൾ | Malayalam Christian Songs](https://www.youtube.com/watch?v=qkGNAxKimpI)
 - [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 23rd May 2024 # Vanakkamasam Prayer May 23 # Japamala](https://www.youtube.com/watch?v=s2ReP-A-TPg)
-- [ഇന്ന് മെയ് 23 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala prakashathi](https://www.youtube.com/watch?v=rPXTWHwle8k)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=CbwS6xY6w7c)
-- [രാവിലെ പ്രാര്‍ത്ഥന May 23 # Athiravile Prarthana 23rd of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=j1tT1xP3n40)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
