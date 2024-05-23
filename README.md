@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Family Star &lpar;2024&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Malayalam + Kannada] - &lpar;DD+5.1 - 640Kbps&rpar; - 3GB &amp; 1.4GB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179989-the-family-star-2024-true-web-dl-1080p-720p-avc-hevc-malayalam-kannada-dd51-640kbps-3gb-14gb-x264-750mb-450mb-esub/&do=findComment&comment=366049)
 - [Bolt &lpar;2008&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 1.6GB &amp; 950MB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/123728-bolt-2008-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-16gb-950mb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=366048)
 - [Jai Ganesh &lpar;2024&rpar; Malayalam TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 8.9GB - 3GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179985-jai-ganesh-2024-malayalam-true-web-dl-4k-1080p-720p-avc-dd51-192kbps-89gb-3gb-14gb-x264-700mb-400mb/&do=findComment&comment=366047)
 - [Tires &lpar;2024&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.6GB - 900MB &amp; 500MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179977-tires-2024-s01-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-26gb-900mb-500mb-esub/&do=findComment&comment=366046)
 - [Jai Ganesh &lpar;2024&rpar; Malayalam TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 8.9GB - 3GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179985-jai-ganesh-2024-malayalam-true-web-dl-4k-1080p-720p-avc-dd51-192kbps-89gb-3gb-14gb-x264-700mb-400mb/&do=findComment&comment=366045)
-- [White Rose &lpar;2024&rpar; Tamil TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 512Kbps&rpar; - 10GB - 2.7GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179986-white-rose-2024-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-512kbps-10gb-27gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=366044)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
