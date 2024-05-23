@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Sing For Vatteppam And Vibe With Your Playlist| Mandakini | Dabzee | Altaf Salim | #shorts #ytshorts](https://www.youtube.com/watch?v=OuyKwaRtTlY)
 - [ദാഹിക്കുന്നവന് ഒരു തുള്ളി ജലമായിത്തീരുക..😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=mv5vQZ0X3ug)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 23rd of May 2024](https://www.youtube.com/watch?v=OxOvxjrEU4U)
 - [Mazha Mazha | Manassil Oru Manjuthulli | P Jayachandran | MD Rajendran | Bombay Ravi](https://www.youtube.com/watch?v=HHUJOGAl4eQ)
 - [Prakruthi Neeyoru Video Song | Saraswathi Yamam | Malayalam Movie Songs | K J Yesudas](https://www.youtube.com/watch?v=Y9DkKZzyue8)
 - [അഞ്ജനക്കണ്ണെഴുതി Video Song | Thacholi Othenan | S Janaki #shorts](https://www.youtube.com/watch?v=-sQCqApDDMo)
-- [En Asrayam Karaoke with Lyrics | Christian Songs Karaoke | Worship Songs Karaoke | Christian Lyrics](https://www.youtube.com/watch?v=22dQBi1fxzA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
