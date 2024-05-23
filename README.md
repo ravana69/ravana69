@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Praveen Ips &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - HC-ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179962-praveen-ips-2024-telugu-true-web-dl-1080p-720p-avc-26gb-14gb-850mb-x264-700mb-400mb-hc-esub/&do=findComment&comment=365985)
+- [Aarambham &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.4GB &amp; 700MB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179959-aarambham-2024-telugu-true-web-dl-1080p-720p-avc-aac-20-14gb-700mb-x264-700mb-400mb/&do=findComment&comment=365984)
 - [Rathnam &lpar;2024&rpar; Tamil + Telugu UHD TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar;  Google Drive](https://www.1tamilmv.eu/index.php?/forums/topic/179961-rathnam-2024-tamil-telugu-uhd-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-google-drive/&do=findComment&comment=365983)
 - [Kaliyugam Pattanamlo &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; Google Drive](https://www.1tamilmv.eu/index.php?/forums/topic/179960-kaliyugam-pattanamlo-2024-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-google-drive/&do=findComment&comment=365982)
 - [Aarambham &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.4GB &amp; 700MB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179959-aarambham-2024-telugu-true-web-dl-1080p-720p-avc-aac-20-14gb-700mb-x264-700mb-400mb/&do=findComment&comment=365981)
-- [Prasanna Vadanam &lpar;2024&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 4.2GB - 2.6GB - 1.4GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179958-prasanna-vadanam-2024-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-42gb-26gb-14gb-900mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=365980)
-- [Rathnam &lpar;2024&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 17GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179957-rathnam-2024-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-17gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=365979)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
