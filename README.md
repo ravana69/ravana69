@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=pFe_iiZ_jOE)
+- [ജനഹൃദയങ്ങളിൽ കയറിപ്പറ്റിയ അനശ്വരഗാനങ്ങൾ Exclusive Hits!! Kester Superhit praise & worship songs](https://www.youtube.com/watch?v=fE-ca4wqfrw)
+- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 23rd May 2024 # Vanakkamasam Prayer May 23 # Japamala](https://www.youtube.com/watch?v=s2ReP-A-TPg)
+- [ഇന്ന് മെയ് 23 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala prakashathi](https://www.youtube.com/watch?v=rPXTWHwle8k)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=CbwS6xY6w7c)
 - [രാവിലെ പ്രാര്‍ത്ഥന May 23 # Athiravile Prarthana 23rd of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=j1tT1xP3n40)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 23rd of May 2024](https://www.youtube.com/watch?v=TlDfm2VaJmM)
-- [ഇളംമഞ്ഞിൻ കുളിരുമായൊരു കുയിൽ..| കെ ജെ യേശുദാസ് | Chitra | Remastered songs | മലയാളചലച്ചിത്രഗാനങ്ങൾ](https://www.youtube.com/watch?v=NrXarW6jyTc)
-- [സ്നേഹത്തിൻ ഉറവിടമാകും കന്യേ...](https://www.youtube.com/watch?v=G2qXdhfOaKk)
-- [Olakkayyil Neeraadi Song | Mukesh | Vani Viswanath | KJ Yesudas, KS Chithra | Bichu Thirumala](https://www.youtube.com/watch?v=lSzvvrzttU8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
