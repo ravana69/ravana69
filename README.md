@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ka kaattile | Video Song | Gireesh Puthenchery | Ouseppachan | KJ Yesudas | KS Chithra](https://www.youtube.com/watch?v=iRpIZGrc7mY)
+- [Onnam Vattam Kandappol  | Chandralekha | Berny Ignatius | M G Sreekumar | K S Chithra #SongOfTheDay](https://www.youtube.com/watch?v=fHVxlSw1NZY)
 - [നാലുകെട്ടിലും നാൽകവലയിലും കേൾക്കാൻ കാതോർത്തിരുന്ന ഗാനങ്ങൾ | EVERGREEN MELODIES](https://www.youtube.com/watch?v=tHvLwIkpYOI)
 - [Christian Melody Songs | Kester | Biju Narayanan | Christian Superhit Songs | Fr.Joshy Kannukaden](https://www.youtube.com/watch?v=Gy6bUN8ochY)
 - [പ്രേക്ഷക മനം കവർന്ന മഞ്ജു വാര്യരുടെ ഇഷ്ടഗാനങ്ങൾ | HITS OF MANJU WARRIER | EVERGREEN HIT SONGS](https://www.youtube.com/watch?v=JbaZ2LGlBes)
 - [ആരോരുമില്ലാത്ത നേരങ്ങളിൽ കണ്ണീരു തൂവുന്ന യാമങ്ങളിൽ..](https://www.youtube.com/watch?v=zIqDogM1YNA)
-- [Sing For Vatteppam And Vibe With Your Playlist| Mandakini | Dabzee | Altaf Salim | #shorts #ytshorts](https://www.youtube.com/watch?v=OuyKwaRtTlY)
-- [ദാഹിക്കുന്നവന് ഒരു തുള്ളി ജലമായിത്തീരുക..😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=mv5vQZ0X3ug)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
