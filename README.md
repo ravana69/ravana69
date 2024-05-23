@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Edan Poove | Daivathinte Makan | Vidyasagar | Jayaram | P Jayachandran | KS Chithra](https://www.youtube.com/watch?v=6OpubABNvAE)
 - [Enundodee | Celluloid | Shorts  #manoramamusic](https://www.youtube.com/watch?v=yOs8HX0uVtY)
 - [Maarathavan | K S Chithra |  R S V #ytshorts #shortsvideo](https://www.youtube.com/watch?v=OOlbDUqtoL0)
 - [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=pFe_iiZ_jOE)
 - [ജനഹൃദയങ്ങളിൽ കയറിപ്പറ്റിയ അനശ്വരഗാനങ്ങൾ Exclusive Hits!! Kester Superhit praise & worship songs](https://www.youtube.com/watch?v=fE-ca4wqfrw)
 - [ഏതൊരു ശ്രോതാവിന്റെയും മനം നിറയ്ക്കും ഭക്തി തുളുമ്പും മനോഹര ഗാനങ്ങൾ | Malayalam Christian Songs](https://www.youtube.com/watch?v=qkGNAxKimpI)
-- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 23rd May 2024 # Vanakkamasam Prayer May 23 # Japamala](https://www.youtube.com/watch?v=s2ReP-A-TPg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
