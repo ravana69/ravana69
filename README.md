@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നാലുകെട്ടിലും നാൽകവലയിലും കേൾക്കാൻ കാതോർത്തിരുന്ന ഗാനങ്ങൾ | EVERGREEN MELODIES](https://www.youtube.com/watch?v=tHvLwIkpYOI)
+- [Christian Melody Songs | Kester | Biju Narayanan | Christian Superhit Songs | Fr.Joshy Kannukaden](https://www.youtube.com/watch?v=Gy6bUN8ochY)
+- [പ്രേക്ഷക മനം കവർന്ന മഞ്ജു വാര്യരുടെ ഇഷ്ടഗാനങ്ങൾ | HITS OF MANJU WARRIER | EVERGREEN HIT SONGS](https://www.youtube.com/watch?v=JbaZ2LGlBes)
+- [ആരോരുമില്ലാത്ത നേരങ്ങളിൽ കണ്ണീരു തൂവുന്ന യാമങ്ങളിൽ..](https://www.youtube.com/watch?v=zIqDogM1YNA)
 - [Sing For Vatteppam And Vibe With Your Playlist| Mandakini | Dabzee | Altaf Salim | #shorts #ytshorts](https://www.youtube.com/watch?v=OuyKwaRtTlY)
 - [ദാഹിക്കുന്നവന് ഒരു തുള്ളി ജലമായിത്തീരുക..😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=mv5vQZ0X3ug)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 23rd of May 2024](https://www.youtube.com/watch?v=OxOvxjrEU4U)
-- [Mazha Mazha | Manassil Oru Manjuthulli | P Jayachandran | MD Rajendran | Bombay Ravi](https://www.youtube.com/watch?v=HHUJOGAl4eQ)
-- [Prakruthi Neeyoru Video Song | Saraswathi Yamam | Malayalam Movie Songs | K J Yesudas](https://www.youtube.com/watch?v=Y9DkKZzyue8)
-- [അഞ്ജനക്കണ്ണെഴുതി Video Song | Thacholi Othenan | S Janaki #shorts](https://www.youtube.com/watch?v=-sQCqApDDMo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
