@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [50 Tamil Movies - 1080p - BluRay/SNXT/SS WEB-DL - AVC - x264 - DD5.1/AAC2.0 - ESub - 300GB [GDRIVE]](https://www.1tamilmv.eu/index.php?/forums/topic/127510-50-tamil-movies-1080p-bluraysnxtss-web-dl-avc-x264-dd51aac20-esub-300gb-gdrive/&do=findComment&comment=366056)
 - [Vallavan Vaguthadhada &lpar;2024&rpar; AHA &amp; SS WEB-DL - 4K , 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - DD+5.1&lpar;384kbps&rpar; - 2.5GB - 2.2GB - 1.7GB - 1.2GB - 950MB &amp; 600MB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179994-vallavan-vaguthadhada-2024-aha-ss-web-dl-4k-1080p-720p-avc-hevc-untouched-dd51384kbps-25gb-22gb-17gb-12gb-950mb-600mb-esub-gdrive/&do=findComment&comment=366055)
 - [White Rose &lpar;2024&rpar; Tamil - TK WEB-DL - 4K &amp; 1080p - AVC / HEVC - UNTOUCHED - DD5.1&lpar;512kbps&rpar; - 10.1GB &amp; 9.9GB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179993-white-rose-2024-tamil-tk-web-dl-4k-1080p-avc-hevc-untouched-dd51512kbps-101gb-99gb-esub-gdrive/&do=findComment&comment=366054)
 - [Dom &lpar;2024&rpar; S03 EP &lpar;01-05&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 7.5GB - 2GB &amp; 750MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179992-dom-2024-s03-ep-01-05-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-75gb-2gb-750mb-esub/&do=findComment&comment=366053)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [24-5-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/179991-movies-collection-all-languages-4k-1080p-720p-576p-480p-24-5-2024/&do=findComment&comment=366052)
-- [Crew &lpar;2024&rpar; NF WEB-DL DDP5.1 Esubs x264 - 1080p | 720p - 4.7 GB | 1.9 GB](https://www.1tamilmv.eu/index.php?/forums/topic/179990-crew-2024-nf-web-dl-ddp51-esubs-x264-1080p-720p-47-gb-19-gb/&do=findComment&comment=366051)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
