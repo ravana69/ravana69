@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=mA1goyNxh-E)
-- [പ്രഭാത പ്രാര്‍ത്ഥന May 24 # Athiravile Prarthana 24th of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=jU7yHaOeCZE)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 24th of May 2024](https://www.youtube.com/watch?v=6qtHcwKbiuw)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=g7xua6WD8gk)
-- [പത്മരാജൻ ഹിറ്റ്‌സ് | കെ ജെ യേശുദാസ് | കെ എസ് ചിത്ര | മലയാളചലച്ചിത്രഗാനങ്ങൾ | Padmarajan Hits](https://www.youtube.com/watch?v=Ylahw1N1dgI)
-- [Ka kaattile | Video Song | Gireesh Puthenchery | Ouseppachan | KJ Yesudas | KS Chithra](https://www.youtube.com/watch?v=iRpIZGrc7mY)
+- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=UTvfhneJAas)
+- [Radhaykorunal | Mayavi | Balarama #ytshorts](https://www.youtube.com/watch?v=HLBzBM22yFI)
+- [Oru Kaliman Pathrampol | Christian Melody Song | Chithra Arun |Christian Video Song |Shijo Sebastian](https://www.youtube.com/watch?v=jUHU7Q_gIXA)
+- [അത്ഭുതഗാനം!! എന്റെ ദൈവത്താൽ.. Ente Daivathal by Kester | superhit christian songs with lyrics](https://www.youtube.com/watch?v=KjyN7K5JkWY)
+- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 24th May 2024 # Vanakkamasam Prayer 2024 May 24 Japamala](https://www.youtube.com/watch?v=B_KxUt0djcI)
+- [ഇന്ന് മെയ് 24 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala dhukkathint](https://www.youtube.com/watch?v=iGhVnlEsuVA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
