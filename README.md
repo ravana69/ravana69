@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 24th of May 2024](https://www.youtube.com/watch?v=taIjO5PAWx0)
+- [ജീവിതത്തിൽ പുതിയത് കടന്നുവരുമ്പോൾ പഴയതിനെ തള്ളിക്കളയരുത്...😇 | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=5erv-Yb-URc)
+- [Nallolappainkili Video Song | Thacholi Othenan | MS Baburaj | P Leela | P Bhaskaran](https://www.youtube.com/watch?v=XHY7H4jZdV0)
+- [Batheniyayude Veedhiyil | Sudeep Kumar | B.K Hari Naryanan | P K Bhash | Malayalam Christian Songs](https://www.youtube.com/watch?v=n_Tf4tSiffY)
+- [Swakaryam Sambhavabahulam - Official Trailer | Jeo Baby | Naseer Badarudeen](https://www.youtube.com/watch?v=ABHrELcTp1A)
 - ["Some memories stay in your heart forever, waiting to pour down like the rain." 🎶❤ #varsham](https://www.youtube.com/watch?v=BzFy_UIYaFo)
-- [Ezhimala Poonchola Song | Shorts | Spadikam | Mohanlal | K. S. Chithra | Silk Smitha](https://www.youtube.com/watch?v=QT5FqLDRlKw)
-- [Radhaykkorunal Kitti | Mayavi & Luttappi | Kids Animation Video Songs | Balarama Animation Video](https://www.youtube.com/watch?v=J6gRVLlgo50)
-- [Super Hero Mayavi | Mayavi & Luttappi | Animation Song | Balarama Animation | Kids Animation Videos](https://www.youtube.com/watch?v=I7M_FMrLzRw)
-- [Annarakanna Va | Harmonium Cover by Sharan Appus #shortsfeed #shortsvideo #reels #instrumental](https://www.youtube.com/watch?v=6XpXwdl8SI4)
-- [Manya Mahajanangale  | Lyrical Video | Malarvaadi Arts Club | Vineeth Sreenivasan | Shaan Rahman](https://www.youtube.com/watch?v=BUjxuFm2_Q8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
