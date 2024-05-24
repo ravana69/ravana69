@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Best of M G Sreekumar | മലയാള സിനിമാ ഗാനങ്ങൾ | Satyam Audios | Film Songs](https://www.youtube.com/watch?v=kQUFjgQM8-Y)
+- [എത്രവട്ടം കേട്ടിട്ടും ഇപ്പോഴും കേൾക്കാൻ കൊതി തോന്നുന്ന വശ്യ സുന്ദര സിനിമാഗാനങ്ങൾ |  EVERGREEN SONGS](https://www.youtube.com/watch?v=uKT0gwB7md4)
+- [Mareechike Mareechike - Abhinivesham (1977) | K J Yesudas | S Janaki | Sreekumaran Thampi | Shyam](https://www.youtube.com/watch?v=pMTJT-06Tl0)
+- [Manjin Chirakulla  | Swagatham | Jayaram | Parvathi | Ashokan | Urvashi | Sreenath | Jagathi](https://www.youtube.com/watch?v=P8XaP3nnGAA)
 - [Swapnam Thyajichal Video Song | Rakshasa rajavu | Mammootty | KJ Yesudas| KS Chithra|Aswathy Vijayan](https://www.youtube.com/watch?v=ekyG5NWyD40)
 - [Manassil Ayiram | Lyrical +Karaoke Video | Bhaskar The Rascal | Mammootty |Harinarayanan| Deepak Dev](https://www.youtube.com/watch?v=j6D1m-Jd97c)
-- [Vincent Old Superhit Movie Song l Pennpada Movie |  Rajakokila, Reena, Vijayalalitha,](https://www.youtube.com/watch?v=qJ0L92Zeaog)
-- [Ademia International Academy #ytshortsvideos #youtubevideo #ademia](https://www.youtube.com/watch?v=8-EE1BJwOD4)
-- [Ademia International Academy #ytshortsvideos #youtubevideo #ademia](https://www.youtube.com/watch?v=BQ41NCQNCz8)
-- [Ademia International Academy #ytshortsvideos #youtubevideo #ademia](https://www.youtube.com/watch?v=18ZUMnduNLQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
