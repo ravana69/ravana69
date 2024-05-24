@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=sBYm0z0ZfI8)
 - [Best of M G Sreekumar | മലയാള സിനിമാ ഗാനങ്ങൾ | Satyam Audios | Film Songs](https://www.youtube.com/watch?v=kQUFjgQM8-Y)
 - [എത്രവട്ടം കേട്ടിട്ടും ഇപ്പോഴും കേൾക്കാൻ കൊതി തോന്നുന്ന വശ്യ സുന്ദര സിനിമാഗാനങ്ങൾ |  EVERGREEN SONGS](https://www.youtube.com/watch?v=uKT0gwB7md4)
 - [Mareechike Mareechike - Abhinivesham (1977) | K J Yesudas | S Janaki | Sreekumaran Thampi | Shyam](https://www.youtube.com/watch?v=pMTJT-06Tl0)
 - [Manjin Chirakulla  | Swagatham | Jayaram | Parvathi | Ashokan | Urvashi | Sreenath | Jagathi](https://www.youtube.com/watch?v=P8XaP3nnGAA)
 - [Palanaal - Making Video | Monica: Oru AI Story | Yunuseo | Yarbash Bachu](https://www.youtube.com/watch?v=czlP63gBYME)
-- [Swapnam Thyajichal Video Song | Rakshasa rajavu | Mammootty | KJ Yesudas| KS Chithra|Aswathy Vijayan](https://www.youtube.com/watch?v=ekyG5NWyD40)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
