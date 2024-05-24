@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vibe For K For Krishna Join Your Hands| Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=mdhHy4H1sCE)
+- [വീണ്ടും കേൾക്കാൻ കൊതിക്കുന്ന സൂപ്പർഹിറ്റ് ക്രിസ്തീയ ഗാനങ്ങൾ |Everlasting Christian Devotional Songs](https://www.youtube.com/watch?v=nTstsMiP0-8)
 - [Dance to The Beats Of #Vatteppam with #anarkalimarikar #Mandakini | Dabzee #shorts #ytshorts](https://www.youtube.com/watch?v=H0HvdnOqiZI)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 24th of May 2024](https://www.youtube.com/watch?v=taIjO5PAWx0)
 - [ജീവിതത്തിൽ പുതിയത് കടന്നുവരുമ്പോൾ പഴയതിനെ തള്ളിക്കളയരുത്...😇 | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=5erv-Yb-URc)
 - [Kaarmukam Maaril Chartthi | HD Video | Kunukkkitta Kozhi  | Johnson | Kaithapram |  G Venugopal](https://www.youtube.com/watch?v=FWXIzyy-WJs)
-- [Nallolappainkili Video Song | Thacholi Othenan | MS Baburaj | P Leela | P Bhaskaran](https://www.youtube.com/watch?v=XHY7H4jZdV0)
-- [Batheniyayude Veedhiyil | Sudeep Kumar | B.K Hari Naryanan | P K Bhash | Malayalam Christian Songs](https://www.youtube.com/watch?v=n_Tf4tSiffY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
