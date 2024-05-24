@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 25th of May 2024](https://www.youtube.com/watch?v=RhpH539JFWI)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=Bq60g_sPa3Y)
 - [MARAMON CONVENTION SONG 2020 | രാത്രിയിലുള്ള നിന്റെ കരുതലിനും | ROY PUTHUR | #maramonconvention](https://www.youtube.com/watch?v=r06-zM7sbzc)
 - [Onnodonnu Chernnu | Thirakkatha | Sharreth | Rafeeq Ahammed | Anoop Menon | Priyamani | Prithviraj](https://www.youtube.com/watch?v=HQiDqdL_ck0)
 - [മഹിതകളിൽ മാണിക്യം നീ , സ്തുതികൾക്കു യോഗ്യയും നീ..](https://www.youtube.com/watch?v=jSEaa4Z4esU)
 - [Muthumanithooval Tharam | Mammootty | KJ Yesudas | Kaithapram | SP Venkitesh](https://www.youtube.com/watch?v=ctlr8kGKIww)
-- [Kuppivala Kilukile | Ayal Kadha Ezhuthukayanu | M. G. Sreekumar | Sujatha Mohan #SongOfTheDay](https://www.youtube.com/watch?v=jwEQFUhW9bc)
-- [മറിയാമ്മ ടീച്ചറിന്റെ മകന്റെ വിവാഹത്തിന് ആശംസ നേരാൻ ജിനോ എത്തിയപ്പോൾ......@JinoKunnumpurathu](https://www.youtube.com/watch?v=-z8baG_XIVU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
