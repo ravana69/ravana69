@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=mA1goyNxh-E)
 - [പ്രഭാത പ്രാര്‍ത്ഥന May 24 # Athiravile Prarthana 24th of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=jU7yHaOeCZE)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 24th of May 2024](https://www.youtube.com/watch?v=6qtHcwKbiuw)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=g7xua6WD8gk)
 - [പത്മരാജൻ ഹിറ്റ്‌സ് | കെ ജെ യേശുദാസ് | കെ എസ് ചിത്ര | മലയാളചലച്ചിത്രഗാനങ്ങൾ | Padmarajan Hits](https://www.youtube.com/watch?v=Ylahw1N1dgI)
 - [Ka kaattile | Video Song | Gireesh Puthenchery | Ouseppachan | KJ Yesudas | KS Chithra](https://www.youtube.com/watch?v=iRpIZGrc7mY)
-- [Onnam Vattam Kandappol  | Chandralekha | Berny Ignatius | M G Sreekumar | K S Chithra #SongOfTheDay](https://www.youtube.com/watch?v=fHVxlSw1NZY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
