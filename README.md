@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന May 26 # Athiravile Prarthana 26th of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=n_h27Bq3-J8)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 26th of May 2024](https://www.youtube.com/watch?v=eAKB-eW7-zE)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=s6i4RnqQxj0)
 - [പിതാവിനും പുത്രനും പിശുദ്ധാത്മാവിനും സ്തുതി .](https://www.youtube.com/watch?v=8fyb8l_AA3Q)
 - [Njanoru Paattu Paadam | Megham | K J Yesudas | Ouseppachan | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=MWFI3YpffOk)
 - [Mele Veettile | Manu Uncle | Shyam | Shibu Chakravarthy | Chithra](https://www.youtube.com/watch?v=cjjdMawCBVQ)
-- [മഴത്തുള്ളി കിലുക്കം കേട്ട് കട്ടൻ ചായേം കുടിച്ച് കേൾക്കാൻ പറ്റിയ വ്യത്യസ്ത ഗാനങ്ങൾ | CHITHRAGEETHAM](https://www.youtube.com/watch?v=zFYqx7qE9wQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
