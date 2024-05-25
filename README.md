@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [2](https://www.1tamilmv.eu/index.php?/forums/topic/180018-2/&do=findComment&comment=366114)
-- [1](https://www.1tamilmv.eu/index.php?/forums/topic/180017-1/&do=findComment&comment=366113)
+- [Outer Range &lpar;2024&rpar; Complete S02 EP &lpar;01-07&rpar; Merged TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 6.4GB - 2.5GB &amp; 950MB] - ESub [Google Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/180020-outer-range-2024-complete-s02-ep-01-07-merged-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-eng-dd51-192kbps-64gb-25gb-950mb-esub-google-drive/&do=findComment&comment=366116)
+- [Outer Range &lpar;2022&rpar; Complete S01 EP&lpar;01-08&rpar; Merged TRUE WEB-DL - [1080p - 720p - x264 - &lpar;DD+5.1 - 192Kbps&rpar; [Tamil + Telugu + Eng] - 4.5GB - 2GB &amp; 1GB] - ESub [Google Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/180019-outer-range-2022-complete-s01-ep01-08-merged-true-web-dl-1080p-720p-x264-dd51-192kbps-tamil-telugu-eng-45gb-2gb-1gb-esub-google-drive/&do=findComment&comment=366115)
+- [Cooku With Comali &lpar;2024&rpar; Tamil - S05 EP09 TRUE WEB-DL - [1080p, 720p, 360p - AVC - UNTOUCHED - 850MB - 750MB &amp; 150MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180017-cooku-with-comali-2024-tamil-s05-ep09-true-web-dl-1080p-720p-360p-avc-untouched-850mb-750mb-150mb/&do=findComment&comment=366113)
 - [The Hangover Part III &lpar;2013&rpar; UNRATED - EXTENDED - BluRay - 1080p &amp; 720p - AVC - [Tamil + Hindi + English] - AAC2.0&lpar;128kbps&rpar; - 1.6GB &amp; 900MB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179952-the-hangover-part-iii-2013-unrated-extended-bluray-1080p-720p-avc-tamil-hindi-english-aac20128kbps-16gb-900mb-esub-gdrive/&do=findComment&comment=366112)
 - [Jai Ganesh &lpar;2024&rpar; Malayalam TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/180016-jai-ganesh-2024-malayalam-true-web-dl-4k-1080p-720p-avc-dd51-192kbps/&do=findComment&comment=366111)
-- [Crew &lpar;2024&rpar; Hindi TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar;] Google Drive](https://www.1tamilmv.eu/index.php?/forums/topic/180015-crew-2024-hindi-true-web-dl-4k-1080p-720p-avc-dd51-640kbps-google-drive/&do=findComment&comment=366110)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
