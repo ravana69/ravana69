@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=m7X0cQX_qCc)
+- [അനശ്വരസൂപ്പർഹിറ് ഗാനങ്ങൾ prajapathi yagam | enne oru naalum | superhit christian devotional songs](https://www.youtube.com/watch?v=IlY-WMOs0c8)
+- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 25th May 2024 # Vanakkamasam Prayer 2024 May 25 Japamala](https://www.youtube.com/watch?v=Kh8sWSPamXM)
+- [Ente Hridayathinullile    Master by Prem Raj](https://www.youtube.com/watch?v=6oCL-uuHo7E)
+- [ഇന്ന് മെയ് 25 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala santhoshath](https://www.youtube.com/watch?v=bmFUNPioZeQ)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=PayXdpWqtvw)
-- [രാവിലെ പ്രാര്‍ത്ഥന May 25 # Athiravile Prarthana 25th of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=SOEdpMPmW1Q)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 25th of May 2024](https://www.youtube.com/watch?v=RhpH539JFWI)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=Bq60g_sPa3Y)
-- [MARAMON CONVENTION SONG 2020 | രാത്രിയിലുള്ള നിന്റെ കരുതലിനും | ROY PUTHUR | #maramonconvention](https://www.youtube.com/watch?v=r06-zM7sbzc)
-- [Onnodonnu Chernnu | Thirakkatha | Sharreth | Rafeeq Ahammed | Anoop Menon | Priyamani | Prithviraj](https://www.youtube.com/watch?v=HQiDqdL_ck0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
