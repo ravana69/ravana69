@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മഴത്തുള്ളി കിലുക്കം കേട്ട് കട്ടൻ ചായേം കുടിച്ച് കേൾക്കാൻ പറ്റിയ വ്യത്യസ്ത ഗാനങ്ങൾ | CHITHRAGEETHAM](https://www.youtube.com/watch?v=zFYqx7qE9wQ)
+- [Christian Superhit Songs | Rajkumar Radhakrishnan | Christian Songs Malayalam | Manoj Christy](https://www.youtube.com/watch?v=s5sTHzkEGiM)
+- [മനസ്സിൽ കുളിരുകോരുന്ന മലയാളസിനിമയിലെ സൂപ്പർഹിറ്റ് ചലച്ചിത്ര ഗാനങ്ങൾ | EVERGREEN SUPERHIT SONGS](https://www.youtube.com/watch?v=VSqnH1yCo7A)
 - [Chilu Chilu Chilamboli | Usthad | Jomol | Vidyasagar | M G Sreekumar | Mohanlal](https://www.youtube.com/watch?v=qulOP8xKDPY)
 - [Get Ready To Dance For #KForKrishna | Guruvayoorambala Nadayil | Prithviraj | #shorts #ytshorts](https://www.youtube.com/watch?v=PrXKSxvn9c4)
 - [Public Stranger Dances For #Vatteppam with #anarkalimarikar #Mandakini | Dabzee #shorts #ytshorts](https://www.youtube.com/watch?v=EmKq-Z1ZLXU)
-- [ശിൽപിയായ ദൈവം... | 😇 Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=AxuqM05kod4)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 25th of May 2024](https://www.youtube.com/watch?v=7MRiNohNJPY)
-- [Allithaamara Video Song | Pappan Priyappetta Pappan | P Jayachandran #shorts](https://www.youtube.com/watch?v=mGNBMSGWLVw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
