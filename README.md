@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പിതാവിനും പുത്രനും പിശുദ്ധാത്മാവിനും സ്തുതി .](https://www.youtube.com/watch?v=8fyb8l_AA3Q)
 - [Njanoru Paattu Paadam | Megham | K J Yesudas | Ouseppachan | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=MWFI3YpffOk)
 - [Mele Veettile | Manu Uncle | Shyam | Shibu Chakravarthy | Chithra](https://www.youtube.com/watch?v=cjjdMawCBVQ)
 - [മഴത്തുള്ളി കിലുക്കം കേട്ട് കട്ടൻ ചായേം കുടിച്ച് കേൾക്കാൻ പറ്റിയ വ്യത്യസ്ത ഗാനങ്ങൾ | CHITHRAGEETHAM](https://www.youtube.com/watch?v=zFYqx7qE9wQ)
 - [Christian Superhit Songs | Rajkumar Radhakrishnan | Christian Songs Malayalam | Manoj Christy](https://www.youtube.com/watch?v=s5sTHzkEGiM)
 - [മനസ്സിൽ കുളിരുകോരുന്ന മലയാളസിനിമയിലെ സൂപ്പർഹിറ്റ് ചലച്ചിത്ര ഗാനങ്ങൾ | EVERGREEN SUPERHIT SONGS](https://www.youtube.com/watch?v=VSqnH1yCo7A)
-- [Chilu Chilu Chilamboli | Usthad | Jomol | Vidyasagar | M G Sreekumar | Mohanlal](https://www.youtube.com/watch?v=qulOP8xKDPY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
