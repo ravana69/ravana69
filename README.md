@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kunnimani Kannazhakil | KJ Yesudas | KS Chithra | Berny Ignatius | S Ramesan Nair #SongOfTheDay](https://www.youtube.com/watch?v=Yqk-OpXqdiM)
+- [Ninne Thedi Thedi | Symphony | Deepak Dev | Vidhu Prathap | Kaithapram | IV Sasi | Ganga](https://www.youtube.com/watch?v=cldndaNGQJM)
 - [Christian Melody Songs | Kester | Christian Devotional Songs Malayalam | Holy Mass Songs |Joji Johns](https://www.youtube.com/watch?v=8vYcw537qnw)
 - [THIRU KARATHAAAL | ROY PUTHUR | LINCY SAMUEL | #christiandevotionalsongs #royputhur](https://www.youtube.com/watch?v=GHWHpT5luXw)
 - [Parumala Cheruvile Song | Shorts | Spadikam | Mohanlal | Urvashi | K. S. Chithra](https://www.youtube.com/watch?v=vpZLgTKUyzM)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 26th of May 2024](https://www.youtube.com/watch?v=lio8hwb-MYU)
-- [Time To Dance For  #KForKrishna | Guruvayoorambala Nadayil | Prithviraj | #shorts #ytshorts](https://www.youtube.com/watch?v=IX3ih_4Unuk)
-- [ഇന്നലകളിലെ ദുഃഖങ്ങളെ നാളെയിലേക്ക് വഹിക്കാതിരിക്കുക.. 😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=0Yu62t0iS0Q)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
