@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mandakini - Sneak Peek 2 | Altaf Salim | Anarkali Marikar | Vinod Leela | Bibin Ashok](https://www.youtube.com/watch?v=lhyDK7XOTJ0)
+- [KARAOKE | NAAVIL NEEYE NAAMAM NEEYE |FR.LIBIN VARGHES|FR.JERIN VALIYAPARAMBIL|DR. SHERIN](https://www.youtube.com/watch?v=jb_gkmGyeas)
+- [Njan Oru Malayali | Oru Madapravinte Kadha  |  Yusufali Kechery |  G.Devarajan | K.J.Yesudas](https://www.youtube.com/watch?v=5mljejDWx8U)
 - [En Tholile Video Song | Jai Ganesh Movie | Ranjith Sankar | Unni Mukundan | Sankar Sharma](https://www.youtube.com/watch?v=pHP65GujokE)
 - [Varmazhaville Video Song | Mizhi Randilum | Kavya Madhavan | KS Chithra | Raveendran](https://www.youtube.com/watch?v=HkjDLeO_v8E)
 - [Oranges and Lemons | English Nursery Rhymes | Video Jukebox | Jakes Bejoy](https://www.youtube.com/watch?v=Pt9nZKIec9M)
-- [Get on the floor for #KForKrishna | Guruvayoorambala Nadayil | Prithviraj | #shorts #ytshorts](https://www.youtube.com/watch?v=n7V4Jb0TXe0)
-- [Vincent Old Superhit Movie Song l Pennpada Movie | Rajakokila, Reena, Vijayalalitha,](https://www.youtube.com/watch?v=4wtYEV-VJNU)
-- [Chembakappoob |  Award Winning Film Songs #shortsfeed #mjayachandran #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=NEQIIXwX1jo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
