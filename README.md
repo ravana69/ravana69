@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Cooku With Comali &lpar;2024&rpar; Tamil - S05 EP10 TRUE WEB-DL - [1080p, 720p, 360p - AVC - UNTOUCHED - 800MB - 650MB &amp; 300MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180018-cooku-with-comali-2024-tamil-s05-ep10-true-web-dl-1080p-720p-360p-avc-untouched-800mb-650mb-300mb/&do=findComment&comment=366156)
+- [Veeram &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 348Kbps&rpar; - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180028-veeram-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-348kbps-29gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=366155)
+- [Enthiran &lpar;2010&rpar; REMASTERED - Tamil - SUNNXT WEB-DL - 4K , 1080p &amp; 720p - HEVC - UNTOUCHED - DD+5.1&lpar;448kbps&rpar; Atmos - 14.7GB - 12.8GB - 12.6GB - 3.9GB - 2.8GB &amp; 1.8GB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180037-enthiran-2010-remastered-tamil-sunnxt-web-dl-4k-1080p-720p-hevc-untouched-dd51448kbps-atmos-147gb-128gb-126gb-39gb-28gb-18gb-esub-gdrive/&do=findComment&comment=366154)
+- [Murudan &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 348Kbps&rpar; - 2.6GB - 1.3GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180029-murudan-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-348kbps-26gb-13gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=366153)
 - [Naan Avan Illai &lpar;2007&rpar; Tamil - JIO WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - AAC2.0&lpar;192kbps&rpar; - 6GB - 4GB &amp; 2.4GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180036-naan-avan-illai-2007-tamil-jio-web-dl-1080p-720p-avc-untouched-aac20192kbps-6gb-4gb-24gb-gdrive/&do=findComment&comment=366152)
-- [Star wars &lpar;1980 - 2019&rpar; 4K BDRip HDR10 HEVC Multi Original Audios [Tamil &lpar;DDP5.1&rpar; + Telugu &lpar;DDP5.1&rpar; + Hindi+ English] - x265 - ESubs - [45GB]](https://www.1tamilmv.eu/index.php?/forums/topic/180035-star-wars-1980-2019-4k-bdrip-hdr10-hevc-multi-original-audios-tamil-ddp51-telugu-ddp51-hindi-english-x265-esubs-45gb/&do=findComment&comment=366151)
-- [Ugram &lpar;2023&rpar; 2160p SDR AMZN CBR WEB-DL H265 Telugu DDP 5.1](https://www.1tamilmv.eu/index.php?/forums/topic/180034-ugram-2023-2160p-sdr-amzn-cbr-web-dl-h265-telugu-ddp-51/&do=findComment&comment=366150)
-- [Thank You &lpar;2022&rpar; 2160p SDR AMZN CBR WEB-DL H265 Telugu DDP 5.1](https://www.1tamilmv.eu/index.php?/forums/topic/180033-thank-you-2022-2160p-sdr-amzn-cbr-web-dl-h265-telugu-ddp-51/&do=findComment&comment=366149)
-- [The.Junji.Ito.Collection.S01.1080p, 720p .AMZN.WEB-DL.DUAL.DDP2.0](https://www.1tamilmv.eu/index.php?/forums/topic/180032-thejunjiitocollections011080p-720p-amznweb-dldualddp20/&do=findComment&comment=366148)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
