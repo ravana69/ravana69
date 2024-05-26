@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 27th of May 2024](https://www.youtube.com/watch?v=0QyDgojWYhM)
+- [കന്യാമറിയമേ ,കനിവിൻ കടലേ...](https://www.youtube.com/watch?v=6WyB2aCpW-0)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=qT7gblwZr_I)
 - [Devalokam Pole | Thattakam | Kaithapram | R.K.Ramadas & Sangeetha Madhav | Hi-Res Audio](https://www.youtube.com/watch?v=NXrTTZaqrQs)
 - [Kunnimani Kannazhakil | KJ Yesudas | KS Chithra | Berny Ignatius | S Ramesan Nair #SongOfTheDay](https://www.youtube.com/watch?v=Yqk-OpXqdiM)
 - [Ninne Thedi Thedi | Symphony | Deepak Dev | Vidhu Prathap | Kaithapram | IV Sasi | Ganga](https://www.youtube.com/watch?v=cldndaNGQJM)
-- [Christian Melody Songs | Kester | Christian Devotional Songs Malayalam | Holy Mass Songs |Joji Johns](https://www.youtube.com/watch?v=8vYcw537qnw)
-- [THIRU KARATHAAAL | ROY PUTHUR | LINCY SAMUEL | #christiandevotionalsongs #royputhur](https://www.youtube.com/watch?v=GHWHpT5luXw)
-- [Parumala Cheruvile Song | Shorts | Spadikam | Mohanlal | Urvashi | K. S. Chithra](https://www.youtube.com/watch?v=vpZLgTKUyzM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
