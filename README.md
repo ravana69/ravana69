@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pichaikkaran &lpar;2016&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - [DD+5.1&lpar;192kbps&rpar; + AAC] - 4.3GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180046-pichaikkaran-2016-tamil-true-web-dl-1080p-720p-avc-untouched-dd51192kbps-aac-43gb-27gb-14gb-x264-700mb-400mb-gdrive/&do=findComment&comment=366175)
+- [Pichaikkaran &lpar;2016&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - [DD+5.1&lpar;192kbps&rpar; + AAC] - 4.3GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180046-pichaikkaran-2016-tamil-true-web-dl-1080p-720p-avc-untouched-dd51192kbps-aac-43gb-27gb-14gb-x264-700mb-400mb-gdrive/&do=findComment&comment=366174)
+- [Vilangu &lpar;2022&rpar; S01 &lpar;E01-E07&rpar; - Tamil - ZEE5 WEB-DL - 4K , 1080p &amp; 720p - HEVC - UNTOUCHED - AAC2.0 - 8.9GB - 3.4GB &amp; 1.8GB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180045-vilangu-2022-s01-e01-e07-tamil-zee5-web-dl-4k-1080p-720p-hevc-untouched-aac20-89gb-34gb-18gb-esub-gdrive/&do=findComment&comment=366173)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [26-5-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/180044-movies-collection-all-languages-4k-1080p-720p-576p-480p-26-5-2024/&do=findComment&comment=366172)
 - [Raja Rani &lpar;2013&rpar; Tamil 2160p BluRay - 10Bit - x265 - DD5.1 - ESub - 3.6GB](https://www.1tamilmv.eu/index.php?/forums/topic/124721-raja-rani-2013-tamil-2160p-bluray-10bit-x265-dd51-esub-36gb/&do=findComment&comment=366171)
-- [Kaththi &lpar;2014&rpar; Tamil Hybrid WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD.5.1 &amp; AAC.2.0&rpar; - 9.7GB - ESub - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/175907-kaththi-2014-tamil-hybrid-web-dl-1080p-hq-avc-untouched-dd51-aac20-97gb-esub-gdflix/&do=findComment&comment=366170)
-- [Silk Saree &lpar;2024&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/180043-silk-saree-2024-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=366169)
-- [Thillalangadi &lpar;2010&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 6.2GB - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/180042-thillalangadi-2010-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-62gb-gdflix/&do=findComment&comment=366168)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
