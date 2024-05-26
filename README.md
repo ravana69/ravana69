@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [THIRU KARATHAAAL | ROY PUTHUR | LINCY SAMUEL | #christiandevotionalsongs #royputhur](https://www.youtube.com/watch?v=GHWHpT5luXw)
 - [Parumala Cheruvile Song | Shorts | Spadikam | Mohanlal | Urvashi | K. S. Chithra](https://www.youtube.com/watch?v=vpZLgTKUyzM)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 26th of May 2024](https://www.youtube.com/watch?v=lio8hwb-MYU)
 - [Time To Dance For  #KForKrishna | Guruvayoorambala Nadayil | Prithviraj | #shorts #ytshorts](https://www.youtube.com/watch?v=IX3ih_4Unuk)
 - [ഇന്നലകളിലെ ദുഃഖങ്ങളെ നാളെയിലേക്ക് വഹിക്കാതിരിക്കുക.. 😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=0Yu62t0iS0Q)
 - [Nannaavoolla Video Song | Dr. Love | Vinu Thomas | Anju Joseph](https://www.youtube.com/watch?v=UVe2i5Fdt_8)
-- [Kusumavadana  | Film song Animation Video  #shortsfeed #kidscartoon #animation #shortsvideo](https://www.youtube.com/watch?v=RdcWhZPUuLk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
