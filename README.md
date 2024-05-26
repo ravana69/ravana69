@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Thank You &lpar;2022&rpar; 2160p SDR AMZN CBR WEB-DL H265 Telugu DDP 5.1](https://www.1tamilmv.eu/index.php?/forums/topic/180033-thank-you-2022-2160p-sdr-amzn-cbr-web-dl-h265-telugu-ddp-51/&do=findComment&comment=366149)
+- [The.Junji.Ito.Collection.S01.1080p, 720p .AMZN.WEB-DL.DUAL.DDP2.0](https://www.1tamilmv.eu/index.php?/forums/topic/180032-thejunjiitocollections011080p-720p-amznweb-dldualddp20/&do=findComment&comment=366148)
 - [Atlas &lpar;2024&rpar; NF WEB-DL Multi DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p - 11.3 GB | 6.2 GB](https://www.1tamilmv.eu/index.php?/forums/topic/180031-atlas-2024-nf-web-dl-multi-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-113-gb-62-gb/&do=findComment&comment=366147)
 - [Civil War &lpar;2024&rpar; iTunes WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10-DV] | 1080p - 18.4 GB | 8 GB](https://www.1tamilmv.eu/index.php?/forums/topic/180030-civil-war-2024-itunes-web-dl-ddp51-atmos-esubs-2160p-hdr10-dv-1080p-184-gb-8-gb/&do=findComment&comment=366146)
 - [Accident Man: Hitman&#39;s Holiday &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180027-accident-man-hitmans-holiday-2022-hd-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-24gb-11gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=366145)
-- [Tatsama Tadbhava &lpar;2024&rpar;  Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; &lpar;Tamil + Kannada&rpar; - 2.6GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179904-tatsama-tadbhava-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-20-tamil-kannada-26gb-13gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=366144)
-- [Murudan &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 348Kbps&rpar; - 2.6GB - 1.3GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180029-murudan-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-348kbps-26gb-13gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=366143)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
