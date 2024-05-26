@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Naan Avan Illai &lpar;2007&rpar; Tamil - JIO WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - AAC2.0&lpar;192kbps&rpar; - 6GB - 4GB &amp; 2.4GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180036-naan-avan-illai-2007-tamil-jio-web-dl-1080p-720p-avc-untouched-aac20192kbps-6gb-4gb-24gb-gdrive/&do=findComment&comment=366152)
+- [Star wars &lpar;1980 - 2019&rpar; 4K BDRip HDR10 HEVC Multi Original Audios [Tamil &lpar;DDP5.1&rpar; + Telugu &lpar;DDP5.1&rpar; + Hindi+ English] - x265 - ESubs - [45GB]](https://www.1tamilmv.eu/index.php?/forums/topic/180035-star-wars-1980-2019-4k-bdrip-hdr10-hevc-multi-original-audios-tamil-ddp51-telugu-ddp51-hindi-english-x265-esubs-45gb/&do=findComment&comment=366151)
 - [Ugram &lpar;2023&rpar; 2160p SDR AMZN CBR WEB-DL H265 Telugu DDP 5.1](https://www.1tamilmv.eu/index.php?/forums/topic/180034-ugram-2023-2160p-sdr-amzn-cbr-web-dl-h265-telugu-ddp-51/&do=findComment&comment=366150)
 - [Thank You &lpar;2022&rpar; 2160p SDR AMZN CBR WEB-DL H265 Telugu DDP 5.1](https://www.1tamilmv.eu/index.php?/forums/topic/180033-thank-you-2022-2160p-sdr-amzn-cbr-web-dl-h265-telugu-ddp-51/&do=findComment&comment=366149)
 - [The.Junji.Ito.Collection.S01.1080p, 720p .AMZN.WEB-DL.DUAL.DDP2.0](https://www.1tamilmv.eu/index.php?/forums/topic/180032-thejunjiitocollections011080p-720p-amznweb-dldualddp20/&do=findComment&comment=366148)
-- [Atlas &lpar;2024&rpar; NF WEB-DL Multi DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p - 11.3 GB | 6.2 GB](https://www.1tamilmv.eu/index.php?/forums/topic/180031-atlas-2024-nf-web-dl-multi-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-113-gb-62-gb/&do=findComment&comment=366147)
-- [Civil War &lpar;2024&rpar; iTunes WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10-DV] | 1080p - 18.4 GB | 8 GB](https://www.1tamilmv.eu/index.php?/forums/topic/180030-civil-war-2024-itunes-web-dl-ddp51-atmos-esubs-2160p-hdr10-dv-1080p-184-gb-8-gb/&do=findComment&comment=366146)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
