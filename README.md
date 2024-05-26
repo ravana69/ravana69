@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kalakkatha | Ayyappanum Koshiyum | Folk Film #ytshorts  #manoramamusic](https://www.youtube.com/watch?v=dcE2dCWulwM)
+- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=RV-fkhSiWro)
+- [വീടുകളിൽ സമാധാനം വന്നു ചേരും ഈ ഗാനങ്ങൾ കേട്ടാൽ | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=wmkpvhP-cQ8)
+- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 26th May 2024 # Vanakkamasam Prayer May 26 # Japamala](https://www.youtube.com/watch?v=nGFrdTDAXEk)
+- [ഇന്ന് മെയ് 26 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala mahimayude](https://www.youtube.com/watch?v=DR-Cd3MEqrs)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=KvMPpREUk7g)
-- [പ്രഭാത പ്രാര്‍ത്ഥന May 26 # Athiravile Prarthana 26th of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=n_h27Bq3-J8)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 26th of May 2024](https://www.youtube.com/watch?v=eAKB-eW7-zE)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=s6i4RnqQxj0)
-- [പിതാവിനും പുത്രനും പിശുദ്ധാത്മാവിനും സ്തുതി .](https://www.youtube.com/watch?v=8fyb8l_AA3Q)
-- [Njanoru Paattu Paadam | Megham | K J Yesudas | Ouseppachan | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=MWFI3YpffOk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
