@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Radhaykorunal | Mayavi | Balarama #ytshorts  #manoramamusic](https://www.youtube.com/watch?v=1Cc9roBEE4k)
+- [എന്നേശു നാഥനെ | CHRISTIAN DEVOTIONAL | ROY PUTHUR | LINTA THOMAS #royputhur](https://www.youtube.com/watch?v=MsMQQ0i42mA)
 - [Kalakkatha | Ayyappanum Koshiyum | Folk Film #ytshorts  #manoramamusic](https://www.youtube.com/watch?v=dcE2dCWulwM)
 - [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=RV-fkhSiWro)
 - [വീടുകളിൽ സമാധാനം വന്നു ചേരും ഈ ഗാനങ്ങൾ കേട്ടാൽ | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=wmkpvhP-cQ8)
 - [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 26th May 2024 # Vanakkamasam Prayer May 26 # Japamala](https://www.youtube.com/watch?v=nGFrdTDAXEk)
-- [ഇന്ന് മെയ് 26 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala mahimayude](https://www.youtube.com/watch?v=DR-Cd3MEqrs)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=KvMPpREUk7g)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
