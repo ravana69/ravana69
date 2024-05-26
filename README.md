@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Thillalangadi &lpar;2010&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 6.2GB - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/180042-thillalangadi-2010-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-62gb-gdflix/&do=findComment&comment=366168)
+- [Top Cooku Dupe Cooku &lpar;2024&rpar; Tamil - S01 EP02 TRUE WEB-DL - [1080p, 720p, 360p - AVC - UNTOUCHED - 900MB - 750MB &amp; 150MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180041-top-cooku-dupe-cooku-2024-tamil-s01-ep02-true-web-dl-1080p-720p-360p-avc-untouched-900mb-750mb-150mb/&do=findComment&comment=366167)
+- [Top Cooku Dupe Cooku &lpar;2024&rpar; Tamil - S01 EP02 TRUE WEB-DL - [1080p, 720p, 360p - AVC - UNTOUCHED - 900MB - 750MB &amp; 150MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180041-top-cooku-dupe-cooku-2024-tamil-s01-ep02-true-web-dl-1080p-720p-360p-avc-untouched-900mb-750mb-150mb/&do=findComment&comment=366166)
+- [Ganapath &lpar;2023&rpar; Hindi TRUE HQ HDTV - [1080p &amp; 720p - AVC - AAC - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180040-ganapath-2023-hindi-true-hq-hdtv-1080p-720p-avc-aac-29gb-14gb-x264-700mb-400mb/&do=findComment&comment=366165)
 - [Sri Shirdi Saibaba Mahathyam &lpar;1986&rpar; Telugu 1080p HDTV-DL - UNTOUCHED AVC - AAC - 3.8GB - DUSTIN](https://www.1tamilmv.eu/index.php?/forums/topic/180038-sri-shirdi-saibaba-mahathyam-1986-telugu-1080p-hdtv-dl-untouched-avc-aac-38gb-dustin/&do=findComment&comment=366163)
-- [Civil War &lpar;2024&rpar; English TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 2.6GB &amp; 1GB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180009-civil-war-2024-english-true-web-dl-1080p-720p-x264-dd51-atmos-768kbps-26gb-1gb-esub/&do=findComment&comment=366162)
-- [Konjam Pesinaal Yenna &lpar;2024&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/180003-konjam-pesinaal-yenna-2024-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=366161)
-- [PT Sir &lpar;2024&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/179995-pt-sir-2024-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=366160)
-- [Accident Man: Hitman&#39;s Holiday &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180027-accident-man-hitmans-holiday-2022-hd-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-24gb-11gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=366159)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
