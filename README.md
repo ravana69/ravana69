@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Mad Max Fury Road &lpar;2015&rpar; AMZN WEB DL - H264/H265 - [Tamil + Telugu + Hindi + Eng] DDP5.1&lpar;640kbps&rpar; - [1080p - 9.8GB, 7.9GB &amp; 4.8GB] [GDRIVE]](https://www.1tamilmv.eu/index.php?/forums/topic/169074-mad-max-fury-road-2015-amzn-web-dl-h264h265-tamil-telugu-hindi-eng-ddp51640kbps-1080p-98gb-79gb-48gb-gdrive/&do=findComment&comment=366231)
 - [Aradhana &lpar;1987&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180067-aradhana-1987-telugu-dvd9-untouched-480p-dd51-448kbps-7gb-esub/&do=findComment&comment=366230)
 - [Aradhana &lpar;1987&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180067-aradhana-1987-telugu-dvd9-untouched-480p-dd51-448kbps-7gb-esub/&do=findComment&comment=366229)
-- [The First Omen &lpar;2024&rpar; English HQ HDRip - 720p - x264 - &lpar;DD+5.1 - 192Kbps &amp; AAC&rpar; - 950MB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180066-the-first-omen-2024-english-hq-hdrip-720p-x264-dd51-192kbps-aac-950mb-esub/&do=findComment&comment=366228)
+- [The First Omen &lpar;2024&rpar; English TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 2.6GB &amp; 1GB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180066-the-first-omen-2024-english-true-web-dl-1080p-720p-x264-dd51-atmos-768kbps-26gb-1gb-esub/&do=findComment&comment=366228)
 - [Once Upon A Time In Jamaligudda &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 320Kbps&rpar; - 2.4GB - 1.3GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180065-once-upon-a-time-in-jamaligudda-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-320kbps-24gb-13gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=366227)
-- [Shooter &lpar;2007&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.2GB &amp; 1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/177833-shooter-2007-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-32gb-1gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=366226)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
