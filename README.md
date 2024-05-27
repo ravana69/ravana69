@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [60 Telugu Movies - 1080p - BluRay/SNXT/AMZN/ZEE5 WEB DL - x264 - DD5.1/DD2.0/AAC2.0 - ESub - 150GB](https://www.1tamilmv.eu/index.php?/forums/topic/124703-60-telugu-movies-1080p-bluraysnxtamznzee5-web-dl-x264-dd51dd20aac20-esub-150gb/&do=findComment&comment=366224)
+- [Aranmanai 2 &lpar;2016&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 7GB - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/176258-aranmanai-2-2016-tamil-true-web-dl-1080p-hq-avc-untouched-aac20-7gb-gdflix/&do=findComment&comment=366223)
+- [65 Tamil Movies - AMZN / SUN NXT / SS WEB DL - H264 / H265 - DDP5.1/DD5.1/AAC2.0 - [1080p &amp; 720p - 450GB] [Gdrive]](https://www.1tamilmv.eu/index.php?/forums/topic/139538-65-tamil-movies-amzn-sun-nxt-ss-web-dl-h264-h265-ddp51dd51aac20-1080p-720p-450gb-gdrive/&do=findComment&comment=366222)
 - [Anbe Sivam &lpar;2003&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - [DD+5.1&lpar;640kbps&rpar; + AAC] - 12.7GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180064-anbe-sivam-2003-tamil-true-web-dl-1080p-720p-avc-untouched-dd51640kbps-aac-127gb-55gb-27gb-14gb-x264-700mb-400mb-esub-gdrive/&do=findComment&comment=366221)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [27-5-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/180063-movies-collection-all-languages-4k-1080p-720p-576p-480p-27-5-2024/&do=findComment&comment=366220)
-- [Lineman &lpar;2024&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180061-lineman-2024-kannada-true-web-dl-1080p-720p-avc-dd51-640kbps-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=366218)
-- [Pichaikkaran &lpar;2016&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - [DD+5.1&lpar;192kbps&rpar; + AAC] - 4.3GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180046-pichaikkaran-2016-tamil-true-web-dl-1080p-720p-avc-untouched-dd51192kbps-aac-43gb-27gb-14gb-x264-700mb-400mb-gdrive/&do=findComment&comment=366217)
-- [Vaanam &lpar;2011&rpar; Tamil - BluRay - 1080p &amp; 720p - AVC - DTS5.1&lpar;1509kbps&rpar; - 10.7GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/179949-vaanam-2011-tamil-bluray-1080p-720p-avc-dts511509kbps-107gb-55gb-27gb-14gb-x264-700mb-400mb-esub-gdrive/&do=findComment&comment=366216)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
