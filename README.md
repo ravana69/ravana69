@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Shooter &lpar;2007&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.2GB &amp; 1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/177833-shooter-2007-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-32gb-1gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=366226)
+- [Wrath of Man &lpar;2021&rpar; &lpar;Blu-Ray + v2 Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Kannada + Eng&rpar; - 4.2GB - 1.6GB | x264 - &lpar;Multi&rpar; - 500MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/137895-wrath-of-man-2021-blu-ray-v2-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-kannada-eng-42gb-16gb-x264-multi-500mb-esub/&do=findComment&comment=366225)
 - [60 Telugu Movies - 1080p - BluRay/SNXT/AMZN/ZEE5 WEB DL - x264 - DD5.1/DD2.0/AAC2.0 - ESub - 150GB](https://www.1tamilmv.eu/index.php?/forums/topic/124703-60-telugu-movies-1080p-bluraysnxtamznzee5-web-dl-x264-dd51dd20aac20-esub-150gb/&do=findComment&comment=366224)
 - [Aranmanai 2 &lpar;2016&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 7GB - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/176258-aranmanai-2-2016-tamil-true-web-dl-1080p-hq-avc-untouched-aac20-7gb-gdflix/&do=findComment&comment=366223)
 - [65 Tamil Movies - AMZN / SUN NXT / SS WEB DL - H264 / H265 - DDP5.1/DD5.1/AAC2.0 - [1080p &amp; 720p - 450GB] [Gdrive]](https://www.1tamilmv.eu/index.php?/forums/topic/139538-65-tamil-movies-amzn-sun-nxt-ss-web-dl-h264-h265-ddp51dd51aac20-1080p-720p-450gb-gdrive/&do=findComment&comment=366222)
-- [Anbe Sivam &lpar;2003&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - [DD+5.1&lpar;640kbps&rpar; + AAC] - 12.7GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180064-anbe-sivam-2003-tamil-true-web-dl-1080p-720p-avc-untouched-dd51640kbps-aac-127gb-55gb-27gb-14gb-x264-700mb-400mb-esub-gdrive/&do=findComment&comment=366221)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [27-5-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/180063-movies-collection-all-languages-4k-1080p-720p-576p-480p-27-5-2024/&do=findComment&comment=366220)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
