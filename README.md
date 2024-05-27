@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [En Mozhi Kelkkaathe | Malayalam Christian Devotional Song | Christian Album Song | Spiritual Song](https://www.youtube.com/watch?v=lz9kFoZuBGc)
+- [Varika Rasika | Panchavarna Thatha | Video | Shankar Mahadevan | Santhosh Varma | Nadirsha | Jayaram](https://www.youtube.com/watch?v=dNpIa9zoy5Q)
+- [മഞ്ജരികൾ മഞ്ജുഷകൾ | Manjarikal Manjushakal | Enthino Pookkunna Pookkal | K. J. Yesudas | Shyam](https://www.youtube.com/watch?v=iycTLF7fC9U)
 - [Rajakokila Old Superhit Movie Song l Pennpada Movie |  Vincent, Reena, Vijayalalitha,](https://www.youtube.com/watch?v=AlOC3vLR7uo)
 - [Chilu Chilum | Balettan  | Gireesh Puthencherry  #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=C_faFVEPoIo)
 - [alavilla nanmayam dhaivame #അളവില്ല  നന്മയാം ദൈവമേ #kesterhits #morningprayersongs](https://www.youtube.com/watch?v=-zRUF8OIZ9I)
-- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 27th May 2024 # Vanakkamasam Prayer May 27 # Japamala](https://www.youtube.com/watch?v=U8j3ys_99PQ)
-- [കൃപാസന  പ്രാത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #കൃപാസനം ഡെയിലി പ്രയർ  #May 27th 2024](https://www.youtube.com/watch?v=YwJT5lg7miw)
-- [ഇന്ന് മെയ് 27 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala santhoshath](https://www.youtube.com/watch?v=r7zfogUAAIM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
