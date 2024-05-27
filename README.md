@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Panchayat &lpar;2024&rpar; S03 EP&lpar;01-08&rpar; Hindi TRUE WEB-DL - [1080p - 720p &amp; 360p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 5.4GB - 2.1GB &amp; 750MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180069-panchayat-2024-s03-ep01-08-hindi-true-web-dl-1080p-720p-360p-avc-dd51-192kbps-54gb-21gb-750mb-esub/&do=findComment&comment=366237)
 - [Once Upon A Time In Jamaligudda &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 320Kbps&rpar; - 2.4GB - 1.3GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180065-once-upon-a-time-in-jamaligudda-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-320kbps-24gb-13gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=366236)
 - [BUNNY &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB - ESub - Sri Rama Video](https://www.1tamilmv.eu/index.php?/forums/topic/176875-bunny-2005-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-7gb-esub-sri-rama-video/&do=findComment&comment=366235)
 - [Pushpa Pushpa &lpar;From &#39;&#39;Pushpa 2 The Rule&#39;&#39;&rpar; - Telugu - Single - &lpar;T-Series&rpar; [24Bit-48kHz] - FLAC - 57MB - DSP Musical](https://www.1tamilmv.eu/index.php?/forums/topic/179886-pushpa-pushpa-from-pushpa-2-the-rule-telugu-single-t-series-24bit-48khz-flac-57mb-dsp-musical/&do=findComment&comment=366234)
 - [Panchayat &lpar;2024&rpar; S03 EP&lpar;01-08&rpar; Hindi TRUE WEB-DL - [1080p - 720p &amp; 360p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 5.4GB - 2.1GB &amp; 750MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180069-panchayat-2024-s03-ep01-08-hindi-true-web-dl-1080p-720p-360p-avc-dd51-192kbps-54gb-21gb-750mb-esub/&do=findComment&comment=366233)
-- [Swatantra Veer Savarkar &lpar;2024&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 2.4GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180068-swatantra-veer-savarkar-2024-hindi-true-web-dl-1080p-720p-avc-dd51-atmos-448kbps-24gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=366232)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
