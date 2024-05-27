@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 28th of May 2024](https://www.youtube.com/watch?v=SnK1j9e_SFQ)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=bbaPW34woas)
 - [HITS OF RADHIKA THILAK /CHRISTIAN DEVOTIONAL SONGS/OWN MEDIA MUSIC COLLECTION](https://www.youtube.com/watch?v=FN20D5jPI3U)
 - [അമ്മതൻ താരാട്ടുപാട്ടിൻ്റെ ഈണം ഇന്നെൻ്റെ കാതിൽ ഒഴുകിയെത്തി..](https://www.youtube.com/watch?v=VRBnZDn5VQw)
 - [ദൈവത്തിന് സ്‌തോത്രം | DHAIVATHINU STHOTHRAM |ROY PUTHUR  & TEAM #christiandevotionalsongs](https://www.youtube.com/watch?v=jli-4WyzQV8)
 - [Mounam Swaramaay | Aayushkkaalam | Ouseppachan | K J Yesudas | K S Chithra #SongOfTheDay](https://www.youtube.com/watch?v=RW99Lg4joSM)
-- [Christian Superhit Songs | Wilson Piravom | Midhila Michael | Christian Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=OuwcFE_-m4s)
-- [Get Into The Beats Of Vatteppam | Mandakini | Dabzee | Altaf Salim | Bibin Ashok | #shorts #ytshorts](https://www.youtube.com/watch?v=sSeBISVhmTM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
