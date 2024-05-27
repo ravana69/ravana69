@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 27th May 2024 # Vanakkamasam Prayer May 27 # Japamala](https://www.youtube.com/watch?v=U8j3ys_99PQ)
+- [കൃപാസന  പ്രാത്ഥനയും ഗാനങ്ങളും കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #കൃപാസനം ഡെയിലി പ്രയർ  #May 27th 2024](https://www.youtube.com/watch?v=YwJT5lg7miw)
+- [ഇന്ന് മെയ് 27 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala santhoshath](https://www.youtube.com/watch?v=r7zfogUAAIM)
 - [Pazhayakala Aradhanaganangal | Non Stop Malayalam Christian Songs | Christian Worship Songs](https://www.youtube.com/watch?v=dZTqLvbPy3U)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=z6Jo40xFGXk)
 - [രാവിലെ പ്രാര്‍ത്ഥന May 27 # Athiravile Prarthana 27th of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=hZFosYYa8vI)
-- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=aF_8GOUA01w)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 27th of May 2024](https://www.youtube.com/watch?v=0QyDgojWYhM)
-- [കന്യാമറിയമേ ,കനിവിൻ കടലേ...](https://www.youtube.com/watch?v=6WyB2aCpW-0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
