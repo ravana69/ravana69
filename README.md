@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Panchayat &lpar;2024&rpar; S03 EP&lpar;01-08&rpar; Hindi TRUE WEB-DL - [2160p - 1080p - 720p &amp; 360p - AVC - &lpar;DD+5.1 - 192Kbps&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/180071-panchayat-2024-s03-ep01-08-hindi-true-web-dl-2160p-1080p-720p-360p-avc-dd51-192kbps/&do=findComment&comment=366241)
+- [Chen.Zhen.The.Tokyo.Fight.2019 &lpar;&lpar;Hindi , Tamil, Telegu , Chinese&rpar;&rpar;.1080p, 720p .AMZN.WEB-DL.MULTI](https://www.1tamilmv.eu/index.php?/forums/topic/180070-chenzhenthetokyofight2019-hindi-tamil-telegu-chinese1080p-720p-amznweb-dlmulti/&do=findComment&comment=366240)
 - [Panchayat &lpar;2024&rpar; S03 EP&lpar;01-08&rpar; Hindi TRUE WEB-DL - [1080p - 720p &amp; 360p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 5.4GB - 2.1GB &amp; 750MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180069-panchayat-2024-s03-ep01-08-hindi-true-web-dl-1080p-720p-360p-avc-dd51-192kbps-54gb-21gb-750mb-esub/&do=findComment&comment=366239)
 - [Panchayat &lpar;2024&rpar; S03 EP&lpar;01-08&rpar; Hindi TRUE WEB-DL - [1080p - 720p &amp; 360p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 5.4GB - 2.1GB &amp; 750MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180069-panchayat-2024-s03-ep01-08-hindi-true-web-dl-1080p-720p-360p-avc-dd51-192kbps-54gb-21gb-750mb-esub/&do=findComment&comment=366238)
 - [Panchayat &lpar;2024&rpar; S03 EP&lpar;01-08&rpar; Hindi TRUE WEB-DL - [1080p - 720p &amp; 360p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 5.4GB - 2.1GB &amp; 750MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180069-panchayat-2024-s03-ep01-08-hindi-true-web-dl-1080p-720p-360p-avc-dd51-192kbps-54gb-21gb-750mb-esub/&do=findComment&comment=366237)
-- [Once Upon A Time In Jamaligudda &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 320Kbps&rpar; - 2.4GB - 1.3GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180065-once-upon-a-time-in-jamaligudda-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-320kbps-24gb-13gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=366236)
-- [BUNNY &lpar;2005&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB - ESub - Sri Rama Video](https://www.1tamilmv.eu/index.php?/forums/topic/176875-bunny-2005-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-7gb-esub-sri-rama-video/&do=findComment&comment=366235)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
