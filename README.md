@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Songs Of The Week | Chithra Arun | Christian Superhit Songs | Joji Johns | Christian Songs Malayalam](https://www.youtube.com/watch?v=I21pEjXm4OQ)
+- [Bhaskar Oru Rascal Video Jukebox  | Sreya Goshal | Sreya Jayadeep | Amala Paul | Aravind Swami](https://www.youtube.com/watch?v=IbfdUEZtDlQ)
+- [നിൻ തിരുസുതനെ കുരിശിലേറ്റിയ നിൻമക്കളോടു നീ പൊറുക്കേണമേ](https://www.youtube.com/watch?v=7kn2esfpT4M)
 - [Oru Nooru Janmam | Manassil Oru Manjuthulli | K J Yesudas | Bombay Ravi | Suresh Ramanthali](https://www.youtube.com/watch?v=l6YlPypJdvg)
 - [മേഘ്നകുട്ടിയുടെ  മനോഹരമായ തമിഴ് ഗാനം 🥰🎶 | @MeghnaSumesh @DevotionalSongTamil #shorts #tamilshorts](https://www.youtube.com/watch?v=XJz1q9DCyjA)
 - [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=WCChRaEFR_s)
-- [കനവായ് നിനവായ് ... | Bhaskar Oru Rascal | Arvaind Swami | Amala Paul](https://www.youtube.com/watch?v=HyFr6hzP_Lw)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 28th of May 2024](https://www.youtube.com/watch?v=FUMH02WfykY)
-- [അറിഞ്ഞുകൊണ്ട് ആരെയും വേദനിപ്പിക്കാതിരിക്കുക.. 😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=C3mX3KuQ0Y4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
