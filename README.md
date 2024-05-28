@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Parumala Cheruvile Song | Shorts | Spadikam | Mohanlal | Urvashi | K. S. Chithra](https://www.youtube.com/watch?v=iBoWmqcvjkU)
+- [ഏതോ ഹരിത നികുഞ്ജത്തിൽ പല്ലവിയായതു നീയല്ലോ #mohanlal  | Shyaamameghame Nee](https://www.youtube.com/watch?v=Q1pp6svbO-w)
 - [Thalikku Ponnu Video Song | Daivathinte Makan | Jayaram | Pooja Batra | MG Sreekumar | Vidyasagar](https://www.youtube.com/watch?v=o82t3SnqG0U)
 - [Parishudhan | Malayalam Christian Devotional Songs | Super Hit Christian Album Songs | Kester Songs](https://www.youtube.com/watch?v=bSnYtYQlu_o)
 - [സംഗീതപ്രേമികളായ എല്ലാ മലയാളികൾക്കും ഒരുപോലെ ഇഷ്ടമുള്ള സൂപ്പർഹിറ്റ് ചിത്രഗാനങ്ങൾ](https://www.youtube.com/watch?v=xMhF8WVQ0Po)
 - [Ilam Thooval Veeshi - Vannu Kandu Keezhadakki (1985) | KS Chithra | Poovachal Khader | Shyam](https://www.youtube.com/watch?v=VVWJmfiolFs)
-- [Nin Snehathanalil | Christian Melody Song | Sudeep Kumar | Joseph Muttuchira | Joji Johns](https://www.youtube.com/watch?v=q-53BfBUAbE)
-- [Pathiye Novayi | 32aam Adhyayam 23aam Vaakyam | Video |  Najim Arshad | Bijibal | Govind Padmasoorya](https://www.youtube.com/watch?v=gHzQjli_6O4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
