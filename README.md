@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Parumala Cheruvile Song | Shorts | Spadikam | Mohanlal | Urvashi | K. S. Chithra](https://www.youtube.com/watch?v=iBoWmqcvjkU)
-- [ഏതോ ഹരിത നികുഞ്ജത്തിൽ പല്ലവിയായതു നീയല്ലോ #mohanlal  | Shyaamameghame Nee](https://www.youtube.com/watch?v=Q1pp6svbO-w)
-- [Thalikku Ponnu Video Song | Daivathinte Makan | Jayaram | Pooja Batra | MG Sreekumar | Vidyasagar](https://www.youtube.com/watch?v=o82t3SnqG0U)
-- [Parishudhan | Malayalam Christian Devotional Songs | Super Hit Christian Album Songs | Kester Songs](https://www.youtube.com/watch?v=bSnYtYQlu_o)
-- [സംഗീതപ്രേമികളായ എല്ലാ മലയാളികൾക്കും ഒരുപോലെ ഇഷ്ടമുള്ള സൂപ്പർഹിറ്റ് ചിത്രഗാനങ്ങൾ](https://www.youtube.com/watch?v=xMhF8WVQ0Po)
-- [Ilam Thooval Veeshi - Vannu Kandu Keezhadakki (1985) | KS Chithra | Poovachal Khader | Shyam](https://www.youtube.com/watch?v=VVWJmfiolFs)
+- [Oru Nooru Janmam | Manassil Oru Manjuthulli | K J Yesudas | Bombay Ravi | Suresh Ramanthali](https://www.youtube.com/watch?v=l6YlPypJdvg)
+- [മേഘ്നകുട്ടിയുടെ  മനോഹരമായ തമിഴ് ഗാനം 🥰🎶 | @MeghnaSumesh @DevotionalSongTamil #shorts #tamilshorts](https://www.youtube.com/watch?v=XJz1q9DCyjA)
+- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=WCChRaEFR_s)
+- [കനവായ് നിനവായ് ... | Bhaskar Oru Rascal | Arvaind Swami | Amala Paul](https://www.youtube.com/watch?v=HyFr6hzP_Lw)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 28th of May 2024](https://www.youtube.com/watch?v=FUMH02WfykY)
+- [അറിഞ്ഞുകൊണ്ട് ആരെയും വേദനിപ്പിക്കാതിരിക്കുക.. 😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=C3mX3KuQ0Y4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
