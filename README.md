@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Illegal &lpar;2024&rpar; S03 EP&lpar;01-08&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Kannada] - 4.1GB - 2GB &amp; 850MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180086-illegal-2024-s03-ep01-08-true-web-dl-1080p-720p-avc-aac-20-tamil-telugu-hindi-kannada-41gb-2gb-850mb/&do=findComment&comment=366292)
 - [Alone in the Dark &lpar;2005&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.2GB &amp; 1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180074-alone-in-the-dark-2005-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-22gb-1gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=366291)
 - [Cleanskin &lpar;2012&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 950MB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180073-cleanskin-2012-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-24gb-950mb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=366290)
 - [The Deep Web: Murdershow &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180085-the-deep-web-murdershow-2023-hd-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-telugu-hindi-eng-2gb-1gb-x264-tam-tel-hin-400mb/&do=findComment&comment=366289)
 - [Siva Manasula Sakthi &lpar;2009&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 8.8GB - 2.5GB - 1.6GB &amp; 1.2GB] - [x264 - 700MB - 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179937-siva-manasula-sakthi-2009-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-88gb-25gb-16gb-12gb-x264-700mb-400mb/&do=findComment&comment=366288)
-- [ANNAYYA &lpar;2000&rpar; Telugu HQ HDTV-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 4.5GB &amp; 2.9GB]](https://www.1tamilmv.eu/index.php?/forums/topic/178944-annayya-2000-telugu-hq-hdtv-dl-1080p-720p-avc-aac-20-45gb-29gb/&do=findComment&comment=366286)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
