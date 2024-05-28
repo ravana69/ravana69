@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Forbidden Zone &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Chi&rpar; - 1.8GB &amp; 950MB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180072-forbidden-zone-2023-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-chi-18gb-950mb-x264-tamil-telugu-hindi-400mb-esub/&do=findComment&comment=366242)
 - [Panchayat &lpar;2024&rpar; S03 EP&lpar;01-08&rpar; Hindi TRUE WEB-DL - [2160p - 1080p - 720p &amp; 360p - AVC - &lpar;DD+5.1 - 192Kbps&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/180071-panchayat-2024-s03-ep01-08-hindi-true-web-dl-2160p-1080p-720p-360p-avc-dd51-192kbps/&do=findComment&comment=366241)
 - [Chen.Zhen.The.Tokyo.Fight.2019 &lpar;&lpar;Hindi , Tamil, Telegu , Chinese&rpar;&rpar;.1080p, 720p .AMZN.WEB-DL.MULTI](https://www.1tamilmv.eu/index.php?/forums/topic/180070-chenzhenthetokyofight2019-hindi-tamil-telegu-chinese1080p-720p-amznweb-dlmulti/&do=findComment&comment=366240)
 - [Panchayat &lpar;2024&rpar; S03 EP&lpar;01-08&rpar; Hindi TRUE WEB-DL - [1080p - 720p &amp; 360p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 5.4GB - 2.1GB &amp; 750MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180069-panchayat-2024-s03-ep01-08-hindi-true-web-dl-1080p-720p-360p-avc-dd51-192kbps-54gb-21gb-750mb-esub/&do=findComment&comment=366239)
 - [Panchayat &lpar;2024&rpar; S03 EP&lpar;01-08&rpar; Hindi TRUE WEB-DL - [1080p - 720p &amp; 360p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 5.4GB - 2.1GB &amp; 750MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180069-panchayat-2024-s03-ep01-08-hindi-true-web-dl-1080p-720p-360p-avc-dd51-192kbps-54gb-21gb-750mb-esub/&do=findComment&comment=366238)
-- [Panchayat &lpar;2024&rpar; S03 EP&lpar;01-08&rpar; Hindi TRUE WEB-DL - [1080p - 720p &amp; 360p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 5.4GB - 2.1GB &amp; 750MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180069-panchayat-2024-s03-ep01-08-hindi-true-web-dl-1080p-720p-360p-avc-dd51-192kbps-54gb-21gb-750mb-esub/&do=findComment&comment=366237)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
