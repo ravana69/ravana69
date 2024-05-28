@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന May 29 # Athiravile Prarthana 29th of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=uJkQqjc8zEs)
+- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=ZflHdomJeps)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 29th of May 2024](https://www.youtube.com/watch?v=uYK8UMpjkrE)
 - [പ്രിയകവി ഓ എൻ വിയുടെ ഗാനങ്ങൾ | കെ ജെ യേശുദാസ് | കെ എസ് ചിത്ര | O N V | Remastered movie songs](https://www.youtube.com/watch?v=IzOxxYv-ELA)
 - [Ozhukukayaayi Puzha Pole | Achanurangaatha Veedu |  Vayalar Sarathchandra Varma | #SongOfTheDay](https://www.youtube.com/watch?v=zmFk-0rdoi4)
 - [Songs Of The Week | Chithra Arun | Christian Superhit Songs | Joji Johns | Christian Songs Malayalam](https://www.youtube.com/watch?v=I21pEjXm4OQ)
-- [Bhaskar Oru Rascal Video Jukebox  | Sreya Goshal | Sreya Jayadeep | Amala Paul | Aravind Swami](https://www.youtube.com/watch?v=IbfdUEZtDlQ)
-- [നിൻ തിരുസുതനെ കുരിശിലേറ്റിയ നിൻമക്കളോടു നീ പൊറുക്കേണമേ](https://www.youtube.com/watch?v=7kn2esfpT4M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
