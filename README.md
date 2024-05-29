@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [En Piryane | Christian Video SOng | Benny Abraham | Praise and Worship Songs | Christian Songs](https://www.youtube.com/watch?v=jZ0GffLZe2I)
+- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 29th May 2024 # Vanakkamasam Prayer May 29 # Japamala](https://www.youtube.com/watch?v=NO79Znex5vg)
+- [അനശ്വരസൂപ്പർഹിറ് ഗാനങ്ങൾ kester top christian songs | superhit christian devotional songs](https://www.youtube.com/watch?v=ddoL6nREUpM)
+- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kripasanam mother mary songs non stop 29th May](https://www.youtube.com/watch?v=4wIOPOvYnmI)
+- [ഇന്ന് മെയ് 29 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala mahima](https://www.youtube.com/watch?v=kHKBzRhKfEI)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=TNAFUy2sMdY)
-- [രാവിലെ പ്രാര്‍ത്ഥന May 29 # Athiravile Prarthana 29th of May 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=uJkQqjc8zEs)
-- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=ZflHdomJeps)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 29th of May 2024](https://www.youtube.com/watch?v=uYK8UMpjkrE)
-- [പ്രിയകവി ഓ എൻ വിയുടെ ഗാനങ്ങൾ | കെ ജെ യേശുദാസ് | കെ എസ് ചിത്ര | O N V | Remastered movie songs](https://www.youtube.com/watch?v=IzOxxYv-ELA)
-- [Ozhukukayaayi Puzha Pole | Achanurangaatha Veedu |  Vayalar Sarathchandra Varma | #SongOfTheDay](https://www.youtube.com/watch?v=zmFk-0rdoi4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
