@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Parannu Vannoru Video Song | Swapnam Kondu Thulabharam | Suresh Gopi | Kunchacko Boban | Ouseppachan](https://www.youtube.com/watch?v=ctazx6Jza_c)
+- [മാണിക്യക്കുയിലെ നീ കാണാത്ത കാടുണ്ടോ ! | Thudarkadha | Maathu | Saikumar](https://www.youtube.com/watch?v=VM-C2GwmQ_c)
+- [കേൾക്കാൻ കൊതിക്കുന്ന തൊണ്ണൂറുകളിലെ മനം മയക്കുന്ന ചലച്ചിത്ര ഗാനങ്ങൾ| EVERGREEN SONGS MALAYALAM](https://www.youtube.com/watch?v=jHEQjj-U3LY)
+- [Manikyakkuyile Nee  | Thudarkadha (1991) | ONV Kurupp |SP Venkitesh | Malayalam Romantic Song](https://www.youtube.com/watch?v=wAlCAkF5Svw)
+- [KODANUKODI PAPAM MARANNENE #shorts #frshajithumpechirayil #holybible #daleema](https://www.youtube.com/watch?v=x_S40gV5q-I)
 - [Lallalam Chollunna | Mohanlal | Kanaka | KJ Yesudas | Bichu Thirumala | S Balakrishnan](https://www.youtube.com/watch?v=Qzqank5yDas)
-- [Abad foods #foodlover #ytshortsvideos #youtubeshorts #](https://www.youtube.com/watch?v=2Zw8JQa6rDI)
-- [Abad foods #foodlover #ytshortsvideos #youtubeshorts #](https://www.youtube.com/watch?v=NShaQM7QeR0)
-- [Vadakkan Kathrika | Folk Song Cover | Kalleli Apooppan | Amrutha Sudheesh  | Band KAAVA](https://www.youtube.com/watch?v=8RdX0ohyFEM)
-- [Prem Nazir Old Superhit Movie Song l Agni Pareeksha Movie | Sathyan, Sheela, Sharada](https://www.youtube.com/watch?v=NSvuTyGxjBM)
-- [Aathira Varavaayi Video Song  | HD | Thudarkadha Movie Song | REMASTERED |](https://www.youtube.com/watch?v=j_Vvi2Diejw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
