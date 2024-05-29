@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Abad foods #foodlover #ytshortsvideos #youtubeshorts #](https://www.youtube.com/watch?v=NShaQM7QeR0)
+- [Vadakkan Kathrika | Folk Song Cover | Kalleli Apooppan | Amrutha Sudheesh  | Band KAAVA](https://www.youtube.com/watch?v=8RdX0ohyFEM)
 - [Prem Nazir Old Superhit Movie Song l Agni Pareeksha Movie | Sathyan, Sheela, Sharada](https://www.youtube.com/watch?v=NSvuTyGxjBM)
 - [Aathira Varavaayi Video Song  | HD | Thudarkadha Movie Song | REMASTERED |](https://www.youtube.com/watch?v=j_Vvi2Diejw)
 - [Enundodee | Celluloid |  Folk Film Songs #sitharakrishnakumar #shortsfeed #shorts #reels #prithviraj](https://www.youtube.com/watch?v=MBSenQoW52s)
 - [En Piryane | Christian Video SOng | Benny Abraham | Praise and Worship Songs | Christian Songs](https://www.youtube.com/watch?v=jZ0GffLZe2I)
-- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 29th May 2024 # Vanakkamasam Prayer May 29 # Japamala](https://www.youtube.com/watch?v=NO79Znex5vg)
-- [അനശ്വരസൂപ്പർഹിറ് ഗാനങ്ങൾ kester top christian songs | superhit christian devotional songs](https://www.youtube.com/watch?v=ddoL6nREUpM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
