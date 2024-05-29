@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Lallalam Chollunna | Mohanlal | Kanaka | KJ Yesudas | Bichu Thirumala | S Balakrishnan](https://www.youtube.com/watch?v=Qzqank5yDas)
+- [Abad foods #foodlover #ytshortsvideos #youtubeshorts #](https://www.youtube.com/watch?v=2Zw8JQa6rDI)
 - [Abad foods #foodlover #ytshortsvideos #youtubeshorts #](https://www.youtube.com/watch?v=NShaQM7QeR0)
 - [Vadakkan Kathrika | Folk Song Cover | Kalleli Apooppan | Amrutha Sudheesh  | Band KAAVA](https://www.youtube.com/watch?v=8RdX0ohyFEM)
 - [Prem Nazir Old Superhit Movie Song l Agni Pareeksha Movie | Sathyan, Sheela, Sharada](https://www.youtube.com/watch?v=NSvuTyGxjBM)
 - [Aathira Varavaayi Video Song  | HD | Thudarkadha Movie Song | REMASTERED |](https://www.youtube.com/watch?v=j_Vvi2Diejw)
-- [Enundodee | Celluloid |  Folk Film Songs #sitharakrishnakumar #shortsfeed #shorts #reels #prithviraj](https://www.youtube.com/watch?v=MBSenQoW52s)
-- [En Piryane | Christian Video SOng | Benny Abraham | Praise and Worship Songs | Christian Songs](https://www.youtube.com/watch?v=jZ0GffLZe2I)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
