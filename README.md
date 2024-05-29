@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kukkukkoo Kurumbe | Anyar | Sreeram | Sujatha Mohan | Mohan Sithara | Kavalam Narayana Panicker](https://www.youtube.com/watch?v=CgJA0q5iC3E)
+- [Vibe For K For Krishna Join Your Hands| Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=175na_cVpMQ)
+- [Nellum Kalayum Feat. John Britto Augustin, Ishika Prasad,  M D Raghunath](https://www.youtube.com/watch?v=QTqL_mVufDw)
+- [Abad foods #foodlover #ytshortsvideos #youtubeshorts](https://www.youtube.com/watch?v=K-yqOEiuCN0)
 - [Abad foods #foodlover #ytshortsvideos #youtubeshorts](https://www.youtube.com/watch?v=ZFboIGcVnnY)
 - [സങ്കടങ്ങൾ ഏറ്റെടുക്കുന്ന ഗാനങ്ങൾ | KESTER SONGS #KESTERHITS](https://www.youtube.com/watch?v=N2EoqsVxsW0)
-- [വേമ്പനാട്ടു കായലിനു ചാഞ്ചാട്ടം... | Randulokam | Prem Nazir | Jayabharathi](https://www.youtube.com/watch?v=3r-_I0WaUmI)
-- [Abad foods #foodlover #ytshortsvideos #youtubeshorts #](https://www.youtube.com/watch?v=6ugoTjU7hA8)
-- [Parannu Vannoru Video Song | Swapnam Kondu Thulabharam | Suresh Gopi | Kunchacko Boban | Ouseppachan](https://www.youtube.com/watch?v=ctazx6Jza_c)
-- [മാണിക്യക്കുയിലെ നീ കാണാത്ത കാടുണ്ടോ ! | Thudarkadha | Maathu | Saikumar](https://www.youtube.com/watch?v=VM-C2GwmQ_c)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
