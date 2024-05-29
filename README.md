@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Salt &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 348Kbps&rpar; - 2.2GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180106-salt-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-348kbps-22gb-13gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=366329)
+- [JL50 &lpar;2020&rpar; S01 EP &lpar;01-04&rpar; TRUE WEB-DL - [1080p, 720p - &lpar;Tamil + Telugu + Malayalam + Kannada + Hindi&rpar; - 1.8GB - 1.1GB - 700MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/115843-jl50-2020-s01-ep-01-04-true-web-dl-1080p-720p-tamil-telugu-malayalam-kannada-hindi-18gb-11gb-700mb-450mb-250mb-esub/&do=findComment&comment=366333)
+- [Uppu Puli Kaaram &lpar;2024&rpar; S01 EP&lpar;01-04&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 5GB - 2.3GB &amp; 850MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180109-uppu-puli-kaaram-2024-s01-ep01-04-tamil-true-web-dl-1080p-720p-avc-dd51-192kbps-5gb-23gb-850mb-esub/&do=findComment&comment=366332)
+- [Salt &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 348Kbps&rpar; - 2.1GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180106-salt-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-348kbps-21gb-13gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=366329)
 - [110 Tamil Movies - 1080p / 4K - SUN NXT / AMZN / SS / TK / AHA / JC / ZEE5 WEB DL - H.264 - DD5.1 / DDP2.0 / AAC - Esub - 650GB [Gdrive]](https://www.1tamilmv.eu/index.php?/forums/topic/164117-110-tamil-movies-1080p-4k-sun-nxt-amzn-ss-tk-aha-jc-zee5-web-dl-h264-dd51-ddp20-aac-esub-650gb-gdrive/&do=findComment&comment=366328)
 - [Dark.Figure.of.Crime.2018.[Hindi, Tamil, Telugu, Korean] 1080p, 720p .AMZN.WEB-DL.MULTI.DDP2.0](https://www.1tamilmv.eu/index.php?/forums/topic/180105-darkfigureofcrime2018hindi-tamil-telugu-korean-1080p-720p-amznweb-dlmultiddp20/&do=findComment&comment=366327)
-- [Thambi &lpar;2006&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 2.3GB - UE](https://www.1tamilmv.eu/index.php?/forums/topic/180100-thambi-2006-tamil-true-web-dl-1080p-avc-untouched-aac20-23gb-ue/&do=findComment&comment=366326)
-- [Siva Manasula Sakthi &lpar;2009&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 8.8GB - 2.5GB - 1.6GB &amp; 1.2GB] - [x264 - 700MB - 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179937-siva-manasula-sakthi-2009-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-88gb-25gb-16gb-12gb-x264-700mb-400mb/&do=findComment&comment=366325)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
