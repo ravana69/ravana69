@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Indrajala Nilaviloode - Making Video | Monica: Oru AI Story | Yunuseo | Najim Arshad](https://www.youtube.com/watch?v=N_l_0KiRE8A)
 - [Kanna En Kanave - Lyrical | Gu | Shweta Mohan | Jonathan Bruce | Manu Radhakrishnan](https://www.youtube.com/watch?v=1VON4SbV8lU)
 - [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=jxR-FQ9gZcE)
 - [Dance to The Beats Of #Vatteppam with #anarkalimarikar #Mandakini | Dabzee #shorts #ytshorts](https://www.youtube.com/watch?v=jdKZhCbYEv8)
 - [മനസ്സിലാക്കപെടാതെ പോകുന്നതാണ് ഈ ലോകത്തിലെ ഏറ്റവും വലിയ സങ്കടം |😇 | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=d7WAJ0uvfEk)
 - [Abad foods #foodlover #ytshortsvideos #youtubeshorts](https://www.youtube.com/watch?v=XnDRwdA88fA)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 29th of May 2024](https://www.youtube.com/watch?v=Ec4S1JywMSc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
