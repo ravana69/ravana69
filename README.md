@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Project Z &lpar;2017&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+2.0 - 224Kbps&rpar; - 2.7GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180102-project-z-2017-telugu-true-web-dl-1080p-720p-avc-dd20-224kbps-27gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=366322)
 - [Moondram Pirai &lpar;1982&rpar; Tamil HDTV - 720p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 1.5GB - UE](https://www.1tamilmv.eu/index.php?/forums/topic/180101-moondram-pirai-1982-tamil-hdtv-720p-avc-untouched-aac20-15gb-ue/&do=findComment&comment=366321)
 - [Thambi &lpar;2006&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 2.3GB - UE](https://www.1tamilmv.eu/index.php?/forums/topic/180100-thambi-2006-tamil-true-web-dl-1080p-avc-untouched-aac20-23gb-ue/&do=findComment&comment=366320)
 - [Final Destination &lpar;2000 - 2011&rpar; BDRip - 1080p - x264 - [Tamil + Telugu + Hindi + Eng] - Esub - 8.5GB](https://www.1tamilmv.eu/index.php?/forums/topic/145667-final-destination-2000-2011-bdrip-1080p-x264-tamil-telugu-hindi-eng-esub-85gb/&do=findComment&comment=366319)
 - [Siva Manasula Sakthi &lpar;2009&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 8.8GB - 2.5GB - 1.6GB &amp; 1.2GB] - [x264 - 700MB - 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179937-siva-manasula-sakthi-2009-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-88gb-25gb-16gb-12gb-x264-700mb-400mb/&do=findComment&comment=366318)
-- [Sriranga Neethulu &lpar;2024&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.8GB - 1GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180094-sriranga-neethulu-2024-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-28gb-1gb-900mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=366317)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
