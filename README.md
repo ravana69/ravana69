@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Aradhana &lpar;1987&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180067-aradhana-1987-telugu-dvd9-untouched-480p-dd51-448kbps-7gb-esub/&do=findComment&comment=366302)
+- [Sriranga Neethulu &lpar;2024&rpar; Telugu TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2.8GB - 1GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180094-sriranga-neethulu-2024-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-28gb-1gb-900mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=366301)
 - [Praveen Ips &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - HC-ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179962-praveen-ips-2024-telugu-true-web-dl-1080p-720p-avc-26gb-14gb-850mb-x264-700mb-400mb-hc-esub/&do=findComment&comment=366300)
 - [Dark Figure Of Crime &lpar;2018&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Kor&rpar; - 2.2GB &amp; 1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180093-dark-figure-of-crime-2018-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-kor-22gb-1gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=366299)
 - [Godzilla Minus One &lpar;2023&rpar; [1080p AMZN WEB-DL H265 Japanese DDP 5.1](https://www.1tamilmv.eu/index.php?/forums/topic/180092-godzilla-minus-one-2023-1080p-amzn-web-dl-h265-japanese-ddp-51/&do=findComment&comment=366298)
-- [Kabir.Singh.2019.1080p.NF.WEB-DL.DDP5.1](https://www.1tamilmv.eu/index.php?/forums/topic/180091-%C2%A0kabirsingh20191080pnfweb-dlddp51/&do=findComment&comment=366297)
-- [Illegal &lpar;2024&rpar; S03 EP&lpar;01-08&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Kannada]](https://www.1tamilmv.eu/index.php?/forums/topic/180090-illegal-2024-s03-ep01-08-true-web-dl-1080p-720p-avc-aac-20-tamil-telugu-hindi-kannada/&do=findComment&comment=366296)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
