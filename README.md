@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Rakathakannerozhukki......#sujatha #christiandevotionalsongsmalayalam #mariyansongs #jojijohns](https://www.youtube.com/watch?v=jyooeOcfs2U)
+- [Mandakini - Ganapathi Character Teaser | Altaf Salim | Anarkali Marikar | Vinod Leela | Bibin Ashok](https://www.youtube.com/watch?v=l4oRZNtd8DE)
+- [Now Vibe With Your Krishna | Guruvayoorambala Nadayil | Prithviraj | Basil | Aju | Ankit | #ytshorts](https://www.youtube.com/watch?v=1KvaUt9iIto)
 - [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=yLVPl3RmEpo)
 - [Unaroo Oru Kumbil Ponnum | Chandamama | MG Sreekumar | Ouseppachan | Kaithapram](https://www.youtube.com/watch?v=gUyjyi9713M)
 - [സ്നേഹം ദീർഘമായി ക്ഷമിക്കുന്നു 😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=RRQirZdoe8w)
-- [MARIYATHODOPPAM EESHOYE NAMMAL | Fr. SHAJI THUMPECHIRAYIL | IMMANUEL ALOYSIOUS | SCARIA JACOB](https://www.youtube.com/watch?v=Q5UvlTPZcg4)
-- [Kunu kune Video Song | Yodha | KJ Yesudas | AR Rahman | Sujatha Mohan](https://www.youtube.com/watch?v=71L6yC24O_I)
-- [Thalam Maranna Tharattu | Pranamam | Super Hit Malayalam Movie Song | Ashokan | Suhasini - MG Hits](https://www.youtube.com/watch?v=VYriWqKZ9vk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
