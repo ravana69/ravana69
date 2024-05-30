@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Creatures &lpar;2021&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Eng&rpar; - 1.9GB &amp; 1GB | x264 - &lpar;Tamil + Telugu&rpar; - 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179940-creatures-2021-bluray-original-audios-1080p-720p-x264-tamil-telugu-eng-19gb-1gb-x264-tamil-telugu-400mb-esub/&do=findComment&comment=366391)
 - [Tarot &lpar;2024&rpar; 1080p 10bit WEBRip x265 HEVC [Org AMZN Hindi DDP5.1 + English HE-AAC5.1]](https://www.1tamilmv.eu/index.php?/forums/topic/180132-tarot-2024-1080p-10bit-webrip-x265-hevc-org-amzn-hindi-ddp51-english-he-aac51/&do=findComment&comment=366390)
 - [Geek Girl &lpar;2024&rpar; S01 EP &lpar;01-10&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng]](https://www.1tamilmv.eu/index.php?/forums/topic/180131-geek-girl-2024-s01-ep-01-10-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng/&do=findComment&comment=366389)
 - [Die.Hart.Die.Harter.2024.2160p, 1080p, 720p .AMZN.WEB-DL.DUAL.DDP5.1.HDR](https://www.1tamilmv.eu/index.php?/forums/topic/180130-diehartdieharter20242160p-1080p-720p-amznweb-dldualddp51hdr/&do=findComment&comment=366388)
 - [Eric.S01.1080p, 720p .NF.WEB-DL.DUAL.DDP5.1](https://www.1tamilmv.eu/index.php?/forums/topic/180129-erics011080p-720p-nfweb-dldualddp51/&do=findComment&comment=366387)
-- [6 Telugu Movies Collection - ETV WEB DL 720p HD x264 AVC 10GB](https://www.1tamilmv.eu/index.php?/forums/topic/125098-6-telugu-movies-collection-etv-web-dl-720p-hd-x264-avc-10gb/&do=findComment&comment=366386)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
