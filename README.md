@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Love Life &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 256Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Jap&rpar; - 2.9GB &amp; 1.7GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180127-love-life-2022-bluray-original-audios-1080p-720p-x264-dd51-256kbps-tamil-telugu-hindi-jap-29gb-17gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=366383)
 - [Tarot &lpar;2024&rpar; TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - [English + Hindi] - 3.2GB - 1GB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180123-tarot-2024-true-web-dl-1080p-720p-x264-dd51-640kbps-english-hindi-32gb-1gb-400mb-esub/&do=findComment&comment=366382)
 - [Manmadhan &lpar;2004&rpar; UPSCALED - Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - AAC2.0&lpar;128kbps&rpar; - 6GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180128-manmadhan-2004-upscaled-tamil-true-web-dl-1080p-720p-avc-untouched-aac20128kbps-6gb-55gb-27gb-14gb-x264-700mb-400mb-gdrive/&do=findComment&comment=366381)
 - [Love Life &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 256Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Jap&rpar; - 2.9GB &amp; 1.7GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180127-love-life-2022-bluray-original-audios-1080p-720p-x264-dd51-256kbps-tamil-telugu-hindi-jap-29gb-17gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=366380)
 - [Panchayat &lpar;2020&rpar; Complete Season &lpar;01-03&rpar; Merged Hindi TRUE WEB-DL - [1080p - 720p &amp; 360p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 5.4GB - 2.1GB &amp; 750MB] - ESub [Google Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/180126-panchayat-2020-complete-season-01-03-merged-hindi-true-web-dl-1080p-720p-360p-avc-dd51-192kbps-54gb-21gb-750mb-esub-google-drive/&do=findComment&comment=366379)
-- [Sarkaar &lpar;2024&rpar; S04 EP06 Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.4GB &amp; 1GB] - [x264 - 600MB] - [Google Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/180116-sarkaar-2024-s04-ep06-telugu-true-web-dl-1080p-720p-avc-aac-20-14gb-1gb-x264-600mb-google-drive/&do=findComment&comment=366378)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
