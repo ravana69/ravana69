@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Die Hart 2: Die Harter &lpar;2024&rpar; TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - [English + Hindi] - 2.3GB &amp; 1GB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180118-die-hart-2-die-harter-2024-true-web-dl-1080p-720p-x264-dd51-640kbps-english-hindi-23gb-1gb-esub/&do=findComment&comment=366365)
-- [Raksha &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.4GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180113-raksha-2008-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-64gb-esub/&do=findComment&comment=366364)
-- [Goli Soda &lpar;2014&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 2.6GB - UE](https://www.1tamilmv.eu/index.php?/forums/topic/180120-goli-soda-2014-tamil-true-web-dl-1080p-avc-untouched-aac20-26gb-ue/&do=findComment&comment=366363)
-- [Sarkaar &lpar;2024&rpar; S04 EP06 Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.4GB &amp; 1GB] - [x264 - 600MB] - [Google Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/180116-sarkaar-2024-s04-ep06-telugu-true-web-dl-1080p-720p-avc-aac-20-14gb-1gb-x264-600mb-google-drive/&do=findComment&comment=366362)
-- [Die Hart 2: Die Harter &lpar;2024&rpar; TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - [English + Hindi] - 2.3GB &amp; 1GB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180118-die-hart-2-die-harter-2024-true-web-dl-1080p-720p-x264-dd51-640kbps-english-hindi-23gb-1gb-esub/&do=findComment&comment=366360)
+- [Eric &lpar;2024&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 6.5GB - 1.8GB &amp; 1GB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180117-eric-2024-s01-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-65gb-18gb-1gb-esub/&do=findComment&comment=366370)
+- [Geek Girl &lpar;2024&rpar; S01 EP &lpar;01-10&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 7GB - 1.8GB &amp; 1GB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180119-geek-girl-2024-s01-ep-01-10-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-7gb-18gb-1gb-esub/&do=findComment&comment=366369)
+- [Raksha &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.4GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180113-raksha-2008-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-64gb-esub/&do=findComment&comment=366368)
+- [Psycho &lpar;2020&rpar; Tamil - SS WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;192kbps&rpar; - 2.8GB &amp; 1.5GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180121-psycho-2020-tamil-ss-web-dl-1080p-720p-avc-untouched-dd51192kbps-28gb-15gb-gdrive/&do=findComment&comment=366367)
+- [Geethanjali &lpar;2014&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.5GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179002-geethanjali-2014-telugu-dvd9-untouched-480p-dd51-448kbps-65gb-esub/&do=findComment&comment=366366)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
