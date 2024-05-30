@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Israyelin# audiosong# christiandevotionalsong# malayalamchristiandevotionalsong# jesussong#](https://www.youtube.com/watch?v=3xGghLhUmaI)
-- [Israyelinnadhanayi# albumsong# superhitchristiandevotionalsongmalayalam #audiosong](https://www.youtube.com/watch?v=KWPPgRpzfXg)
-- [Kayale | Lyrical Video | Thottappan | Sithara Krishnakumar | Ajeesh Dasan | Leela Girish Kuttan](https://www.youtube.com/watch?v=ycE9JfpeAd0)
-- [Prabhathathil | Malayalam Christian Devotional Songs | Super Hit Christian Devotional Songs](https://www.youtube.com/watch?v=5nKo0bAYP6U)
-- [മലയാളസിനിമയിൽ  പാട്ടിന്റെ പെരുമഴ തീർത്ത അത്യുഗ്രൻ ഗാനങ്ങൾ | SUPERHIT EVERGREEN SONGS MALAYALAM](https://www.youtube.com/watch?v=OJ4J2hL3Cwo)
-- [മഴയത്ത് കേൾക്കാൻ കൊതിക്കുന്ന അനുഭൂതി പകരും സൂപ്പർഹിറ്റ് ഗാനങ്ങൾ | MAZHA SONGS MALAYALAM | MW MUSIC](https://www.youtube.com/watch?v=CJehZ8xbg04)
+- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=yLVPl3RmEpo)
+- [Unaroo Oru Kumbil Ponnum | Chandamama | MG Sreekumar | Ouseppachan | Kaithapram](https://www.youtube.com/watch?v=gUyjyi9713M)
+- [സ്നേഹം ദീർഘമായി ക്ഷമിക്കുന്നു 😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=RRQirZdoe8w)
+- [MARIYATHODOPPAM EESHOYE NAMMAL | Fr. SHAJI THUMPECHIRAYIL | IMMANUEL ALOYSIOUS | SCARIA JACOB](https://www.youtube.com/watch?v=Q5UvlTPZcg4)
+- [Kunu kune Video Song | Yodha | KJ Yesudas | AR Rahman | Sujatha Mohan](https://www.youtube.com/watch?v=71L6yC24O_I)
+- [Thalam Maranna Tharattu | Pranamam | Super Hit Malayalam Movie Song | Ashokan | Suhasini - MG Hits](https://www.youtube.com/watch?v=VYriWqKZ9vk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
