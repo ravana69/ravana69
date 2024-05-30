@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Sarkaar &lpar;2024&rpar; S04 EP06 Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.4GB &amp; 1GB] - [x264 - 600MB] - [Google Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/180116-sarkaar-2024-s04-ep06-telugu-true-web-dl-1080p-720p-avc-aac-20-14gb-1gb-x264-600mb-google-drive/&do=findComment&comment=366362)
+- [Die Hart 2: Die Harter &lpar;2024&rpar; TRUE WEB-DL - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - [English + Hindi] - 2.3GB &amp; 1GB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180118-die-hart-2-die-harter-2024-true-web-dl-1080p-720p-x264-dd51-640kbps-english-hindi-23gb-1gb-esub/&do=findComment&comment=366360)
 - [Resident Evil Hexalogy &lpar;2002 to 2016&rpar; [2160p 4K BDRip &amp; 1080p Open Matte WEBDL]  Multi Original &lpar;DD5.1&rpar; Audios - [Tamil + Telugu + Hindi + English] - ESubs](https://www.1tamilmv.eu/index.php?/forums/topic/179847-resident-evil-hexalogy-2002-to-2016-2160p-4k-bdrip-1080p-open-matte-webdl-multi-original-dd51-audios-tamil-telugu-hindi-english-esubs/&do=findComment&comment=366358)
 - [Sarkaar &lpar;2024&rpar; S04 EP06 Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.4GB &amp; 1GB] - [x264 - 600MB] - [Google Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/180116-sarkaar-2024-s04-ep06-telugu-true-web-dl-1080p-720p-avc-aac-20-14gb-1gb-x264-600mb-google-drive/&do=findComment&comment=366357)
 - [Keechurallu &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.1GB &amp; 1.1GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180108-keechurallu-2024-telugu-true-web-dl-1080p-720p-avc-aac-20-21gb-11gb-x264-700mb-400mb/&do=findComment&comment=366356)
-- [Ramanna Youth &lpar;2023&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.1GB &amp; 1.1GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180107-ramanna-youth-2023-telugu-true-web-dl-1080p-720p-avc-aac-20-21gb-11gb-x264-700mb-400mb/&do=findComment&comment=366355)
-- [Sarkaar &lpar;2024&rpar; S04 EP06 Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.4GB &amp; 1GB] - [x264 - 600MB] - [Google Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/180116-sarkaar-2024-s04-ep06-telugu-true-web-dl-1080p-720p-avc-aac-20-14gb-1gb-x264-600mb-google-drive/&do=findComment&comment=366354)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
