@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Love Life &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 256Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Jap&rpar; - 2.9GB &amp; 1.7GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180127-love-life-2022-bluray-original-audios-1080p-720p-x264-dd51-256kbps-tamil-telugu-hindi-jap-29gb-17gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=366398)
+- [Oru Nodi &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180133-oru-nodi-2024-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-28gb-13gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=366397)
+- [Custody &lpar;2023&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD 5.1 - 384Kbps&rpar; - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180137-custody-2023-hindi-true-web-dl-1080p-720p-avc-dd-51-384kbps-29gb-14gb-x264-700mb-400mb/&do=findComment&comment=366396)
 - [House Of Lies &lpar;2024&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180136-house-of-lies%C2%A02024-hindi-true-web-dl-1080p-720p-avc-dd51-192kbps-1gb-x264-700mb-400mb-esub/&do=findComment&comment=366395)
 - [Dedh Bigha Zameen &lpar;2024&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.9GB &amp; 1GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180135-dedh-bigha-zameen-2024-hindi-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-29gb-1gb-x264-700mb-400mb/&do=findComment&comment=366394)
-- [Creatures &lpar;2021&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Eng&rpar; - 1.9GB &amp; 1GB | x264 - &lpar;Tamil + Telugu&rpar; - 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179940-creatures-2021-bluray-original-audios-1080p-720p-x264-tamil-telugu-eng-19gb-1gb-x264-tamil-telugu-400mb-esub/&do=findComment&comment=366391)
-- [Tarot &lpar;2024&rpar; 1080p 10bit WEBRip x265 HEVC [Org AMZN Hindi DDP5.1 + English HE-AAC5.1]](https://www.1tamilmv.eu/index.php?/forums/topic/180132-tarot-2024-1080p-10bit-webrip-x265-hevc-org-amzn-hindi-ddp51-english-he-aac51/&do=findComment&comment=366390)
-- [Geek Girl &lpar;2024&rpar; S01 EP &lpar;01-10&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng]](https://www.1tamilmv.eu/index.php?/forums/topic/180131-geek-girl-2024-s01-ep-01-10-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng/&do=findComment&comment=366389)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
