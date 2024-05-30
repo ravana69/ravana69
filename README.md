@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Campus Film Songs | Jukebox | സൂപ്പർ ഹിറ്റ് ക്യാമ്പസ് സിനിമാഗാനങ്ങൾ](https://www.youtube.com/watch?v=X2oyvp9VKmw)
 - [NEW  BEAUTIFUL PRAISING HINDI SONG 🎶 Releasing tomorrow | @MeghnaSumesh@HindiChristianson100#shorts](https://www.youtube.com/watch?v=JZGYUbr9uzQ)
 - [Sathyan Old Superhit Movie Song l Mooladhanam  Movie | Prem Nazir, Sharada,](https://www.youtube.com/watch?v=zW1Pqtiuku4)
 - [Nadiye Nile Nadiye | Runway | Dileep | Kavya | Suresh Peters | Sujatha Mohan | Vidhu Prathap](https://www.youtube.com/watch?v=pE4Qj5p5zsA)
 - [Madhavettanennum | Oru Marubhoomi Kadha #mohanlal #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=bvH_RPHNi74)
 - [ദേവാലയങ്ങളിൽ ഇപ്പോൾ പാടുന്ന ഗാനങ്ങൾ | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=Y_I0rWVxBro)
-- [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 30th May 2024 # Vanakkamasam Prayer May 30 # Japamala](https://www.youtube.com/watch?v=JrllSJhgNDQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
