@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Petta &lpar;2019&rpar; Tamil - SUNNXT WEB-DL - 4K , 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - DD+5.1&lpar;448kbps&rpar; Atmos - 17.7GB - 15.9GB - 15GB - 13.9GB - 9.5GB - 5.6GB - 3.9GB - 2.9GB - 2.4GB &amp; 1.5GB - ESub [DOLBY VISION + HDR10+ + SDR VERSION] [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180122-petta-2019-tamil-sunnxt-web-dl-4k-1080p-720p-avc-hevc-untouched-dd51448kbps-atmos-177gb-159gb-15gb-139gb-95gb-56gb-39gb-29gb-24gb-15gb-esub-dolby-vision-hdr10-sdr-version-gdrive/&do=findComment&comment=366371)
 - [Eric &lpar;2024&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 6.5GB - 1.8GB &amp; 1GB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180117-eric-2024-s01-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-65gb-18gb-1gb-esub/&do=findComment&comment=366370)
 - [Geek Girl &lpar;2024&rpar; S01 EP &lpar;01-10&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 7GB - 1.8GB &amp; 1GB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180119-geek-girl-2024-s01-ep-01-10-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-7gb-18gb-1gb-esub/&do=findComment&comment=366369)
 - [Raksha &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.4GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180113-raksha-2008-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-64gb-esub/&do=findComment&comment=366368)
 - [Psycho &lpar;2020&rpar; Tamil - SS WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;192kbps&rpar; - 2.8GB &amp; 1.5GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180121-psycho-2020-tamil-ss-web-dl-1080p-720p-avc-untouched-dd51192kbps-28gb-15gb-gdrive/&do=findComment&comment=366367)
-- [Geethanjali &lpar;2014&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.5GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179002-geethanjali-2014-telugu-dvd9-untouched-480p-dd51-448kbps-65gb-esub/&do=findComment&comment=366366)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
