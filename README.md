@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Oru Nodi &lpar;2024&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 11GB - 2.8GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180133-oru-nodi-2024-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-11gb-28gb-13gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=366417)
+- [Prema Desam &lpar;1996&rpar; Telugu HQ HDTV-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 3.6GB &amp; 2.3GB]](https://www.1tamilmv.eu/index.php?/forums/topic/178239-prema-desam-1996-telugu-hq-hdtv-dl-1080p-720p-avc-aac-20-36gb-23gb/&do=findComment&comment=366416)
+- [Mudhalvan &lpar;1999&rpar; Tamil REMASTERED - 1080p - WEB-DL - HEVC - 1.7GB](https://www.1tamilmv.eu/index.php?/forums/topic/180143-mudhalvan-1999-tamil-remastered-1080p-web-dl-hevc-17gb/&do=findComment&comment=366415)
+- [Jagadeka Veerudu Athiloka Sundari &lpar;1990&rpar; Telugu HQ HDTV-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 4.2GB &amp; 2.6GB]](https://www.1tamilmv.eu/index.php?/forums/topic/178891-jagadeka-veerudu-athiloka-sundari-1990-telugu-hq-hdtv-dl-1080p-720p-avc-aac-20-42gb-26gb/&do=findComment&comment=366414)
 - [Soodaana &lpar;From &quot;Pushpa 2: The Rule&quot;&rpar; Master Quality 24bit - FLAC - Devi Sri Prasad Musical - 60 MB](https://www.1tamilmv.eu/index.php?/forums/topic/180142-soodaana-from-pushpa-2-the-rule-master-quality-24bit-flac-devi-sri-prasad-musical-60-mb/&do=findComment&comment=366413)
-- [Oru Nodi &lpar;2024&rpar; TK WEB-DL DD5.1 Esubs - 2160p | 1080p - 10.8 GB | 7.7 GB](https://www.1tamilmv.eu/index.php?/forums/topic/180141-oru-nodi-2024-tk-web-dl-dd51-esubs-2160p-1080p-108-gb-77-gb/&do=findComment&comment=366412)
-- [O2 &lpar;2024&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+2.0 - 224Kbps&rpar; - 1.8GB &amp; 950MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180138-o2-2024-kannada-true-web-dl-1080p-720p-avc-dd20-224kbps-18gb-950mb-x264-700mb-400mb-esub/&do=findComment&comment=366411)
-- [Oru Nodi &lpar;2024&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 11GB - 2.8GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180133-oru-nodi-2024-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-11gb-28gb-13gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=366410)
-- [Bad Manners &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180140-bad-manners-2023-kannada-true-web-dl-1080p-720p-avc-dd51-192kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=366409)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
