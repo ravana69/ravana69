@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Pavi Caretaker - Full Album | Dilieep | Midhun Mukundan | Vineeth kumar](https://www.youtube.com/watch?v=al0TgxW80Ts)
 - [സുന്ദരി നീയും| Michael Madana Kama Rajan Film Song| Kamal Haasan #malayalam #kamalhaasan](https://www.youtube.com/watch?v=mPF-iLP94pM)
 - [Ammakkiliyum Kunjikkiliyum | ACTION SONG | Animation Video | Rajeev Alunkal | Mineesh Thambaan](https://www.youtube.com/watch?v=hlHuVztAZQw)
+- [Abhirami Official Trailer | Gayathri Suresh | Harikrishnan | Mushthaq Rahman](https://www.youtube.com/watch?v=e7X_2k3K9i4)
 - [Jayabharathi Old Superhit Movie Song l Mooladhanam Movie | Sathyan, Sharada, Jayabharathi](https://www.youtube.com/watch?v=Xcj2E7TBnOo)
 - [Vennilakkombile Rappadi | Usthad | Vidyasagar | K J Yesudas | Mohanlal | Divya Unni](https://www.youtube.com/watch?v=YOeVkjFIRYI)
-- [Kattile Kannan | Animation Video #kattilekannan #animation #malayalamcartoon #shorts #shortsfeed](https://www.youtube.com/watch?v=kkqXf45N0rc)
-- [Songs of Faith | Nonstop Malayalam Devotional Songs | Popular Malayalam Christian Songs](https://www.youtube.com/watch?v=_RWu1V5eZQI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
