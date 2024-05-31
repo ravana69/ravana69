@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ololam Veeshunna | Kusruthi Kattu | Gireesh Puthenchery | KJ Yesudas  #SongOfTheDay](https://www.youtube.com/watch?v=lCoBuk2o6DQ)
+- [He Kaale Vettu Kaale | Malsaram | S Ramesan Nair | Kalabhavan Mani | M Jayachandran](https://www.youtube.com/watch?v=ZPSCfb5O2M0)
 - [Bujji Ruling Streets Of Chennai!💥😎 | #Kalki2898AD | #Prabhas | #SanthoshNarayanan #shorts #ytshorts](https://www.youtube.com/watch?v=rgNnK3hI35I)
 - [Malaikottai Vaaliban #Raakk #MalaikottaiVaaliban #Mohanlal #shorts #ytshorts](https://www.youtube.com/watch?v=XTLA5p0MI7w)
 - [Parama Pithavin Sthuthipadam | Binoy Chacko | Praise and Worshi Songs | Christian Melody Songs](https://www.youtube.com/watch?v=YO2vv-oLVZ4)
 - [Amma I love You | Bhaskar The Rascal | Lijosh Vazhapilly | Amresh Ganesh | Shimol Alex  | Neha Alex](https://www.youtube.com/watch?v=3nTBuqpap2Q)
-- [അമ്മ ഐ ലവ് യൂ .. മമ്മി ഐ ലവ് യൂ ... | Bhaskar Oru Rascal | Amala paul | Baby Nainika](https://www.youtube.com/watch?v=2Rke5iYNQas)
-- [ഓരോന്നിനും അതിന്റേതായ ഒരു സമയമുണ്ട്... 😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=ze4Hqq8PNEc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
