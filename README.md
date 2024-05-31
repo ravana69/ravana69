@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Jayabharathi Old Superhit Movie Song l Mooladhanam Movie | Sathyan, Sharada, Jayabharathi](https://www.youtube.com/watch?v=Xcj2E7TBnOo)
+- [Vennilakkombile Rappadi | Usthad | Vidyasagar | K J Yesudas | Mohanlal | Divya Unni](https://www.youtube.com/watch?v=YOeVkjFIRYI)
 - [Kattile Kannan | Animation Video #kattilekannan #animation #malayalamcartoon #shorts #shortsfeed](https://www.youtube.com/watch?v=kkqXf45N0rc)
 - [Songs of Faith | Nonstop Malayalam Devotional Songs | Popular Malayalam Christian Songs](https://www.youtube.com/watch?v=_RWu1V5eZQI)
 - [Songs Of The Week | Kester | Biju Narayanan | Christian Melody Songs | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=PcEav0uYaoM)
 - [മാതാവിന്‍റെ വണക്കമാസവും ജപമാല പ്രാർത്ഥനയും 31st May 2024 # Vanakkamasam Prayer 2024 May 31 Japamala](https://www.youtube.com/watch?v=Ksz1P0ncZgs)
-- [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kripasanam mother mary songs non stop 31st May](https://www.youtube.com/watch?v=UfScxiNXVCw)
-- [ഇന്ന് മെയ് 31 എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  dhukkathin](https://www.youtube.com/watch?v=Fh74bl-9laI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
