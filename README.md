@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Bujji Ruling Streets Of Chennai!💥😎 | #Kalki2898AD | #Prabhas | #SanthoshNarayanan #shorts #ytshorts](https://www.youtube.com/watch?v=rgNnK3hI35I)
+- [Malaikottai Vaaliban #Raakk #MalaikottaiVaaliban #Mohanlal #shorts #ytshorts](https://www.youtube.com/watch?v=XTLA5p0MI7w)
+- [Parama Pithavin Sthuthipadam | Binoy Chacko | Praise and Worshi Songs | Christian Melody Songs](https://www.youtube.com/watch?v=YO2vv-oLVZ4)
+- [Amma I love You | Bhaskar The Rascal | Lijosh Vazhapilly | Amresh Ganesh | Shimol Alex  | Neha Alex](https://www.youtube.com/watch?v=3nTBuqpap2Q)
 - [അമ്മ ഐ ലവ് യൂ .. മമ്മി ഐ ലവ് യൂ ... | Bhaskar Oru Rascal | Amala paul | Baby Nainika](https://www.youtube.com/watch?v=2Rke5iYNQas)
 - [ഓരോന്നിനും അതിന്റേതായ ഒരു സമയമുണ്ട്... 😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=ze4Hqq8PNEc)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 31st of May 2024](https://www.youtube.com/watch?v=TPLpbiq_3cY)
-- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=WRB9LtnsqA4)
-- [Araariraro -Promo Song| BEHINDD|Sudeep Kumar, Shija Jinu|Sonia Agarwal, Jinu E Thomas| SunnyMadhavan](https://www.youtube.com/watch?v=kjKfN90gUY0)
-- [Sreeranjini Swararagini Video Song | Saraswathi Yamam | Malayalam Movie Songs | K J Yesudas](https://www.youtube.com/watch?v=5L71ActnJIM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
