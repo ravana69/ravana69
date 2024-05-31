@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന June 1 # Athiravile Prarthana 1st of June 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=A0cJjS9BgwY)
+- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=CgKNMXYUZs8)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 1st June 2024](https://www.youtube.com/watch?v=XMNVjLiyUT4)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=BpkZN6nOVFI)
 - [പ്രൊമിയോൻ,സെദറാ | Fr. JASTIN P KURIAKOSE | CHOIR : ROY PUTHUR & TEAM #holyqurbana #orthodox](https://www.youtube.com/watch?v=Mo7vnTmVvrI)
 - [വരുവിൻ വരുവിൻ പ്രിയ സ്നേഹിതരേ ഇടയനല്ലാതില്ലഭയം](https://www.youtube.com/watch?v=MAlrW25PJR0)
-- [Ololam Veeshunna | Kusruthi Kattu | Gireesh Puthenchery | KJ Yesudas  #SongOfTheDay](https://www.youtube.com/watch?v=lCoBuk2o6DQ)
-- [He Kaale Vettu Kaale | Malsaram | S Ramesan Nair | Kalabhavan Mani | M Jayachandran](https://www.youtube.com/watch?v=ZPSCfb5O2M0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
