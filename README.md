@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Soodaana &lpar;From &quot;Pushpa 2: The Rule&quot;&rpar; Master Quality 24bit - FLAC - Devi Sri Prasad Musical - 60 MB](https://www.1tamilmv.eu/index.php?/forums/topic/180142-soodaana-from-pushpa-2-the-rule-master-quality-24bit-flac-devi-sri-prasad-musical-60-mb/&do=findComment&comment=366413)
+- [Oru Nodi &lpar;2024&rpar; TK WEB-DL DD5.1 Esubs - 2160p | 1080p - 10.8 GB | 7.7 GB](https://www.1tamilmv.eu/index.php?/forums/topic/180141-oru-nodi-2024-tk-web-dl-dd51-esubs-2160p-1080p-108-gb-77-gb/&do=findComment&comment=366412)
+- [O2 &lpar;2024&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+2.0 - 224Kbps&rpar; - 1.8GB &amp; 950MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180138-o2-2024-kannada-true-web-dl-1080p-720p-avc-dd20-224kbps-18gb-950mb-x264-700mb-400mb-esub/&do=findComment&comment=366411)
 - [Oru Nodi &lpar;2024&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 11GB - 2.8GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180133-oru-nodi-2024-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-11gb-28gb-13gb-800mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=366410)
 - [Bad Manners &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.6GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180140-bad-manners-2023-kannada-true-web-dl-1080p-720p-avc-dd51-192kbps-26gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=366409)
-- [B&amp;B: Bujji &amp; Bhairava &lpar;2024&rpar; S01 EP &lpar;01-02&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Telugu + Hindi + Eng] - &lpar;DD+5.1 - 640Kbps&rpar; - 1.2GB - 350MB &amp; 100MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180139-bb-bujji-bhairava-2024-s01-ep-01-02-true-web-dl-1080p-720p-avc-telugu-hindi-eng-dd51-640kbps-12gb-350mb-100mb-esub/&do=findComment&comment=366408)
-- [Geek Girl &lpar;2024&rpar; S01 EP &lpar;01-10&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 7GB - 1.8GB &amp; 1GB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180119-geek-girl-2024-s01-ep-01-10-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-7gb-18gb-1gb-esub/&do=findComment&comment=366407)
-- [Eric &lpar;2024&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 6.5GB - 1.8GB &amp; 1GB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180117-eric-2024-s01-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-dd51-192kbps-65gb-18gb-1gb-esub/&do=findComment&comment=366406)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
