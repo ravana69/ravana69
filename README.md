@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Chil Chil Chilamboli Thalam Video Song | Usthad | Mohanlal | MG Sreekumar | Vidyasagar](https://www.youtube.com/watch?v=OpfcVzfzP8k)
-- [ഒരു ചുംബനം ഒരു തേൻ കണം  തരുമോ സഖീ നീ..  #everlastingmalayalammelodysongs](https://www.youtube.com/watch?v=eig-PK73Sko)
-- [Pularumbo Thotte | Kunddala Puranam | Abhaya Hiranmayi | Blesson Thomas | Malayalam Film Songs](https://www.youtube.com/watch?v=razRCvz9jlA)
-- [എല്ലാ മലയാളികളും അഭിമാനത്തോടെ കേൾക്കുന്ന മനസിനിഷ്ടമുള്ള സുന്ദര ഗാനങ്ങൾ | SUPERHIT FILM SONGS](https://www.youtube.com/watch?v=OEiObQogxvk)
-- [പാട്ടുപെട്ടി-Paattupetti Vol 46| Malayalam Film Songs | കേട്ടിരിക്കാൻ തോന്നുന്ന മലയാള സിനിമാഗാനങ്ങൾ](https://www.youtube.com/watch?v=PNj5FAL1J3Q)
-- [Azhakezhum | Sammelanam | Bichu thirumala | Maharaja | KJ Yesudas | P Susheela | Menaka | Shankar](https://www.youtube.com/watch?v=5LvWqJyzNNo)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 31st of May 2024](https://www.youtube.com/watch?v=TPLpbiq_3cY)
+- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=WRB9LtnsqA4)
+- [Araariraro -Promo Song| BEHINDD|Sudeep Kumar, Shija Jinu|Sonia Agarwal, Jinu E Thomas| SunnyMadhavan](https://www.youtube.com/watch?v=kjKfN90gUY0)
+- [Sreeranjini Swararagini Video Song | Saraswathi Yamam | Malayalam Movie Songs | K J Yesudas](https://www.youtube.com/watch?v=5L71ActnJIM)
+- [Savoring the happiest moments in life!✨ #Chellakuruvikku #Antony #shorts #ytshorts](https://www.youtube.com/watch?v=wYPPuAvBaXo)
+- [കൈതപ്പൂ Video Song | Pearl View | KJ Yesudas #shorts](https://www.youtube.com/watch?v=ZcZkf-xbT2U)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
