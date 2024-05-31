@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chil Chil Chilamboli Thalam Video Song | Usthad | Mohanlal | MG Sreekumar | Vidyasagar](https://www.youtube.com/watch?v=OpfcVzfzP8k)
+- [ഒരു ചുംബനം ഒരു തേൻ കണം  തരുമോ സഖീ നീ..  #everlastingmalayalammelodysongs](https://www.youtube.com/watch?v=eig-PK73Sko)
+- [Pularumbo Thotte | Kunddala Puranam | Abhaya Hiranmayi | Blesson Thomas | Malayalam Film Songs](https://www.youtube.com/watch?v=razRCvz9jlA)
 - [എല്ലാ മലയാളികളും അഭിമാനത്തോടെ കേൾക്കുന്ന മനസിനിഷ്ടമുള്ള സുന്ദര ഗാനങ്ങൾ | SUPERHIT FILM SONGS](https://www.youtube.com/watch?v=OEiObQogxvk)
 - [പാട്ടുപെട്ടി-Paattupetti Vol 46| Malayalam Film Songs | കേട്ടിരിക്കാൻ തോന്നുന്ന മലയാള സിനിമാഗാനങ്ങൾ](https://www.youtube.com/watch?v=PNj5FAL1J3Q)
 - [Azhakezhum | Sammelanam | Bichu thirumala | Maharaja | KJ Yesudas | P Susheela | Menaka | Shankar](https://www.youtube.com/watch?v=5LvWqJyzNNo)
-- [Pavi Caretaker - Full Album | Dilieep | Midhun Mukundan | Vineeth kumar](https://www.youtube.com/watch?v=al0TgxW80Ts)
-- [സുന്ദരി നീയും| Michael Madana Kama Rajan Film Song| Kamal Haasan #malayalam #kamalhaasan](https://www.youtube.com/watch?v=mPF-iLP94pM)
-- [Ammakkiliyum Kunjikkiliyum | ACTION SONG | Animation Video | Rajeev Alunkal | Mineesh Thambaan](https://www.youtube.com/watch?v=hlHuVztAZQw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
