@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Prem Nazirm, Sharada Romantic Old Superhit Movie Song l Agni Pareeksha Movie | Sathyan, Sheela](https://www.youtube.com/watch?v=8vIaReJytFQ)
+- [Eeshoye | Malayalam Christian Devotional Songs | Super Hit Christian Album Songs | Audio Jukebox](https://www.youtube.com/watch?v=H6b1uFA_tUU)
+- [Aadikkarin Manjal | Thapasya  #kjyesudas #onvkurup #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=nyZMJ6nPfiw)
+- [Chembarathi Poove Chollu | Shyama | Mukesh | Nadiya Moidhu | Unni Menon | Raghukumar | KS Chithra](https://www.youtube.com/watch?v=gVbVX2L4oX8)
+- [Get Into The Beats Of Vatteppam | Mandakini | Dabzee | Altaf Salim | Bibin Ashok | #shorts #ytshorts](https://www.youtube.com/watch?v=afqNQAoXCVI)
 - [Kaattum Thiramalayum | Kester | Graham Varghese #shorts #kester](https://www.youtube.com/watch?v=P0DmlU5s8wQ)
-- [Lokam Niranjavane...#christiandevotionalsongsmalayalam #sreyajayadeep #jojijohns #christiansongs](https://www.youtube.com/watch?v=Bdlm54oB05k)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 1st of June 2024 # Novena to the Sacred Heart of Jesus 1st of June 2024](https://www.youtube.com/watch?v=xu12YPkcGjc)
-- [പഴയകാല പ്രഭാതഗാനങ്ങൾ കേട്ട് പ്രാർത്ഥിച്ചു ഉണരാം daily morning old worship songs with lyrics](https://www.youtube.com/watch?v=cg-xR0JLoNg)
-- [Christian Video Songs Malayalam | Wilson Piravom | Sreya Jayadeep | Midhila Michael |Christian Songs](https://www.youtube.com/watch?v=XNxNt75P798)
-- [Japamala 1st of June 2024 # Mathavinte Japamala # Santhoshathinte Rahasyangal 1st of June 2024](https://www.youtube.com/watch?v=Zzx2fzUF8uo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
