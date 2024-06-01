@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [തിരു കരത്താൽ  | THIRU KARATHAAAL | ROY PUTHUR | LINCY SAMUEL | #christiandevotionalsongs #royputhur](https://www.youtube.com/watch?v=UTWrRXb9vlk)
 - [Gandhi | Malayalam Poem | Prof.V. Madhusoodanan Nair](https://www.youtube.com/watch?v=BdI4c4phLHA)
 - [Yadhu Hrudayam | Rappakal |Video | Mammootty | Nayanthara | K S Chithra | Kaithapram | Mohan Sithara](https://www.youtube.com/watch?v=D02BVHuRvvQ)
 - [Prem Nazirm, Sharada Romantic Old Superhit Movie Song l Agni Pareeksha Movie | Sathyan, Sheela](https://www.youtube.com/watch?v=8vIaReJytFQ)
 - [Eeshoye | Malayalam Christian Devotional Songs | Super Hit Christian Album Songs | Audio Jukebox](https://www.youtube.com/watch?v=H6b1uFA_tUU)
 - [Aadikkarin Manjal | Thapasya  #kjyesudas #onvkurup #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=nyZMJ6nPfiw)
-- [Chembarathi Poove Chollu | Shyama | Mukesh | Nadiya Moidhu | Unni Menon | Raghukumar | KS Chithra](https://www.youtube.com/watch?v=gVbVX2L4oX8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
