@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളികളുടെ മനസ്സിൽ പ്രകമ്പനം കൊള്ളിച്ച ഇടിവെട്ട് ഗാനങ്ങൾ |Re Mastered Video Songs | Themma Themma](https://www.youtube.com/watch?v=eE7MNhJ1Mxs)
+- [Christian Melody Songs | Biju Mookkannor | Christian Superhit Songs | Wilson Piravom | Joji Johns](https://www.youtube.com/watch?v=jR0DfEmtyQo)
+- [Karutha Penne | Gireesh Puthenchery | Berny Ignatius | KS Chithra | MG Sreekumar](https://www.youtube.com/watch?v=FtXzsNEFdZg)
 - [Azhake Annoravaniyil|Vazhunnoor|Samyukta Varma|Krishna|](https://www.youtube.com/watch?v=lmLPSYCy5tU)
 - [Shivamalli Kavil Video Song | Anandabhadram | Prithviraj Sukumaran | KS Chithra |Gireesh Puthenchery](https://www.youtube.com/watch?v=asJ9nzWLjxI)
 - [Hare Krishna Listen To Our K- For Krishna | Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=xTbLOC5PXE8)
-- [പരസ്പരം വിട്ടുകൊടുക്കാൻ തയ്യാറാവുക.. 😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=ghB0FCyph1U)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 1st of June 2024](https://www.youtube.com/watch?v=_ky6tmLWj8c)
-- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=DmJ05j9NEIM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
