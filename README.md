@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Indian 2 - Audio Jukebox &lpar;Tamil&rpar; | Kamal Haasan | Shankar | Anirudh Ravichander | Subaskaran | Lyca](https://www.1tamilmv.eu/index.php?/forums/topic/180200-indian-2-audio-jukebox-tamil-kamal-haasan-shankar-anirudh-ravichander-subaskaran-lyca/&do=findComment&comment=366537)
+- [Souryam &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180194-souryam-2008-telugu-dvd9-untouched-480p-dd51-448kbps-71gb-esub/&do=findComment&comment=366536)
 - [Star wars &lpar;1980 - 2019&rpar; 4K BDRip HDR10 HEVC Multi Original Audios [Tamil &lpar;DDP5.1&rpar; + Telugu &lpar;DDP5.1&rpar; + Hindi+ English] - x265 - ESubs - [45GB]](https://www.1tamilmv.eu/index.php?/forums/topic/180035-star-wars-1980-2019-4k-bdrip-hdr10-hevc-multi-original-audios-tamil-ddp51-telugu-ddp51-hindi-english-x265-esubs-45gb/&do=findComment&comment=366535)
 - [Veeram &lpar;2014&rpar; Tamil - SUNNXT &amp; SS WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;192kbps&rpar; - 5.5GB - 3.9GB - 3.8GB - 2.8GB &amp; 2GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180180-veeram-2014-tamil-sunnxt-ss-web-dl-1080p-720p-avc-untouched-dd51192kbps-55gb-39gb-38gb-28gb-2gb-gdrive/&do=findComment&comment=366533)
 - [Shambo Shiva Shambo &lpar;2010&rpar; Telugu 1080p HYBRID AMZN WEBRips - [12GB - 9GB - 6GB - 4GB - 2.5GB] - x264 -  [Telugu ORG AAC 2.0 + Tamil DDP 5.1 &lpar;640kbps&rpar;] - ESub - Shyam](https://www.1tamilmv.eu/index.php?/forums/topic/180195-shambo-shiva-shambo-2010-telugu-1080p-hybrid-amzn-webrips-12gb-9gb-6gb-4gb-25gb-x264-telugu-org-aac-20-tamil-ddp-51-640kbps-esub-shyam/&do=findComment&comment=366532)
-- [Top Cooku Dupe Cooku &lpar;2024&rpar; Tamil - S01 EP03 TRUE WEB-DL - [1080p, 720p, 360p - AVC - UNTOUCHED - 1.2GB - 650MB &amp; 300MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180199-top-cooku-dupe-cooku-2024-tamil-s01-ep03-true-web-dl-1080p-720p-360p-avc-untouched-12gb-650mb-300mb/&do=findComment&comment=366531)
-- [Murari &lpar;2001&rpar; Remastered &lpar;Telugu + Tamil&rpar; QHD 2K Videosongs - VP9 - HQ AAC - DUSTIN](https://www.1tamilmv.eu/index.php?/forums/topic/180198-murari-2001-remastered-telugu-tamil-qhd-2k-videosongs-vp9-hq-aac-dustin/&do=findComment&comment=366530)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
