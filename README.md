@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [PARAPARAMESHA | പരപരമേശ വരമരുളീശ | ROY PUTHUR | BINU KADAMBANADU #royputhur #malayalam #music](https://www.youtube.com/watch?v=7NJeS0fWzgQ)
 - [Ra Chakana Pekali Full Video Song | HD |  Annan Thambi Movie Song](https://www.youtube.com/watch?v=dxWpZ8mqx_c)
 - [Bhaharom Ko Chaman  | Makalkku | Hariharan | Lyrical Video | Shobhana | Ramesh Narayan | Suresh Gopi](https://www.youtube.com/watch?v=xp7IJA_s_DA)
 - [Mandakini - Full Album | Altaf Salim | Anarkali Marikar | Vinod Leela | Bibin Ashok](https://www.youtube.com/watch?v=8Cd_DPWGsbY)
 - [Nadoditheyyyavum | Sundarakilladi | Dileep | Shalini | Yesudas | Sujatha | Ouseppachan](https://www.youtube.com/watch?v=gjb8z1A3wTU)
 - [Mazhayulla Rathriyil Video Song | Kadha | Prithviraj | Kavya madhavan | Vidhu Prathap | Ouseppachan](https://www.youtube.com/watch?v=rJ38-bOsXlE)
-- [Mounathin Idanazhiyil Oru | Malootty | Jayaram | Urvashi | K J Yesudas | Johnson](https://www.youtube.com/watch?v=ii7bs-y63MM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
