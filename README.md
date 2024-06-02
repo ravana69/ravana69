@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Neerkumizhi &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 348Kbps&rpar; - 2.4GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180186-neerkumizhi-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-348kbps-24gb-13gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=366512)
-- [Godzilla: Minus One &lpar;2023&rpar; Multi DDP5.1 Atmos Esubs - 2160p | 1080p - 26.6 GB | 16.5 GB | 6.6 GB](https://www.1tamilmv.eu/index.php?/forums/topic/180192-godzilla-minus-one-2023-multi-ddp51-atmos-esubs-2160p-1080p-266-gb-165-gb-66-gb/&do=findComment&comment=366511)
-- [Indian 2 &lpar;2024&rpar; Original Motion Picture Soundtrack Master Quality 24bit 96kHz - FLAC - Anirudh Ravichander Musical - 450 MB](https://www.1tamilmv.eu/index.php?/forums/topic/180191-indian-2-2024-original-motion-picture-soundtrack-master-quality-24bit-96khz-flac-anirudh-ravichander-musical-450-mb/&do=findComment&comment=366510)
-- [Sting.2024.1080p.AMZN.WEB-DL.English.DDP5.1.H.264 &lpar;Direct Download&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/180188-sting20241080pamznweb-dlenglishddp51h264-direct-download/&do=findComment&comment=366507)
-- [This Week&#39;s Movie Collection Pack! [1-6-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/180187-this-weeks-movie-collection-pack-1-6-2024/&do=findComment&comment=366506)
+- [Indian 2 &lpar;2024&rpar; Tamil [24&amp;16Bit FLAC] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - Anirudh Musical](https://www.1tamilmv.eu/index.php?/forums/topic/180181-indian-2-2024-tamil-2416bit-flac-itunes-hq-mp3-320kbps-128kbps-anirudh-musical/&do=findComment&comment=366519)
+- [Oru Kadha Sollattaa Sir &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180176-oru-kadha-sollattaa-sir-2024-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-28gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=366518)
+- [Souryam &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180194-souryam-2008-telugu-dvd9-untouched-480p-dd51-448kbps-71gb-esub/&do=findComment&comment=366517)
+- [Souryam &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180194-souryam-2008-telugu-dvd9-untouched-480p-dd51-448kbps-71gb-esub/&do=findComment&comment=366516)
+- [Oru Kadha Sollattaa Sir &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180176-oru-kadha-sollattaa-sir-2024-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-28gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=366514)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
