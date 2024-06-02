@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kudamullakkadavil Video Song | Vellithira | Prithviraj | Navya Nair | Sujatha |Malayalam Movie Songs](https://www.youtube.com/watch?v=oT8KFWBjgic)
+- [കണ്ണുകളെ തിന്മയിൽ നിന്നും തടയും... 😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=MZiif0GsVS4)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 2nd of June 2024](https://www.youtube.com/watch?v=CncsNCIKTn0)
+- [Appam Venam Video Song | Thacholi Othenan | P Leela #shorts](https://www.youtube.com/watch?v=HseJYEzKAXA)
+- [Thrimadhuram Devotional Songs| K J Yesudas | G.Raveendranath | Tharangini | Sound of Arts](https://www.youtube.com/watch?v=mFAs5PZG-g8)
 - [Ottamarappathayile - Audio Song | Pathaam Valavu | Suraj Venjaramoodu | Ranjin Raj | M Padmakumar](https://www.youtube.com/watch?v=muswydU2OqU)
-- [PARAPARAMESHA | പരപരമേശ വരമരുളീശ | ROY PUTHUR | BINU KADAMBANADU #royputhur #malayalam #music](https://www.youtube.com/watch?v=7NJeS0fWzgQ)
-- [Ra Chakana Pekali Full Video Song | HD |  Annan Thambi Movie Song](https://www.youtube.com/watch?v=dxWpZ8mqx_c)
-- [Bhaharom Ko Chaman  | Makalkku | Hariharan | Lyrical Video | Shobhana | Ramesh Narayan | Suresh Gopi](https://www.youtube.com/watch?v=xp7IJA_s_DA)
-- [Mandakini - Full Album | Altaf Salim | Anarkali Marikar | Vinod Leela | Bibin Ashok](https://www.youtube.com/watch?v=8Cd_DPWGsbY)
-- [Nadoditheyyyavum | Sundarakilladi | Dileep | Shalini | Yesudas | Sujatha | Ouseppachan](https://www.youtube.com/watch?v=gjb8z1A3wTU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
