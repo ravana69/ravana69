@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Godzilla: Minus One &lpar;2023&rpar; Multi DDP5.1 Atmos Esubs - 2160p | 1080p - 26.6 GB | 16.5 GB | 6.6 GB](https://www.1tamilmv.eu/index.php?/forums/topic/180192-godzilla-minus-one-2023-multi-ddp51-atmos-esubs-2160p-1080p-266-gb-165-gb-66-gb/&do=findComment&comment=366511)
+- [Indian 2 &lpar;2024&rpar; Original Motion Picture Soundtrack Master Quality 24bit 96kHz - FLAC - Anirudh Ravichander Musical - 450 MB](https://www.1tamilmv.eu/index.php?/forums/topic/180191-indian-2-2024-original-motion-picture-soundtrack-master-quality-24bit-96khz-flac-anirudh-ravichander-musical-450-mb/&do=findComment&comment=366510)
 - [Sting.2024.1080p.AMZN.WEB-DL.English.DDP5.1.H.264 &lpar;Direct Download&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/180188-sting20241080pamznweb-dlenglishddp51h264-direct-download/&do=findComment&comment=366507)
 - [This Week&#39;s Movie Collection Pack! [1-6-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/180187-this-weeks-movie-collection-pack-1-6-2024/&do=findComment&comment=366506)
 - [Neerkumizhi &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 348Kbps&rpar; - 2.4GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180186-neerkumizhi-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-348kbps-24gb-13gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=366505)
-- [Veeram &lpar;2014&rpar; Tamil - SUNNXT &amp; SS WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;192kbps&rpar; - 5.5GB - 3.9GB - 3.8GB - 2.8GB &amp; 2GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180180-veeram-2014-tamil-sunnxt-ss-web-dl-1080p-720p-avc-untouched-dd51192kbps-55gb-39gb-38gb-28gb-2gb-gdrive/&do=findComment&comment=366503)
-- [Neerkumizhi &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 348Kbps&rpar; - 2.4GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180186-neerkumizhi-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-348kbps-24gb-13gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=366502)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
