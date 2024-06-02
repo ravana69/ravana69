@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Manikyakkallaal | Varnapakittu | Vidyasagar, M G Sreekumar, Swarnalatha #SongOfTheDay](https://www.youtube.com/watch?v=oHGPFuPgl2M)
+- [Mounam Swaramay Video Song | Jayaram | Maathu | KJ Yesudas | Ouseppachan | Kaithapram](https://www.youtube.com/watch?v=n8midIYoAx4)
+- [Daivame Nin Hridayam  | Christian Video Songs | Joji Johns | Lijo Chembakassery | Smitha Joshy](https://www.youtube.com/watch?v=NzAV9VF7-Is)
+- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=SBrgpW1hi30)
 - [Kudamullakkadavil Video Song | Vellithira | Prithviraj | Navya Nair | Sujatha |Malayalam Movie Songs](https://www.youtube.com/watch?v=oT8KFWBjgic)
 - [കണ്ണുകളെ തിന്മയിൽ നിന്നും തടയും... 😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=MZiif0GsVS4)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 2nd of June 2024](https://www.youtube.com/watch?v=CncsNCIKTn0)
-- [Appam Venam Video Song | Thacholi Othenan | P Leela #shorts](https://www.youtube.com/watch?v=HseJYEzKAXA)
-- [Thrimadhuram Devotional Songs| K J Yesudas | G.Raveendranath | Tharangini | Sound of Arts](https://www.youtube.com/watch?v=mFAs5PZG-g8)
-- [Ottamarappathayile - Audio Song | Pathaam Valavu | Suraj Venjaramoodu | Ranjin Raj | M Padmakumar](https://www.youtube.com/watch?v=muswydU2OqU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
