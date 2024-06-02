@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Top Cooku Dupe Cooku &lpar;2024&rpar; Tamil - S01 EP03 TRUE WEB-DL - [1080p, 720p, 360p - AVC - UNTOUCHED - 1.2GB - 650MB &amp; 300MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180199-top-cooku-dupe-cooku-2024-tamil-s01-ep03-true-web-dl-1080p-720p-360p-avc-untouched-12gb-650mb-300mb/&do=findComment&comment=366541)
 - [2018 : Everyone Is A Hero &lpar;2023&rpar; SONY WEB-DL - 4K , 1080p &amp; 720p - HEVC - UNTOUCHED - [Tamil + Telugu + Malayalam + Kannada + Hindi] - DD+5.1&lpar;256kbps&rpar; - 11.6GB - 4.7GB &amp; 3GB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180202-2018-everyone-is-a-hero-2023-sony-web-dl-4k-1080p-720p-hevc-untouched-tamil-telugu-malayalam-kannada-hindi-dd51256kbps-116gb-47gb-3gb-esub-gdrive/&do=findComment&comment=366540)
 - [Nirmuktha &lpar;2024&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/180201-nirmuktha-2024-kannada-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=366539)
 - [Shambo Shiva Shambo &lpar;2010&rpar; Telugu 1080p HYBRID AMZN WEBRips - [12GB - 9GB - 6GB - 4GB - 2.5GB] - x264 -  [Telugu ORG AAC 2.0 + Tamil DDP 5.1 &lpar;640kbps&rpar;] - ESub - Shyam](https://www.1tamilmv.eu/index.php?/forums/topic/180195-shambo-shiva-shambo-2010-telugu-1080p-hybrid-amzn-webrips-12gb-9gb-6gb-4gb-25gb-x264-telugu-org-aac-20-tamil-ddp-51-640kbps-esub-shyam/&do=findComment&comment=366538)
 - [Indian 2 - Audio Jukebox &lpar;Tamil&rpar; | Kamal Haasan | Shankar | Anirudh Ravichander | Subaskaran | Lyca](https://www.1tamilmv.eu/index.php?/forums/topic/180200-indian-2-audio-jukebox-tamil-kamal-haasan-shankar-anirudh-ravichander-subaskaran-lyca/&do=findComment&comment=366537)
-- [Souryam &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180194-souryam-2008-telugu-dvd9-untouched-480p-dd51-448kbps-71gb-esub/&do=findComment&comment=366536)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
