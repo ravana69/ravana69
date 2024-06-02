@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Sheela Romantic Old Superhit Movie Song l Omana Movie | Prem Nazir, Sheela, Rani Chandra](https://www.youtube.com/watch?v=pwZe9IoB_Pg)
-- [അനശ്വര ഗായകരുടെ അനശ്വര ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Kester | MG Sreekumar](https://www.youtube.com/watch?v=u9QcVVrghfA)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 2nd June 2023 # Novena to the Sacred Heart of Jesus 2nd June 2024](https://www.youtube.com/watch?v=zwqh8fyOWdY)
-- [ഇന്ന് ജൂൺ 2. എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala #rosary](https://www.youtube.com/watch?v=MPLESeZ-aXg)
-- [Japamala 2nd of June 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 2nd of June 2024](https://www.youtube.com/watch?v=vyfyD3RT87g)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=GJcmH8k9f3M)
+- [Nadoditheyyyavum | Sundarakilladi | Dileep | Shalini | Yesudas | Sujatha | Ouseppachan](https://www.youtube.com/watch?v=gjb8z1A3wTU)
+- [Mazhayulla Rathriyil Video Song | Kadha | Prithviraj | Kavya madhavan | Vidhu Prathap | Ouseppachan](https://www.youtube.com/watch?v=rJ38-bOsXlE)
+- [Mounathin Idanazhiyil Oru | Malootty | Jayaram | Urvashi | K J Yesudas | Johnson](https://www.youtube.com/watch?v=ii7bs-y63MM)
+- [Listen To The Trendy Beats | Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=HMmMaP4UkkY)
+- [Kiliye Kiliye - Afrobeat Mix | Aa Raathri | Ilaiyaraaja | S. Janaki | The Independeners](https://www.youtube.com/watch?v=7mFWb25fIHc)
+- [Kasthuri | Innathe Chintha Vishayam  | Gireesh Puthencherry  #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=8-K4-8o1MDk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
