@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Sheela Romantic Old Superhit Movie Song l Omana Movie | Prem Nazir, Sheela, Rani Chandra](https://www.youtube.com/watch?v=pwZe9IoB_Pg)
 - [അനശ്വര ഗായകരുടെ അനശ്വര ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Kester | MG Sreekumar](https://www.youtube.com/watch?v=u9QcVVrghfA)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 2nd June 2023 # Novena to the Sacred Heart of Jesus 2nd June 2024](https://www.youtube.com/watch?v=zwqh8fyOWdY)
 - [ഇന്ന് ജൂൺ 2. എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala #rosary](https://www.youtube.com/watch?v=MPLESeZ-aXg)
 - [Japamala 2nd of June 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 2nd of June 2024](https://www.youtube.com/watch?v=vyfyD3RT87g)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=GJcmH8k9f3M)
-- [രാവിലെ പ്രാര്‍ത്ഥന June 2 # Athiravile Prarthana 2nd of June 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=MjrGsrzG32U)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
