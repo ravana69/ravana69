@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Souryam &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180194-souryam-2008-telugu-dvd9-untouched-480p-dd51-448kbps-71gb-esub/&do=findComment&comment=366550)
+- [Murari &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 3GB - 1.5GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180175-murari-2024-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-3gb-15gb-950mb-x264-700mb-400mb-250mb/&do=findComment&comment=366549)
 - [Jananam: 1947 Pranayam Thudarunnu &lpar;2024&rpar; Malayalam HQ HDTV - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 950MB &amp; 700MB] - [x264 - 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180204-jananam-1947-pranayam-thudarunnu-2024-malayalam-hq-hdtv-1080p-720p-avc-aac-20-950mb-700mb-x264-400mb/&do=findComment&comment=366548)
 - [Murari &lpar;2001&rpar; Remastered &lpar;Telugu + Tamil&rpar; QHD 2K Videosongs - VP9 - HQ AAC - DUSTIN](https://www.1tamilmv.eu/index.php?/forums/topic/180198-murari-2001-remastered-telugu-tamil-qhd-2k-videosongs-vp9-hq-aac-dustin/&do=findComment&comment=366547)
 - [Jeans &lpar;1998&rpar; Original Motion Picture Soundtrack Hi-Fi Quality 16bit - ALAC - A.R. Rahman Musical - 250 MB](https://www.1tamilmv.eu/index.php?/forums/topic/178561-jeans-1998-original-motion-picture-soundtrack-hi-fi-quality-16bit-alac-ar-rahman-musical-250-mb/&do=findComment&comment=366546)
-- [Auto Shankar.2019.S01.Tamil.1080p.ZEE5.WEB-DL.AAC2.H264 [G-Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/154611-auto-shankar2019s01tamil1080pzee5web-dlaac2h264-g-drive/&do=findComment&comment=366545)
-- [Future Pondatti &lpar;2024&rpar; Tamil - S01 EP&lpar;01-08&rpar; TRUE WEB-DL - [1080p, 720p, 480p - AVC - UNTOUCHED - 650MB - 300MB &amp; 100MB]](https://www.1tamilmv.eu/index.php?/forums/topic/179694-future-pondatti-2024-tamil-s01-ep01-08-true-web-dl-1080p-720p-480p-avc-untouched-650mb-300mb-100mb/&do=findComment&comment=366544)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
