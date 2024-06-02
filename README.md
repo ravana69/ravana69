@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നീ തകർന്നവനാണോ മകനേ..](https://www.youtube.com/watch?v=nD11f535dwc)
 - [Manikyakkallaal | Varnapakittu | Vidyasagar, M G Sreekumar, Swarnalatha #SongOfTheDay](https://www.youtube.com/watch?v=oHGPFuPgl2M)
 - [Mounam Swaramay Video Song | Jayaram | Maathu | KJ Yesudas | Ouseppachan | Kaithapram](https://www.youtube.com/watch?v=n8midIYoAx4)
 - [Daivame Nin Hridayam  | Christian Video Songs | Joji Johns | Lijo Chembakassery | Smitha Joshy](https://www.youtube.com/watch?v=NzAV9VF7-Is)
 - [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=SBrgpW1hi30)
 - [Kudamullakkadavil Video Song | Vellithira | Prithviraj | Navya Nair | Sujatha |Malayalam Movie Songs](https://www.youtube.com/watch?v=oT8KFWBjgic)
-- [കണ്ണുകളെ തിന്മയിൽ നിന്നും തടയും... 😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=MZiif0GsVS4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
