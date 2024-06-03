@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Maanaadu &lpar;2021&rpar; AMZN &amp; SONY WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - [Tamil&lpar;DD+5.1&lpar;640kbps&rpar; + Telugu + Malayalam + Kannada] - AAC - 10.1GB - 4.6GB - 4.3GB - 1.9GB - 1.7GB &amp; 1.5GB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180217-maanaadu-2021-amzn-sony-web-dl-1080p-720p-avc-hevc-untouched-tamildd51640kbps-telugu-malayalam-kannada-aac-101gb-46gb-43gb-19gb-17gb-15gb-esub-gdrive/&do=findComment&comment=366579)
 - [Oru Kadha Sollattaa Sir &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180176-oru-kadha-sollattaa-sir-2024-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-28gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=366578)
 - [Murari &lpar;2001&rpar; Dual &lpar;MUSIC VIDEO ALBUM&rpar; Yt 1080p WEB-DL UNTOUCHED - AVC - [Telugu FLAC 2.0 &lpar;994Kbps&rpar;-Tamil AAC 2.0 &lpar;128Kbps&rpar;] By-Vincenzo](https://www.1tamilmv.eu/index.php?/forums/topic/180216-murari-2001-dual-music-video-album-yt-1080p-web-dl-untouched-avc-telugu-flac-20-994kbps-tamil-aac-20-128kbps-by-vincenzo/&do=findComment&comment=366577)
 - [Murari &lpar;2001&rpar; Dual &lpar;MUSIC VIDEO ALBUM&rpar; Yt 2K WEB-DL UNTOUCHED - VP9 - [Telugu PCM 2.0 &lpar;1411Kbps&rpar;+FLAC 2.0 &lpar;994Kbps&rpar;-Tamil AAC 2.0 &lpar;128Kbps&rpar;] By-Vincenzo](https://www.1tamilmv.eu/index.php?/forums/topic/180215-murari-2001-dual-music-video-album-yt-2k-web-dl-untouched-vp9-telugu-pcm-20-1411kbpsflac-20-994kbps-tamil-aac-20-128kbps-by-vincenzo/&do=findComment&comment=366576)
 - [Matinee &lpar;2024&rpar; Kannada HDTV - [1080p &amp; 720p - x264 - 2.6GB &amp; 1.3GB] - [x264 - 700MB - 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180189-matinee-2024-kannada-hdtv-1080p-720p-x264-26gb-13gb-x264-700mb-400mb/&do=findComment&comment=366575)
-- [Gambler [Thadam] &lpar;2024&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; [Telugu + Tamil] - 2.7GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180212-gambler-thadam-2024-true-web-dl-1080p-720p-avc-aac-20-telugu-tamil-27gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=366574)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
