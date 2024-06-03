@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Deepam Mani Deepam | ദീപം മണിദീപം | Avidathepole Ivideyum | Malayalam Film Song | Shobana, Mammootty](https://www.youtube.com/watch?v=o7SU7nz7cUA)
 - [Kalla Kalla | Youth Festival #campussong #malayalamlovesong #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=u7suqUx9v_Q)
 - [Ente Swapnathin - Sleep Lofi | Achani | G. Devarajan | K. J. Yesudas | EternaLove](https://www.youtube.com/watch?v=AWBbLrC-OJk)
 - [Marannuvo | Chakkaramuthu | Gireesh Puthencherry  #shortsfeed #shortsvideo #shorts #reels #kjyesudas](https://www.youtube.com/watch?v=EesV5KcyOhQ)
 - [Hemambhari Thoomanjari | Aattakadha | Vineeth | K J Yesudas | Raveendran | Meera Nandhan](https://www.youtube.com/watch?v=ELUEWRwAbMw)
 - [Prem Nazir,Jayabharathi Romantic Old Superhit Movie Song l Mooladhanam Movie | Sathyan, Sharada](https://www.youtube.com/watch?v=Q9mcGtDZbn4)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 3rd of June 2024 # Novena to the Sacred Heart of Jesus 3rd of June 2024](https://www.youtube.com/watch?v=Ig06zXsUkvg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
