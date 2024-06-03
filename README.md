@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kalla Kalla | Youth Festival #campussong #malayalamlovesong #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=u7suqUx9v_Q)
+- [Ente Swapnathin - Sleep Lofi | Achani | G. Devarajan | K. J. Yesudas | EternaLove](https://www.youtube.com/watch?v=AWBbLrC-OJk)
+- [Marannuvo | Chakkaramuthu | Gireesh Puthencherry  #shortsfeed #shortsvideo #shorts #reels #kjyesudas](https://www.youtube.com/watch?v=EesV5KcyOhQ)
+- [Hemambhari Thoomanjari | Aattakadha | Vineeth | K J Yesudas | Raveendran | Meera Nandhan](https://www.youtube.com/watch?v=ELUEWRwAbMw)
 - [Prem Nazir,Jayabharathi Romantic Old Superhit Movie Song l Mooladhanam Movie | Sathyan, Sharada](https://www.youtube.com/watch?v=Q9mcGtDZbn4)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 3rd of June 2024 # Novena to the Sacred Heart of Jesus 3rd of June 2024](https://www.youtube.com/watch?v=Ig06zXsUkvg)
-- [ഇന്ന് ജൂൺ 3. എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamalamalayalam 3rd](https://www.youtube.com/watch?v=tu3coYNU0xc)
-- [Japamala  3rd of June  2024 # Mathavinte Japamala # Santhoshathinte Rahasyangal 3rd of June  2024](https://www.youtube.com/watch?v=0NezY21RGQ8)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=a5Di5_JDedk)
-- [പ്രഭാത പ്രാര്‍ത്ഥന June 3 # Athiravile Prarthana 3rd of June 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=cCAprRG9z9s)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
