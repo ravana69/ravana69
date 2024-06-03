@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [50 Tamil Movies - SS / AMZN / TK / JC WEB DL - H264/H265 - [DDP5.1 / DD5.1 / AAC] - ESub - [2160p, 1080p &amp; 720p - 350GB] [GDRIVE]](https://www.1tamilmv.eu/index.php?/forums/topic/141593-50-tamil-movies-ss-amzn-tk-jc-web-dl-h264h265-ddp51-dd51-aac-esub-2160p-1080p-720p-350gb-gdrive/&do=findComment&comment=366600)
 - [Maanaadu &lpar;2021&rpar; AMZN &amp; SONY WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - [Tamil&lpar;DD+5.1&lpar;640kbps&rpar; + Telugu + Malayalam + Kannada] - AAC - 10.1GB - 4.6GB - 4.3GB - 1.9GB - 1.7GB &amp; 1.5GB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180217-maanaadu-2021-amzn-sony-web-dl-1080p-720p-avc-hevc-untouched-tamildd51640kbps-telugu-malayalam-kannada-aac-101gb-46gb-43gb-19gb-17gb-15gb-esub-gdrive/&do=findComment&comment=366599)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [3-6-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/180220-movies-collection-all-languages-4k-1080p-720p-576p-480p-3-6-2024/&do=findComment&comment=366598)
 - [I &lpar;2015&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 13GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180218-i-2015-tamil-true-web-dl-1080p-720p-avc-untouched-dd51640kbps-13gb-55gb-27gb-14gb-x264-700mb-400mb-esub-gdrive/&do=findComment&comment=366597)
 - [Chatrapathi - For The People &lpar;2023&rpar; Hindi &lpar;MUSIC VIDEO ALBUM&rpar; AMZN 1080p WEB-DL UNTOUCHED - AVC - [Hindi DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-Vincenzo](https://www.1tamilmv.eu/index.php?/forums/topic/180219-chatrapathi-for-the-people-2023-hindi-music-video-album-amzn-1080p-web-dl-untouched-avc-hindi-dd51-640kbps-e-sub-by-vincenzo/&do=findComment&comment=366596)
-- [2018 : Everyone Is A Hero &lpar;2023&rpar; SONY WEB-DL - 4K , 1080p &amp; 720p - HEVC - UNTOUCHED - [Tamil + Telugu + Malayalam + Kannada + Hindi] - DD+5.1&lpar;256kbps&rpar; - 11.6GB - 4.7GB &amp; 3GB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180202-2018-everyone-is-a-hero-2023-sony-web-dl-4k-1080p-720p-hevc-untouched-tamil-telugu-malayalam-kannada-hindi-dd51256kbps-116gb-47gb-3gb-esub-gdrive/&do=findComment&comment=366595)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
