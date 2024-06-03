@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മൂന്ന് വ്യത്യസ്‌ത ഭാക്ഷകളിൽ മേഘ്നകുട്ടി പാടി ഗംഭീരമാക്കിയ ഗാനം❤️🎶👌@JinoKunnumpurathu @MeghnaSumesh](https://www.youtube.com/watch?v=pnLIE5AfgL0)
+- [ആകുല വേളകളിൽ മനസിന് ആശ്വാസമായെത്തുന്ന  എക്കാലത്തെയും മികച്ച ക്രിസ്തീയ ഗാനങ്ങൾ | joji johns Songs](https://www.youtube.com/watch?v=89J0arIDH0E)
+- [Ennalum Ennullil Neeye |Bhaskar the Rascal | Lijosh Vezhapilly |Amresh Ganesh | Sanoop Kumar](https://www.youtube.com/watch?v=16tfVAlZ1Cw)
 - [Dance to The Beats Of #Vatteppam with #anarkalimarikar #Mandakini | Dabzee #shorts #ytshorts](https://www.youtube.com/watch?v=Fh1s1SvXMU0)
 - [വിജയിച്ചവരുടെ കൂടെ നിക്കുന്നതല്ല തോറ്റവന്റെ തോളിൽ പിടിക്കുന്നതാണ് ദൈവാനുഗ്രഹം 😇 Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=GSHOh3lmmG8)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 3rd of June 2024](https://www.youtube.com/watch?v=OAQOzdn5t7U)
-- [Ponnil Kulichu Ninnu Video Song | Sallapam | KJ Yesudas | KS Chithra](https://www.youtube.com/watch?v=hcGMC4XFt0g)
-- [Urukkinte karuthulla | HD Video | CID Unnikrishnan B.A. B.Ed | Johnsonl  Bichu Thirumala| KJ Yesudas](https://www.youtube.com/watch?v=8mAvROOg4Hc)
-- [#kforkrishna |Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=LNItdVGd6C8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
