@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Michael Madana Kama Rajan &lpar;1990&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 4.8GB - UE](https://www.1tamilmv.eu/index.php?/forums/topic/180207-michael-madana-kama-rajan-1990-tamil-true-web-dl-1080p-avc-untouched-aac20-48gb-ue/&do=findComment&comment=366558)
+- [Indian 2 &lpar;2024&rpar; Tamil [24&amp;16Bit FLAC] iTunes HQ MP3 [320Kbps &amp; 128Kbps] - Anirudh Musical](https://www.1tamilmv.eu/index.php?/forums/topic/180181-indian-2-2024-tamil-2416bit-flac-itunes-hq-mp3-320kbps-128kbps-anirudh-musical/&do=findComment&comment=366557)
+- [Oru Kadha Sollattaa Sir &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.8GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180176-oru-kadha-sollattaa-sir-2024-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-28gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=366556)
 - [Jananam.1947.Pranayam.Thudarunnu.2024.WEB.DL.H264.AAC2.0](https://www.1tamilmv.eu/index.php?/forums/topic/180206-jananam1947pranayamthudarunnu2024webdlh264aac20/&do=findComment&comment=366555)
 - [SPY.x.FAMILY.S01 &amp; S02.1080p.NF.WEB-DL.DUAL.DDP2.0](https://www.1tamilmv.eu/index.php?/forums/topic/180205-spyxfamilys01-s021080pnfweb-dldualddp20/&do=findComment&comment=366554)
-- [Murari &lpar;2001&rpar; Remastered &lpar;Telugu + Tamil&rpar; QHD 2K Videosongs - VP9 - HQ AAC - DUSTIN](https://www.1tamilmv.eu/index.php?/forums/topic/180198-murari-2001-remastered-telugu-tamil-qhd-2k-videosongs-vp9-hq-aac-dustin/&do=findComment&comment=366553)
-- [Jananam: 1947 Pranayam Thudarunnu &lpar;2024&rpar; Malayalam HQ HDTV - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 950MB &amp; 700MB] - [x264 - 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180204-jananam-1947-pranayam-thudarunnu-2024-malayalam-hq-hdtv-1080p-720p-avc-aac-20-950mb-700mb-x264-400mb/&do=findComment&comment=366552)
-- [Nirmuktha &lpar;2024&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/180201-nirmuktha-2024-kannada-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=366551)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
