@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [എന്നാളും എന്നുള്ളിൽ നീയേ...❤️❤️❤️ | Amala Paul | Aravind Swami | Bhaskar the Rascal](https://www.youtube.com/watch?v=mEYyN_ElP8s)
-- [Ee Theruvile | Achanoru Vazha Vechu | Lyrical Video | Vineeth Sreenivasan | Bijibal | Suhail Koya](https://www.youtube.com/watch?v=lRH07f_BW8E)
-- [Krooshithante Hrudhayam pole Day 3](https://www.youtube.com/watch?v=-HxL97ppMlk)
-- [Saamba Salsa Video Song | Daddy Cool | Mammootty | Biju Menon | Nikita | Anuradha Sriram | Bijibal](https://www.youtube.com/watch?v=Q5GfH8Uis_A)
-- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=CPiTmQwifQc)
-- [Eden Musics Band New song💫 Nadhante Chunkil Cheram Final Mix out💫⭐⭐⭐⭐ Coming soon 💫⭐⭐](https://www.youtube.com/watch?v=98HX1Z5uDTY)
+- [വിജയിച്ചവരുടെ കൂടെ നിക്കുന്നതല്ല തോറ്റവന്റെ തോളിൽ പിടിക്കുന്നതാണ് ദൈവാനുഗ്രഹം 😇 Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=GSHOh3lmmG8)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 3rd of June 2024](https://www.youtube.com/watch?v=OAQOzdn5t7U)
+- [Ponnil Kulichu Ninnu Video Song | Sallapam | KJ Yesudas | KS Chithra](https://www.youtube.com/watch?v=hcGMC4XFt0g)
+- [#kforkrishna |Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=LNItdVGd6C8)
+- [Olivukal Pookkunna Gathsamana | KK Nishad | BK Hari Naryanan | PK Bash | Malayalam | Christan Songs](https://www.youtube.com/watch?v=DSCdEiK4RAQ)
+- [Mandakini - Vineeth Thattil Character Teaser | Altaf Salim | Anarkali Marikar | Vinod Leela](https://www.youtube.com/watch?v=-hoVxtuTpjo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
