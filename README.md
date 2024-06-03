@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Jananam.1947.Pranayam.Thudarunnu.2024.WEB.DL.H264.AAC2.0](https://www.1tamilmv.eu/index.php?/forums/topic/180206-jananam1947pranayamthudarunnu2024webdlh264aac20/&do=findComment&comment=366555)
+- [SPY.x.FAMILY.S01 &amp; S02.1080p.NF.WEB-DL.DUAL.DDP2.0](https://www.1tamilmv.eu/index.php?/forums/topic/180205-spyxfamilys01-s021080pnfweb-dldualddp20/&do=findComment&comment=366554)
 - [Murari &lpar;2001&rpar; Remastered &lpar;Telugu + Tamil&rpar; QHD 2K Videosongs - VP9 - HQ AAC - DUSTIN](https://www.1tamilmv.eu/index.php?/forums/topic/180198-murari-2001-remastered-telugu-tamil-qhd-2k-videosongs-vp9-hq-aac-dustin/&do=findComment&comment=366553)
 - [Jananam: 1947 Pranayam Thudarunnu &lpar;2024&rpar; Malayalam HQ HDTV - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 950MB &amp; 700MB] - [x264 - 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180204-jananam-1947-pranayam-thudarunnu-2024-malayalam-hq-hdtv-1080p-720p-avc-aac-20-950mb-700mb-x264-400mb/&do=findComment&comment=366552)
 - [Nirmuktha &lpar;2024&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/180201-nirmuktha-2024-kannada-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=366551)
-- [Souryam &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180194-souryam-2008-telugu-dvd9-untouched-480p-dd51-448kbps-71gb-esub/&do=findComment&comment=366550)
-- [Murari &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil &lpar;Original Audio&rpar; + Telugu] - 3GB - 1.5GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180175-murari-2024-tamil-true-web-dl-1080p-720p-avc-hevc-tamil-original-audio-telugu-3gb-15gb-950mb-x264-700mb-400mb-250mb/&do=findComment&comment=366549)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
