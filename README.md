@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [സങ്കടങ്ങൾ ഏറ്റെടുക്കുന്ന ഗാനങ്ങൾ | KESTER SONGS #KESTERHITS](https://www.youtube.com/watch?v=s94kVJc9ioc)
+- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=WQO6Noj5w24)
+- [ഈ മുഖം തൂമുഖം വിടരും | Akrosham | Evergreen Malayalam Songs](https://www.youtube.com/watch?v=TNjHg7CmtiY)
 - [കാത് കുളിർക്കെ കേട്ടിരിക്കാനിഷ്ടമുള്ള മധുര മനോഹര ഗാനങ്ങൾ | SUPERHIT FILM SONGS](https://www.youtube.com/watch?v=VXHdRXDtjF0)
 - [Ee Mukham Poomukham | Evergreen Malayalam Film Songs | Malayalam Romantic Songs](https://www.youtube.com/watch?v=x3oxY1pKWxc)
 - [Junile Nilamazhayil |  Nammal Thammil #kjyesudas #sujatha #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=veBbBe5obIE)
-- [Pazhamthamizh Pattizhayum | Manichithrathazhu | Shobana | Yesudas | MG Radhakrishnan | Madhu Muttam](https://www.youtube.com/watch?v=yMlbDIkygAk)
-- [Mandarappoove - Flip Mix | Kumari | Jakes Bejoy | Aavani Malhar | Joyal MJ](https://www.youtube.com/watch?v=Rqf8XNor-Fo)
-- [Vincent Old Superhit Movie Song l Iniyum Kaanaam Movie | Prem Nazir, Ushakumari, Vijayalalitha](https://www.youtube.com/watch?v=cva13C5RKJc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
