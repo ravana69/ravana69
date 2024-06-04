@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Haywire.2012.MULTi[English, Hindi, Telugu].1080p, 720p .JIO.WEB-DL.AAC2.0](https://www.1tamilmv.eu/index.php?/forums/topic/180224-haywire2012multienglish-hindi-telugu1080p-720p-jioweb-dlaac20/&do=findComment&comment=366607)
+- [Tantiram.2023.[Telugu, Hindi, Tamil, Kannada, Malayalam] 1080p, 720p .AMZN.WEB-DL.MULTI.DDP5.1](https://www.1tamilmv.eu/index.php?/forums/topic/180223-tantiram2023telugu-hindi-tamil-kannada-malayalam-1080p-720p-amznweb-dlmultiddp51/&do=findComment&comment=366606)
+- [Naadu.2023.1080p, 720p .AMZN.WEB-DL.MULTI.DDP5.1](https://www.1tamilmv.eu/index.php?/forums/topic/180222-naadu20231080p-720p-amznweb-dlmultiddp51/&do=findComment&comment=366605)
 - [BadBoys Trilogy &lpar;1995-2020&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - &lpar;DD+5.1 - 640Kbps&rpar; - 10GB &amp; 4.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180208-badboys-trilogy-1995-2020-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-dd51-640kbps-10gb-44gb-x264-tamil-telugu-hindi-400mb-esub/&do=findComment&comment=366604)
 - [VENOM - THE LAST DANCE &lpar;2024&rpar; [Tamil + Telugu + Hindi + English] – Official Trailer | In Cinemas October 25](https://www.1tamilmv.eu/index.php?/forums/topic/180221-venom-the-last-dance-2024-tamil-telugu-hindi-english-%E2%80%93-official-trailer-in-cinemas-october-25/&do=findComment&comment=366603)
-- [Souryam &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 7.1GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180194-souryam-2008-telugu-dvd9-untouched-480p-dd51-448kbps-71gb-esub/&do=findComment&comment=366602)
-- [JL50 &lpar;2020&rpar; S01 EP &lpar;01-04&rpar; TRUE WEB-DL - [1080p, 720p - &lpar;Tamil + Telugu + Malayalam + Kannada + Hindi&rpar; - 1.8GB - 1.1GB - 700MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/115843-jl50-2020-s01-ep-01-04-true-web-dl-1080p-720p-tamil-telugu-malayalam-kannada-hindi-18gb-11gb-700mb-450mb-250mb-esub/&do=findComment&comment=366601)
-- [50 Tamil Movies - SS / AMZN / TK / JC WEB DL - H264/H265 - [DDP5.1 / DD5.1 / AAC] - ESub - [2160p, 1080p &amp; 720p - 350GB] [GDRIVE]](https://www.1tamilmv.eu/index.php?/forums/topic/141593-50-tamil-movies-ss-amzn-tk-jc-web-dl-h264h265-ddp51-dd51-aac-esub-2160p-1080p-720p-350gb-gdrive/&do=findComment&comment=366600)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
