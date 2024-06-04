@@ -27,7 +27,7 @@
 - [Master.2021.1080p, 720p .SS.WEB-DL.DD+5.1.Atmos](https://www.1tamilmv.eu/index.php?/forums/topic/180239-master20211080p-720p-ssweb-dldd51atmos/&do=findComment&comment=366637)
 - [Mad.Max.Fury.Road.2015 [English, Tamil, Telugu, Hindi].1080p, 720p .AMZN.W EB-DL.Multi.DD+5.1](https://www.1tamilmv.eu/index.php?/forums/topic/180238-madmaxfuryroad2015-english-tamil-telugu-hindi1080p-720p-amznw-eb-dlmultidd51/&do=findComment&comment=366636)
 - [Chen.Zhen. The.Tokyo.Fight.2019 [Chinese, Tamil, Telegu, Hindi] .1080p, 720p .AMZN.WEB-DL.Multi](https://www.1tamilmv.eu/index.php?/forums/topic/180237-chenzhen-thetokyofight2019-chinese-tamil-telegu-hindi-1080p-720p-amznweb-dlmulti/&do=findComment&comment=366635)
-- [Meendum Thedal &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 348Kbps&rpar; - 3.3GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180236-meendum-thedal-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-348kbps-33gb-13gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=366634)
+- [Meendum Thedal &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 340Kbps&rpar; - 2.5GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180236-meendum-thedal-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-340kbps-25gb-13gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=366634)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
