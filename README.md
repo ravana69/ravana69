@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Legend Of Hanuman &lpar;2024&rpar; S04 EP &lpar;01-02&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - &lpar;AAC 2.0&rpar; - 3.8GB - 1.7GB &amp; 550MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180241-the-legend-of-hanuman-2024-s04-ep-01-02-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-aac-20-38gb-17gb-550mb-esub/&do=findComment&comment=366640)
 - [30 Telugu Movies - 1080p - SNXT/ZEE5/DSNP/AHA WEB DL - x264 - DD5.1/AAC2.0 - ESub - 75GB](https://www.1tamilmv.eu/index.php?/forums/topic/121832-30-telugu-movies-1080p-snxtzee5dsnpaha-web-dl-x264-dd51aac20-esub-75gb/&do=findComment&comment=366639)
 - [7.Aum.Arivu.2011.1080p, 720p .SS.WEB- DL.DD+5.1](https://www.1tamilmv.eu/index.php?/forums/topic/180240-7aumarivu20111080p-720p-ssweb-dldd51/&do=findComment&comment=366638)
 - [Master.2021.1080p, 720p .SS.WEB-DL.DD+5.1.Atmos](https://www.1tamilmv.eu/index.php?/forums/topic/180239-master20211080p-720p-ssweb-dldd51atmos/&do=findComment&comment=366637)
 - [Mad.Max.Fury.Road.2015 [English, Tamil, Telugu, Hindi].1080p, 720p .AMZN.W EB-DL.Multi.DD+5.1](https://www.1tamilmv.eu/index.php?/forums/topic/180238-madmaxfuryroad2015-english-tamil-telugu-hindi1080p-720p-amznw-eb-dlmultidd51/&do=findComment&comment=366636)
-- [Chen.Zhen. The.Tokyo.Fight.2019 [Chinese, Tamil, Telegu, Hindi] .1080p, 720p .AMZN.WEB-DL.Multi](https://www.1tamilmv.eu/index.php?/forums/topic/180237-chenzhen-thetokyofight2019-chinese-tamil-telegu-hindi-1080p-720p-amznweb-dlmulti/&do=findComment&comment=366635)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
