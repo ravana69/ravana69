@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Listen To The Trendy Beats | Guruvayoorambala Nadayil | Prithviraj | Basil | Anaswara | #ytshorts](https://www.youtube.com/watch?v=_HXW2Yr4JMI)
-- [Annarakanna Vaa | Animation Version Film Songs #shortsfeed #shortsvideo #reels  #animation](https://www.youtube.com/watch?v=D9ROSw5PmGc)
-- [Punnara Kattile Poovanatthil - Audio Song | Malaikottai Vaaliban | Mohanlal, Lijo Jose Pellissery](https://www.youtube.com/watch?v=Fg8XFXNesDk)
-- [സങ്കടങ്ങൾ ഏറ്റെടുക്കുന്ന ഗാനങ്ങൾ | KESTER SONGS #KESTERHITS](https://www.youtube.com/watch?v=s94kVJc9ioc)
-- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=WQO6Noj5w24)
-- [ഈ മുഖം തൂമുഖം വിടരും | Akrosham | Evergreen Malayalam Songs](https://www.youtube.com/watch?v=TNjHg7CmtiY)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 4th of June 2024](https://www.youtube.com/watch?v=rLXYgh933UI)
+- [നസ്രായേനെ അതുല്യനാക്കുന്നത് ...😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=wYk7gRQkd80)
+- [Ottuvacha Video Song | Vellithira | Prithviraj | Navya Nair | P Jayachandran | Alphonse Joseph](https://www.youtube.com/watch?v=drMFdTiv3oI)
+- [Sodho Sodho Aalamithe | Tribal Songs | Anjana S Kumar | Abhijith | Ram Surendar | Viral Folk Songs](https://www.youtube.com/watch?v=jzSv9sFgorg)
+- [Thei Oru Thenavayal Video Song | Lal | Kavya Madhavan | Dileep | MG Sreekumar | Sujatha Mohan](https://www.youtube.com/watch?v=02eEKymj44E)
+- [Thanka Thazhika Kudamalla Video Song | Pearl View | K J Yesudas #shorts](https://www.youtube.com/watch?v=DObeyIX2Izc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
