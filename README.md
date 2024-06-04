@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Gangatheertham Vol.02 | Devotional Songs Lord Shiva | K J Yesudas | Mohandas | Sound of Arts](https://www.youtube.com/watch?v=Wo0TakXZjVk)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 4th of June 2024](https://www.youtube.com/watch?v=rLXYgh933UI)
 - [നസ്രായേനെ അതുല്യനാക്കുന്നത് ...😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=wYk7gRQkd80)
+- [Now Vibe At Kalyanam | Guruvayoorambala Nadayil | Prithviraj | Basil | Anaswara |  #ytshorts](https://www.youtube.com/watch?v=iiBcpI8pCuo)
 - [Ottuvacha Video Song | Vellithira | Prithviraj | Navya Nair | P Jayachandran | Alphonse Joseph](https://www.youtube.com/watch?v=drMFdTiv3oI)
 - [Sodho Sodho Aalamithe | Tribal Songs | Anjana S Kumar | Abhijith | Ram Surendar | Viral Folk Songs](https://www.youtube.com/watch?v=jzSv9sFgorg)
-- [Thei Oru Thenavayal Video Song | Lal | Kavya Madhavan | Dileep | MG Sreekumar | Sujatha Mohan](https://www.youtube.com/watch?v=02eEKymj44E)
-- [Thanka Thazhika Kudamalla Video Song | Pearl View | K J Yesudas #shorts](https://www.youtube.com/watch?v=DObeyIX2Izc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
