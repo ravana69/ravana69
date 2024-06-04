@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Maanaadu &lpar;2021&rpar; AMZN &amp; SONY WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - [Tamil&lpar;DD+5.1&lpar;640kbps&rpar; + Telugu + Malayalam + Kannada] - AAC - 10.1GB - 4.6GB - 4.3GB - 1.9GB - 1.7GB &amp; 1.5GB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180217-maanaadu-2021-amzn-sony-web-dl-1080p-720p-avc-hevc-untouched-tamildd51640kbps-telugu-malayalam-kannada-aac-101gb-46gb-43gb-19gb-17gb-15gb-esub-gdrive/&do=findComment&comment=366610)
 - [2018 : Everyone Is A Hero &lpar;2023&rpar; SONY WEB-DL - 4K , 1080p &amp; 720p - HEVC - UNTOUCHED - [Tamil + Telugu + Malayalam + Kannada + Hindi] - DD+5.1&lpar;256kbps&rpar; - 11.6GB - 4.7GB &amp; 3GB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180202-2018-everyone-is-a-hero-2023-sony-web-dl-4k-1080p-720p-hevc-untouched-tamil-telugu-malayalam-kannada-hindi-dd51256kbps-116gb-47gb-3gb-esub-gdrive/&do=findComment&comment=366609)
 - [Aavesham &lpar;2024&rpar; Original Score Hi-Fi Quality 16bit - FLAC - Sushin Shyam Musical - 180 MB](https://www.1tamilmv.eu/index.php?/forums/topic/180225-aavesham-2024-original-score-hi-fi-quality-16bit-flac-sushin-shyam-musical-180-mb/&do=findComment&comment=366608)
 - [Haywire.2012.MULTi[English, Hindi, Telugu].1080p, 720p .JIO.WEB-DL.AAC2.0](https://www.1tamilmv.eu/index.php?/forums/topic/180224-haywire2012multienglish-hindi-telugu1080p-720p-jioweb-dlaac20/&do=findComment&comment=366607)
 - [Tantiram.2023.[Telugu, Hindi, Tamil, Kannada, Malayalam] 1080p, 720p .AMZN.WEB-DL.MULTI.DDP5.1](https://www.1tamilmv.eu/index.php?/forums/topic/180223-tantiram2023telugu-hindi-tamil-kannada-malayalam-1080p-720p-amznweb-dlmultiddp51/&do=findComment&comment=366606)
-- [Naadu.2023.1080p, 720p .AMZN.WEB-DL.MULTI.DDP5.1](https://www.1tamilmv.eu/index.php?/forums/topic/180222-naadu20231080p-720p-amznweb-dlmultiddp51/&do=findComment&comment=366605)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
