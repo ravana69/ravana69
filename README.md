@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [2018 : Everyone Is A Hero &lpar;2023&rpar; SONY WEB-DL - 4K , 1080p &amp; 720p - HEVC - UNTOUCHED - [Tamil + Telugu + Malayalam + Kannada + Hindi] - DD+5.1&lpar;256kbps&rpar; - 11.6GB - 4.7GB &amp; 3GB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180202-2018-everyone-is-a-hero-2023-sony-web-dl-4k-1080p-720p-hevc-untouched-tamil-telugu-malayalam-kannada-hindi-dd51256kbps-116gb-47gb-3gb-esub-gdrive/&do=findComment&comment=366609)
+- [Aavesham &lpar;2024&rpar; Original Score Hi-Fi Quality 16bit - FLAC - Sushin Shyam Musical - 180 MB](https://www.1tamilmv.eu/index.php?/forums/topic/180225-aavesham-2024-original-score-hi-fi-quality-16bit-flac-sushin-shyam-musical-180-mb/&do=findComment&comment=366608)
 - [Haywire.2012.MULTi[English, Hindi, Telugu].1080p, 720p .JIO.WEB-DL.AAC2.0](https://www.1tamilmv.eu/index.php?/forums/topic/180224-haywire2012multienglish-hindi-telugu1080p-720p-jioweb-dlaac20/&do=findComment&comment=366607)
 - [Tantiram.2023.[Telugu, Hindi, Tamil, Kannada, Malayalam] 1080p, 720p .AMZN.WEB-DL.MULTI.DDP5.1](https://www.1tamilmv.eu/index.php?/forums/topic/180223-tantiram2023telugu-hindi-tamil-kannada-malayalam-1080p-720p-amznweb-dlmultiddp51/&do=findComment&comment=366606)
 - [Naadu.2023.1080p, 720p .AMZN.WEB-DL.MULTI.DDP5.1](https://www.1tamilmv.eu/index.php?/forums/topic/180222-naadu20231080p-720p-amznweb-dlmultiddp51/&do=findComment&comment=366605)
-- [BadBoys Trilogy &lpar;1995-2020&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - &lpar;DD+5.1 - 640Kbps&rpar; - 10GB &amp; 4.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180208-badboys-trilogy-1995-2020-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-dd51-640kbps-10gb-44gb-x264-tamil-telugu-hindi-400mb-esub/&do=findComment&comment=366604)
-- [VENOM - THE LAST DANCE &lpar;2024&rpar; [Tamil + Telugu + Hindi + English] – Official Trailer | In Cinemas October 25](https://www.1tamilmv.eu/index.php?/forums/topic/180221-venom-the-last-dance-2024-tamil-telugu-hindi-english-%E2%80%93-official-trailer-in-cinemas-october-25/&do=findComment&comment=366603)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
