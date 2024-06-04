@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Listen To The Trendy Beats | Guruvayoorambala Nadayil | Prithviraj | Basil | Anaswara | #ytshorts](https://www.youtube.com/watch?v=_HXW2Yr4JMI)
+- [Annarakanna Vaa | Animation Version Film Songs #shortsfeed #shortsvideo #reels  #animation](https://www.youtube.com/watch?v=D9ROSw5PmGc)
+- [Punnara Kattile Poovanatthil - Audio Song | Malaikottai Vaaliban | Mohanlal, Lijo Jose Pellissery](https://www.youtube.com/watch?v=Fg8XFXNesDk)
 - [സങ്കടങ്ങൾ ഏറ്റെടുക്കുന്ന ഗാനങ്ങൾ | KESTER SONGS #KESTERHITS](https://www.youtube.com/watch?v=s94kVJc9ioc)
 - [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=WQO6Noj5w24)
 - [ഈ മുഖം തൂമുഖം വിടരും | Akrosham | Evergreen Malayalam Songs](https://www.youtube.com/watch?v=TNjHg7CmtiY)
-- [കാത് കുളിർക്കെ കേട്ടിരിക്കാനിഷ്ടമുള്ള മധുര മനോഹര ഗാനങ്ങൾ | SUPERHIT FILM SONGS](https://www.youtube.com/watch?v=VXHdRXDtjF0)
-- [Ee Mukham Poomukham | Evergreen Malayalam Film Songs | Malayalam Romantic Songs](https://www.youtube.com/watch?v=x3oxY1pKWxc)
-- [Junile Nilamazhayil |  Nammal Thammil #kjyesudas #sujatha #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=veBbBe5obIE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
