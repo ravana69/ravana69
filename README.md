@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [എന്റെ ഇഷ്ടഗാനങ്ങള്‍ | Hits of Suresh Gopi | Video Jukebox | Malayalam Film Songs](https://www.youtube.com/watch?v=H8sDkeNLc2Q)
+- [സൂര്യകാന്തി പുഷ്പ്പമെന്നും സൂര്യനെ നോക്കുന്ന പോലെ...](https://www.youtube.com/watch?v=ekj0LsIgEvI)
 - [kanaka nilave | Kauravar | Mammootty | KJ Yesudas | Kaithapram | SP Venkitesh](https://www.youtube.com/watch?v=myXxcV94ltY)
 - [Thalamayanju | onv kurup | M.G. Sreekumar | Mohanlal | Shobana - Pavithram #songoftheday](https://www.youtube.com/watch?v=COmpCu3ztCM)
 - [Singer Of The Week | Manoj Christy | Christian Superhit Songs | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=o8Y8Sxam3sc)
 - [മലയാളികളുടെ ചങ്കിടിപ്പായ സൂപ്പർഹിറ്റ് അടിപൊളി ഗാനങ്ങൾ  | Adipoli Songs Malayalam](https://www.youtube.com/watch?v=KA3zTox4dZ4)
-- [Gangatheertham Vol.02 | Devotional Songs Lord Shiva | K J Yesudas | Mohandas | Sound of Arts](https://www.youtube.com/watch?v=Wo0TakXZjVk)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 4th of June 2024](https://www.youtube.com/watch?v=rLXYgh933UI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
