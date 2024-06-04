@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Apocalypse Rising &lpar;2018&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.8GB &amp; 950MB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180227-apocalypse-rising-2018-hd-original-audios-1080p-720p-x264-tamil-hindi-eng-18gb-950mb-x264-tamil-hindi-400mb/&do=findComment&comment=366632)
-- [Warrior Kings &lpar;2021&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0&rpar; &lpar;Tamil + Telugu + Hindi + Malayalam&rpar; - 1.6GB &amp; 900MB | x264 - &lpar;Multi&rpar; - 450MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180228-warrior-kings-2021-hd-original-audios-1080p-720p-x264-aac-20-tamil-telugu-hindi-malayalam-16gb-900mb-x264-multi-450mb/&do=findComment&comment=366631)
-- [Maanaadu &lpar;2021&rpar; AMZN &amp; SONY WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - [Tamil&lpar;DD+5.1&lpar;640kbps&rpar; + Telugu + Malayalam + Kannada] - AAC - 10.1GB - 4.6GB - 4.3GB - 1.9GB - 1.7GB &amp; 1.5GB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180217-maanaadu-2021-amzn-sony-web-dl-1080p-720p-avc-hevc-untouched-tamildd51640kbps-telugu-malayalam-kannada-aac-101gb-46gb-43gb-19gb-17gb-15gb-esub-gdrive/&do=findComment&comment=366630)
-- [Pithamagan &lpar;2003&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - AAC2.0&lpar;192kbps&rpar; - 7.9GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180235-pithamagan-2003-tamil-true-web-dl-1080p-720p-avc-untouched-aac20192kbps-79gb-55gb-27gb-14gb-x264-700mb-400mb-gdrive/&do=findComment&comment=366629)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [4-6-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/180234-movies-collection-all-languages-4k-1080p-720p-576p-480p-4-6-2024/&do=findComment&comment=366628)
+- [7.Aum.Arivu.2011.1080p, 720p .SS.WEB- DL.DD+5.1](https://www.1tamilmv.eu/index.php?/forums/topic/180240-7aumarivu20111080p-720p-ssweb-dldd51/&do=findComment&comment=366638)
+- [Master.2021.1080p, 720p .SS.WEB-DL.DD+5.1.Atmos](https://www.1tamilmv.eu/index.php?/forums/topic/180239-master20211080p-720p-ssweb-dldd51atmos/&do=findComment&comment=366637)
+- [Mad.Max.Fury.Road.2015 [English, Tamil, Telugu, Hindi].1080p, 720p .AMZN.W EB-DL.Multi.DD+5.1](https://www.1tamilmv.eu/index.php?/forums/topic/180238-madmaxfuryroad2015-english-tamil-telugu-hindi1080p-720p-amznw-eb-dlmultidd51/&do=findComment&comment=366636)
+- [Chen.Zhen. The.Tokyo.Fight.2019 [Chinese, Tamil, Telegu, Hindi] .1080p, 720p .AMZN.WEB-DL.Multi](https://www.1tamilmv.eu/index.php?/forums/topic/180237-chenzhen-thetokyofight2019-chinese-tamil-telegu-hindi-1080p-720p-amznweb-dlmulti/&do=findComment&comment=366635)
+- [Meendum Thedal &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 348Kbps&rpar; - 3.3GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180236-meendum-thedal-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-348kbps-33gb-13gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=366634)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
