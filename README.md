@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 5th June 2024](https://www.youtube.com/watch?v=5y0v6za2kwM)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=yHqlS5K9-BU)
 - [Un Punnagai | Ezhumalai | Mani Sharma | Mallikarjun & Harini | Hi-Res Audio](https://www.youtube.com/watch?v=lnV_DMKBwvc)
 - [നിശാഗന്ധീ നീയെത്രധന്യ..| കെ ജെ യേശുദാസ് | Chitra | Remastered songs | മലയാളചലച്ചിത്രഗാനങ്ങൾ](https://www.youtube.com/watch?v=aCgto3xSiKA)
 - [എന്റെ ഇഷ്ടഗാനങ്ങള്‍ | Hits of Suresh Gopi | Video Jukebox | Malayalam Film Songs](https://www.youtube.com/watch?v=H8sDkeNLc2Q)
 - [സൂര്യകാന്തി പുഷ്പ്പമെന്നും സൂര്യനെ നോക്കുന്ന പോലെ...](https://www.youtube.com/watch?v=ekj0LsIgEvI)
-- [kanaka nilave | Kauravar | Mammootty | KJ Yesudas | Kaithapram | SP Venkitesh](https://www.youtube.com/watch?v=myXxcV94ltY)
-- [Thalamayanju | onv kurup | M.G. Sreekumar | Mohanlal | Shobana - Pavithram #songoftheday](https://www.youtube.com/watch?v=COmpCu3ztCM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
