@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pithamagan &lpar;2003&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - AAC2.0&lpar;192kbps&rpar; - 7.9GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180235-pithamagan-2003-tamil-true-web-dl-1080p-720p-avc-untouched-aac20192kbps-79gb-55gb-27gb-14gb-x264-700mb-400mb-gdrive/&do=findComment&comment=366629)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [4-6-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/180234-movies-collection-all-languages-4k-1080p-720p-576p-480p-4-6-2024/&do=findComment&comment=366628)
 - [By Quantum Physics: A Nightlife Venture &lpar;2019&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Kor&rpar; - 2.3GB &amp; 1.3GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180190-by-quantum-physics-a-nightlife-venture-2019-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-kor-23gb-13gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=366627)
 - [Warrior Kings &lpar;2021&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0&rpar; &lpar;Tamil + Telugu + Hindi + Malayalam&rpar; - 1.6GB &amp; 900MB | x264 - &lpar;Multi&rpar; - 450MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180228-warrior-kings-2021-hd-original-audios-1080p-720p-x264-aac-20-tamil-telugu-hindi-malayalam-16gb-900mb-x264-multi-450mb/&do=findComment&comment=366626)
 - [Apocalypse Rising &lpar;2018&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.8GB &amp; 950MB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180227-apocalypse-rising-2018-hd-original-audios-1080p-720p-x264-tamil-hindi-eng-18gb-950mb-x264-tamil-hindi-400mb/&do=findComment&comment=366625)
-- [Patriot: A Nation at War &lpar;2019&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180226-patriot-a-nation-at-war-2019-hd-original-audios-1080p-720p-x264-tamil-hindi-eng-2gb-1gb-x264-tamil-hindi-400mb/&do=findComment&comment=366624)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
