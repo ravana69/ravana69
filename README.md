@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Apocalypse Rising &lpar;2018&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.8GB &amp; 950MB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180227-apocalypse-rising-2018-hd-original-audios-1080p-720p-x264-tamil-hindi-eng-18gb-950mb-x264-tamil-hindi-400mb/&do=findComment&comment=366625)
+- [Patriot: A Nation at War &lpar;2019&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180226-patriot-a-nation-at-war-2019-hd-original-audios-1080p-720p-x264-tamil-hindi-eng-2gb-1gb-x264-tamil-hindi-400mb/&do=findComment&comment=366624)
 - [Paradesi &lpar;2013&rpar; Tamil - SUNNXT WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;192kbps&rpar; - 4.2GB - 2.8GB &amp; 2.1GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180233-paradesi-2013-tamil-sunnxt-web-dl-1080p-720p-avc-untouched-dd51192kbps-42gb-28gb-21gb-gdrive/&do=findComment&comment=366623)
 - [Velaiyilla Pattathari &lpar;2014&rpar; Tamil - SUNNXT &amp; SS WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;192kbps&rpar; - 4.6GB - 3.2GB - 3.1GB - 2.3GB &amp; 1.6GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180232-velaiyilla-pattathari-2014-tamil-sunnxt-ss-web-dl-1080p-720p-avc-untouched-dd51192kbps-46gb-32gb-31gb-23gb-16gb-gdrive/&do=findComment&comment=366622)
 - [Tagore &lpar;2003&rpar; Telugu HQ HDTV-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 4.1GB &amp; 2.6GB]](https://www.1tamilmv.eu/index.php?/forums/topic/180231-tagore-2003-telugu-hq-hdtv-dl-1080p-720p-avc-aac-20-41gb-26gb/&do=findComment&comment=366621)
-- [Annavaram &lpar;2006&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; Ai 1080p WEB-HD UNTOUCHED - AVC - [Telugu DD 5.1 &lpar;448Kbps&rpar;] E-Sub By-Vincenzo](https://www.1tamilmv.eu/index.php?/forums/topic/180230-annavaram-2006-telugu-music-video-album-ai-1080p-web-hd-untouched-avc-telugu-dd-51-448kbps-e-sub-by-vincenzo/&do=findComment&comment=366620)
-- [Enakku 20 Unakku 18 &lpar;2003&rpar; Tamil - DSNP WEB-DL - 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - AAC2.0&lpar;128kbps&rpar; - 3.7GB - 3.1GB - 1.8GB - 1.5GB &amp; 1GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180229-enakku-20-unakku-18-2003-tamil-dsnp-web-dl-1080p-720p-avc-hevc-untouched-aac20128kbps-37gb-31gb-18gb-15gb-1gb-gdrive/&do=findComment&comment=366619)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
