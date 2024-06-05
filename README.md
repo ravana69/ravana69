@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Hey Viewers Listen To The Recent Vibe | Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=rcetTyBdz8E)
+- [Christian Healing Songs | Kg Markose | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=dB6zEx3eLNQ)
+- [Nadanna Sambavam - Unniyettan Character Teaser | Biju Menon | Vishnu Narayan | Ankit Menon](https://www.youtube.com/watch?v=MHp67nfWzl8)
+- [Kunninmele Peralin kombathu | Agninakshthram | Raveendran | Radhika Thilak | Evergreen Songs](https://www.youtube.com/watch?v=6LvIS5BrvOI)
 - [Muthani Munthiri|Pookalam Varavayi|Jayaram|Baby Shamili|](https://www.youtube.com/watch?v=qItq-8SADh0)
 - [ദുഃഖിക്കുന്നവർ ഭാഗ്യവാന്മാർ അവർക്ക് ആശ്വാസം ലഭിക്കും.😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=noIN6t23MNU)
-- [It's Time ⌚To Update Your Playlist 🎶|  Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=jcq2xFWCa2s)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 5th of June 2024](https://www.youtube.com/watch?v=-O4m_vIjtXI)
-- [Kanni Nilaavathu Video Song | Thacholi Othenan | P Leela | MS Baburaj](https://www.youtube.com/watch?v=aTBbXqJQm-0)
-- [Velikku Veluppaankaalam | Kaliyattam | Super Hit Malayalam Movie Song | Suresh Gopi | Manju Warrier](https://www.youtube.com/watch?v=sLj31SmAnrQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
