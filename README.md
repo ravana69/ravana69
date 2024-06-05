@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Yamunayum |  Amrutham |Video Song | G Venugopal | Kaithapram | M Jayachandran | Jayaram | Padmapriya](https://www.youtube.com/watch?v=Tg64X5FIapE)
 - [Pularumbo Thotte | Kunddala Puranam | Abhaya Hiranmayi | Blesson Thomas #ytshorts  #manoramamusic](https://www.youtube.com/watch?v=Tl2I21Q9CRk)
 - [Pularumbo Thotte | Kunddala Puranam | Abhaya Hiranmayi #ytshorts  #manoramamusic](https://www.youtube.com/watch?v=zctvr07U0LE)
 - [Pularumbo Thotte | Kunddala Puranam | Abhaya Hiranmayi | Blesson Thomas #ytshorts  #manoramamusic](https://www.youtube.com/watch?v=728fxg_qWCc)
 - [Pularumbo Thotte | Kunddala Puranam | Abhaya Hiranmayi | Blesson Thomas #ytshorts  #manoramamusic](https://www.youtube.com/watch?v=sS_rdfiM2TA)
 - [Pularumbo Thotte | Kunddala Puranam | Abhaya Hiranmayi | Blesson Thomas #ytshorts  #manoramamusic](https://www.youtube.com/watch?v=mUrZ3CFnLG4)
-- [Pularumbo Thotte | Kunddala Puranam | Abhaya Hiranmayi #ytshorts  #manoramamusic](https://www.youtube.com/watch?v=W2TulXBFvbs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
