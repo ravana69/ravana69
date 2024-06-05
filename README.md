@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 5th June 2024 # Novena to the Sacred Heart of Jesus 5th June 2024](https://www.youtube.com/watch?v=nqXF4Wuz4S4)
+- [Sthuthippin Sthuthippin |Christian Video Song | Daleema | Praise and Worship Songs | Christian Songs](https://www.youtube.com/watch?v=UP9CQDSkmcI)
+- [Japamala  5th of June  2024 # Mathavinte Japamala # Prakashathinte Rahasyangal 5th of June  2024](https://www.youtube.com/watch?v=mZOzxxovFkI)
+- [ഇന്ന് ജൂൺ 5. എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala #rosary june5](https://www.youtube.com/watch?v=I-nGWD5y5DY)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=mWdu9reYHDI)
 - [പ്രഭാത പ്രാര്‍ത്ഥന June 5 # Athiravile Prarthana 5th of June 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=5lmYPf1prpg)
-- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=DRClgXIu_xo)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 5th June 2024](https://www.youtube.com/watch?v=5y0v6za2kwM)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=yHqlS5K9-BU)
-- [Un Punnagai | Ezhumalai | Mani Sharma | Mallikarjun & Harini | Hi-Res Audio](https://www.youtube.com/watch?v=lnV_DMKBwvc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
