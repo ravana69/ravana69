@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Prem Nazir Old Superhit Movie Song l Iniyum Kaanaa Movie | Prem Nazir, Ushakumari](https://www.youtube.com/watch?v=VP3W7tHRPHg)
-- [അളവില്ല നന്മയും ദൈവമേ #Alavilla nanmayam dhaivame #kester #jojo johny #johnson kk #vachanam audios](https://www.youtube.com/watch?v=rEeJ1owN8i0)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 5th June 2024 # Novena to the Sacred Heart of Jesus 5th June 2024](https://www.youtube.com/watch?v=nqXF4Wuz4S4)
-- [Sthuthippin Sthuthippin |Christian Video Song | Daleema | Praise and Worship Songs | Christian Songs](https://www.youtube.com/watch?v=UP9CQDSkmcI)
-- [Japamala  5th of June  2024 # Mathavinte Japamala # Prakashathinte Rahasyangal 5th of June  2024](https://www.youtube.com/watch?v=mZOzxxovFkI)
-- [ഇന്ന് ജൂൺ 5. എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala #rosary june5](https://www.youtube.com/watch?v=I-nGWD5y5DY)
+- [Pularumbo Thotte | Kunddala Puranam | Abhaya Hiranmayi | Blesson Thomas #ytshorts  #manoramamusic](https://www.youtube.com/watch?v=Tl2I21Q9CRk)
+- [Pularumbo Thotte | Kunddala Puranam | Abhaya Hiranmayi #ytshorts  #manoramamusic](https://www.youtube.com/watch?v=zctvr07U0LE)
+- [Pularumbo Thotte | Kunddala Puranam | Abhaya Hiranmayi | Blesson Thomas #ytshorts  #manoramamusic](https://www.youtube.com/watch?v=728fxg_qWCc)
+- [Pularumbo Thotte | Kunddala Puranam | Abhaya Hiranmayi | Blesson Thomas #ytshorts  #manoramamusic](https://www.youtube.com/watch?v=sS_rdfiM2TA)
+- [Pularumbo Thotte | Kunddala Puranam | Abhaya Hiranmayi | Blesson Thomas #ytshorts  #manoramamusic](https://www.youtube.com/watch?v=mUrZ3CFnLG4)
+- [Pularumbo Thotte | Kunddala Puranam | Abhaya Hiranmayi #ytshorts  #manoramamusic](https://www.youtube.com/watch?v=W2TulXBFvbs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
