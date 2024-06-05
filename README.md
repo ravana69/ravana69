@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The Legend of Hanuman S04 [E01-E02] 1080p DSNP WEB-DL Multi DDP5.1 Esubs x264 - 690 MB](https://www.1tamilmv.eu/index.php?/forums/topic/180245-the-legend-of-hanuman-s04-e01-e02-1080p-dsnp-web-dl-multi-ddp51-esubs-x264-690-mb/&do=findComment&comment=366644)
+- [The Mummy Trilogy &lpar;1999 - 2008&rpar; Open Matte 1080p WEBDL Multi Original &lpar;DD5.1&rpar; Audios [Tamil+Telugu+Hindi+English] - [24GB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180244-the-mummy-trilogy-1999-2008-open-matte-1080p-webdl-multi-original-dd51-audios-tamilteluguhindienglish-24gb-esub/&do=findComment&comment=366643)
+- [Badri &lpar;2001&rpar; ASTRO WEB-DL AAC.2.0 Esubs x264 - 1080p | 720p - 5.5 GB | 2.3 GB](https://www.1tamilmv.eu/index.php?/forums/topic/180243-badri-2001-astro-web-dl-aac20-esubs-x264-1080p-720p-55-gb-23-gb/&do=findComment&comment=366642)
+- [Yuganiki Okkadu &lpar;2010&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180242-yuganiki-okkadu-2010-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-7gb-esub/&do=findComment&comment=366641)
 - [The Legend Of Hanuman &lpar;2024&rpar; S04 EP &lpar;01-02&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - &lpar;AAC 2.0&rpar; - 3.8GB - 1.7GB &amp; 550MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180241-the-legend-of-hanuman-2024-s04-ep-01-02-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-aac-20-38gb-17gb-550mb-esub/&do=findComment&comment=366640)
-- [30 Telugu Movies - 1080p - SNXT/ZEE5/DSNP/AHA WEB DL - x264 - DD5.1/AAC2.0 - ESub - 75GB](https://www.1tamilmv.eu/index.php?/forums/topic/121832-30-telugu-movies-1080p-snxtzee5dsnpaha-web-dl-x264-dd51aac20-esub-75gb/&do=findComment&comment=366639)
-- [7.Aum.Arivu.2011.1080p, 720p .SS.WEB- DL.DD+5.1](https://www.1tamilmv.eu/index.php?/forums/topic/180240-7aumarivu20111080p-720p-ssweb-dldd51/&do=findComment&comment=366638)
-- [Master.2021.1080p, 720p .SS.WEB-DL.DD+5.1.Atmos](https://www.1tamilmv.eu/index.php?/forums/topic/180239-master20211080p-720p-ssweb-dldd51atmos/&do=findComment&comment=366637)
-- [Mad.Max.Fury.Road.2015 [English, Tamil, Telugu, Hindi].1080p, 720p .AMZN.W EB-DL.Multi.DD+5.1](https://www.1tamilmv.eu/index.php?/forums/topic/180238-madmaxfuryroad2015-english-tamil-telugu-hindi1080p-720p-amznw-eb-dlmultidd51/&do=findComment&comment=366636)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
