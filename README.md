@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Poonila Kulire Vaayo  | Malsaram | S Ramesan Nair | M Jayachandran |  Sujatha](https://www.youtube.com/watch?v=IQmpsSZm-pc)
+- [Oru kili Paattu Moolave | Vadakkumnathan | Raveendran |  K J Yesudas | K S Chithra #SongOfTheDay](https://www.youtube.com/watch?v=1GCmjbpIW-w)
 - [Hey Viewers Listen To The Recent Vibe | Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=rcetTyBdz8E)
 - [Christian Healing Songs | Kg Markose | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=dB6zEx3eLNQ)
 - [Nadanna Sambavam - Unniyettan Character Teaser | Biju Menon | Vishnu Narayan | Ankit Menon](https://www.youtube.com/watch?v=MHp67nfWzl8)
 - [Kunninmele Peralin kombathu | Agninakshthram | Raveendran | Radhika Thilak | Evergreen Songs](https://www.youtube.com/watch?v=6LvIS5BrvOI)
-- [Muthani Munthiri|Pookalam Varavayi|Jayaram|Baby Shamili|](https://www.youtube.com/watch?v=qItq-8SADh0)
-- [ദുഃഖിക്കുന്നവർ ഭാഗ്യവാന്മാർ അവർക്ക് ആശ്വാസം ലഭിക്കും.😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=noIN6t23MNU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
