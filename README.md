@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Varshangalkku Shesham &lpar;2024&rpar; Tamil TRUE WEB-DL - [4K,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 256Kbps&rpar; - 13GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180266-varshangalkku-shesham-2024-tamil-true-web-dl-4k1080p-720p-avc-hevc-dd51-256kbps-13gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=366698)
 - [Varshangalkku Shesham &lpar;2024&rpar; TRUE WEB-DL - [4K,1080p &amp; 720p - AVC - [Telugu + Hindi + Kannada] - &lpar;DD+5.1 - 256Kbps&rpar; - 6GB - 2.6GB &amp; 1.4GB] - [x264 - 850MB &amp; 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180268-varshangalkku-shesham-2024-true-web-dl-4k1080p-720p-avc-telugu-hindi-kannada-dd51-256kbps-6gb-26gb-14gb-x264-850mb-450mb-esub/&do=findComment&comment=366697)
 - [Varshangalkku Shesham &lpar;2024&rpar; Malayalam TRUE WEB-DL - [4K,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 6GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180267-varshangalkku-shesham-2024-malayalam-true-web-dl-4k1080p-720p-avc-hevc-dd51-atmos-448kbps-6gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=366695)
 - [Varshangalkku Shesham &lpar;2024&rpar; Tamil TRUE WEB-DL - [4K,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 256Kbps&rpar; - 13GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180266-varshangalkku-shesham-2024-tamil-true-web-dl-4k1080p-720p-avc-hevc-dd51-256kbps-13gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=366694)
 - [Swayamvaram &lpar;1999&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 384Kbps&rpar; - 5.3GB - ESub - Supreme DVD](https://www.1tamilmv.eu/index.php?/forums/topic/178965-swayamvaram-1999-telugu-dvd9-untouched-480p-dd51-384kbps-53gb-esub-supreme-dvd/&do=findComment&comment=366693)
-- [Kalki &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180265-kalki-2024-telugu-true-web-dl-1080p-720p-avc-aac-20-29gb-14gb-x264-700mb-400mb/&do=findComment&comment=366692)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
