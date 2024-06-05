@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 6th June 2024](https://www.youtube.com/watch?v=E4A-V8RW2LM)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=K3opXRB2xOE)
 - [മനസിലെ സൂര്യനായ് ഉദിക്കുമെങ്കിൽ...](https://www.youtube.com/watch?v=6ZrzibRvaH4)
 - [Poonila Kulire Vaayo  | Malsaram | S Ramesan Nair | M Jayachandran |  Sujatha](https://www.youtube.com/watch?v=IQmpsSZm-pc)
 - [Oru kili Paattu Moolave | Vadakkumnathan | Raveendran |  K J Yesudas | K S Chithra #SongOfTheDay](https://www.youtube.com/watch?v=1GCmjbpIW-w)
 - [Hey Viewers Listen To The Recent Vibe | Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=rcetTyBdz8E)
-- [Christian Healing Songs | Kg Markose | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=dB6zEx3eLNQ)
-- [Nadanna Sambavam - Unniyettan Character Teaser | Biju Menon | Vishnu Narayan | Ankit Menon](https://www.youtube.com/watch?v=MHp67nfWzl8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
