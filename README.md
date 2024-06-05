@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Mouna Raagam &lpar;1986&rpar; Tamil PROPER DVDRip - Xvid - AC3 - &lpar;DD2.0&rpar; - 1.7GB - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/180254-mouna-raagam-1986-tamil-proper-dvdrip-xvid-ac3-dd20-17gb-gdflix/&do=findComment&comment=366680)
-- [Tantiram.2023 [Telugu, Hindi, Tamil, Kannada, Malayalam] .1080p, 720p .AMZN.WEB- DL.MULTI.DDP5.1](https://www.1tamilmv.eu/index.php?/forums/topic/180261-tantiram2023-telugu-hindi-tamil-kannada-malayalam-1080p-720p-amznweb-dlmultiddp51/&do=findComment&comment=366679)
-- [The.Acolyte.S01.MULTi.1080p.Hotstar.WEB-DL.DDP5.1](https://www.1tamilmv.eu/index.php?/forums/topic/180260-theacolytes01multi1080photstarweb-dlddp51/&do=findComment&comment=366678)
-- [By.Quantum.Physics.A.Nightlife.Venture.2019 [Hindi, Tamil, Telugu, Korean] .1080p.AMZN.WEB-DL.Multi.DDP2.0](https://www.1tamilmv.eu/index.php?/forums/topic/180259-byquantumphysicsanightlifeventure2019-hindi-tamil-telugu-korean-1080pamznweb-dlmultiddp20/&do=findComment&comment=366677)
-- [Perfume &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 340Kbps&rpar; - 2.9GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180258-perfume-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-340kbps-29gb-13gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=366676)
+- [Kalyan Ram Kathi &lpar;2010&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.7GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/178681-kalyan-ram-kathi-2010-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-67gb-esub/&do=findComment&comment=366687)
+- [Vasantam &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.8GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/178766-vasantam-2003-telugu-dvd9-untouched-480p-dd51-448kbps-68gb-esub/&do=findComment&comment=366686)
+- [Andala Ramudu &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.8GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179051-andala-ramudu-2006-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-68gb-esub/&do=findComment&comment=366685)
+- [Diary &lpar;2009&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179073-diary-2009-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-6gb-esub/&do=findComment&comment=366684)
+- [Bade Miyan Chote Miyan &lpar;2024&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Telugu + Malayalam + Kannada] - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180264-bade-miyan-chote-miyan-2024-true-web-dl-1080p-720p-avc-hevc-telugu-malayalam-kannada-dd51-640kbps-6gb-26gb-14gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=366683)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
