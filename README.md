@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ കേൾക്കാൻ ഏറ്റവും നല്ല ഗാനങ്ങൾ daily worship songs | christian devotional songs malayalam](https://www.youtube.com/watch?v=_MGGj79iQ5o)
+- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 6th June 2024 # Novena to the Sacred Heart of Jesus 6th June 2024](https://www.youtube.com/watch?v=evTvHGlDHpo)
+- [കെസ്റ്റർ പാടിയ അനശ്വര ഗാനങ്ങൾ | Christian Devotional SOngs Malayalam | Kester](https://www.youtube.com/watch?v=8YmiC7pqblE)
+- [Japamala 6th of June 2024 # Mathavinte Japamala # Prakshathinte Rahasyangal 6th of June  2024](https://www.youtube.com/watch?v=pa8P2icoB9o)
+- [ഇന്ന് ജൂൺ 6. എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala #rosary june6](https://www.youtube.com/watch?v=XDoffY84Uyk)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=lOUtb0qf4lM)
-- [രാവിലെ പ്രാര്‍ത്ഥന June 6 # Athiravile Prarthana 6th of June 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=n4x1iG5VJZ8)
-- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=Z6ja9xS-jtQ)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 6th June 2024](https://www.youtube.com/watch?v=E4A-V8RW2LM)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=K3opXRB2xOE)
-- [മനസിലെ സൂര്യനായ് ഉദിക്കുമെങ്കിൽ...](https://www.youtube.com/watch?v=6ZrzibRvaH4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
