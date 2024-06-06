@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [HOL Hear Out Loud 🔊🎶|  | Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=MOhUhSDqOpk)
+- [Chembakamalaroli | Ilavankodu Desam | K J Yesudas | K S Chithra | Vidyasagar | O N V Kurup](https://www.youtube.com/watch?v=3mnTagp3yUY)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 6th of June 2024](https://www.youtube.com/watch?v=rgjFBRrm3iM)
 - [നടന്ന്തുടങ്ങുക വഴി താനേ തുറന്നുകൊള്ളും....😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=KxJSzJyuNoc)
 - [Pachamaanga Pachamaanga Video Song | Vellithira | Prithviraj | Navya Nair](https://www.youtube.com/watch?v=MYpOMvpJlJc)
 - [MAARILLAVAN |മാറില്ലവൻ മറക്കില്ലവൻ  | ROY PUTHUR  & TEAM #maramonconvention  #royputhur](https://www.youtube.com/watch?v=boVcy5J0Ehs)
-- [പൊന്നിൽ കുളിചു Video Song | Sallapam #shorts](https://www.youtube.com/watch?v=qySuxJ-NL9Y)
-- [Doore Doore Saagaram Thedi Video Song | Varavelpu | Mohanlal | Revathi | KS Chithra | Johnson](https://www.youtube.com/watch?v=gPx6Bi2OQD8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
