@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Tagore &lpar;2003&rpar; Telugu HQ HDTV-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 4.1GB &amp; 2.6GB]](https://www.1tamilmv.eu/index.php?/forums/topic/180231-tagore-2003-telugu-hq-hdtv-dl-1080p-720p-avc-aac-20-41gb-26gb/&do=findComment&comment=366700)
 - [Bade Miyan Chote Miyan &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180263-bade-miyan-chote-miyan-2024-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=366699)
 - [Varshangalkku Shesham &lpar;2024&rpar; Tamil TRUE WEB-DL - [4K,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 256Kbps&rpar; - 13GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180266-varshangalkku-shesham-2024-tamil-true-web-dl-4k1080p-720p-avc-hevc-dd51-256kbps-13gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=366698)
 - [Varshangalkku Shesham &lpar;2024&rpar; TRUE WEB-DL - [4K,1080p &amp; 720p - AVC - [Telugu + Hindi + Kannada] - &lpar;DD+5.1 - 256Kbps&rpar; - 6GB - 2.6GB &amp; 1.4GB] - [x264 - 850MB &amp; 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180268-varshangalkku-shesham-2024-true-web-dl-4k1080p-720p-avc-telugu-hindi-kannada-dd51-256kbps-6gb-26gb-14gb-x264-850mb-450mb-esub/&do=findComment&comment=366697)
 - [Varshangalkku Shesham &lpar;2024&rpar; Malayalam TRUE WEB-DL - [4K,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 ATMOS - 448Kbps&rpar; - 6GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180267-varshangalkku-shesham-2024-malayalam-true-web-dl-4k1080p-720p-avc-hevc-dd51-atmos-448kbps-6gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=366695)
-- [Varshangalkku Shesham &lpar;2024&rpar; Tamil TRUE WEB-DL - [4K,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 256Kbps&rpar; - 13GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180266-varshangalkku-shesham-2024-tamil-true-web-dl-4k1080p-720p-avc-hevc-dd51-256kbps-13gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=366694)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
