@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [7 Seconds &lpar;2005&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180279-7-seconds-2005-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-hindi-eng-2gb-1gb-x264-tam-hin-400mb-esub/&do=findComment&comment=366731)
 - [Street Fighter &lpar;1994&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180246-street-fighter-1994-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-2gb-1gb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=366730)
-- [Gullak &lpar;2024&rpar; S04 EP &lpar;01-05&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - 5.4GB - 2GB &amp; 800MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180278-gullak-2024-s04-ep-01-05-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-54gb-2gb-800mb-esub/&do=findComment&comment=366729)
+- [Gullak &lpar;2024&rpar; S04 EP &lpar;01-05&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - 5.4GB - 1.5GB &amp; 600MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180278-gullak-2024-s04-ep-01-05-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-54gb-15gb-600mb-esub/&do=findComment&comment=366729)
 - [Bade Miyan Chote Miyan &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 6GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180263-bade-miyan-chote-miyan-2024-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-6gb-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=366728)
 - [Die in a Gunfight &lpar;2021&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180274-die-in-a-gunfight-2021-bluray-original-audios-1080p-720p-x264-tamil-telugu-hindi-eng-2gb-1gb-x264-tamil-telugu-hindi-400mb-esub/&do=findComment&comment=366727)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [6-6-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/180277-movies-collection-all-languages-4k-1080p-720p-576p-480p-6-6-2024/&do=findComment&comment=366726)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
