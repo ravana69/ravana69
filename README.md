@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Kann Kandath Nijam - Audio Song | Malaikottai Vaaliban | Mohanlal | Prashant Pillai | LJP](https://www.youtube.com/watch?v=Zjtd5ofHKEk)
-- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=bb3m-jMsOdM)
-- [Magha Masam Mallikappoo | മാഘമാസം മല്ലികപ്പൂ | Ente Ponnu Thampuran Movie Hit Song | Sureshgopi](https://www.youtube.com/watch?v=F-J5eKE9mwQ)
-- [Sree Yeshunadhan | Malayalam Christian Devotional Songs | Super Hit Songs  of Jesus | Audio Jukebox](https://www.youtube.com/watch?v=oWyCGn6en1U)
-- [Junile Nilamazhayil | Live with UNTAGGED |Cover Version| Anila Rajeev | Mahesh Mohan| M Jayachandran](https://www.youtube.com/watch?v=MzXTjlXoNpE)
-- [Sembakame Sevappazhake | Shikkar | Mohanlal | Lal | M Jayachandran | Gireesh Puthanchery](https://www.youtube.com/watch?v=vmhzu0mADow)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 6th of June 2024](https://www.youtube.com/watch?v=rgjFBRrm3iM)
+- [നടന്ന്തുടങ്ങുക വഴി താനേ തുറന്നുകൊള്ളും....😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=KxJSzJyuNoc)
+- [Pachamaanga Pachamaanga Video Song | Vellithira | Prithviraj | Navya Nair](https://www.youtube.com/watch?v=MYpOMvpJlJc)
+- [MAARILLAVAN |മാറില്ലവൻ മറക്കില്ലവൻ  | ROY PUTHUR  & TEAM #maramonconvention  #royputhur](https://www.youtube.com/watch?v=boVcy5J0Ehs)
+- [പൊന്നിൽ കുളിചു Video Song | Sallapam #shorts](https://www.youtube.com/watch?v=qySuxJ-NL9Y)
+- [Doore Doore Saagaram Thedi Video Song | Varavelpu | Mohanlal | Revathi | KS Chithra | Johnson](https://www.youtube.com/watch?v=gPx6Bi2OQD8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
