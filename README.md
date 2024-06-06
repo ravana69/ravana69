@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [30 Telugu Movies - 1080p - SNXT/ZEE5/AHA/JC WEB DL - AVC - x264 - DD5.1/AAC2.0 - ESub - 75GB](https://www.1tamilmv.eu/index.php?/forums/topic/121834-30-telugu-movies-1080p-snxtzee5ahajc-web-dl-avc-x264-dd51aac20-esub-75gb/&do=findComment&comment=366738)
+- [Idhayathai Thirudathe &lpar;1989&rpar; Tamil PROPER DVDRip - Xvid - AC3 - &lpar;DD5.1&rpar; - 1.7GB - ESub - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/180284-idhayathai-thirudathe-1989-tamil-proper-dvdrip-xvid-ac3-dd51-17gb-esub-gdflix/&do=findComment&comment=366737)
+- [Agni Natchathiram &lpar;1988&rpar; Tamil PROPER DVDRip - Xvid - AC3 - &lpar;DD2.0&rpar; - 1.7GB - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/180283-agni-natchathiram-1988-tamil-proper-dvdrip-xvid-ac3-dd20-17gb-gdflix/&do=findComment&comment=366736)
 - [Tenant &lpar;2024&rpar; Telugu TRUE WEB-DL – [1080p, 720p, 576p] – AVC – &lpar;DD+5.1 – 640Kbps &amp; AAC&rpar; – ESub - Direct Download](https://www.1tamilmv.eu/index.php?/forums/topic/180281-tenant-2024-telugu-true-web-dl-%E2%80%93-1080p-720p-576p-%E2%80%93-avc-%E2%80%93-dd51-%E2%80%93-640kbps-aac-%E2%80%93-esub-direct-download/&do=findComment&comment=366734)
 - [Bad Boys Trilogy &lpar;1995-2020&rpar; BluRay - 4K [2160p] 10bit SDR - HEVC - [Tamil + Telugu + Hindi + English] - DD+5.1&lpar;640kbps&rpar; - 5.6GB - 8.5GB &amp; 7.2GB - ESub [21.3GB] [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180273-bad-boys-trilogy-1995-2020-bluray-4k-2160p-10bit-sdr-hevc-tamil-telugu-hindi-english-dd51640kbps-56gb-85gb-72gb-esub-213gb-gdrive/&do=findComment&comment=366733)
-- [Ground &lpar;2024&rpar; Telugu AMZN TRUE WEB-DL – [1080p, 720p, 576p] – AVC – &lpar;DD+5.1 – 640Kbps &amp; AAC&rpar; – ESub - Direct Download](https://www.1tamilmv.eu/index.php?/forums/topic/180280-ground-2024-telugu-amzn-true-web-dl-%E2%80%93-1080p-720p-576p-%E2%80%93-avc-%E2%80%93-dd51-%E2%80%93-640kbps-aac-%E2%80%93-esub-direct-download/&do=findComment&comment=366732)
-- [7 Seconds &lpar;2005&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180279-7-seconds-2005-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-hindi-eng-2gb-1gb-x264-tam-hin-400mb-esub/&do=findComment&comment=366731)
-- [Street Fighter &lpar;1994&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180246-street-fighter-1994-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-2gb-1gb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=366730)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
