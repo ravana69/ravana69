@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [എത്രകേട്ടാലും മതി വരാത്ത നാടെങ്ങും കൊട്ടിപ്പാടിയ മെലഡി ഗാനങ്ങൾ | SUPERHIT FILM SONGS](https://www.youtube.com/watch?v=07d9knhuqsc)
+- [സുജാത ആലപിച്ച ഏവർക്കും ഇഷ്ടമുള്ള ഹിറ്റ് ഗാനങ്ങൾ  | HITS OF SUJATHA | EVERGREEN MELODY SONGS](https://www.youtube.com/watch?v=ygkpxAIalvI)
+- [Christian Superhit Songs | Abhijith Kollam | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=nIBZfAzuBf8)
+- [കേൾക്കാനിഷ്ടമുള്ള  മലയാളസിനിമയിലെ സൂപ്പർഹിറ്റ് മെലഡി ഗാനങ്ങൾ | MELODY SONGS MALAYALAM](https://www.youtube.com/watch?v=nvtcWD8rvW4)
 - [HOL Hear Out Loud 🔊🎶|  | Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=MOhUhSDqOpk)
 - [Chembakamalaroli | Ilavankodu Desam | K J Yesudas | K S Chithra | Vidyasagar | O N V Kurup](https://www.youtube.com/watch?v=3mnTagp3yUY)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 6th of June 2024](https://www.youtube.com/watch?v=rgjFBRrm3iM)
-- [നടന്ന്തുടങ്ങുക വഴി താനേ തുറന്നുകൊള്ളും....😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=KxJSzJyuNoc)
-- [Pachamaanga Pachamaanga Video Song | Vellithira | Prithviraj | Navya Nair](https://www.youtube.com/watch?v=MYpOMvpJlJc)
-- [MAARILLAVAN |മാറില്ലവൻ മറക്കില്ലവൻ  | ROY PUTHUR  & TEAM #maramonconvention  #royputhur](https://www.youtube.com/watch?v=boVcy5J0Ehs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
