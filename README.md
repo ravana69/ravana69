@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 7th June 2024](https://www.youtube.com/watch?v=pOIdzW2dmBM)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=yEsAmoOm3Bg)
 - [Ye Paadal Ondru | Priya | Ilaiyaraaja | K.J.Yesudas & S.Janaki | Hi-Res Audio](https://www.youtube.com/watch?v=JUeqnXZ4QdM)
 - [തിരുഹൃദയമേ, തീരാത്ത സ്നേഹമേ..](https://www.youtube.com/watch?v=kiUioUQ8Q9A)
 - [Pathira Poochoodi | Mayilpeelikavu | Bearny Ignatius |  Yesudas | Chithra #SongOfTheDay](https://www.youtube.com/watch?v=s5KxzxdDUuI)
 - [Ilam Khalbile | Malsaram | S Ramesan Nair | M Jayachandran | KJ Yesudas](https://www.youtube.com/watch?v=2-dFQIEu58g)
-- [എത്രകേട്ടാലും മതി വരാത്ത നാടെങ്ങും കൊട്ടിപ്പാടിയ മെലഡി ഗാനങ്ങൾ | SUPERHIT FILM SONGS](https://www.youtube.com/watch?v=07d9knhuqsc)
-- [സുജാത ആലപിച്ച ഏവർക്കും ഇഷ്ടമുള്ള ഹിറ്റ് ഗാനങ്ങൾ  | HITS OF SUJATHA | EVERGREEN MELODY SONGS](https://www.youtube.com/watch?v=ygkpxAIalvI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
