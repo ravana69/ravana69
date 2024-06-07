@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 8th June 2024](https://www.youtube.com/watch?v=UKYjGYocWX4)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=N7F84t32138)
 - [ഉഷകാലം നാം എഴുന്നേൽക്കുക | USHAKAALAM NAAM | ROY PUTHUR | MIDHILA #christiandevotionalsongs](https://www.youtube.com/watch?v=-gsMKEsTmKs)
 - [വിമലഹൃദയത്തിൻ രാജ്ഞി മാതാവേ...](https://www.youtube.com/watch?v=gFLBEH4c4bg)
 - [Varuvaanillaaruminnorunalum | Manichithrathaazhu | K S Chithra | M G Radhakrishnan #SongOfTheDay](https://www.youtube.com/watch?v=SmqE17QwjAE)
 - [Hare Krishna Listen To Our K- For Krishna | Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=43Al3Zd8QcE)
-- [Peru Chollam Kaathil | Agninakshathram | Shibu Chakravarthy | Raveendran | K.S.Chithra](https://www.youtube.com/watch?v=A-qlq4hlGu0)
-- [Ezhu Nirangalulla Kuppivala|Radha Madhavam|Parvathy Jayaram|Jayaram|](https://www.youtube.com/watch?v=FXiYBm5M4W8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
