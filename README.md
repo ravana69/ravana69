@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thekkini Kolayil | Film Song Shorts #filmsongs  #manoramamusic](https://www.youtube.com/watch?v=5mrJRiEYiyA)
+- [Kaattum Thiramalayum | Kester | Graham Varghese #shorts #kester](https://www.youtube.com/watch?v=IQ5FbPd1pxE)
 - [മാതാവിനോടുള്ള സംരക്ഷണ പ്രാർത്ഥന  കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mothermarysongsmalayalam#june 7th](https://www.youtube.com/watch?v=4EBFflye8yg)
 - [Aadyakurabanayayi | Christian Songs | Rithuraj |First Holy Communion Song | James | Joji Johns](https://www.youtube.com/watch?v=uiLEP6T3ufw)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 6th June 2024 # Novena to the Sacred Heart of Jesus 7th June 2024](https://www.youtube.com/watch?v=JSOYruhoEhA)
 - [ജനഹൃദയങ്ങളിൽ കയറിപ്പറ്റിയ അനശ്വരഗാനങ്ങൾ Exclusive Hits!! Kester Superhit praise & worship songs](https://www.youtube.com/watch?v=-L4KmaRDNf4)
-- [Japamala 7th of June 2024 # Dhukhathinte Japamala # Dhukhathinte Rahasyangal 7th of June  2024](https://www.youtube.com/watch?v=irXWKwYIb5o)
-- [ഇന്ന് ജൂൺ 7.എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala #rosary june](https://www.youtube.com/watch?v=Pf5kq_GAgsA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
