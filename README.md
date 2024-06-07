@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Star &lpar;2024&rpar; AMZN WEB-DL DDP5.1 Esubs - 2160p | 1080p - 17.1 GB | 9.2 GB](https://www.1tamilmv.eu/index.php?/forums/topic/180296-star-2024-amzn-web-dl-ddp51-esubs-2160p-1080p-171-gb-92-gb/&do=findComment&comment=366770)
+- [Gullak &lpar;2024&rpar; S04 EP &lpar;01-05&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - 5.4GB - 1.5GB &amp; 600MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180278-gullak-2024-s04-ep-01-05-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-54gb-15gb-600mb-esub/&do=findComment&comment=366769)
 - [Baasha &lpar;1995&rpar; TRUE WEB-DL - 4K , 1080p &amp; 720p - AVC - UNTOUCHED - [Tamil&lpar;DD5.1&lpar;256kbps&rpar; + Telugu&lpar;AAC2.0&lpar;256kbps&rpar; + Hindi&lpar;DD2.0&lpar;192kbps&rpar;] - 10.3GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180257-baasha-1995-true-web-dl-4k-1080p-720p-avc-untouched-tamildd51256kbps-teluguaac20256kbps-hindidd20192kbps-103gb-55gb-27gb-14gb-x264-700mb-400mb-esub-gdrive/&do=findComment&comment=366768)
 - [The Key Game &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Spa&rpar; - 3.1GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180290-the-key-game-2022-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-spa-31gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=366767)
 - [Rathnam &lpar;2024&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 3GB &amp; 1.4GB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180291-rathnam-2024-true-web-dl-1080p-720p-avc-hevc-malayalam-kannada-dd51-192kbps-3gb-14gb-x264-750mb-450mb-esub/&do=findComment&comment=366766)
-- [Fighter &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.5GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180292-fighter-2023-kannada-true-web-dl-1080p-720p-avc-dd51-192kbps-25gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=366765)
-- [Star &lpar;2024&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/180295-star-2024-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps/&do=findComment&comment=366764)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
