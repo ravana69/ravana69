@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vibe For K For Krishna Join Your Hands| Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=C7Xf1CzkOR4)
 - [Pushpaka Vimanam - Motion Poster | Ullas Krishna | Siju Wilson | Balu Varghese](https://www.youtube.com/watch?v=M4Vq8kRWBfk)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 7th of June 2024](https://www.youtube.com/watch?v=WyMIDohYkyA)
 - [അധ്വാനിക്കുന്നവരെ  ഭാരം ചുമക്കുന്നവരെ  എന്റെ അടുക്കൽ  വരുവിൻ | Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=dVJkXE402vI)
 - [Karineela Kannazhaki Video Song | Kannaki | Nandita | KS Chithra | Kaithapram | Kaithapram Viswanath](https://www.youtube.com/watch?v=n5cgpQCa4vA)
 - [Oraayiram Kinaakkalal Video Song | Ramji Rao Speaking | KS Chithra | MG Sreekumar](https://www.youtube.com/watch?v=Cl5BFHd8WiY)
-- [വൈശാഖസന്ധ്യേ നിൻ ചുണ്ടിലെന്തേ #romantic #mohanlal](https://www.youtube.com/watch?v=wLX3hWfUvqg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
