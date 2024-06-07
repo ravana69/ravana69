@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പാട്ടുപെട്ടി | Paattupetti Vol 47 | Nostalgic Malayalam Movie Songs | ഹൃദയം കവരും മനോഹര ഗാനങ്ങൾ](https://www.youtube.com/watch?v=YRYptfyQRdw)
+- [Guruvayoorambala Nadayil - Full Album | Prithviraj | Basil Joseph | Ankit Menon | Vipin Das](https://www.youtube.com/watch?v=u1rDYhLI7nI)
 - [Sathyan, Sharada Old Romantic Superhit Movie Song l Mooladhanam Movie | Prem Nazir](https://www.youtube.com/watch?v=a0i3sIGMK4g)
 - [Priyathame | Kanaka Simhasanam | Lyrical + Karaoke Video | K J Yesudas | K S Chitra | M Jayachandran](https://www.youtube.com/watch?v=t_BhxYVC1U4)
 - [Neela Nilave - Ambient Lofi | RDX | Sam C.S | Kapil Kapilan | Heart Killer Beats](https://www.youtube.com/watch?v=o9nxK-MpRcM)
 - [Ariyathe Ariyathe | Ravanaprabhu | Mohanlal | Vasundhara Das | Suresh Peters | P Jayachandran](https://www.youtube.com/watch?v=nuY2cvl5xJ4)
-- [Oh Sainaba | Amrutham #kjyesudas #kschithra #shortsfeed #shortsvideo #shorts #mjayachandran](https://www.youtube.com/watch?v=Tpiwd7GVdTU)
-- [Theerchayila Janam | Usthad | Vidyasagar  | Mohanlal | Siddique | Sibi Malayil](https://www.youtube.com/watch?v=12qgpgu3xb4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
