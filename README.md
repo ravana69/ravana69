@@ -33,11 +33,11 @@
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
 - [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=kkp6Ip64BLg)
+- [മൂന്ന് ഭാഷകളിലായി മേഘ്‌നക്കുട്ടി പാടി വൈറൽ ആക്കിയ ഗാനങ്ങൾ | @JinoKunnumpurathu @MeghnaSumesh](https://www.youtube.com/watch?v=jBj3I-AGzsI)
 - [എല്ലാ ജില്ലക്കാരും ഒരുപോലെ ആസ്വദിക്കുന്ന മലയാളത്തിലെ അപാര സുന്ദര മെലഡി ഗാനങ്ങൾ | Evergreen Songs](https://www.youtube.com/watch?v=33mxHuhUp4o)
 - [Pathinalam Ravinte | Sharjah To Sharjah | Jayaram | Mohan Sithara | M G Sreekumar | Speed Audios](https://www.youtube.com/watch?v=btY9MVN8XW8)
 - [പാട്ടുപെട്ടി | Paattupetti Vol 47 | Nostalgic Malayalam Movie Songs | ഹൃദയം കവരും മനോഹര ഗാനങ്ങൾ](https://www.youtube.com/watch?v=YRYptfyQRdw)
 - [Guruvayoorambala Nadayil - Full Album | Prithviraj | Basil Joseph | Ankit Menon | Vipin Das](https://www.youtube.com/watch?v=u1rDYhLI7nI)
-- [Sathyan, Sharada Old Romantic Superhit Movie Song l Mooladhanam Movie | Prem Nazir](https://www.youtube.com/watch?v=a0i3sIGMK4g)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
