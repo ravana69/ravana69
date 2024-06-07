@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Star &lpar;2024&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/180295-star-2024-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps/&do=findComment&comment=366764)
+- [Blackout &lpar;2024&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; &lpar;Tamil + Telugu + Hindi + Kannada&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/180294-blackout-2024-true-web-dl-1080p-720p-avc-aac-20-tamil-telugu-hindi-kannada/&do=findComment&comment=366763)
+- [Bade Miyan Chote Miyan &lpar;2024&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Telugu + Malayalam + Kannada] - &lpar;DD+5.1 - 640Kbps&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/180293-bade-miyan-chote-miyan-2024-true-web-dl-1080p-720p-avc-hevc-telugu-malayalam-kannada-dd51-640kbps/&do=findComment&comment=366762)
 - [Star &lpar;2024&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 17GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180285-star-2024-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps-17gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=366761)
 - [Fighter &lpar;2023&rpar; Kannada TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.5GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180292-fighter-2023-kannada-true-web-dl-1080p-720p-avc-dd51-192kbps-25gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=366760)
-- [Rathnam &lpar;2024&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 3GB &amp; 1.4GB] - [x264 - 750MB &amp; 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180291-rathnam-2024-true-web-dl-1080p-720p-avc-hevc-malayalam-kannada-dd51-192kbps-3gb-14gb-x264-750mb-450mb-esub/&do=findComment&comment=366759)
-- [The Key Game &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Spa&rpar; - 3.1GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180290-the-key-game-2022-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-spa-31gb-14gb-x264-tam-tel-hin-450mb-esub/&do=findComment&comment=366758)
-- [Miral &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 2GB &amp; 1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180289-miral-2024-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-384kbps-2gb-1gb-x264-700mb-400mb-esub/&do=findComment&comment=366757)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
