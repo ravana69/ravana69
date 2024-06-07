@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Neela Nilave - Ambient Lofi | RDX | Sam C.S | Kapil Kapilan | Heart Killer Beats](https://www.youtube.com/watch?v=o9nxK-MpRcM)
+- [Ariyathe Ariyathe | Ravanaprabhu | Mohanlal | Vasundhara Das | Suresh Peters | P Jayachandran](https://www.youtube.com/watch?v=nuY2cvl5xJ4)
+- [Oh Sainaba | Amrutham #kjyesudas #kschithra #shortsfeed #shortsvideo #shorts #mjayachandran](https://www.youtube.com/watch?v=Tpiwd7GVdTU)
+- [Theerchayila Janam | Usthad | Vidyasagar  | Mohanlal | Siddique | Sibi Malayil](https://www.youtube.com/watch?v=12qgpgu3xb4)
 - [Thekkini Kolayil | Film Song Shorts #filmsongs  #manoramamusic](https://www.youtube.com/watch?v=5mrJRiEYiyA)
 - [Kaattum Thiramalayum | Kester | Graham Varghese #shorts #kester](https://www.youtube.com/watch?v=IQ5FbPd1pxE)
-- [മാതാവിനോടുള്ള സംരക്ഷണ പ്രാർത്ഥന  കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mothermarysongsmalayalam#june 7th](https://www.youtube.com/watch?v=4EBFflye8yg)
-- [Aadyakurabanayayi | Christian Songs | Rithuraj |First Holy Communion Song | James | Joji Johns](https://www.youtube.com/watch?v=uiLEP6T3ufw)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 6th June 2024 # Novena to the Sacred Heart of Jesus 7th June 2024](https://www.youtube.com/watch?v=JSOYruhoEhA)
-- [ജനഹൃദയങ്ങളിൽ കയറിപ്പറ്റിയ അനശ്വരഗാനങ്ങൾ Exclusive Hits!! Kester Superhit praise & worship songs](https://www.youtube.com/watch?v=-L4KmaRDNf4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
