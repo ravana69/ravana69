@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=OtIfA_ycT14)
-- [മഞ്ഞുപെയ്യും രാവിൽ ഈമനസ്സുറങ്ങിയോ| കെ ജെ യേശുദാസ് | Chitra |Remastered songs |മലയാളചലച്ചിത്രഗാനങ്ങൾ](https://www.youtube.com/watch?v=0jWA3ktxYFk)
-- [പ്രഭാത പ്രാര്‍ത്ഥന June 7 # Athiravile Prarthana 7th of June 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=aYWUi837l2s)
-- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=WNuEJArjJ0A)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 7th June 2024](https://www.youtube.com/watch?v=pOIdzW2dmBM)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=yEsAmoOm3Bg)
+- [മാതാവിനോടുള്ള സംരക്ഷണ പ്രാർത്ഥന  കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #mothermarysongsmalayalam#june 7th](https://www.youtube.com/watch?v=4EBFflye8yg)
+- [Aadyakurabanayayi | Christian Songs | Rithuraj |First Holy Communion Song | James | Joji Johns](https://www.youtube.com/watch?v=uiLEP6T3ufw)
+- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 6th June 2024 # Novena to the Sacred Heart of Jesus 7th June 2024](https://www.youtube.com/watch?v=JSOYruhoEhA)
+- [ജനഹൃദയങ്ങളിൽ കയറിപ്പറ്റിയ അനശ്വരഗാനങ്ങൾ Exclusive Hits!! Kester Superhit praise & worship songs](https://www.youtube.com/watch?v=-L4KmaRDNf4)
+- [Japamala 7th of June 2024 # Dhukhathinte Japamala # Dhukhathinte Rahasyangal 7th of June  2024](https://www.youtube.com/watch?v=irXWKwYIb5o)
+- [ഇന്ന് ജൂൺ 7.എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala #rosary june](https://www.youtube.com/watch?v=Pf5kq_GAgsA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
