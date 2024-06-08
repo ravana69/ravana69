@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thiruhrudayathin Munpil........#christiandevotionalsongsmalayalam #aleniamol #jojijohns](https://www.youtube.com/watch?v=eThsw9Rr51s)
+- [Punnara Kattile Poovanatthil - Sleep Lofi | Malaikottai Vaaliban | Prashant Pillai | Chris Wayne](https://www.youtube.com/watch?v=vaUDx0GfIuo)
+- [Thakilu Pukilu Kurava Kuzhalu | Ravanaprabhu | Mohanlal | Suresh Peters | MG Sreekumar](https://www.youtube.com/watch?v=k3Ebj1x1_W8)
+- [Chandhanamukile | Vellinakshathram #kschithra #mjayachandran #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=kYAp2z3KS4k)
+- [Vibe For K For Kalyanam Join Your Hands| Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=C3DRPlUJ7CY)
 - [Gangatheertham Vol.01 | Hindu Devotional Songs | K J Yesudas | P C Aravindhan | Sound of Arts](https://www.youtube.com/watch?v=h9SCXFel1kI)
-- [Thiruhrudayathin Munpil....#christiandevotionalsongsmalayalam #aleniamol #jojijohns #christiansongs](https://www.youtube.com/watch?v=0h5A8aN9Exo)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 8th June 2024 # Novena to the Sacred Heart of Jesus 8th June 2024](https://www.youtube.com/watch?v=cqDkDh1C_fA)
-- [അതിമനോഹരമായ പഴയകാല ഗാനങ്ങൾ old christian songs malayalam with lyrics ! daily worship songs malayalam](https://www.youtube.com/watch?v=SKsdyLTAiSo)
-- [Christian Video Songs Malayalam | Alenia Mol | Christian Superhit Songs | Sudeep Kumar | Joji Johns](https://www.youtube.com/watch?v=XaPNlhbURBs)
-- [Japamala 8th of June 2024 # Mathavinte Japamala # Santhoshathinte Rahasyangal 8th of June 2024](https://www.youtube.com/watch?v=o1IA_r0-S6w)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
