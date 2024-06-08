@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Madabhara Mizhiyoram - Audio Song | Malaikottai Vaaliban | Mohanlal, Lijo Jose | Prashant Pillai](https://www.youtube.com/watch?v=xg_NYOiKuMQ)
-- [Enguninnengu Ninnee Sugandham | Ilavankodu Desam | K S Chithra | Vidyasagar | O N V Kurup](https://www.youtube.com/watch?v=eogN22lb9Lw)
-- [Attuthottil  | Animation Version Film Songs #shortsfeed #shortsvideo #reels  #animation #kidscartoon](https://www.youtube.com/watch?v=NGFyfCxt1lw)
-- [Baletta Baletta | Balettan | DJ Savyo | Gireesh Puthenchery | M Jayachandran | Remix Film Song](https://www.youtube.com/watch?v=JjVo7FlxNkM)
-- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=NOX3SZAf7ak)
-- [തൊണ്ണൂറുകളിൽ ജനങ്ങൾ ഏറ്റെടുത്ത സംഗീത കാവ്യങ്ങൾ  | Evergreen Malayalam Film Songs | Kanakanilave](https://www.youtube.com/watch?v=tX8szwAEICU)
+- [Nee Manimukilaadakal Video Song | Vellithira | Prithviraj | Navya Nair | Malayalam Movie Songs](https://www.youtube.com/watch?v=KpqFL2ZsAgA)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 8th of June 2024](https://www.youtube.com/watch?v=4JeSBIDE3Sk)
+- [നമ്മുടെ പ്രിയപ്പെട്ടവർക്കായി കുറച്ച്‌ സമയം കണ്ടെത്താം | | Rev. Aneesh P Joseph  #shorts #motivation](https://www.youtube.com/watch?v=66ZR9f2C5p8)
+- [ഒരായിരം കിനാക്കളാൽ Song Shorts | Ramji Rao Speaking #shorts](https://www.youtube.com/watch?v=F-QOFr5NQi4)
+- [Oduvilee Sandhyayum Video Song | Kadha | Prithviraj | Kavya Madhavan | KS Chithra | G Venugopal](https://www.youtube.com/watch?v=39CKfe1O0Ng)
+- [Ezham Kooliyivan | Pattabhishekam | MG Sreekumar | Berny Ignatius | Bichu Thirumala](https://www.youtube.com/watch?v=KwDtop3fT40)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
