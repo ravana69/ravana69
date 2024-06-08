@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thiruhrudayathin Munpil....#christiandevotionalsongsmalayalam #aleniamol #jojijohns #christiansongs](https://www.youtube.com/watch?v=0h5A8aN9Exo)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 8th June 2024 # Novena to the Sacred Heart of Jesus 8th June 2024](https://www.youtube.com/watch?v=cqDkDh1C_fA)
 - [അതിമനോഹരമായ പഴയകാല ഗാനങ്ങൾ old christian songs malayalam with lyrics ! daily worship songs malayalam](https://www.youtube.com/watch?v=SKsdyLTAiSo)
 - [Christian Video Songs Malayalam | Alenia Mol | Christian Superhit Songs | Sudeep Kumar | Joji Johns](https://www.youtube.com/watch?v=XaPNlhbURBs)
 - [Japamala 8th of June 2024 # Mathavinte Japamala # Santhoshathinte Rahasyangal 8th of June 2024](https://www.youtube.com/watch?v=o1IA_r0-S6w)
 - [ഇന്ന് ജൂൺ 8എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamalamalayalam june8](https://www.youtube.com/watch?v=ddq-J436_Jo)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=o3w2KHZ-9eQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
