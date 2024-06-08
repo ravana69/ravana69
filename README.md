@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vaagai Sooda Vaa &lpar;2011&rpar; Tamil - SUNNXT WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;192kbps&rpar; - 4.2GB - 2.3GB &amp; 2GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180324-vaagai-sooda-vaa-2011-tamil-sunnxt-web-dl-1080p-720p-avc-untouched-dd51192kbps-42gb-23gb-2gb-gdrive/&do=findComment&comment=366845)
+- [Passengers &lpar;2016&rpar; 4K BDRip 2160p HDR &amp; Open Matte 1080p BluRay] Multi Original Audios [Telugu &lpar;AMZN DDP5.1~448Kbps&rpar; + Tamil &lpar;AMZN DDP5.1~640Kbps&rpar; + Hindi &lpar;DDP5.1&rpar; +English] - ESubs - [3.8GB &amp; 5.9GB]](https://www.1tamilmv.eu/index.php?/forums/topic/180319-passengers-2016-4k-bdrip-2160p-hdr-open-matte-1080p-bluray-multi-original-audios-telugu-amzn-ddp51~448kbps-tamil-amzn-ddp51~640kbps-hindi-ddp51-english-esubs-38gb-59gb/&do=findComment&comment=366844)
 - [[60FPS] Godzilla: Minus One &lpar;2023&rpar; 1080p BluRay Multi TrueHD.Atmos 7.1 ESub H.265 - 15 GB](https://www.1tamilmv.eu/index.php?/forums/topic/180334-60fps-godzilla-minus-one-2023-1080p-bluray-multi-truehdatmos-71-esub-h265-15-gb/&do=findComment&comment=366843)
 - [Aranmanai 3 &lpar;2021&rpar; Tamil - ZEE5 WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - AAC - 4.6GB - 3.8GB - 1.8GB &amp; 1.6GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180325-aranmanai-3-2021-tamil-zee5-web-dl-1080p-720p-avc-untouched-aac-46gb-38gb-18gb-16gb-gdrive/&do=findComment&comment=366842)
 - [Star &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180323-star-2024-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=366841)
-- [Golam &lpar;2024&rpar; Malayalam HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/180328-golam-2024-malayalam-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=366835)
-- [Love Mouli &lpar;2024&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/180327-love-mouli-2024-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=366834)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
