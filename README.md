@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Hey Hear Out Our Vibe | Guruvayoorambala Nadayil | Prithviraj | Basil | Anaswara |  #ytshorts](https://www.youtube.com/watch?v=xRpiEcq_QnE)
 - [Nee Manimukilaadakal Video Song | Vellithira | Prithviraj | Navya Nair | Malayalam Movie Songs](https://www.youtube.com/watch?v=KpqFL2ZsAgA)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 8th of June 2024](https://www.youtube.com/watch?v=4JeSBIDE3Sk)
 - [നമ്മുടെ പ്രിയപ്പെട്ടവർക്കായി കുറച്ച്‌ സമയം കണ്ടെത്താം | | Rev. Aneesh P Joseph  #shorts #motivation](https://www.youtube.com/watch?v=66ZR9f2C5p8)
 - [ഒരായിരം കിനാക്കളാൽ Song Shorts | Ramji Rao Speaking #shorts](https://www.youtube.com/watch?v=F-QOFr5NQi4)
 - [Oduvilee Sandhyayum Video Song | Kadha | Prithviraj | Kavya Madhavan | KS Chithra | G Venugopal](https://www.youtube.com/watch?v=39CKfe1O0Ng)
-- [Ezham Kooliyivan | Pattabhishekam | MG Sreekumar | Berny Ignatius | Bichu Thirumala](https://www.youtube.com/watch?v=KwDtop3fT40)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
