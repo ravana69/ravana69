@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന June 10 # Athiravile Prarthana 10th of June 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=3EmsY8YMhN8)
+- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=3ZuzaSRalqU)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 10th June 2024](https://www.youtube.com/watch?v=_5e3xjDQRUQ)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=w0f8tSZBZUo)
 - [ഞങ്ങൾക്കുള്ള കർത്താവേ | KESTER | ROY PUTHUR](https://www.youtube.com/watch?v=Qi3mE66iZFM)
 - [അമ്മ മറന്നാലും, എല്ലാം തകർന്നാലും കൈ നീട്ടി നിൽക്കും സ്നേഹകാരുണ്യമേ](https://www.youtube.com/watch?v=aWQaICTEx_g)
-- [Thaalolam Poompaithale |  Nadodi  |SP Venkitesh | K.G.Markose #songoftheday](https://www.youtube.com/watch?v=mR5DA2-jmuk)
-- [Maanasa Nilayil | Dhwani l Jayaram l Shobana l Prem Nazeer l Naushad Ali](https://www.youtube.com/watch?v=TvjhlWEcuHM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
