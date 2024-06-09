@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Moonnu Chakaravandi | Kochi Rajavu  | Video | Dileep | Kavya Madhavan | M.G.Sreekumar | Vidyasagar](https://www.youtube.com/watch?v=oeFPkpoRikk)
 - [Panchavarna Painkili Penne Video Song | Sallapam | Manju Warrier | Dileep | KS Chithra | Johnson](https://www.youtube.com/watch?v=W_HEqlZ13B8)
 - [Sing For Vatteppam And Vibe With Your Playlist| Mandakini | Dabzee | Altaf Salim | #shorts #ytshorts](https://www.youtube.com/watch?v=bcpBA_B7Ypo)
 - [Neela Nilave - Sleep Lofi | RDX | Sam C.S | Kapil Kapilan | EternaLove](https://www.youtube.com/watch?v=Ca99xEAqN48)
 - [Innale Ente Nenjile | Balettan  | Gireesh Puthencherry  #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=6FW8MejLD50)
 - [Sheela Malayalam Romantic Old Superhit Movie Song l Omana Movie | Ravichandran, Prem Nazir](https://www.youtube.com/watch?v=EhKs5Najv6c)
-- [Njanennum Sthuthikkum Jukebox | Nonstop Malayalam Christian Songs | Kester | Binoy Chacko | Daleema](https://www.youtube.com/watch?v=NVF9heZqV_M)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
