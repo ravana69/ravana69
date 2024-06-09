@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [1](https://www.1tamilmv.eu/index.php?/forums/topic/180343-1/&do=findComment&comment=366877)
+- [Polladhavan &lpar;2007&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DTS5.1&lpar;1509kbps&rpar; - 8.6GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180335-polladhavan-2007-tamil-true-web-dl-1080p-720p-avc-untouched-dts511509kbps-86gb-55gb-27gb-14gb-x264-700mb-400mb-gdrive/&do=findComment&comment=366878)
+- [Top Cooku Dupe Cooku &lpar;2024&rpar; Tamil - S01 EP04 TRUE WEB-DL - [1080p, 720p, 360p - AVC - UNTOUCHED - 1.2GB - 650MB &amp; 300MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180343-top-cooku-dupe-cooku-2024-tamil-s01-ep04-true-web-dl-1080p-720p-360p-avc-untouched-12gb-650mb-300mb/&do=findComment&comment=366877)
 - [Anbe Sivam &lpar;2003&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - [DD+5.1&lpar;640kbps&rpar; + AAC] - 12.7GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180064-anbe-sivam-2003-tamil-true-web-dl-1080p-720p-avc-untouched-dd51640kbps-aac-127gb-55gb-27gb-14gb-x264-700mb-400mb-esub-gdrive/&do=findComment&comment=366876)
 - [Ratatouille &lpar;2007&rpar; DSNP WEB-DL - 4K , 1080p &amp; 720p - HEVC - UNTOUCHED - [Tamil + Telugu + Hindi + English&lpar;DD+5.1&lpar;192kbps&rpar;] - AAC2.0&lpar;128kbps&rpar; - 15.8GB - 5.1GB - 1.2GB &amp; 876MB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180182-ratatouille-2007-dsnp-web-dl-4k-1080p-720p-hevc-untouched-tamil-telugu-hindi-englishdd51192kbps-aac20128kbps-158gb-51gb-12gb-876mb-esub-gdrive/&do=findComment&comment=366875)
 - [Aranmanai 2 &lpar;2016&rpar; Tamil - SUNNXT WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;192kbps&rpar; - 4.7GB - 3.3GB &amp; 2.4GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180342-aranmanai-2-2016-tamil-sunnxt-web-dl-1080p-720p-avc-untouched-dd51192kbps-47gb-33gb-24gb-gdrive/&do=findComment&comment=366874)
-- [Aranmanai &lpar;2014&rpar; Tamil - SUNNXT WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;192kbps&rpar; - 5.3GB - 3.6GB &amp; 2.7GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180341-aranmanai-2014-tamil-sunnxt-web-dl-1080p-720p-avc-untouched-dd51192kbps-53gb-36gb-27gb-gdrive/&do=findComment&comment=366873)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
