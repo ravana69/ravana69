@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Christian Superhit Songs | S Janaki | Christian Melody Songs Malayalam | Joji Johns | Biju Narayanan](https://www.youtube.com/watch?v=NcVZFeHYkeE)
+- [Ee Thennalum Thinkalum | Nee Varuvolam | Dileep | Daleema | Johnson | Speed Audios](https://www.youtube.com/watch?v=CUFdtm3tbK0)
 - [Get Into The Beats Of Vatteppam | Mandakini | Dabzee | Altaf Salim | Bibin Ashok | #shorts #ytshorts](https://www.youtube.com/watch?v=eLG2M4qkls0)
 - [Pachamaanga Pachamaanga Song | Vellithira | Prithviraj | Navya Nair | Malayalam Movie Songs #shorts](https://www.youtube.com/watch?v=Qxu1WlHUS1Y)
 - [kurukkazhikkunna mathavinodulla prarthana #mary  Undoes of Knots Prayer in Malayalam #kurukuzhikkuna](https://www.youtube.com/watch?v=eM-uLLQAN_Q)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 9th of June 2024](https://www.youtube.com/watch?v=ViokFyARv-c)
-- [പ്രതീക്ഷകൾ ഒരിക്കലും കൈവിടരുത് | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=4X7KvYQLrv4)
-- [Raajashilpi Video Song | Panchavankaadu | P Susheela | G Devarajan | Vayalar](https://www.youtube.com/watch?v=wx99hE-mPTw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
