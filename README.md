@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Mudhalvan &lpar;1999&rpar; REMASTERED - Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - AAC2.0&lpar;526kbps&rpar; - 15.4GB - 5.5GB - 2.6GB &amp; 1.3GB - x264 - 700MB &amp; 400MB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180348-mudhalvan-1999-remastered-tamil-true-web-dl-1080p-720p-avc-untouched-aac20526kbps-154gb-55gb-26gb-13gb-x264-700mb-400mb-gdrive/&do=findComment&comment=366885)
+- [Mudhalvan &lpar;1999&rpar; REMASTERED - Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - AAC2.0&lpar;526kbps&rpar; - 15.4GB - 5.5GB - 2.6GB &amp; 1.3GB - x264 - 700MB &amp; 400MB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180348-mudhalvan-1999-remastered-tamil-true-web-dl-1080p-720p-avc-untouched-aac20526kbps-154gb-55gb-26gb-13gb-x264-700mb-400mb-gdrive/&do=findComment&comment=366884)
+- [Mudhalvan &lpar;1999&rpar; REMASTERED - Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - AAC2.0&lpar;526kbps&rpar; - 15.4GB - 5.5GB - 2.6GB &amp; 1.3GB - x264 - 700MB &amp; 400MB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180348-mudhalvan-1999-remastered-tamil-true-web-dl-1080p-720p-avc-untouched-aac20526kbps-154gb-55gb-26gb-13gb-x264-700mb-400mb-gdrive/&do=findComment&comment=366883)
 - [Nippu &lpar;2012&rpar; Telugu 1080p HYBRID WEB-DL Videosongs - [DD 5.1 + DTS 5.1] - DUSTIN](https://www.1tamilmv.eu/index.php?/forums/topic/180347-nippu-2012-telugu-1080p-hybrid-web-dl-videosongs-dd-51-dts-51-dustin/&do=findComment&comment=366882)
 - [Iruvar &lpar;1997&rpar; Tamil PROPER DVDRip - Xvid - AC3 - &lpar;DD5.1&rpar; - 1.7GB - ESub - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/180346-iruvar-1997-tamil-proper-dvdrip-xvid-ac3-dd51-17gb-esub-gdflix/&do=findComment&comment=366881)
-- [Moodar Koodam &lpar;2013&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 8.7GB - ESub - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/180345-moodar-koodam-2013-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-87gb-esub-gdflix/&do=findComment&comment=366880)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [9-6-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/180344-movies-collection-all-languages-4k-1080p-720p-576p-480p-9-6-2024/&do=findComment&comment=366879)
-- [Polladhavan &lpar;2007&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DTS5.1&lpar;1509kbps&rpar; - 8.6GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180335-polladhavan-2007-tamil-true-web-dl-1080p-720p-avc-untouched-dts511509kbps-86gb-55gb-27gb-14gb-x264-700mb-400mb-gdrive/&do=findComment&comment=366878)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
