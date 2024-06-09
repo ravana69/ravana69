@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഞങ്ങൾക്കുള്ള കർത്താവേ | KESTER | ROY PUTHUR](https://www.youtube.com/watch?v=Qi3mE66iZFM)
+- [അമ്മ മറന്നാലും, എല്ലാം തകർന്നാലും കൈ നീട്ടി നിൽക്കും സ്നേഹകാരുണ്യമേ](https://www.youtube.com/watch?v=aWQaICTEx_g)
 - [Thaalolam Poompaithale |  Nadodi  |SP Venkitesh | K.G.Markose #songoftheday](https://www.youtube.com/watch?v=mR5DA2-jmuk)
 - [Maanasa Nilayil | Dhwani l Jayaram l Shobana l Prem Nazeer l Naushad Ali](https://www.youtube.com/watch?v=TvjhlWEcuHM)
 - [Christian Superhit Songs | S Janaki | Christian Melody Songs Malayalam | Joji Johns | Biju Narayanan](https://www.youtube.com/watch?v=NcVZFeHYkeE)
 - [Ee Thennalum Thinkalum | Nee Varuvolam | Dileep | Daleema | Johnson | Speed Audios](https://www.youtube.com/watch?v=CUFdtm3tbK0)
-- [Get Into The Beats Of Vatteppam | Mandakini | Dabzee | Altaf Salim | Bibin Ashok | #shorts #ytshorts](https://www.youtube.com/watch?v=eLG2M4qkls0)
-- [Pachamaanga Pachamaanga Song | Vellithira | Prithviraj | Navya Nair | Malayalam Movie Songs #shorts](https://www.youtube.com/watch?v=Qxu1WlHUS1Y)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
