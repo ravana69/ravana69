@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ജ്ഞാനപ്പഴം നീയല്ലേ | NJANAPAZHAM NEEYALLE | SREEMURUGAN MOVIE SONG | P Madhuri & P Sushila](https://www.youtube.com/watch?v=u5Vb4oPJhuU)
 - [Chimmi Chimmi | Urumi | Manjari | Kaithapram | Deepak Dev | Prithiviraj | Prabhudeva | Nithya Menon](https://www.youtube.com/watch?v=bGT0XYc0CCA)
 - [Ithalazhakil Malar | Innalekalillathe | Manju Warrier | Biju Narayanan | K.S.Chithra | Rex Issac](https://www.youtube.com/watch?v=75bxw1ZYeYs)
 - [Ponnum Mederi Chingha | Eshtadanam | Jagadheesh | Suma Menon | K S Chithra | Mohan Sithara](https://www.youtube.com/watch?v=xpwMP3UBbqw)
 - [Kiliye Kiliye - Synthwave Remix | Aa Raathri | Ilaiyaraaja | S. Janaki | Stan & Sam](https://www.youtube.com/watch?v=Elkdz8DFriY)
 - [Poo Kunkumappoo | Rasathanthram  | Gireesh Puthencherry  #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=2PC7_vSChjI)
-- [Prem Nazir Malayalam Romantic Old Superhit Movie Song l Agni Pareeksha Movie | Sathyan, Sheela](https://www.youtube.com/watch?v=eI-iBcbjhZw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
