@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Atharintiki Daaredi &lpar;2013&rpar; Telugu Bhavani BluRay BD50 REMUX Music Video Album - [DTS-HDMA 5.1 &lpar;3048 kbps&rpar; + DTS 5.1 &lpar;1509 kbps&rpar; + DD 5.1 &lpar;448kbps&rpar;] - ESub-Shyam](https://www.1tamilmv.eu/index.php?/forums/topic/180352-atharintiki-daaredi-2013-telugu-bhavani-bluray-bd50-remux-music-video-album-dts-hdma-51-3048-kbps-dts-51-1509-kbps-dd-51-448kbps-esub-shyam/&do=findComment&comment=366894)
+- [Demonte Colony &lpar;2015&rpar; Telugu TRUE WEB-DL - 1080p - AVC - &lpar;DD+5.1 - 192Kbps &amp; AAC&rpar; - 3.9GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180351-demonte-colony-2015-telugu-true-web-dl-1080p-avc-dd51-192kbps-aac-39gb-esub/&do=findComment&comment=366893)
 - [Demonte Colony &lpar;2015&rpar; Telugu TRUE WEB-DL - 1080p - AVC - &lpar;DD+5.1 - 192Kbps &amp; AAC&rpar; - 3.9GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180351-demonte-colony-2015-telugu-true-web-dl-1080p-avc-dd51-192kbps-aac-39gb-esub/&do=findComment&comment=366892)
 - [Shankar Dada Zindabad &lpar;2007&rpar; Telugu HQ HDTV-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 4GB &amp; 2.5GB]](https://www.1tamilmv.eu/index.php?/forums/topic/180350-shankar-dada-zindabad-2007-telugu-hq-hdtv-dl-1080p-720p-avc-aac-20-4gb-25gb/&do=findComment&comment=366891)
 - [Maayavan &lpar;Project Z&rpar; [2017] - AMZN.WEB-DL.1080p.AVC - [Tamil+Telugu] - [DD5.1&amp;DD+5.1 - 448&amp;384Kbps].Msub - [DUSTIN &amp; D-SKY] - 8.08 GB](https://www.1tamilmv.eu/index.php?/forums/topic/180336-maayavan-project-z-2017-amznweb-dl1080pavc-tamiltelugu-dd51dd51-448384kbpsmsub-dustin-d-sky-808-gb/&do=findComment&comment=366890)
-- [Moodar Koodam &lpar;2013&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 8.7GB - ESub - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/180345-moodar-koodam-2013-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-87gb-esub-gdflix/&do=findComment&comment=366889)
-- [Vaishali &lpar;2009&rpar; Telugu TRUE WEB-DL - 1080p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 4.7GB](https://www.1tamilmv.eu/index.php?/forums/topic/180349-vaishali-2009-telugu-true-web-dl-1080p-avc-dd51-192kbps-47gb/&do=findComment&comment=366888)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
