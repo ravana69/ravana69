@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vennilave | Sagar Alias Jacky | Shorts  #manoramamusic](https://www.youtube.com/watch?v=1Uq-fIJolaE)
 - [Krushithante Hrudhayam Pole Day 10](https://www.youtube.com/watch?v=9dQaH5IAI-Y)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 10th June 2024 # Novena to the Sacred Heart of Jesus 10th June 2024](https://www.youtube.com/watch?v=Iv_TH-bSqv8)
 - [Prabhatha Geethangal | Wilson Piravom | Christian Melody Songs | Joji Johns | Morning Prayer Songs](https://www.youtube.com/watch?v=DRRSNFPtWII)
 - [Japamala  10th of June  2024 # Mathavinte Japamala # Santhoshathinte Rahasyangal 10th of June  2024](https://www.youtube.com/watch?v=rPVGA5qXwGY)
 - [ഇന്ന് ജൂൺ 10.എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #rosarymalayalam #june](https://www.youtube.com/watch?v=LRjaqbXH-2o)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=NiU-53wg5gI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
