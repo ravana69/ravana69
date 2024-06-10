@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Raakk - Audio Song | Malaikottai Vaaliban | Mohanlal | Lijo Jose Pellissery | Prashant Pillai](https://www.youtube.com/watch?v=zy1dDgB1og8)
-- [Aanakkallan | Remix | Salt N' Pepper | DJ Savyo | Avial Band | Ashiq Abu | Salt & Pepper | Film Song](https://www.youtube.com/watch?v=bjO9SujMusY)
-- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=hnqsep8Unys)
-- [പാട്ടിനെ സ്നേഹിക്കുന്ന എല്ലാ മലയാളികളും എപ്പോഴും കേൾക്കാറുള്ള നിത്യസുന്ദര ഗാനങ്ങൾ](https://www.youtube.com/watch?v=XIvP3ztoNbE)
-- [Mazhavilladum Malayude Mukalil | Thudarkadha | Maathu | Shyama | Devan - SP Venkitesh Hits](https://www.youtube.com/watch?v=uOIE-c6X2q8)
-- [ജ്ഞാനപ്പഴം നീയല്ലേ | NJANAPAZHAM NEEYALLE | SREEMURUGAN MOVIE SONG | P Madhuri & P Sushila](https://www.youtube.com/watch?v=u5Vb4oPJhuU)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 10th of June 2024](https://www.youtube.com/watch?v=mRTv16ik0A0)
+- [അമ്മ മറന്നാലും മറക്കാത്ത ദൈവം ..😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=GHh0Jba75ZM)
+- [Christian Video Songs by Libin Scaria | Super Hit Christian Songs | Malayalam Christian Songs](https://www.youtube.com/watch?v=p67xtbzlrEs)
+- [Karinkallil Kadanja Video Song | Vellithira | Prithviraj | Navya Nair | Sujatha Mohan](https://www.youtube.com/watch?v=AY0kVstl04c)
+- [Dance to The Beats Of #Vatteppam with #anarkalimarikar #Mandakini | Dabzee #shorts #ytshorts](https://www.youtube.com/watch?v=2aVQZrdqmHY)
+- [മഴവില്ലാടും മലയുടെ മുകളിൽ .. #chithrageetham #evergreenhitsongs](https://www.youtube.com/watch?v=-no7qc57nNk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
