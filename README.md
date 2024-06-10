@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Va Va Thamara Penne | Karumaadikkuttan | Mohan Sithara |  Kalabhavan Mani  | #SongOfTheDay](https://www.youtube.com/watch?v=JYODc2tzN18)
+- [Nenjudukkinte | Kalabhavn Mani | Nandini | KJ Yesudas | Mohan Sithara | Yusufali Kecheri](https://www.youtube.com/watch?v=aW_fZi4mmC4)
 - [Listen To The Trendy Beats | Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=PxffNpeQMAo)
 - [Varthinkalal | Pallavur Devanarayanan | Mammootty | Sangeetha | KS Chithra |  K. J Yesudas](https://www.youtube.com/watch?v=uSWPxiHuzcA)
 - [Ee Nimisham | Christian Melody Songs | Soumini Jacob | Christian Songs | Songs Of God's Love](https://www.youtube.com/watch?v=xkwMUi9gBU8)
 - [Nadanna Sambavam - Ajithettan Character Teaser | Biju Menon | Vishnu Narayan | Ankit Menon](https://www.youtube.com/watch?v=M9rjJfLpF50)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 10th of June 2024](https://www.youtube.com/watch?v=mRTv16ik0A0)
-- [അമ്മ മറന്നാലും മറക്കാത്ത ദൈവം ..😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=GHh0Jba75ZM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
