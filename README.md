@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=hnqsep8Unys)
 - [പാട്ടിനെ സ്നേഹിക്കുന്ന എല്ലാ മലയാളികളും എപ്പോഴും കേൾക്കാറുള്ള നിത്യസുന്ദര ഗാനങ്ങൾ](https://www.youtube.com/watch?v=XIvP3ztoNbE)
 - [Mazhavilladum Malayude Mukalil | Thudarkadha | Maathu | Shyama | Devan - SP Venkitesh Hits](https://www.youtube.com/watch?v=uOIE-c6X2q8)
 - [ജ്ഞാനപ്പഴം നീയല്ലേ | NJANAPAZHAM NEEYALLE | SREEMURUGAN MOVIE SONG | P Madhuri & P Sushila](https://www.youtube.com/watch?v=u5Vb4oPJhuU)
 - [Chimmi Chimmi | Urumi | Manjari | Kaithapram | Deepak Dev | Prithiviraj | Prabhudeva | Nithya Menon](https://www.youtube.com/watch?v=bGT0XYc0CCA)
 - [Ithalazhakil Malar | Innalekalillathe | Manju Warrier | Biju Narayanan | K.S.Chithra | Rex Issac](https://www.youtube.com/watch?v=75bxw1ZYeYs)
-- [Ponnum Mederi Chingha | Eshtadanam | Jagadheesh | Suma Menon | K S Chithra | Mohan Sithara](https://www.youtube.com/watch?v=xpwMP3UBbqw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
