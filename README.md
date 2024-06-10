@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Young Ip Man: Crisis Time &lpar;2020&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+2.0 - 224Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Chi&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180354-young-ip-man-crisis-time-2020-hd-original-audios-1080p-720p-x264-dd20-224kbps-tamil-telugu-hindi-chi-2gb-1gb-x264-tam-tel-hin-400mb-esub/&do=findComment&comment=366898)
+- [Kaazh &lpar;2024&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/180332-kaazh-2024-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=366897)
 - [Young Ip Man: Crisis Time &lpar;2020&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+2.0 - 224Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Chi&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180354-young-ip-man-crisis-time-2020-hd-original-audios-1080p-720p-x264-dd20-224kbps-tamil-telugu-hindi-chi-2gb-1gb-x264-tam-tel-hin-400mb-esub/&do=findComment&comment=366896)
 - [Alaipayuthey &lpar;2000&rpar; Tamil PROPER DVDRip - Xvid - &lpar;DTS.5.1&rpar; - 1.7GB - ESub - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/180353-alaipayuthey-2000-tamil-proper-dvdrip-xvid-dts51-17gb-esub-gdflix/&do=findComment&comment=366895)
 - [Atharintiki Daaredi &lpar;2013&rpar; Telugu Bhavani BluRay BD50 REMUX Music Video Album - [DTS-HDMA 5.1 &lpar;3048 kbps&rpar; + DTS 5.1 &lpar;1509 kbps&rpar; + DD 5.1 &lpar;448kbps&rpar;] - ESub-Shyam](https://www.1tamilmv.eu/index.php?/forums/topic/180352-atharintiki-daaredi-2013-telugu-bhavani-bluray-bd50-remux-music-video-album-dts-hdma-51-3048-kbps-dts-51-1509-kbps-dd-51-448kbps-esub-shyam/&do=findComment&comment=366894)
-- [Demonte Colony &lpar;2015&rpar; Telugu TRUE WEB-DL - 1080p - AVC - &lpar;DD+5.1 - 192Kbps &amp; AAC&rpar; - 3.9GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180351-demonte-colony-2015-telugu-true-web-dl-1080p-avc-dd51-192kbps-aac-39gb-esub/&do=findComment&comment=366893)
-- [Demonte Colony &lpar;2015&rpar; Telugu TRUE WEB-DL - 1080p - AVC - &lpar;DD+5.1 - 192Kbps &amp; AAC&rpar; - 3.9GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180351-demonte-colony-2015-telugu-true-web-dl-1080p-avc-dd51-192kbps-aac-39gb-esub/&do=findComment&comment=366892)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
