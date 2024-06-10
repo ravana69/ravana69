@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ponnum Mederi Chingha | Eshtadanam | Jagadheesh | Suma Menon | K S Chithra | Mohan Sithara](https://www.youtube.com/watch?v=xpwMP3UBbqw)
+- [Kiliye Kiliye - Synthwave Remix | Aa Raathri | Ilaiyaraaja | S. Janaki | Stan & Sam](https://www.youtube.com/watch?v=Elkdz8DFriY)
+- [Poo Kunkumappoo | Rasathanthram  | Gireesh Puthencherry  #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=2PC7_vSChjI)
 - [Prem Nazir Malayalam Romantic Old Superhit Movie Song l Agni Pareeksha Movie | Sathyan, Sheela](https://www.youtube.com/watch?v=eI-iBcbjhZw)
 - [Vennilave | Sagar Alias Jacky | Shorts  #manoramamusic](https://www.youtube.com/watch?v=1Uq-fIJolaE)
 - [Krushithante Hrudhayam Pole Day 10](https://www.youtube.com/watch?v=9dQaH5IAI-Y)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 10th June 2024 # Novena to the Sacred Heart of Jesus 10th June 2024](https://www.youtube.com/watch?v=Iv_TH-bSqv8)
-- [Prabhatha Geethangal | Wilson Piravom | Christian Melody Songs | Joji Johns | Morning Prayer Songs](https://www.youtube.com/watch?v=DRRSNFPtWII)
-- [Japamala  10th of June  2024 # Mathavinte Japamala # Santhoshathinte Rahasyangal 10th of June  2024](https://www.youtube.com/watch?v=rPVGA5qXwGY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
