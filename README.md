@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന June 11 # Athiravile Prarthana 11th of June 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=HXAaAlskx80)
+- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=h01KNzEGdHU)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 11th June 2024](https://www.youtube.com/watch?v=Ze3vsge5SfQ)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=_a-ep0YTZQk)
 - [YESUDAS  HITS/ CHRISTIAN DEVOTIONAL SONGS/ OWN MEDIA MUSIC COLLECTION.](https://www.youtube.com/watch?v=RybefJde9_o)
 - [കേഴുന്നവരുടെ സ്നേഹിതൻ നീ...](https://www.youtube.com/watch?v=igoym62e79U)
-- [Va Va Thamara Penne | Karumaadikkuttan | Mohan Sithara |  Kalabhavan Mani  | #SongOfTheDay](https://www.youtube.com/watch?v=JYODc2tzN18)
-- [Nenjudukkinte | Kalabhavn Mani | Nandini | KJ Yesudas | Mohan Sithara | Yusufali Kecheri](https://www.youtube.com/watch?v=aW_fZi4mmC4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
