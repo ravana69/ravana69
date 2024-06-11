@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Gaanth - Chapter 1: Jamna Paar &lpar;2024&rpar; S01 EP&lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - x264 - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Kannada]](https://www.1tamilmv.eu/index.php?/forums/topic/180369-gaanth-chapter-1-jamna-paar-2024-s01-ep01-08-true-web-dl-1080p-720p-x264-aac-20-tamil-telugu-hindi-kannada/&do=findComment&comment=366936)
+- [The End We Start From &lpar;2024&rpar; 2160p JC WEB-DL x264 DUAL  [10.07 GB]](https://www.1tamilmv.eu/index.php?/forums/topic/180368-the-end-we-start-from-2024-2160p-jc-web-dl-x264-dual-1007-gb/&do=findComment&comment=366935)
+- [The Boys &lpar;2019 - 2022&rpar; [S01 &amp; S02 &amp; S03] TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada + Eng] - 6.3GB - 2.8GB &amp; 1.3GB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/105298-the-boys-2019-2022-s01-s02-s03-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-eng-63gb-28gb-13gb-esub/&do=findComment&comment=366933)
 - [Engeyum Kadhal &lpar;2011&rpar; Blu-ray - 1080p - x264 - Dual Audio - [Hindi &lpar;128kbps&rpar; + Tamil &lpar;DTS - 1509kbps&rpar;]](https://www.1tamilmv.eu/index.php?/forums/topic/180362-engeyum-kadhal-2011-blu-ray-1080p-x264-dual%C2%A0audio-hindi-128kbps-tamil-dts-1509kbps/&do=findComment&comment=366932)
 - [Dark.Matter.S01Superposition.2160p.ATVP.WEB- DL.DDP5.1.Atmos.HDR](https://www.1tamilmv.eu/index.php?/forums/topic/180363-darkmatters01superposition2160patvpweb-dlddp51atmoshdr/&do=findComment&comment=366931)
-- [Suzume.2022. 1080p.NF.WEB-DL.DDP5.1 [4.86 GB]](https://www.1tamilmv.eu/index.php?/forums/topic/180364-suzume2022-1080pnfweb-dlddp51-486-gb%C2%A0/&do=findComment&comment=366930)
-- [Guru &lpar;2007&rpar; Tamil PROPER DVDRip - Xvid - AC3 - &lpar;DTS.5.1&rpar; - 1.7GB - ESub - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/180365-guru-2007-tamil-proper-dvdrip-xvid-ac3-dts51-17gb-esub-gdflix/&do=findComment&comment=366929)
-- [Gaanth - Chapter 1: Jamna Paar &lpar;2024&rpar; S01 EP&lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - x264 - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Kannada] - 3.6GB - 1.8GB &amp; 1GB]](https://www.1tamilmv.eu/index.php?/forums/topic/180366-gaanth-chapter-1-jamna-paar-2024-s01-ep01-08-true-web-dl-1080p-720p-x264-aac-20-tamil-telugu-hindi-kannada-36gb-18gb-1gb/&do=findComment&comment=366928)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
