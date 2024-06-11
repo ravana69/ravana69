@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [കൂടെ ഇരിക്കാൻ.. കൂടെ വസിക്കാൻ.. #holycommunionsong #frshajithumpechirayilssong #shorts](https://www.youtube.com/watch?v=fwQGjRYX2F4)
-- [Thediyennum Yeshunadha | Malayalam Christian Devotional Songs | Christian Album Songs | Jesus Songs](https://www.youtube.com/watch?v=qqlFBC6Wd8k)
-- [Kaaduvittu Nattil Vanna | Aakrosham | Sreekumaran Thambi | Ben Surendran | Nazir | Sreevidya](https://www.youtube.com/watch?v=rZ7T4N8uuaU)
-- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=2E_SEMFjDRk)
-- [മറിയത്തോടൊപ്പം.. #mariansong #frshajithumpechirayilssong #shorts](https://www.youtube.com/watch?v=XGMnk47klSs)
-- [പ്രണയവിരഹ നൊമ്പരങ്ങൾ മനസിൽ പേറുന്നവരുടെ ഇഷ്ടഗാനങ്ങൾ | EVERGREEN  SONGS MALAYALAM](https://www.youtube.com/watch?v=BfNm4hSvxwk)
+- [I Love You Mummy | Karaoke with Lyrics | Bhaskar The Rascal | Deepak Dev | Rafeeque Ahammed](https://www.youtube.com/watch?v=MLRaXticaUE)
+- [Chakkaramavin Munthir| HD Video | Kanmashi | S Ramesan Nair | M Jayachandran | KJ Yesudas](https://www.youtube.com/watch?v=Gaz_0jekCZ4)
+- [Midumidu midukkan  | Film song Animation Video  #shortsfeed #kidscartoon #animation #shortsvideo](https://www.youtube.com/watch?v=rfvdMOz0L7E)
+- [Thaayum - Audio Song | Malaikottai Vaaliban | Mohanlal, Lijo Jose Pellissery | Prashant Pillai](https://www.youtube.com/watch?v=2Y1w_QmlspI)
+- [Punchiri Thanchum | Karaoke Video | Bicycle Thieves | Kaithapram | Deepak Dev | Film Songs](https://www.youtube.com/watch?v=of_8QPiRnFc)
+- [Ponnodu Poovayi | Karaoke Video | Thalsamayam Oru Penkutty | K.S.Chitra | Sharath | Unni Mukundan](https://www.youtube.com/watch?v=Ex2qVSdmyx4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
