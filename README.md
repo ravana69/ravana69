@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Velayudham &lpar;2011&rpar; Tamil - BluRay - 1080p &amp; 720p - AVC - DTS-HDMA 5.1&lpar;2849kbps&rpar; - 11.2GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180378-velayudham-2011-tamil-bluray-1080p-720p-avc-dts-hdma-512849kbps-112gb-55gb-27gb-14gb-x264-700mb-400mb-esub-gdrive/&do=findComment&comment=366958)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [11-6-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/180377-movies-collection-all-languages-4k-1080p-720p-576p-480p-11-6-2024/&do=findComment&comment=366957)
 - [Kota Factory &lpar;2019 - 2021&rpar; [S01 &amp; S02] TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - 2.5GB - 1.5GB &amp; 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180376-kota-factory-2019-2021-s01-s02-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-25gb-15gb-450mb-esub/&do=findComment&comment=366956)
 - [Chhota Bheem and the Curse of Damyaan &lpar;2024&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/180333-chhota-bheem-and-the-curse-of-damyaan-2024-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=366955)
 - [Kota Factory &lpar;2019 - 2021&rpar; [S01 &amp; S02] TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - 2.5GB - 1.5GB &amp; 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180376-kota-factory-2019-2021-s01-s02-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-25gb-15gb-450mb-esub/&do=findComment&comment=366954)
-- [The Boys &lpar;2019 - 2022&rpar; [S01 &amp; S02 &amp; S03] TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada + Eng] - 6.3GB - 2.8GB &amp; 1.3GB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/105298-the-boys-2019-2022-s01-s02-s03-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-eng-63gb-28gb-13gb-esub/&do=findComment&comment=366953)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
