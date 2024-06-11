@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pokemon S01-S18 1080p JC WEB-DL x264 &lpar;AAC 2.0&rpar;.[Tamil , Hindi, Telugu ,English] &lpar;Complete Collection&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/179186-pokemon-s01-s18-1080p-jc-web-dl-x264-aac-20tamil-hindi-telugu-english-complete-collection/&do=findComment&comment=366961)
+- [Sreekaram &lpar;2021&rpar; Telugu TRUE WEB-DL - 1080p - AVC - &lpar;DD+5.1 - 192Kbps &amp; AAC&rpar; - 4.7GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180380-sreekaram-2021-telugu-true-web-dl-1080p-avc-dd51-192kbps-aac-47gb-esub/&do=findComment&comment=366960)
 - [Viyabari &lpar;2007&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 5.4GB - ESub - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/180379-viyabari-2007-tamil-true-web-dl-1080p-avc-untouched-ddp20-54gb-esub-gdflix/&do=findComment&comment=366959)
 - [Velayudham &lpar;2011&rpar; Tamil - BluRay - 1080p &amp; 720p - AVC - DTS-HDMA 5.1&lpar;2849kbps&rpar; - 11.2GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180378-velayudham-2011-tamil-bluray-1080p-720p-avc-dts-hdma-512849kbps-112gb-55gb-27gb-14gb-x264-700mb-400mb-esub-gdrive/&do=findComment&comment=366958)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [11-6-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/180377-movies-collection-all-languages-4k-1080p-720p-576p-480p-11-6-2024/&do=findComment&comment=366957)
-- [Kota Factory &lpar;2019 - 2021&rpar; [S01 &amp; S02] TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - 2.5GB - 1.5GB &amp; 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180376-kota-factory-2019-2021-s01-s02-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-25gb-15gb-450mb-esub/&do=findComment&comment=366956)
-- [Chhota Bheem and the Curse of Damyaan &lpar;2024&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/180333-chhota-bheem-and-the-curse-of-damyaan-2024-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=366955)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
