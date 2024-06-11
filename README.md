@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കൂടെ ഇരിക്കാൻ.. കൂടെ വസിക്കാൻ.. #holycommunionsong #frshajithumpechirayilssong #shorts](https://www.youtube.com/watch?v=fwQGjRYX2F4)
+- [Thediyennum Yeshunadha | Malayalam Christian Devotional Songs | Christian Album Songs | Jesus Songs](https://www.youtube.com/watch?v=qqlFBC6Wd8k)
+- [Kaaduvittu Nattil Vanna | Aakrosham | Sreekumaran Thambi | Ben Surendran | Nazir | Sreevidya](https://www.youtube.com/watch?v=rZ7T4N8uuaU)
+- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=2E_SEMFjDRk)
 - [മറിയത്തോടൊപ്പം.. #mariansong #frshajithumpechirayilssong #shorts](https://www.youtube.com/watch?v=XGMnk47klSs)
 - [പ്രണയവിരഹ നൊമ്പരങ്ങൾ മനസിൽ പേറുന്നവരുടെ ഇഷ്ടഗാനങ്ങൾ | EVERGREEN  SONGS MALAYALAM](https://www.youtube.com/watch?v=BfNm4hSvxwk)
-- [Hatitham | Collection of O N V Poem | ഓ എൻ വി കുറുപ് എഴുതി ആലപിച്ച  പ്രശസ്തങ്ങളായ കവിതകൾ | Jukebox](https://www.youtube.com/watch?v=kaw_4M6YhP0)
-- [പ്രാർത്ഥിച്ചാലും സൗഭാഗ്യവതീ | MOTHER MARY SONG #christiandevotionalsongs #royputhur](https://www.youtube.com/watch?v=53PK4CK0jjo)
-- [Mizhikalil Thaliridum | Uttavar #shortsfeed #shortsvideo #reels #malayalamfilmsongs](https://www.youtube.com/watch?v=HQkx6tCBamw)
-- [Pathirapullunarnnu | Ee Puzhayum Kadannu | Dileep | Manju Warrier | Johnson | KJ Yesudas](https://www.youtube.com/watch?v=PRKxW1ffkMc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
