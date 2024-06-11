@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [En Daivam | Shorts  #shortsvideo  #christiandevotionalmalayalamsongs](https://www.youtube.com/watch?v=p3biIa0y0Yc)
+- [En Daivam | Shorts  #shortsvideo  #christiandevotionalmalayalamsongs](https://www.youtube.com/watch?v=Jl_bSs4mJUg)
+- [En Daivam | Shorts  #shortsvideo  #christiandevotionalmalayalamsongs](https://www.youtube.com/watch?v=Vz4f3BrCLAE)
+- [En Daivam | Shorts  #shortsvideo  #christiandevotionalmalayalamsongs](https://www.youtube.com/watch?v=No6OhGfhajI)
+- [നിൻ മായക്കണ്ണിൽ മയ്യിട്ട് മയക്കിയില്ലേ... Paranayanilavu | Dileep | mohini](https://www.youtube.com/watch?v=2mLxYu7Vrcs)
 - [Manjakkiliyude Moolippaatunde |  Kanmadam |Raveendran|Gireesh Puthenchery | KJ Yesudas#SongOfTheDay](https://www.youtube.com/watch?v=kG3S-DtznTQ)
-- [Chandrikayil Aliyunnu l Bharyamar Sookshikkuka l Prem Nazir |  Sreekumaran Thampi |  A.M Raja](https://www.youtube.com/watch?v=zjsROXv989E)
-- [Nee Manimukilaadakal Song | Prithviraj | Navya #malayalammoviesongs #everlastingmalayalammelodysongs](https://www.youtube.com/watch?v=jGeSpD4IDEs)
-- [നീ തൂകുന്ന സ്നേഹവും, നീയേകുന്ന രക്ഷയും പറയാൻ വയ്യ ; അത്രമേൽ സുന്ദരം .](https://www.youtube.com/watch?v=ohdLpK5bht8)
-- [Singer Of The Week | Wilson Piravom | Christian Melody Songs | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=eLhubkZzSnE)
-- [മലയാളികളുടെ മനസിൽ കുടിയേറി പാർത്ത സൂപ്പർഹിറ്റ് സിനിമാഗാനങ്ങൾ | EVERGREEN HIT SONGS](https://www.youtube.com/watch?v=UaFxfwjCiZQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
