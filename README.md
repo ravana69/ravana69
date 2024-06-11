@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നീ തൂകുന്ന സ്നേഹവും, നീയേകുന്ന രക്ഷയും പറയാൻ വയ്യ ; അത്രമേൽ സുന്ദരം .](https://www.youtube.com/watch?v=ohdLpK5bht8)
+- [Singer Of The Week | Wilson Piravom | Christian Melody Songs | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=eLhubkZzSnE)
+- [മലയാളികളുടെ മനസിൽ കുടിയേറി പാർത്ത സൂപ്പർഹിറ്റ് സിനിമാഗാനങ്ങൾ | EVERGREEN HIT SONGS](https://www.youtube.com/watch?v=UaFxfwjCiZQ)
 - [Indrajala Nilaviloode - Video Song | Monica: Oru AI Story | Yunuseo | Najim Arshad](https://www.youtube.com/watch?v=lFBFtfiMyio)
 - [പാറമേൽ എന്നെ ഉയർത്തും ...😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=iz1xSKxwR-4)
 - [Now Vibe At Kalyanam | Guruvayoorambala Nadayil | Prithviraj | Basil | Anaswara |  #ytshorts](https://www.youtube.com/watch?v=7z0B_asFrfs)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 11th of June 2024](https://www.youtube.com/watch?v=3GbIg2hsyt8)
-- [Puthumazhayai Pozhiyam Video Song | Mudra | Mammootty | Sudheesh | MG Sreekumar | Kaithapram](https://www.youtube.com/watch?v=CbQz7M4Icfo)
-- [Evergreen Malayalam Evergreen Hits |കേൾക്കാൻ കൊതിക്കുന്ന പ്രണയഗാനങ്ങൾ|K S Chithra|Evergreen Melodies](https://www.youtube.com/watch?v=WL_oz1BD7-0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
