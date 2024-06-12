@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [കനിയൂ സ്നേഹപിതാവേ...](https://www.youtube.com/watch?v=um9Ucm9MLeo)
+- [Santhosh, eMithra | #ytshorts #youtubeshorts #entertainment](https://www.youtube.com/watch?v=L_xd10lAIyU)
+- [Thumbi Penne | Jayaram | KJ Yesudas | Sujatha Mohan | SP Venkitesh | Shibu Chakravarthy](https://www.youtube.com/watch?v=uIvCHE-qm4w)
+- [Santhosh, eMithra | #ytshorts #youtubeshorts #entertainment #youtubevideos](https://www.youtube.com/watch?v=hp7jaIda_ds)
+- [Omanapuzha | Chaanthupottu | Vidyasagar | Vayalar Sarathchandra Varma |  | #SongOfTheDay](https://www.youtube.com/watch?v=CbOZaLrMjYc)
 - [Ee Naadu Karayum Kadalum - Iniyenkilum(1983) |P Jayachandran | Vani Jayaram |Yusufali Kecheri |Shyam](https://www.youtube.com/watch?v=sJzSAMgjtCk)
-- [Ilakumbilil Poonila | Agninakshathram | Shibu Chakravarthi | Raveendran | KJ Yesudas](https://www.youtube.com/watch?v=jP2ZNniHpj4)
-- [Christian Melody Songs | Madhu Balakrishnan | Christian Songs | Sreya Jayadeep  | Joji Johns](https://www.youtube.com/watch?v=f5AN0WdJffM)
-- [Thozhan | Maidaan | Ajay Devgn | A.R.Rahman | Sreekanth Hariharan, Nithyashree V | Boney Kapoor](https://www.youtube.com/watch?v=_lF4yAODVOg)
-- [Santhosh, eMithra | #ytshorts #youtubeshorts #entertainment](https://www.youtube.com/watch?v=xq40RGmw3GE)
-- [തളരാതെ മുൻപോട്ട് വളരുക ..😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=uFTWqjIsJXY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
