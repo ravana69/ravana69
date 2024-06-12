@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thozhan | Maidaan | Ajay Devgn | A.R.Rahman | Sreekanth Hariharan, Nithyashree V | Boney Kapoor](https://www.youtube.com/watch?v=_lF4yAODVOg)
+- [Santhosh, eMithra | #ytshorts #youtubeshorts #entertainment](https://www.youtube.com/watch?v=xq40RGmw3GE)
 - [തളരാതെ മുൻപോട്ട് വളരുക ..😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=uFTWqjIsJXY)
 - [Hridayasakhee Video Song | Vellithira | Prithviraj | Navya Nair |Sujatha Mohan #malayalammoviesongs](https://www.youtube.com/watch?v=VWix-o7lpsE)
 - [HOL Hear Out Loud 🔊🎶|  | Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=fQCq953dChQ)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 12th of June 2024](https://www.youtube.com/watch?v=SeM1m2eZ94k)
-- [Kunu kune Video Song | Yodha | KJ Yesudas | AR Rahman #shorts](https://www.youtube.com/watch?v=be2isTJP4HI)
-- [Pranayapoorvam Mohanlal | AUDIO JUKEBOX | Selected Romantic Songs | Malayalam Film Songs | Melodies](https://www.youtube.com/watch?v=fO364ZivJoo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
