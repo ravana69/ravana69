@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Gaanth - Chapter 1: Jamna Paar &lpar;2024&rpar; S01 EP&lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - x264 - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Kannada] - 3.6GB - 1.8GB &amp; 1GB]](https://www.1tamilmv.eu/index.php?/forums/topic/180366-gaanth-chapter-1-jamna-paar-2024-s01-ep01-08-true-web-dl-1080p-720p-x264-aac-20-tamil-telugu-hindi-kannada-36gb-18gb-1gb/&do=findComment&comment=366995)
 - [Rush &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.6GB - 850MB &amp; 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180397-rush-2024-telugu-true-web-dl-1080p-720p-avc-aac-20-16gb-850mb-400mb/&do=findComment&comment=366994)
 - [Vallinam &lpar;2014&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 2GB - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/180396-vallinam-2014-tamil-true-web-dl-1080p-avc-untouched-aac20-2gb-gdflix/&do=findComment&comment=366993)
 - [Thuppakki &lpar;2012&rpar; - Tamil Video Songs - 1080p - BluRay - [DDP5.1 + DTS-HDMA5.1] - ESubs](https://www.1tamilmv.eu/index.php?/forums/topic/180395-thuppakki-2012-tamil-video-songs-1080p-bluray-ddp51-dts-hdma51-esubs/&do=findComment&comment=366992)
 - [Vallinam &lpar;2014&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 2GB - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/180396-vallinam-2014-tamil-true-web-dl-1080p-avc-untouched-aac20-2gb-gdflix/&do=findComment&comment=366991)
-- [Thuppakki &lpar;2012&rpar; - Tamil Video Songs - 1080p - BluRay - [DDP5.1 + DTS-HDMA5.1] - ESubs](https://www.1tamilmv.eu/index.php?/forums/topic/180395-thuppakki-2012-tamil-video-songs-1080p-bluray-ddp51-dts-hdma51-esubs/&do=findComment&comment=366990)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
