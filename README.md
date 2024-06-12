@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Numbers &lpar;2023&rpar; S01 EP&lpar;01-12&rpar; TRUE WEB-DL - [720p &amp; 360p - x264 - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Kor] - 4.8GB &amp; 2GB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180390-numbers-2023-s01-ep01-12-true-web-dl-720p-360p-x264-aac-20-tamil-telugu-hindi-kor-48gb-2gb-esub/&do=findComment&comment=366977)
 - [Numbers &lpar;2023&rpar; S01 EP&lpar;01-12&rpar; TRUE WEB-DL - [720p &amp; 360p - x264 - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Kor] - 4.8GB &amp; 2GB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180390-numbers-2023-s01-ep01-12-true-web-dl-720p-360p-x264-aac-20-tamil-telugu-hindi-kor-48gb-2gb-esub/&do=findComment&comment=366976)
 - [Naduvula Konjam Pakkatha Kanaom &lpar;2012&rpar; Tamil - SUNNXT WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;192kbps&rpar; - 5.2GB - 2.7GB &amp; 2.4GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180389-naduvula-konjam-pakkatha-kanaom-2012-tamil-sunnxt-web-dl-1080p-720p-avc-untouched-dd51192kbps-52gb-27gb-24gb-gdrive/&do=findComment&comment=366975)
 - [Mouna Guru &lpar;2011&rpar; Tamil - SUNNXT WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;192kbps&rpar; - 5.3GB - 3.4GB &amp; 2.6GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180388-mouna-guru-2011-tamil-sunnxt-web-dl-1080p-720p-avc-untouched-dd51192kbps-53gb-34gb-26gb-gdrive/&do=findComment&comment=366974)
 - [Parijatha Parvam &lpar;2024&rpar; Telugu TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.6GB - 2.5GB - 1.2GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180381-parijatha-parvam-2024-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-36gb-25gb-12gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=366973)
-- [Kota Factory &lpar;2019 - 2021&rpar; [S01 &amp; S02] TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng] - 2.5GB - 1.5GB &amp; 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180376-kota-factory-2019-2021-s01-s02-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-25gb-15gb-450mb-esub/&do=findComment&comment=366972)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
