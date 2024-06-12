@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന June 13 # Athiravile Prarthana 13th of June 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=c-REUfwu1Q0)
+- [നനുത്ത മഴപോലെ മനോഹരമായ പ്രണയരാഗങ്ങൾ| കെ ജെ യേശുദാസ് |Remastered Romantic songs|മലയാളചലച്ചിത്രഗാനങ്ങൾ](https://www.youtube.com/watch?v=-GoX92lDFss)
+- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=MuBIJn-n0Gk)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 13th June 2024](https://www.youtube.com/watch?v=w88TfeuhJLA)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=LwrHJdnRVY8)
 - [Santhosh, eMithra | #ytshorts #youtubeshorts #entertainment](https://www.youtube.com/watch?v=7h8l97gLD-Y)
-- [Santhosh, eMithra | #ytshorts #youtubeshorts #entertainment](https://www.youtube.com/watch?v=x557SEQAl48)
-- [Santhosh, eMithra | #ytshorts #youtubeshorts #entertainment](https://www.youtube.com/watch?v=Vo9-_nnhxqE)
-- [എന്റെ ഈശോ | ENTE EESOW | ROY PUTHUR | #christiandevotionalsongs #royputhur #song](https://www.youtube.com/watch?v=B_127ohcJL8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
