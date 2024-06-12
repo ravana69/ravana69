@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Suttamla Soosi Full Video Song | Gangs of Godavari | VishwakSen, Neha Shetty | Yuvan Shankar Raja](https://www.1tamilmv.eu/index.php?/forums/topic/180385-suttamla-soosi-full-video-song-gangs-of-godavari-vishwaksen-neha-shetty-yuvan-shankar-raja/&do=findComment&comment=366968)
 - [Parijatha Parvam &lpar;2024&rpar; Telugu TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.6GB - 2.5GB - 1.2GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180381-parijatha-parvam-2024-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-36gb-25gb-12gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=366967)
 - [Ground &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/180384-ground-2024-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps/&do=findComment&comment=366966)
 - [IP Man And Four Kings &lpar;2021&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/180383-ip-man-and-four-kings-2021-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi/&do=findComment&comment=366965)
 - [Young Ip Man: Crisis Time &lpar;2020&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+2.0 - 224Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Chi&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/180382-young-ip-man-crisis-time-2020-hd-original-audios-1080p-720p-x264-dd20-224kbps-tamil-telugu-hindi-chi/&do=findComment&comment=366964)
-- [Parijatha Parvam &lpar;2024&rpar; Telugu TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.6GB - 2.5GB - 1.2GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180381-parijatha-parvam-2024-telugu-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-36gb-25gb-12gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=366963)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
