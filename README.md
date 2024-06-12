@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kannande Chundathu - Audio Song | Akshyapatharam | M. S. Viswanathan | K.J. Yesudas, S. Janaki](https://www.youtube.com/watch?v=ZDdVz7RkBG8)
+- [Paadiyum Paranjum | ജീവിതത്തിൽ ആദ്യമായി കളറുള്ള ഗിറ്റാർ കണ്ടപ്പോൾ  |പാടിയും പറഞ്ഞും | Ouseppachan](https://www.youtube.com/watch?v=SC1_Wux2ZKE)
 - [Pavizhamalar Penkodi | One Man Show | Jayaram | Lal | Samyuktha Varma | Suresh Peters](https://www.youtube.com/watch?v=Yy23NtyeeOk)
 - [I Love You Mummy | Bhaskar The Rascal #shwetamohan #deepakdev #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=QMVHviShwig)
 - [Sheela Old Superhit Movie Song l Agni Pareeksha Movie | Prem Nazir, Sathyan, Sharada](https://www.youtube.com/watch?v=-OJo1cdBhOA)
 - [Nilaave Nilaave | Chattakkaari | Shorts  #manoramamusic](https://www.youtube.com/watch?v=-gSdpVwaOAQ)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 12th June 2024 # Novena to the Sacred Heart of Jesus 12th June 2024](https://www.youtube.com/watch?v=yMoibDh8VUw)
-- [ജനഹൃദയങ്ങളിൽ കയറിപ്പറ്റിയ അനശ്വരഗാനങ്ങൾ Exclusive Hits!! Kester Superhit praise & worship songs](https://www.youtube.com/watch?v=9Kit9Abt1RM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
