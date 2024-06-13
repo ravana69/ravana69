@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Valakilukkana Kunjole | HD Video | Kanmashi | S Ramesan Nair | M Jayachandran | KJ Yesudas](https://www.youtube.com/watch?v=0Hy64lXNIqI)
+- [Maidaan - Original Soundtrack (Malayalam) | Ajay Devgn | A. R. Rahman | Manoj Muntashir|Boney Kapoor](https://www.youtube.com/watch?v=QcmwGfYGF6k)
 - [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=_lato8PS1xI)
 - [എല്ലാ മലയാളികളുടെയും മനം കവർന്ന എപ്പോഴും കേൾക്കാറുള്ള സൂപ്പർഹിറ്റ് യുഗ്മ ഗാനങ്ങൾ | DUET SONGS](https://www.youtube.com/watch?v=lFOose8Si3I)
 - [പ്രേക്ഷകരുടെ ഇഷ്ട നായികയായ ദിവ്യ ഉണ്ണിയുടെ മനം മയക്കുന്ന മനോഹര ഗാനങ്ങൾ | HITS OF DIVYA UNNI](https://www.youtube.com/watch?v=oWAlcXHfHZU)
 - [കാടണിയും കാൽചിലമ്പേ കാനനമൈനേ | Kaadaniyum Kalchilambe | Mohanlal & Kamalini Mukherjee #pulimurugan](https://www.youtube.com/watch?v=Fm1UVJ94UUs)
-- [Podimeesha Mulakkana Kaalam | Cover Song | Pa Va | Sajid Thentral  | Band KAAVA](https://www.youtube.com/watch?v=p1SJiQ8yMWE)
-- [Sathyan Malayalam Romantic Old Superhit Movie Song l Mooladhanam Movie |  Sathyan, Sharada](https://www.youtube.com/watch?v=lO5zXRBL6_I)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
