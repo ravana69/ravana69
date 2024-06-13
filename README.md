@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nadhan Varavinnay | Sadhu Kochukunjupadeshi | Shorts #ytshorts](https://www.youtube.com/watch?v=6-AmCskKOLo)
+- [Nadhan Varavinnay | Sadhu Kochukunjupadeshi | Shorts #ytshorts](https://www.youtube.com/watch?v=p1ijz6wCCFs)
+- [Nadhan Varavinnay | Sadhu Kochukunjupadeshi | Shorts #ytshorts](https://www.youtube.com/watch?v=EDFnPs97xuA)
 - [Mazhaneer Thullikal | Beautiful | Shorts  #manoramamusic](https://www.youtube.com/watch?v=IK87SoZF_4Y)
 - [Kaattum Thiramalayum | Kester | Graham Varghese #shorts #kester](https://www.youtube.com/watch?v=x9XC9cqqpRA)
 - [Krushithante Hrudhayam pole Day 13](https://www.youtube.com/watch?v=hPWK5rYnEls)
-- [Christian Superhit Songs | Kester | Christian Devotional Songs Malayalam | Joji Johns | Chithra Arun](https://www.youtube.com/watch?v=v-GOAOuyLSM)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 13th June 2024 # Novena to the Sacred Heart of Jesus 13th June 2024](https://www.youtube.com/watch?v=Jaqr30LY-90)
-- [Japamala 13th of June 2024 # Mathavinte Japamala # Prakashathinte Rahasyangal 13th of June  2024](https://www.youtube.com/watch?v=VUl0S8b9XPA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
