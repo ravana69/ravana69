@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Do Aur Do Pyaar &lpar;2024&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180427-do-aur-do-pyaar-2024-hindi-true-web-dl-1080p-720p-avc-dd51-192kbps-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=367062)
 - [Gangs of Godavari &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 7GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180424-gangs-of-godavari-2024-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-7gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=367061)
 - [Black Coffee &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 320Kbps&rpar; - 2.5GB - 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180407-black-coffee-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-320kbps-25gb-13gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=367060)
 - [Kurangu Pedal &lpar;2024&rpar; Tamil TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.6GB - 2.5GB - 1.2GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180420-kurangu-pedal-2024-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-36gb-25gb-12gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=367059)
 - [Gangs of Godavari &lpar;2024&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; [Malayalam + Kannada] - 7GB - 2.6GB &amp; 1.5GB] - [x264 - 800MB &amp; 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180426-gangs-of-godavari-2024-true-web-dl-1080p-720p-avc-dd51-640kbps-malayalam-kannada-7gb-26gb-15gb-x264-800mb-450mb-esub/&do=findComment&comment=367058)
-- [Gangs of Godavari &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 7GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180425-gangs-of-godavari-2024-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-7gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=367057)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
