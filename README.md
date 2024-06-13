@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [എല്ലാ മലയാളികളുടെയും മനം കവർന്ന എപ്പോഴും കേൾക്കാറുള്ള സൂപ്പർഹിറ്റ് യുഗ്മ ഗാനങ്ങൾ | DUET SONGS](https://www.youtube.com/watch?v=lFOose8Si3I)
+- [പ്രേക്ഷകരുടെ ഇഷ്ട നായികയായ ദിവ്യ ഉണ്ണിയുടെ മനം മയക്കുന്ന മനോഹര ഗാനങ്ങൾ | HITS OF DIVYA UNNI](https://www.youtube.com/watch?v=oWAlcXHfHZU)
 - [കാടണിയും കാൽചിലമ്പേ കാനനമൈനേ | Kaadaniyum Kalchilambe | Mohanlal & Kamalini Mukherjee #pulimurugan](https://www.youtube.com/watch?v=Fm1UVJ94UUs)
 - [Podimeesha Mulakkana Kaalam | Cover Song | Pa Va | Sajid Thentral  | Band KAAVA](https://www.youtube.com/watch?v=p1SJiQ8yMWE)
 - [Sathyan Malayalam Romantic Old Superhit Movie Song l Mooladhanam Movie |  Sathyan, Sharada](https://www.youtube.com/watch?v=lO5zXRBL6_I)
 - [Teaser | Swargapithavu | Chithra Arun | Kuriakose Mathew #shorts #teaser](https://www.youtube.com/watch?v=bR-xmuT-ZpM)
-- [Nee Mukilo | Uyare #gopisundar #vijayyesudas #sitharakrishnakumar #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=W124TPZvTJU)
-- [Nadhan Varavinnay | Sadhu Kochukunjupadeshi | Shorts #ytshorts](https://www.youtube.com/watch?v=6-AmCskKOLo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
