@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Christian Superhit Songs | Kester | Christian Devotional Songs Malayalam | Joji Johns | Chithra Arun](https://www.youtube.com/watch?v=v-GOAOuyLSM)
+- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 13th June 2024 # Novena to the Sacred Heart of Jesus 13th June 2024](https://www.youtube.com/watch?v=Jaqr30LY-90)
+- [Japamala 13th of June 2024 # Mathavinte Japamala # Prakashathinte Rahasyangal 13th of June  2024](https://www.youtube.com/watch?v=VUl0S8b9XPA)
+- [എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala june13th #rosarymalayalam](https://www.youtube.com/watch?v=AmOnvIernDU)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=HhhiQBkeT1s)
 - [പ്രഭാത പ്രാര്‍ത്ഥന June 13 # Athiravile Prarthana 13th of June 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=c-REUfwu1Q0)
-- [നനുത്ത മഴപോലെ മനോഹരമായ പ്രണയരാഗങ്ങൾ| കെ ജെ യേശുദാസ് |Remastered Romantic songs|മലയാളചലച്ചിത്രഗാനങ്ങൾ](https://www.youtube.com/watch?v=-GoX92lDFss)
-- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=MuBIJn-n0Gk)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 13th June 2024](https://www.youtube.com/watch?v=w88TfeuhJLA)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=LwrHJdnRVY8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
