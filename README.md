@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kalayanam Is Happening When You Vibe 💃| Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=so0ab9Sr0nU)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 13th of June 2024](https://www.youtube.com/watch?v=wApngUxUz-M)
 - [Karinkallil Kadanja Song | Vellithira | Prithviraj | #malayalammoviesongs  #love](https://www.youtube.com/watch?v=e52kjqV0hwY)
 - [പൊള്ളുന്ന പ്രാണനിലേക്കായി അവിടുത്തെ കൃപയുടെ വാക്കുകൾ  😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=DZ3Vr7erZxU)
 - [Kallippaalakal Poothu Video Song | Panchavankaadu | KJ Yesudas | Vayalar](https://www.youtube.com/watch?v=WtbypLeTnwM)
 - [Kaithappoovin | Kannezhuthi Pottum Thottu | Mohanlal | KS Chithra | M G Radhakrishnan](https://www.youtube.com/watch?v=UD_1Tg3GPhA)
-- [Vrindhavanamundo Radhe Video Song | Yakshiyum Njanum | Meghana Raj | Madhu Balakrishnan | Vinayan](https://www.youtube.com/watch?v=k5OnOthkJA8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
