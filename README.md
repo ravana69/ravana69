@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The.Acolyte.S01.2160p.DSNP.WEB-DL.DDP5.1.Atmos.HDR.H.265](https://www.1tamilmv.eu/index.php?/forums/topic/180400-theacolytes012160pdsnpweb-dlddp51atmoshdrh265/&do=findComment&comment=366998)
+- [Numbers &lpar;2023&rpar; S01 EP&lpar;01-12&rpar; TRUE WEB-DL - [720p &amp; 360p - x264 - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Kor] -](https://www.1tamilmv.eu/index.php?/forums/topic/180399-numbers-2023-s01-ep01-12-true-web-dl-720p-360p-x264-aac-20-tamil-telugu-hindi-kor/&do=findComment&comment=366997)
+- [96.2019.1080p[Hindi] .AMZN.WEB-DL.DDP2.0.HEVC -[3.02 GB]](https://www.1tamilmv.eu/index.php?/forums/topic/180398-9620191080phindi-amznweb-dlddp20hevc-302-gb%C2%A0/&do=findComment&comment=366996)
 - [Gaanth - Chapter 1: Jamna Paar &lpar;2024&rpar; S01 EP&lpar;01-08&rpar; TRUE WEB-DL - [1080p - 720p - x264 - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Kannada] - 3.6GB - 1.8GB &amp; 1GB]](https://www.1tamilmv.eu/index.php?/forums/topic/180366-gaanth-chapter-1-jamna-paar-2024-s01-ep01-08-true-web-dl-1080p-720p-x264-aac-20-tamil-telugu-hindi-kannada-36gb-18gb-1gb/&do=findComment&comment=366995)
 - [Rush &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.6GB - 850MB &amp; 400MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180397-rush-2024-telugu-true-web-dl-1080p-720p-avc-aac-20-16gb-850mb-400mb/&do=findComment&comment=366994)
-- [Vallinam &lpar;2014&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 2GB - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/180396-vallinam-2014-tamil-true-web-dl-1080p-avc-untouched-aac20-2gb-gdflix/&do=findComment&comment=366993)
-- [Thuppakki &lpar;2012&rpar; - Tamil Video Songs - 1080p - BluRay - [DDP5.1 + DTS-HDMA5.1] - ESubs](https://www.1tamilmv.eu/index.php?/forums/topic/180395-thuppakki-2012-tamil-video-songs-1080p-bluray-ddp51-dts-hdma51-esubs/&do=findComment&comment=366992)
-- [Vallinam &lpar;2014&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 2GB - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/180396-vallinam-2014-tamil-true-web-dl-1080p-avc-untouched-aac20-2gb-gdflix/&do=findComment&comment=366991)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
