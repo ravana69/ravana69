@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=Wqquw5bEADg)
 - [Entha Parayya Short #enthaparrayya song Mathew  T Johnn Evan Jinesh, Lakshya Sigeesh, Neha Ninoy](https://www.youtube.com/watch?v=J8olOfYxyLY)
 - [എക്കാലത്തെയും ഹൃദയസ്പർശിയായ മലയാളസിനിമാഗാനങ്ങൾ | EVERGREEN HIT SONGS MALAYALAM](https://www.youtube.com/watch?v=wMpT-2kGi4c)
 - [വീണ്ടും കേൾക്കാൻ തോന്നിക്കുന്ന മധുര ഗാനങ്ങൾ | Malayalam Film Songs | Satyam Audios](https://www.youtube.com/watch?v=b1k1lgoRu9A)
 - [Chandralekhayenthe | Ammayane Sathyam | Kaithapram | MG Radhakrishnan | MG Sreekumar](https://www.youtube.com/watch?v=6W3SgTD5hcI)
 - [ஸ்டார் - விண்டேஜ் லவ் தமிழ் பாடல்வரிகள் | யுவன் சங்கர் ராஜா](https://www.youtube.com/watch?v=zbQifKYbI_E)
-- [Hridayam Oru Vallaki Video Song | Padayani | Mammootty | Devan | KJ Yesudas | P Jayachandran](https://www.youtube.com/watch?v=Vd9RlKkfMFM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
