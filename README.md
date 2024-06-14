@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Yakshini &lpar;2023&rpar; S01 EP &lpar;01 - 06&rpar; HQ 2160p, 1080p , 720p DSNP WEB-DL x264/265 [Tamil + Telugu  + Hindi + Kannada + Malayalam &lpar;DD+ 5.1 - 192Kbps&rpar;] - 19.3GB, 13.2GB, 6.1GB, 3.1GB - ESub - Leyon](https://www.1tamilmv.eu/index.php?/forums/topic/169166-yakshini-2023-s01-ep-01-06-hq-2160p-1080p-720p-dsnp-web-dl-x264265-tamil-telugu-hindi-kannada-malayalam-dd-51-192kbps-193gb-132gb-61gb-31gb-esub-leyon/&do=findComment&comment=367086)
+- [Uppu Puli Kaaram &lpar;2024&rpar; S01 EP &lpar;01 - 08&rpar; 2160p,1080p,720p DSNP WEB-DL x264 [Tamil &lpar;AAC 2.0 - 128Kbps&rpar;] - ESub - Leyon](https://www.1tamilmv.eu/index.php?/forums/topic/169274-uppu-puli-kaaram-2024-s01-ep-01-08-2160p1080p720p-dsnp-web-dl-x264-tamil-aac-20-128kbps-esub-leyon/&do=findComment&comment=367085)
 - [Kurangu Bommai &lpar;2017&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 5.6GB - ESub - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/180430-kurangu-bommai-2017-tamil-true-web-dl-1080p-hq-avc-untouched-dd51-56gb-esub-gdflix/&do=findComment&comment=367072)
 - [BOYS &lpar;2003&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.6GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/177691-boys-2003-telugu-dvd9-untouched-480p-dd51-448kbps-66gb-esub/&do=findComment&comment=367071)
 - [Love Me if You Dare &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180422-love-me-if-you-dare-2024-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-25gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=367070)
-- [Gangs of Godavari &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 7GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180425-gangs-of-godavari-2024-telugu-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-7gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=367069)
-- [Kurangu Pedal &lpar;2024&rpar; Tamil TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.6GB - 2.5GB - 1.2GB &amp; 850MB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180420-kurangu-pedal-2024-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-36gb-25gb-12gb-850mb-x264-700mb-400mb-esub/&do=findComment&comment=367068)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
