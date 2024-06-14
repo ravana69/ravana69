@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പാതിയും ചിമ്മാത്ത മിഴികളിൽ നനവാർന്ന ചുണ്ടിനാൽ ചുംബിച്ചിരുന്നിരുന്നു.. nostalgic malayalam film songs](https://www.youtube.com/watch?v=AgcV4Xhab6s)
+- [Nadodipoonthinkal | Usthad | Indraja | Vidyasagar | M G Sreekumar | Mohanlal](https://www.youtube.com/watch?v=bY0-QsVyk9c)
+- [Kattile Kannan | Animation Video #kattilekannan #animation #malayalamcartoon #shorts #shortsfeed](https://www.youtube.com/watch?v=2y8OuI05nnU)
 - [Prem Nazir Malayalam Romantic Old Superhit Movie Song l Dharamyudham Movie | Srividya](https://www.youtube.com/watch?v=8_2FObSgOsU)
 - [പ്രവാസം | DEVOTIONAL SONG | FR. BIJESH PHILIP | ROY PUTHUR | REBA ROMY #christiandevotionalsongs](https://www.youtube.com/watch?v=-qYiW0Dyw6s)
 - [Krushithante Hrudhayam pole day 14](https://www.youtube.com/watch?v=4RHPcq7VTZc)
-- [Vennilave | Sagar Alias Jacky | Shorts  #manoramamusic](https://www.youtube.com/watch?v=5Y8yJTM2ClI)
-- [Dyovin Sammanam | Christian Melody Songs | Shibu Antony |  Lijosh Vezhappilly | Joji Johns](https://www.youtube.com/watch?v=eKaI89y33_w)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 14th June 2024 # Novena to the Sacred Heart of Jesus 14th June 2024](https://www.youtube.com/watch?v=_g99zihCv8I)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
