@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [20 MILLION Subscribers - Sony Music South VEVO channel!](https://www.youtube.com/watch?v=WV7P3CJkUXw)
-- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=Wqquw5bEADg)
-- [Entha Parayya Short #enthaparrayya song Mathew  T Johnn Evan Jinesh, Lakshya Sigeesh, Neha Ninoy](https://www.youtube.com/watch?v=J8olOfYxyLY)
-- [എക്കാലത്തെയും ഹൃദയസ്പർശിയായ മലയാളസിനിമാഗാനങ്ങൾ | EVERGREEN HIT SONGS MALAYALAM](https://www.youtube.com/watch?v=wMpT-2kGi4c)
-- [വീണ്ടും കേൾക്കാൻ തോന്നിക്കുന്ന മധുര ഗാനങ്ങൾ | Malayalam Film Songs | Satyam Audios](https://www.youtube.com/watch?v=b1k1lgoRu9A)
-- [Chandralekhayenthe | Ammayane Sathyam | Kaithapram | MG Radhakrishnan | MG Sreekumar](https://www.youtube.com/watch?v=6W3SgTD5hcI)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 14th of June 2024](https://www.youtube.com/watch?v=nvYjVBxjUEs)
+- [Thalirilayil Video Song | Pranaamam | Malayalam Movie Songs | KS Chithra #song #malayalammoviesongs](https://www.youtube.com/watch?v=Zv_N5sVpT40)
+- [സ്‌നേഹമെന്ന്പ റയുന്നത് ഒരു വാക്കല്ല അനുഭവമാണ് | Rev. Aneesh P Joseph | #shorts #motivation#trending](https://www.youtube.com/watch?v=MJUEtDbrWB0)
+- [Vishudhanaaya Video Song | Pearl View | KJ Yesudas #shorts](https://www.youtube.com/watch?v=bibZcaruu6s)
+- [Manam Thakarkkilla - Video Song | Maidaan | Ajay Devgn | A.R.Rahman | Jithin Raj | Boney Kapoor](https://www.youtube.com/watch?v=U7I-m7W4uGs)
+- [Priyanu Mathram Njan Tharum Full Video Song | HD | Robinhood Movie Song | REMASTERED AUDIO |](https://www.youtube.com/watch?v=AxvoS5hy1j8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
