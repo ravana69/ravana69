@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Yaavarum Nalam &lpar;2009&rpar; - Tamil Video Songs - BluRay - 1080p - x264 - [DDP 5.1 + DTS 5.1] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180450-yaavarum-nalam-2009-tamil-video-songs-bluray-1080p-x264-ddp-51-dts-51-esub/&do=findComment&comment=367115)
 - [Kotee &lpar;2024&rpar; Kannada HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/180434-kotee-2024-kannada-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=367114)
 - [The.Beast.2024.1080p, 720p .AMZN.WEB-DL.DUAL.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/180449-thebeast20241080p-720p-amznweb-dldualddp51-direct-download/&do=findComment&comment=367113)
 - [Monkey.Man.2024.2160p.PCOK.WEB-DL.DDP5.1.Atmos.HDR &lpar;Direct Download&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/180448-monkeyman20242160ppcokweb-dlddp51atmoshdr-direct-download/&do=findComment&comment=367112)
 - [Ultraman: Rising &lpar;2024&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180423-ultraman-rising-2024-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-24gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=367111)
-- [Paruvu &lpar;2024&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [4k ,1080p - 720p - AVC - [Tamil + Telugu] - &lpar;DD+5.1 - 192Kbps&rpar; - 4.2GB - 3.5GB &amp; 1GB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180419-paruvu-2024-s01-ep-01-08-true-web-dl-4k-1080p-720p-avc-tamil-telugu-dd51-192kbps-42gb-35gb-1gb-esub/&do=findComment&comment=367110)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
