@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [14-6-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/180445-movies-collection-all-languages-4k-1080p-720p-576p-480p-14-6-2024/&do=findComment&comment=367105)
 - [Yakshini &lpar;2024&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 7GB - 2.3GB &amp; 750MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180418-yakshini-2024-s01-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-7gb-23gb-750mb-esub/&do=findComment&comment=367104)
 - [Do Aur Do Pyaar &lpar;2024&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.9GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180427-do-aur-do-pyaar-2024-hindi-true-web-dl-1080p-720p-avc-dd51-192kbps-29gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=367103)
 - [Gangs of Godavari &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 7GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180424-gangs-of-godavari-2024-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-7gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=367102)
 - [Thani Oruvan &lpar;2015&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 8.5GB - ESub - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/180402-thani-oruvan-2015-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-85gb-esub-gdflix/&do=findComment&comment=367101)
-- [Ultraman: Rising &lpar;2024&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180423-ultraman-rising-2024-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-24gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=367100)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
