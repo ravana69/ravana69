@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഒരു നവ്യ പ്രത്യാശയായി...](https://www.youtube.com/watch?v=K_Gnjpp15NU)
 - [Swayed away!✨ #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=4feNAQJidKU)
 - [Hook Step Of #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=eqER_Znyam0)
 - [Paikurumbiye Meykkum  | Dileep | Meera Jasmine  | Vidyasagar | Sujatha Mohan | Balram Iyer](https://www.youtube.com/watch?v=k2tepF_0nWs)
 - [Manju Peyyana | Chandranudikkunna Dikkil | Vidyasagar| Sujatha Mohan | S Ramesan Nair #SongOfTheDay](https://www.youtube.com/watch?v=69pylhE_oao)
 - [Songs Of The Week | Sreya Jayadeep | Christian Melody Songs | Madhu Balakrishnan | Joji Johns](https://www.youtube.com/watch?v=HMTOeXXOWfQ)
-- [Vellaram kunnu | Bhaskar The Rascal | Lijosh Vezhapilly| Amresh Ganesh | Sanoop Kumar | Shimol Alex](https://www.youtube.com/watch?v=7WN2ytHy-EY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
