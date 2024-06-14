@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Hook Step Of #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=eqER_Znyam0)
+- [Paikurumbiye Meykkum  | Dileep | Meera Jasmine  | Vidyasagar | Sujatha Mohan | Balram Iyer](https://www.youtube.com/watch?v=k2tepF_0nWs)
+- [Manju Peyyana | Chandranudikkunna Dikkil | Vidyasagar| Sujatha Mohan | S Ramesan Nair #SongOfTheDay](https://www.youtube.com/watch?v=69pylhE_oao)
 - [Songs Of The Week | Sreya Jayadeep | Christian Melody Songs | Madhu Balakrishnan | Joji Johns](https://www.youtube.com/watch?v=HMTOeXXOWfQ)
 - [Vellaram kunnu | Bhaskar The Rascal | Lijosh Vezhapilly| Amresh Ganesh | Sanoop Kumar | Shimol Alex](https://www.youtube.com/watch?v=7WN2ytHy-EY)
 - [മൂന്ന് വ്യത്യസ്‌ത ഭാക്ഷകളിൽ മേഘ്നകുട്ടി പാടി ഗംഭീരമാക്കിയ ഗാനം❤️🎶👌 @JinoKunnumpurathu @MeghnaSumesh](https://www.youtube.com/watch?v=EPoDJTcqaXc)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 14th of June 2024](https://www.youtube.com/watch?v=nvYjVBxjUEs)
-- [Thalirilayil Video Song | Pranaamam | Malayalam Movie Songs | KS Chithra #song #malayalammoviesongs](https://www.youtube.com/watch?v=Zv_N5sVpT40)
-- [സ്‌നേഹമെന്ന്പ റയുന്നത് ഒരു വാക്കല്ല അനുഭവമാണ് | Rev. Aneesh P Joseph | #shorts #motivation#trending](https://www.youtube.com/watch?v=MJUEtDbrWB0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
