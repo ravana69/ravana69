@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Loukyam &lpar;2014&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.5GB - ESub - HBD Macho Star Gopichand](https://www.1tamilmv.eu/index.php?/forums/topic/180394-loukyam-2014-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-65gb-esub-hbd-macho-star-gopichand/&do=findComment&comment=367163)
+- [Shankam &lpar;2009&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 7.2GB - ESub - HBD Macho Star Gopichand](https://www.1tamilmv.eu/index.php?/forums/topic/180387-shankam-2009-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-72gb-esub-hbd-macho-star-gopichand/&do=findComment&comment=367162)
 - [Parasakthi &lpar;1952&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 5.7GB - ESub - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/180471-parasakthi-1952-tamil-true-web-dl-1080p-hq-avc-untouched-ddp20-57gb-esub-gdflix/&do=findComment&comment=367161)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [15-6-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/180462-movies-collection-all-languages-4k-1080p-720p-576p-480p-15-6-2024/&do=findComment&comment=367160)
 - [Parasakthi &lpar;1952&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 5.7GB - ESub - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/180471-parasakthi-1952-tamil-true-web-dl-1080p-hq-avc-untouched-ddp20-57gb-esub-gdflix/&do=findComment&comment=367159)
-- [Indrani - Epic 1- Dharam vs Karam &lpar;2024&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/180466-indrani-epic-1-dharam-vs-karam-2024-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=367154)
-- [Thadam &lpar;2019&rpar; Tamil - SUNNXT WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;192kbps&rpar; - 5GB - 3.6GB &amp; 2.6GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180465-thadam-2019-tamil-sunnxt-web-dl-1080p-720p-avc-untouched-dd51192kbps-5gb-36gb-26gb-gdrive/&do=findComment&comment=367153)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
