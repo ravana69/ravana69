@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 16th June 2024](https://www.youtube.com/watch?v=BQ5HMPddIvU)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=8sbb6nJ7Gqo)
+- [ഒരുപാട് നൊമ്പരങ്ങൾ അടയാളപ്പെടുത്തിയ ഗാനങ്ങൾ | കെ ജെ യേശുദാസ് | Remastered Sad songs |virahagaanangal](https://www.youtube.com/watch?v=byLnITxxiKM)
 - [ഇരുളകലാതെ നിന്നൊരെന്നിൽ വഴി വിളക്കായ് തെളിഞ്ഞു നീ..](https://www.youtube.com/watch?v=OLDY0sHXrDM)
 - [Bhairava Anthem - Song Promo | Kalki 2898 AD | Prabhas | Diljit Dosanjh | Santhosh Narayanan](https://www.youtube.com/watch?v=Zz5QAw7NRZg)
 - [Vaisakha Sandhye | Nadodikkattu |  Shyam | Yusufali Kechery | K. J. Yesudas #SongOfTheDay](https://www.youtube.com/watch?v=_tFjOdqlbM4)
-- [Aaru Nee - Video Song | Chithini  | East Coast Vijayan | Ranjin Raj | K S Harisankar](https://www.youtube.com/watch?v=KgLO2O3XFVY)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 15th of June 2024](https://www.youtube.com/watch?v=hrPvRVppXsQ)
-- [RDX Vibe travels all over | #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=Dlynmq02_NI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
