@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Prem Nazir Malayalam Romantic Old Superhit Movie Song lC.I.D. Nazir Movie |Jayabharathi, Adoor Bhasi](https://www.youtube.com/watch?v=Q0q4z2lOy9Q)
+- [Swapnam Oru Chakku | Film Song  Animation Version | സൂപ്പർ ഹിറ്റ് മലയാള സിനിമാഗാനം അനിമേഷൻ രൂപത്തിൽ](https://www.youtube.com/watch?v=T-KxhY25cv0)
 - [Manikuttikkurumbulla Video Song  | HD | Kaliyoonjal Movie Song | REMASTERED  |](https://www.youtube.com/watch?v=h4LE-kSkXTg)
 - [Krushithante Hrudhayam Pole Day 15](https://www.youtube.com/watch?v=_Yo1Fkjn3O4)
 - [കാൽവരി മലമേൽ കയറി  | ROY PUTHUR | BINU KADAMBANADU | #royputhur #rayanmedia](https://www.youtube.com/watch?v=NqHL4UbHhr4)
 - [Shane Nigam's practice for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=gplYEqeujSA)
-- [Walking In The Moonlight Video Song | Kunchacko Boban | Aswathy   Vidyasagar | Hariharan |Kaithapram](https://www.youtube.com/watch?v=doask8BnwFc)
-- [Kuzhaloothum | Bhramaram #mohanlal #gvenugopal #sujatha #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=SVr2lFvydZs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
