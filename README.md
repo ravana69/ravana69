@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Bhairava Anthem - Song Promo | Kalki 2898 AD | Prabhas | Diljit Dosanjh | Santhosh Narayanan](https://www.youtube.com/watch?v=2ERZE_sT9Zw)
-- [Thithai Thithai | HD Video | Kanmashi | S Ramesan Nair | M Jayachandran | KJ Yesudas](https://www.youtube.com/watch?v=yPgey-M43Ak)
-- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=azIVIGUtZj8)
-- [Hridayasakhee Song | Vellithira | Prithviraj | Navya  | Vidhu Prathap #malayalammoviesongs #shorts](https://www.youtube.com/watch?v=kYXOW-mzakc)
-- [മലയാളികൾ നെഞ്ചോടു ചേർത്ത് വെച്ച് സ്നേഹിച്ച മലയാളസിനിമയിലെ മനോഹര ഗാനങ്ങൾ  | MOST LOVED MOVIE SONGS](https://www.youtube.com/watch?v=VVJmc91CA3o)
-- [തരളിത രാവിൽ മയങ്ങിയോ സൂര്യമാനസം... #nostalgicmalayalamsongs #sooryamanasam](https://www.youtube.com/watch?v=svNA7SqW3xc)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 15th of June 2024](https://www.youtube.com/watch?v=hrPvRVppXsQ)
+- [RDX Vibe travels all over | #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=Dlynmq02_NI)
+- [മറ്റുള്ളവർക്ക് തണലേകുന്നവർ...😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=9acIG7MwbiQ)
+- [Papathin Vazhiye ...#christiandevotionalsongsmalayalam #jojijohns #christiandevotionalsongs](https://www.youtube.com/watch?v=zxdSTy7t-yo)
+- [Kannu Nattu Video Song | Kathavasheshan | P Jayachandran | M Jayachandran | Gireesh Puthenchery](https://www.youtube.com/watch?v=R_Z8DQHgGy4)
+- [En Nadhane Piriyathe.. #christiandevotionalsongsmalayalam #christianvideosongs #jojijohns](https://www.youtube.com/watch?v=olRh1zCWje8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
