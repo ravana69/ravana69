@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Bhairava Anthem - Song Promo | Kalki 2898 AD | Prabhas | Diljit Dosanjh | Santhosh Narayanan](https://www.youtube.com/watch?v=2ERZE_sT9Zw)
+- [Thithai Thithai | HD Video | Kanmashi | S Ramesan Nair | M Jayachandran | KJ Yesudas](https://www.youtube.com/watch?v=yPgey-M43Ak)
+- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=azIVIGUtZj8)
 - [Hridayasakhee Song | Vellithira | Prithviraj | Navya  | Vidhu Prathap #malayalammoviesongs #shorts](https://www.youtube.com/watch?v=kYXOW-mzakc)
 - [മലയാളികൾ നെഞ്ചോടു ചേർത്ത് വെച്ച് സ്നേഹിച്ച മലയാളസിനിമയിലെ മനോഹര ഗാനങ്ങൾ  | MOST LOVED MOVIE SONGS](https://www.youtube.com/watch?v=VVJmc91CA3o)
 - [തരളിത രാവിൽ മയങ്ങിയോ സൂര്യമാനസം... #nostalgicmalayalamsongs #sooryamanasam](https://www.youtube.com/watch?v=svNA7SqW3xc)
-- [ഹൃദയം നുറുങ്ങുന്ന വേദനയിൽ മലയാളികൾ നെഞ്ചിലേറ്റിയ വിരഹദുഃഖ ഗാനങ്ങൾ | SAD SONGS MALAYALAM](https://www.youtube.com/watch?v=dRwxCaD02HM)
-- [Prem Nazir Malayalam Romantic Old Superhit Movie Song lC.I.D. Nazir Movie |Jayabharathi, Adoor Bhasi](https://www.youtube.com/watch?v=Q0q4z2lOy9Q)
-- [Swapnam Oru Chakku | Film Song  Animation Version | സൂപ്പർ ഹിറ്റ് മലയാള സിനിമാഗാനം അനിമേഷൻ രൂപത്തിൽ](https://www.youtube.com/watch?v=T-KxhY25cv0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
