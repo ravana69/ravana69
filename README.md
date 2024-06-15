@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Bhairava Anthem - Song Promo | Kalki 2898 AD | Prabhas | Diljit Dosanjh | Santhosh Narayanan](https://www.youtube.com/watch?v=Zz5QAw7NRZg)
+- [Vaisakha Sandhye | Nadodikkattu |  Shyam | Yusufali Kechery | K. J. Yesudas #SongOfTheDay](https://www.youtube.com/watch?v=_tFjOdqlbM4)
 - [Aaru Nee - Video Song | Chithini  | East Coast Vijayan | Ranjin Raj | K S Harisankar](https://www.youtube.com/watch?v=KgLO2O3XFVY)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 15th of June 2024](https://www.youtube.com/watch?v=hrPvRVppXsQ)
 - [RDX Vibe travels all over | #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=Dlynmq02_NI)
 - [മറ്റുള്ളവർക്ക് തണലേകുന്നവർ...😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=9acIG7MwbiQ)
-- [Papathin Vazhiye ...#christiandevotionalsongsmalayalam #jojijohns #christiandevotionalsongs](https://www.youtube.com/watch?v=zxdSTy7t-yo)
-- [Kannu Nattu Video Song | Kathavasheshan | P Jayachandran | M Jayachandran | Gireesh Puthenchery](https://www.youtube.com/watch?v=R_Z8DQHgGy4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
