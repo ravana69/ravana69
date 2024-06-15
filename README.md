@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [The.Nun.Il.2023.2160p [Eng, हिन्दी, தமிழ், తెలుగు] .JC.WEB- DL.MULTI.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/180454-thenunil20232160p-eng%C2%A0%E0%A4%B9%E0%A4%BF%E0%A4%A8%E0%A5%8D%E0%A4%A6%E0%A5%80-%E0%AE%A4%E0%AE%AE%E0%AE%BF%E0%AE%B4%E0%AF%8D-%E0%B0%A4%E0%B1%86%E0%B0%B2%E0%B1%81%E0%B0%97%E0%B1%81-jcweb-dlmultiddp51-direct-download/&do=findComment&comment=367122)
+- [JUJUTSU KAISEN S02 1080p CR WEB-DL x264 AAC 2.0 MULTI ESubs &lpar;Direct Download&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/180453-jujutsu-kaisen-s02-1080p-cr-web-dl-x264-aac-20-multi-esubs-direct-download/&do=findComment&comment=367121)
 - [2160p [HDR10|DoVi] Monkey Man &lpar;2024&rpar; PCOK WEB-DL DDP5.1 Esubs - 2160p [HDR10|DoVi] | 1080p - 13 GB | 6.6 GB](https://www.1tamilmv.eu/index.php?/forums/topic/180452-2160p-hdr10dovi-monkey-man-2024-pcok-web-dl-ddp51-esubs-2160p-hdr10dovi-1080p-13-gb-66-gb/&do=findComment&comment=367120)
 - [Passengers &lpar;2016&rpar; 4K BDRip 2160p HDR &amp; Open Matte 1080p BluRay] Multi Original Audios [Telugu &lpar;AMZN DDP5.1~448Kbps&rpar; + Tamil &lpar;AMZN DDP5.1~640Kbps&rpar; + Hindi &lpar;DDP5.1&rpar; +English] - ESubs - [3.8GB &amp; 5.9GB]](https://www.1tamilmv.eu/index.php?/forums/topic/180319-passengers-2016-4k-bdrip-2160p-hdr-open-matte-1080p-bluray-multi-original-audios-telugu-amzn-ddp51~448kbps-tamil-amzn-ddp51~640kbps-hindi-ddp51-english-esubs-38gb-59gb/&do=findComment&comment=367119)
 - [Cooku With Comali &lpar;2024&rpar; Tamil - S05 EP15 TRUE WEB-DL - [1080p, 720p, 360p - AVC - UNTOUCHED - 800MB - 700MB &amp; 300MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180451-cooku-with-comali-2024-tamil-s05-ep15-true-web-dl-1080p-720p-360p-avc-untouched-800mb-700mb-300mb/&do=findComment&comment=367118)
-- [65 Hollywood Movies - BluRay - H264 - Original Audio - [Tamil + Telugu + Hindi + Eng] - ESub - [720p - 70GB]](https://www.1tamilmv.eu/index.php?/forums/topic/127410-65-hollywood-movies-bluray-h264-original-audio-tamil-telugu-hindi-eng-esub-720p-70gb/&do=findComment&comment=367117)
-- [Temper &lpar;2015&rpar; Telugu 1080p HYBRID JC WEBRips - [8GB - 6GB - 4GB] - x264 - &lpar;DVD DD 5.1 - 448kbps&rpar; - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/179899-temper-2015-telugu-1080p-hybrid-jc-webrips-8gb-6gb-4gb-x264-dvd-dd-51-448kbps-esub/&do=findComment&comment=367116)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
