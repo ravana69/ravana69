@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Guruvayuroru Madhura | Vanamala | K J Yesudas | S Rameshan Nair | Sound of Arts](https://www.youtube.com/watch?v=lWQy9ikpgfI)
-- [Pularoli | Bhaskar the Rascal | Shorts  #manoramamusic](https://www.youtube.com/watch?v=KrQdhlnzCnE)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 15th June 2024 # Novena to the Sacred Heart of Jesus 15th June 2024](https://www.youtube.com/watch?v=roo8IuZKFmM)
-- [Christian Video Songs Malayalam | Sreya Jayadeep | Christian Melody Songs | Chithra Arun |Joji Johns](https://www.youtube.com/watch?v=Rmd_MweZP38)
-- [Japamala 15th of June 2024 # Mathavinte Japamala # Santhoshathinte Rahasyangal 15th of June 2024](https://www.youtube.com/watch?v=oj27RhKjFmQ)
-- [എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala malayalam june 15 #rosary](https://www.youtube.com/watch?v=RPc_NkzGPr4)
+- [Manikuttikkurumbulla Video Song  | HD | Kaliyoonjal Movie Song | REMASTERED  |](https://www.youtube.com/watch?v=h4LE-kSkXTg)
+- [Krushithante Hrudhayam Pole Day 15](https://www.youtube.com/watch?v=_Yo1Fkjn3O4)
+- [കാൽവരി മലമേൽ കയറി  | ROY PUTHUR | BINU KADAMBANADU | #royputhur #rayanmedia](https://www.youtube.com/watch?v=NqHL4UbHhr4)
+- [Shane Nigam's practice for #NeelaNilave | #RDX | #KapilKapilan | #SamCS | #shorts #ytshorts](https://www.youtube.com/watch?v=gplYEqeujSA)
+- [Walking In The Moonlight Video Song | Kunchacko Boban | Aswathy   Vidyasagar | Hariharan |Kaithapram](https://www.youtube.com/watch?v=doask8BnwFc)
+- [Kuzhaloothum | Bhramaram #mohanlal #gvenugopal #sujatha #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=SVr2lFvydZs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
