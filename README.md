@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Heart Beat &lpar;2024&rpar; S01 [E57-E60] - Tamil - DSNP WEB-DL - 4K , 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - AAC2.0&lpar;128kbps&rpar; - 4.2GB - 1.7GB &amp; 738MB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180463-heart-beat-2024-s01-e57-e60-tamil-dsnp-web-dl-4k-1080p-720p-avc-hevc-untouched-aac20128kbps-42gb-17gb-738mb-esub-gdrive/&do=findComment&comment=367150)
+- [Vantha Rajavathaan Varuven &lpar;2019&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 2.3GB - UE](https://www.1tamilmv.eu/index.php?/forums/topic/180456-vantha-rajavathaan-varuven-2019-tamil-true-web-dl-1080p-avc-untouched-aac20-23gb-ue/&do=findComment&comment=367149)
 - [Yakshini &lpar;2023&rpar; S01 EP &lpar;01 - 06&rpar; HQ 2160p, 1080p , 720p DSNP WEB-DL x264/265 [Tamil + Telugu  + Hindi + Kannada + Malayalam &lpar;DD+ 5.1 - 192Kbps&rpar;] - 19.3GB, 13.2GB, 6.1GB, 3.1GB - ESub - Leyon](https://www.1tamilmv.eu/index.php?/forums/topic/169166-yakshini-2023-s01-ep-01-06-hq-2160p-1080p-720p-dsnp-web-dl-x264265-tamil-telugu-hindi-kannada-malayalam-dd-51-192kbps-193gb-132gb-61gb-31gb-esub-leyon/&do=findComment&comment=367148)
 - [Vantha Rajavathaan Varuven &lpar;2019&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 2.3GB - UE](https://www.1tamilmv.eu/index.php?/forums/topic/180456-vantha-rajavathaan-varuven-2019-tamil-true-web-dl-1080p-avc-untouched-aac20-23gb-ue/&do=findComment&comment=367147)
 - [Finder &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD5.1 - 320Kbps&rpar; - 6.5GB - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180446-finder-2024-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-320kbps-65gb-26gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=367146)
-- [Vivarium &lpar;2022&rpar; 1080p, 720p Jio WEB-DL x264 [Tamil &lpar;AAC 2.0 - 189kbps&rpar;] - 3GB, 1.8GB, 1GB - ESub - Leyon](https://www.1tamilmv.eu/index.php?/forums/topic/168971-vivarium-2022-1080p-720p-jio-web-dl-x264-tamil-aac-20-189kbps-3gb-18gb-1gb-esub-leyon/&do=findComment&comment=367145)
-- [The Watch S01 EP &lpar;01 - 08&rpar; 1080p , 720p MX WEB-DL x264 [Hindi&lpar;AAC 2.0 - &lpar;67kbps&rpar;] - 4.9GB, 2.1GB - ESub - Leyon](https://www.1tamilmv.eu/index.php?/forums/topic/169040-the-watch-s01-ep-01-08-1080p-720p-mx-web-dl-x264-hindiaac-20-67kbps-49gb-21gb-esub-leyon/&do=findComment&comment=367144)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
