@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Krushithante Hrudhayam Pole Day 16](https://www.youtube.com/watch?v=Xt0F6KxQOpk)
+- [Mannin Manam Eenam | Ponnona Tharangini | K J Yesudas | Raveendran | Sound of Arts](https://www.youtube.com/watch?v=wJefPlPZZHo)
 - [Mayavi Shorts | Manorama Music](https://www.youtube.com/watch?v=C1PQsQt0y_Y)
 - [Nilaave Nilaave | Chattakkaari | Shorts  #manoramamusic](https://www.youtube.com/watch?v=3TNGeFATZfc)
 - [Christian Superhit Songs | Meera Manjeri | Kester | Christian Devotional Songs Malayalam |Joji Johns](https://www.youtube.com/watch?v=mcLxsrAEcp4)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 16th June 2024 # Novena to the Sacred Heart of Jesus 16th June 2024](https://www.youtube.com/watch?v=oaElBvC1GNg)
-- [Japamala 16th of June 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 16th of June  2024](https://www.youtube.com/watch?v=AuUkKzmsgAc)
-- [എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #japamala for june 16th #rosary](https://www.youtube.com/watch?v=1rc379byoBM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
