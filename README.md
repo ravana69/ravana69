@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Khatarnak &lpar;2006&rpar; Telugu AMZN TRUE WEB-DL - 1080p - AVC - [DD+2.0 - 224kbps] - Esubs - 10GB - [GDriveLinks]](https://www.1tamilmv.eu/index.php?/forums/topic/166609-khatarnak-2006-telugu-amzn-true-web-dl-1080p-avc-dd20-224kbps-esubs-10gb-gdrivelinks/&do=findComment&comment=367184)
 - [Yevam &lpar;2024&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/180470-yevam-2024-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=367183)
 - [Hit Man &lpar;2024&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; &lpar;Direct Download&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/180480-hit-man-2024-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-direct-download/&do=findComment&comment=367182)
 - [Top Cooku Dupe Cooku &lpar;2024&rpar; Tamil - S01 EP05 TRUE WEB-DL - [1080p, 720p, 360p - AVC - UNTOUCHED - 1.2GB - 650MB &amp; 300MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180475-top-cooku-dupe-cooku-2024-tamil-s01-ep05-true-web-dl-1080p-720p-360p-avc-untouched-12gb-650mb-300mb/&do=findComment&comment=367179)
 - [Aadhavan &lpar;2009&rpar; Tamil - BluRay - 1080p &amp; 720p - AVC - [DTS-HDMA 5.1&lpar;2392kbps&rpar; + DD5.1&lpar;448kbps&rpar;] - 10.7GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180477-aadhavan-2009-tamil-bluray-1080p-720p-avc-dts-hdma-512392kbps-dd51448kbps-107gb-55gb-27gb-14gb-x264-700mb-400mb-esub-gdrive/&do=findComment&comment=367178)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [16-6-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/180476-movies-collection-all-languages-4k-1080p-720p-576p-480p-16-6-2024/&do=findComment&comment=367177)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
