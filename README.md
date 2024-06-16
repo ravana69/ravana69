@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 17th June 2024](https://www.youtube.com/watch?v=rHbaLyNax0w)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=hn5RlsNaMLk)
 - [Aaro Viral Neetti | Gireesh Puthenchery | Vidyasagar KJ Yesudas |Manju Warrier](https://www.youtube.com/watch?v=Zv82UkucLK4)
 - [Moovanthi Thazhvarayil | Raveendran | Gireesh Puthenchery l KJ Yesudas #songoftheday](https://www.youtube.com/watch?v=bF5-uHTx4c4)
 - [Vezhambal Marikkayi | Christian Video Song | Fr.Phinil Ezharath CMI |  Belram K Mohandas | Shine](https://www.youtube.com/watch?v=-1mo3e6z4N0)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 16th of June 2024](https://www.youtube.com/watch?v=QdtBw8BvJfQ)
-- [Twining and shining!✨ #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=f058ltr-L2g)
-- [ദൈവം നിങ്ങൾക്കായി ഒരുക്കിയ പദ്ധതിയെ തടയുവാൻ ലോകത്തിലെ ഒരു ശക്തിക്കും കഴിയില്ല |Rev. Aneesh P Joseph](https://www.youtube.com/watch?v=DQUWGncCpWU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
