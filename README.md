@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Athmave Poo X Nizhalaadum - Video Mashup | Sushin Shyam | Manikandan Ayyappa](https://www.youtube.com/watch?v=QUaJ-gIInIU)
+- [Chimmi Chimmi  | Animation Version Film Songs #shortsfeed #shortsvideo #reels  #animation](https://www.youtube.com/watch?v=B-x_CgtUiNU)
 - [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=3O7_nT_9rZo)
 - [Kanyathanaya | Ninamaninja Kalpadukal | P Bhaskaran | Baburaj | P.Leela | Sunitha |Ambika | Old Song](https://www.youtube.com/watch?v=kO_4qfheZ-g)
 - [ദൂരെ ദൂരെയായെൻ തീരമില്ലയോ... #sooryamanasam #sadsongstatus](https://www.youtube.com/watch?v=CHgJO-zCsh8)
 - [അമ്മതൻ ചാരെ നൊമ്പരമോടെ നിന്നിടുമ്പോൾ #ammathan chare #mothermarysongsmalayalam #christiansongs](https://www.youtube.com/watch?v=x1d2sFWivXQ)
-- [Mizhikalil  | Bunglavil Outha | Video | G Venugopal | Sujatha | Vayalar Sarath | M Jayachandran](https://www.youtube.com/watch?v=9JGPwlFEoqI)
-- [Parvanendhu Choodi | Manikyachempazhukka | Mukesh | Mathu | M G Sreekumar | Rajamani](https://www.youtube.com/watch?v=Cli89WuskAA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
