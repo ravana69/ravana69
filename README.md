@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Ezhimala Kottayile - Audio Song | Malaikottai Vaaliban | Mohanlal | Prashant Pillai | LJP](https://www.youtube.com/watch?v=lCmhZuELG_c)
+- [Kunjaana Kurumbanaana |  ACTION SONG #actionsong #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=IuaKiY07rl4)
+- [Ishtam Ishtam | Lyrical Video Songs | K S Chithra | Amrutham | Malayalam Film Songs](https://www.youtube.com/watch?v=MO-KqOSdBgc)
 - [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=OpgYBpT19vE)
 - [Hridayasakhee Song | Vellithira | Prithviraj | Navya  | Vidhu Prathap #malayalammoviesongs #shorts](https://www.youtube.com/watch?v=2pdejSHbUvc)
 - [Yamini Nilaavulavum | HD Video Song | Mangalam Veettil Manaseswari Gupta | Gireesh Puthenchery |](https://www.youtube.com/watch?v=_bZSdere3a0)
-- [Poliyoo Poli | Pallavoor Devanarayanan | Raveendran | Girish Puthenchery | Mammootty | Film songs](https://www.youtube.com/watch?v=cNjShxriYgc)
-- [Ariyathe Ariyathe | Itha Oru Dhikkari | Poovachal Khader | AT Ummer | KJ Yesudas | Prem Naseer](https://www.youtube.com/watch?v=j1qLjT85qo4)
-- [പ്രണയം തുളുമ്പും  മധുരമനോഹര ഗാനങ്ങൾ | SOULFUL LOVE SONGS | EVERGREEN LOVE SONGS](https://www.youtube.com/watch?v=7zw-Cqhc0Q8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
