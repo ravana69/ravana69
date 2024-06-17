@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Vinnaithaandi Varuvaayaa &lpar;2010&rpar; Tamil - BluRay Remux - 1080p - AVC - [DTS-HDMA 5.1&lpar;4469kbps&rpar;] - 38GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/164077-vinnaithaandi-varuvaayaa-2010-tamil-bluray-remux-1080p-avc-dts-hdma-514469kbps-38gb-esub/&do=findComment&comment=367190)
 - [Kannukkul Nilavu &lpar;2000&rpar; Tamil HDTV - 720p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 2.9GB - UE](https://www.1tamilmv.eu/index.php?/forums/topic/180484-kannukkul-nilavu-2000-tamil-hdtv-720p-avc-untouched-aac20-29gb-ue/&do=findComment&comment=367189)
 - [Kalyana Ramudu &lpar;2003&rpar; Telugu HQ HDTV-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 3.9GB &amp; 2.4GB]](https://www.1tamilmv.eu/index.php?/forums/topic/180483-kalyana-ramudu-2003-telugu-hq-hdtv-dl-1080p-720p-avc-aac-20-39gb-24gb/&do=findComment&comment=367188)
 - [Baana Kaathadi &lpar;2010&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 6.8GB - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/180482-baana-kaathadi-2010-tamil-true-web-dl-1080p-hq-avc-untouched-aac20-68gb-gdflix/&do=findComment&comment=367187)
 - [House of the Dragon &lpar;2024&rpar; S02 EP01 TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada + Eng] - 1.2GB - 650MB &amp; 300MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180481-house-of-the-dragon-2024-s02-ep01-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-12gb-650mb-300mb/&do=findComment&comment=367186)
-- [House of the Dragon &lpar;2024&rpar; S02 EP01 TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada + Eng] - 1.2GB - 650MB &amp; 300MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180481-house-of-the-dragon-2024-s02-ep01-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-12gb-650mb-300mb/&do=findComment&comment=367185)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
