@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Antha Naal Nyabagam [Gurthunda Seethakalam] &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil + Telugu + Malayalam + Kannada] - 5.6GB - 3GB - 1.5GB &amp; 1GB] - [x264 - 800MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/172579-antha-naal-nyabagam-gurthunda-seethakalam-2023-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-malayalam-kannada-56gb-3gb-15gb-1gb-x264-800mb-450mb-250mb-esub/&do=findComment&comment=367210)
 - [50 Tamil Movies - 1080p - BluRay/SNXT/SS WEB-DL - AVC - x264 - DD5.1/AAC2.0 - ESub - 300GB [GDRIVE]](https://www.1tamilmv.eu/index.php?/forums/topic/127510-50-tamil-movies-1080p-bluraysnxtss-web-dl-avc-x264-dd51aac20-esub-300gb-gdrive/&do=findComment&comment=367209)
 - [Victoria &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 320Kbps&rpar; - 2.6GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180488-victoria-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-320kbps-26gb-14gb-950mb-x264-700mb-400mb-250mb/&do=findComment&comment=367207)
 - [House of the Dragon &lpar;2024&rpar; S02 EP01 TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada + Eng] - 1.2GB - 650MB &amp; 300MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180481-house-of-the-dragon-2024-s02-ep01-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-12gb-650mb-300mb/&do=findComment&comment=367206)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [17-6-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/180487-movies-collection-all-languages-4k-1080p-720p-576p-480p-17-6-2024/&do=findComment&comment=367205)
-- [Aadhavan &lpar;2009&rpar; Tamil - BluRay - 1080p &amp; 720p - AVC - [DTS-HDMA 5.1&lpar;2392kbps&rpar; + DD5.1&lpar;448kbps&rpar;] - 10.7GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180477-aadhavan-2009-tamil-bluray-1080p-720p-avc-dts-hdma-512392kbps-dd51448kbps-107gb-55gb-27gb-14gb-x264-700mb-400mb-esub-gdrive/&do=findComment&comment=367204)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
