@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 17th of June 2024](https://www.youtube.com/watch?v=rAnMdqgfcQg)
+- [ഭയപ്പെടേണ്ട ഞാൻ നിന്നോടുകൂടെയുണ്ട് ...😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=RZxmswudGrw)
+- [പൊലിയോ പൊലി | Pallavoor devanarayanan Movie songs](https://www.youtube.com/watch?v=HfuGjFo_6g4)
+- [Kalyaanaraathriyil Video Song | Samudram | P Madhuri | B Vasantha | G Devarajan](https://www.youtube.com/watch?v=0hrKctnH4HI)
+- [Karuka Naambum | Neelagiri | Super Hit Malayalam Movie Song | Madhubala | Mammootty - Chithra Hits](https://www.youtube.com/watch?v=J25IB_j-e_M)
 - [Ezhimala Kottayile - Audio Song | Malaikottai Vaaliban | Mohanlal | Prashant Pillai | LJP](https://www.youtube.com/watch?v=lCmhZuELG_c)
-- [Kunjaana Kurumbanaana |  ACTION SONG #actionsong #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=IuaKiY07rl4)
-- [Ishtam Ishtam | Lyrical Video Songs | K S Chithra | Amrutham | Malayalam Film Songs](https://www.youtube.com/watch?v=MO-KqOSdBgc)
-- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=OpgYBpT19vE)
-- [Hridayasakhee Song | Vellithira | Prithviraj | Navya  | Vidhu Prathap #malayalammoviesongs #shorts](https://www.youtube.com/watch?v=2pdejSHbUvc)
-- [Yamini Nilaavulavum | HD Video Song | Mangalam Veettil Manaseswari Gupta | Gireesh Puthenchery |](https://www.youtube.com/watch?v=_bZSdere3a0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
