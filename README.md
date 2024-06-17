@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 18th June 2024](https://www.youtube.com/watch?v=YTWPa65ILhQ)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=KumytToQxzg)
 - [പാടും ഞാൻ            എന്നകതാരിൽ വാഴും ശ്രീയേശുവിനായ്...](https://www.youtube.com/watch?v=INf7rRqH488)
 - [Nilaaponkalaayelo  | Thenmavin Kombath  | Berny Ignatius | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=AW3nowdo5EM)
 - [Shyamameghame Nee | Mohanlal | Parvathy | KS Chithra | Shyam | Chunakkara Ramankutty](https://www.youtube.com/watch?v=EHi0DxwKUvE)
 - [Christian Superhit Songs | Minmini | Kester | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=LmwCFsTSx7o)
-- [പഴയ ഓർമകളിലേക്കൊരു മടങ്ങിപ്പോക്ക് | Shri Oommen Chandy sir|@JinoKunnumpurathu#shorts #oommenchandy](https://www.youtube.com/watch?v=wYXzK8_yqgQ)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 17th of June 2024](https://www.youtube.com/watch?v=rAnMdqgfcQg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
