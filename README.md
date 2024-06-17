@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Aadhavan &lpar;2009&rpar; Tamil - BluRay - 1080p &amp; 720p - AVC - [DTS-HDMA 5.1&lpar;2392kbps&rpar; + DD5.1&lpar;448kbps&rpar;] - 10.7GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB - ESub [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180477-aadhavan-2009-tamil-bluray-1080p-720p-avc-dts-hdma-512392kbps-dd51448kbps-107gb-55gb-27gb-14gb-x264-700mb-400mb-esub-gdrive/&do=findComment&comment=367198)
+- [Baana Kaathadi &lpar;2010&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 6.8GB - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/180482-baana-kaathadi-2010-tamil-true-web-dl-1080p-hq-avc-untouched-aac20-68gb-gdflix/&do=findComment&comment=367197)
+- [Jigiri Dosthu &lpar;2023&rpar; Tamil HDTV - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.4GB &amp; 1.2GB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180485-jigiri-dosthu-2023-tamil-hdtv-1080p-720p-avc-aac-20-24gb-12gb-x264-700mb-400mb-250mb/&do=findComment&comment=367196)
+- [Mahesh Babu Filmography &lpar;1999 - 2024&rpar; - 1080p - x264 - AVC - DD5.1/AAC2.0 - ESub - 75GB](https://www.1tamilmv.eu/index.php?/forums/topic/119758-mahesh-babu-filmography-1999-2024-1080p-x264-avc-dd51aac20-esub-75gb/&do=findComment&comment=367195)
 - [Kurangu Bommai &lpar;2017&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 5.6GB - ESub - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/180430-kurangu-bommai-2017-tamil-true-web-dl-1080p-hq-avc-untouched-dd51-56gb-esub-gdflix/&do=findComment&comment=367194)
-- [Thadam &lpar;2019&rpar; Tamil - SUNNXT WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;192kbps&rpar; - 5GB - 3.6GB &amp; 2.6GB [GDrive]](https://www.1tamilmv.eu/index.php?/forums/topic/180465-thadam-2019-tamil-sunnxt-web-dl-1080p-720p-avc-untouched-dd51192kbps-5gb-36gb-26gb-gdrive/&do=findComment&comment=367193)
-- [Ini Oru Kadhal Seivom &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 2GB - 1GB] - [x264 - 650MB &amp; 350MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180479-ini-oru-kadhal-seivom-2024-tamil-true-web-dl-1080p-720p-avc-2gb-1gb-x264-650mb-350mb/&do=findComment&comment=367192)
-- [One More Happy Ending &lpar;2024&rpar; S01 EP&lpar;01-16&rpar; TRUE WEB-DL - [720p &amp; 360p - x264 - [Tamil + Telugu + Hindi + Kor] - 8.5GB &amp; 2.5GB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180478-one-more-happy-ending-2024-s01-ep01-16-true-web-dl-720p-360p-x264-tamil-telugu-hindi-kor-85gb-25gb-esub/&do=findComment&comment=367191)
-- [Vinnaithaandi Varuvaayaa &lpar;2010&rpar; Tamil - BluRay Remux - 1080p - AVC - [DTS-HDMA 5.1&lpar;4469kbps&rpar;] - 38GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/164077-vinnaithaandi-varuvaayaa-2010-tamil-bluray-remux-1080p-avc-dts-hdma-514469kbps-38gb-esub/&do=findComment&comment=367190)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
