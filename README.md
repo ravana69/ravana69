@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Prem Nazir Malayalam Romantic Old Superhit Movie Song l Dharamyudham Movie | Srividya](https://www.youtube.com/watch?v=ZhiwHR5nuxQ)
+- [SuperHit Malayalam Film Songs | Ayyappanum Koshiyum | Artist | Bicycle Thieves | Nonstop Movie Songs](https://www.youtube.com/watch?v=EdqhCgw39Ak)
 - [Enente Chankile | Red Salute | Folk Film Songs Reels #ytshorts](https://www.youtube.com/watch?v=7DA9pw7qKwQ)
 - [Christian Songs Malayalam | Joseph Mathew Padinjarethara | G .Venugopal | Christian Melody Songs](https://www.youtube.com/watch?v=xh6fk40-IeI)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 17th June 2024 # Novena to the Sacred Heart of Jesus 17th June 2024](https://www.youtube.com/watch?v=9ZkEwqTunJw)
 - [ഈ മരിയൻ ഗാനങ്ങൾ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #kreupasanam daily songs mother mary #kripasanam](https://www.youtube.com/watch?v=01W_Ft02XMY)
-- [Japamala  17th of June  2024 # Mathavinte Japamala # Santhoshathinte Rahasyangal 17th of June  2024](https://www.youtube.com/watch?v=dBs8fMoQ0mc)
-- [എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  june17th #rosarymalayalam](https://www.youtube.com/watch?v=6BM7oWrbuMY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
