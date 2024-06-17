@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Poliyoo Poli | Pallavoor Devanarayanan | Raveendran | Girish Puthenchery | Mammootty | Film songs](https://www.youtube.com/watch?v=cNjShxriYgc)
+- [Ariyathe Ariyathe | Itha Oru Dhikkari | Poovachal Khader | AT Ummer | KJ Yesudas | Prem Naseer](https://www.youtube.com/watch?v=j1qLjT85qo4)
+- [പ്രണയം തുളുമ്പും  മധുരമനോഹര ഗാനങ്ങൾ | SOULFUL LOVE SONGS | EVERGREEN LOVE SONGS](https://www.youtube.com/watch?v=7zw-Cqhc0Q8)
 - [ஸ்டார் - காலேஜ் சூப்பர்ஸ்டார்ஸ் தமிழ் பாடல்வரிகள் | யுவன் சங்கர் ராஜா](https://www.youtube.com/watch?v=SBeff_JkIoc)
 - [Oru Nadiaayi | Lyrical |Vellaripattanam|Vinayak Sasikumar|Sachin Shankor Mannath|PoojaVenkatraman](https://www.youtube.com/watch?v=VMXzmqAqqtI)
 - [Kadha Video Jukebox | Prithviraj | Kavya Madhavan | Ouseppachan | G Venugopal | K S Chithra](https://www.youtube.com/watch?v=uPXQQYDrhxc)
-- [Chembazhukka | Kunjaliyan #kjyesudas #sujatha #mjayachandran #jayasurya #shortsfeed #shortsvideo](https://www.youtube.com/watch?v=em6ZiZKWy8M)
-- [Grooving to the song of the season!✨ #NeelaNilave #RDX #ytshorts #shorts](https://www.youtube.com/watch?v=iBsYMlW7j2g)
-- [Aakashamariyathe Video Song | Thanthonni | Prithviraj | Ambika | KJ Yesudas | Gireesh Puthenchery](https://www.youtube.com/watch?v=DwrpBqsMJP8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
