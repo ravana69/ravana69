@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Anand &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6GB - ESub - Universal DVD](https://www.1tamilmv.eu/index.php?/forums/topic/180499-anand-2004-telugu-dvd9-untouched-480p-dd51-448kbps-6gb-esub-universal-dvd/&do=findComment&comment=367228)
+- [Dil Dosti Dilemma &lpar;2024&rpar; S01 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.3GB - 2.3GB &amp; 1GB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180498-dil-dosti-dilemma-2024-s01-ep-01-07-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-53gb-23gb-1gb-esub/&do=findComment&comment=367227)
+- [Amma Rajinama &lpar;1991&rpar; Telugu HQ HDTV-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 4GB &amp; 2.5GB]](https://www.1tamilmv.eu/index.php?/forums/topic/180497-amma-rajinama-1991-telugu-hq-hdtv-dl-1080p-720p-avc-aac-20-4gb-25gb/&do=findComment&comment=367226)
 - [Kalyana Ramudu &lpar;2003&rpar; Telugu HQ HDTV-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 3.9GB &amp; 2.4GB]](https://www.1tamilmv.eu/index.php?/forums/topic/180483-kalyana-ramudu-2003-telugu-hq-hdtv-dl-1080p-720p-avc-aac-20-39gb-24gb/&do=findComment&comment=367225)
 - [Neram &lpar;2013&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 6.4GB - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/180496-neram-2013-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-64gb-gdflix/&do=findComment&comment=367224)
-- [Neram &lpar;2013&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 6.4GB - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/180496-neram-2013-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-64gb-gdflix/&do=findComment&comment=367223)
-- [Love Life &lpar;2022&rpar; 1080p BluRay REMUX Multi DDP5.1 Esubs x264 - 23.8 GB](https://www.1tamilmv.eu/index.php?/forums/topic/180495-love-life-2022-1080p-bluray-remux-multi-ddp51-esubs-x264-238-gb/&do=findComment&comment=367222)
-- [House of the Dragon &lpar;2022&rpar; S01 EP &lpar;01-10&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada + Eng] - 7GB - 4GB &amp; 1.4GB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/176144-house-of-the-dragon-2022-s01-ep-01-10-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng-7gb-4gb-14gb-esub/&do=findComment&comment=367221)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
