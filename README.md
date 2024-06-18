@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Chote Nawab &lpar;2024&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD5.1 - 384Kbps&rpar; - 2.3GB &amp; 1GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180489-chote-nawab-2024-hindi-true-web-dl-1080p-720p-avc-dd51-384kbps-23gb-1gb-x264-700mb-400mb-esub/&do=findComment&comment=367215)
 - [Jigiri Dosthu &lpar;2023&rpar; Tamil HDTV - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.4GB &amp; 1.2GB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180485-jigiri-dosthu-2023-tamil-hdtv-1080p-720p-avc-aac-20-24gb-12gb-x264-700mb-400mb-250mb/&do=findComment&comment=367214)
 - [Ini Oru Kadhal Seivom &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC - 2GB - 1GB] - [x264 - 650MB &amp; 350MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180479-ini-oru-kadhal-seivom-2024-tamil-true-web-dl-1080p-720p-avc-2gb-1gb-x264-650mb-350mb/&do=findComment&comment=367213)
 - [Victoria &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 320Kbps&rpar; - 2.6GB - 1.4GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.eu/index.php?/forums/topic/180488-victoria-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-320kbps-26gb-14gb-950mb-x264-700mb-400mb-250mb/&do=findComment&comment=367212)
 - [Love Mocktail 2 &lpar;2024&rpar; Telugu HD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.eu/index.php?/forums/topic/180436-love-mocktail-2-2024-telugu-hd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=367211)
-- [Antha Naal Nyabagam [Gurthunda Seethakalam] &lpar;2023&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil + Telugu + Malayalam + Kannada] - 5.6GB - 3GB - 1.5GB &amp; 1GB] - [x264 - 800MB - 450MB &amp; 250MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/172579-antha-naal-nyabagam-gurthunda-seethakalam-2023-true-web-dl-1080p-720p-avc-hevc-tamil-telugu-malayalam-kannada-56gb-3gb-15gb-1gb-x264-800mb-450mb-250mb-esub/&do=findComment&comment=367210)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
