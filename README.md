@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thumbikkinnaram |  Naran #mohanlal #kjyesudas #deepakdev #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=m_XABmAbdl8)
+- [Manikyakammalu Venam Video Song | Vajram | Vasundhara Das | Aravind Akash | Sujatha Mohan | Afsal](https://www.youtube.com/watch?v=ODJedvdEPnQ)
 - [Madhu Malayalam Romantic Old Superhit Movie Song l Chembarathi Movie |   Raghavan, Roja Ramani](https://www.youtube.com/watch?v=P3XsA7w3GWM)
 - [Neer Maathalam | Film Songs Reel  #manoramamusic](https://www.youtube.com/watch?v=KGLCF1jOdAM)
 - [Appaa Nammaade | Urumi | Folk Film Songs Reel  #manoramamusic](https://www.youtube.com/watch?v=iv6TE9p9Jp8)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 18th June 2024 # Novena to the Sacred Heart of Jesus 18th June 2024](https://www.youtube.com/watch?v=RMrfTgkdqr4)
-- [Japamala 18th of June 2024 # Mathavinte Japamala # Dhukhathinte Rahasyangal 18th of June  2024](https://www.youtube.com/watch?v=pNu7DOwb3EE)
-- [എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  june18th #rosarymalayalam](https://www.youtube.com/watch?v=jiRo07gD_Yg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
