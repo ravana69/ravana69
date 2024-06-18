@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Love My Scent &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Kor&rpar; - 1.8GB &amp; 1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180490-love-my-scent-2023-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-kor-18gb-1gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=367231)
+- [Dil Dosti Dilemma &lpar;2024&rpar; S01 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.3GB - 2.3GB &amp; 1GB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180498-dil-dosti-dilemma-2024-s01-ep-01-07-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-53gb-23gb-1gb-esub/&do=findComment&comment=367230)
+- [Dil Dosti Dilemma &lpar;2024&rpar; S01 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.3GB - 2.3GB &amp; 1GB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180498-dil-dosti-dilemma-2024-s01-ep-01-07-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-53gb-23gb-1gb-esub/&do=findComment&comment=367229)
 - [Anand &lpar;2004&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6GB - ESub - Universal DVD](https://www.1tamilmv.eu/index.php?/forums/topic/180499-anand-2004-telugu-dvd9-untouched-480p-dd51-448kbps-6gb-esub-universal-dvd/&do=findComment&comment=367228)
 - [Dil Dosti Dilemma &lpar;2024&rpar; S01 EP &lpar;01-07&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada] - &lpar;DD+5.1 - 192Kbps&rpar; - 5.3GB - 2.3GB &amp; 1GB] - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180498-dil-dosti-dilemma-2024-s01-ep-01-07-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannnada-dd51-192kbps-53gb-23gb-1gb-esub/&do=findComment&comment=367227)
-- [Amma Rajinama &lpar;1991&rpar; Telugu HQ HDTV-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 4GB &amp; 2.5GB]](https://www.1tamilmv.eu/index.php?/forums/topic/180497-amma-rajinama-1991-telugu-hq-hdtv-dl-1080p-720p-avc-aac-20-4gb-25gb/&do=findComment&comment=367226)
-- [Kalyana Ramudu &lpar;2003&rpar; Telugu HQ HDTV-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 3.9GB &amp; 2.4GB]](https://www.1tamilmv.eu/index.php?/forums/topic/180483-kalyana-ramudu-2003-telugu-hq-hdtv-dl-1080p-720p-avc-aac-20-39gb-24gb/&do=findComment&comment=367225)
-- [Neram &lpar;2013&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 6.4GB - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/180496-neram-2013-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-64gb-gdflix/&do=findComment&comment=367224)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
