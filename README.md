@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Singer Of The Week | Shibu Antony | Christian Melody Songs | Joji Johns | Christian Songs Malayalam](https://www.youtube.com/watch?v=V7VMDMoWv2A)
+- [Priyathozhi Kalithozhi | Kalithozhi (1971) | Vayalar Ramavarama | G.Devarajan | K.J.Yesudas](https://www.youtube.com/watch?v=T-HeyUU-WSc)
+- [കാതിനു കുളിരുപകരുന്ന അനുഭൂതിയേകും മലയാളസിനിമയിലെ മൂല്യമുള്ള ഗാനങ്ങൾ | EVERGREEN SONGS MALAYALAM](https://www.youtube.com/watch?v=OAPmlzG6hEU)
+- [മലയാളികൾക്ക് പ്രിയപ്പെട്ട ഗാനങ്ങൾ  | EVERGREEN MALAYALAM FILM SONGS | NOSTALGIC SONGS MALAYALAM](https://www.youtube.com/watch?v=4AonL4nkkVA)
 - [ഗതിയറിയാത്തൊരെൻ്റെ മുൻമ്പിൽ പുതിയൊരു വാനമായ്..](https://www.youtube.com/watch?v=BlHFcNkUKnk)
 - [മറ്റുള്ളവർ നമ്മളെക്കുറിച്ച് എന്ത് വിചാരിക്കും 🤔🥺 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=uqds56eVq8A)
-- [Enguninnengu Ninnee Sugandham | Ilavankodu Desam | KJ Yesudas | K S Chithra | Vidyasagar|O N V Kurup](https://www.youtube.com/watch?v=zOAD4uKSOik)
-- [Time To Witness The Sambhavam Of Mollywood | Biju Menon | Vishnu Narayan | Ankit Menon | Shabareesh](https://www.youtube.com/watch?v=rkov6xLynCQ)
-- [Kadalilaki Karayodu Cholli | Pranaamam | Malayalam Movie Songs |MG Sreekumar |Krishnachandran #song](https://www.youtube.com/watch?v=t7EXxkPZZMA)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 18th of June 2024](https://www.youtube.com/watch?v=c7iBlJIS3O4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
