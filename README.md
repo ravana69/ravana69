@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Neer Maathalam | Film Songs Reel  #manoramamusic](https://www.youtube.com/watch?v=KGLCF1jOdAM)
+- [Appaa Nammaade | Urumi | Folk Film Songs Reel  #manoramamusic](https://www.youtube.com/watch?v=iv6TE9p9Jp8)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 18th June 2024 # Novena to the Sacred Heart of Jesus 18th June 2024](https://www.youtube.com/watch?v=RMrfTgkdqr4)
 - [Japamala 18th of June 2024 # Mathavinte Japamala # Dhukhathinte Rahasyangal 18th of June  2024](https://www.youtube.com/watch?v=pNu7DOwb3EE)
 - [എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala  june18th #rosarymalayalam](https://www.youtube.com/watch?v=jiRo07gD_Yg)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=VzkDOmxPMtA)
-- [പ്രഭാത പ്രാര്‍ത്ഥന June 18 # Athiravile Prarthana 18th of June 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=0MkHs58riWQ)
-- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=vhEWZTNtQRU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
