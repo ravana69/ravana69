@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഗതിയറിയാത്തൊരെൻ്റെ മുൻമ്പിൽ പുതിയൊരു വാനമായ്..](https://www.youtube.com/watch?v=BlHFcNkUKnk)
 - [മറ്റുള്ളവർ നമ്മളെക്കുറിച്ച് എന്ത് വിചാരിക്കും 🤔🥺 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=uqds56eVq8A)
 - [Enguninnengu Ninnee Sugandham | Ilavankodu Desam | KJ Yesudas | K S Chithra | Vidyasagar|O N V Kurup](https://www.youtube.com/watch?v=zOAD4uKSOik)
 - [Time To Witness The Sambhavam Of Mollywood | Biju Menon | Vishnu Narayan | Ankit Menon | Shabareesh](https://www.youtube.com/watch?v=rkov6xLynCQ)
 - [Kadalilaki Karayodu Cholli | Pranaamam | Malayalam Movie Songs |MG Sreekumar |Krishnachandran #song](https://www.youtube.com/watch?v=t7EXxkPZZMA)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 18th of June 2024](https://www.youtube.com/watch?v=c7iBlJIS3O4)
-- [Punchiriyude Poovilikalil|Unnikale Oru Kadha Parayam|Mohanlal|Karthika|Thilakan|](https://www.youtube.com/watch?v=ZdIIvCiVKIY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
