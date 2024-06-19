@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Always.2011 [Hindi, Tamil, Telugu, Korean] .1080p, 720p .AMZN.WEB-DL.MULTI [Direct Download&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/180512-always2011-hindi-tamil-telugu-korean-1080p-720p-amznweb-dlmulti-direct-download/&do=findComment&comment=367249)
+- [Love.My.Scent.2023.[Hindi, Tamil, Telugu, Korean] .1080p, 720p .AMZN.WEB-DL.MULTI [Direct Download&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/180511-lovemyscent2023hindi-tamil-telugu-korean-1080p-720p-amznweb-dlmulti-direct-download/&do=findComment&comment=367248)
+- [Mood.of.the.Day.2016 [Hindi, Tamil, Telugu, Korean] .1080p, 720p .AMZN.WEB-DL.MULTI [Direct Download&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/180510-moodoftheday2016-hindi-tamil-telugu-korean-1080p-720p-amznweb-dlmulti-direct-download/&do=findComment&comment=367247)
 - [Bad Boys 1995 Blu-Ray REMASTERED 1080p AAC 2.0 Tamil-Telugu-DD5.1 Hindi -English DD 5.1 x264 ESub 12GB [G-Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/180509-bad-boys-1995-blu-ray-remastered-1080p-aac-20-tamil-telugu-dd51-hindi-english-dd-51-x264-esub-12gb-g-drive/&do=findComment&comment=367246)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [18-6-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/180508-movies-collection-all-languages-4k-1080p-720p-576p-480p-18-6-2024/&do=findComment&comment=367245)
-- [2018 &lpar;2023&rpar; TRUE WEB-DL - 1080p - AVC - UNTOUCHED - [Tamil + Telugu + Malayalam + Hindi + Kannada] - &lpar;AAC 2.0 - 128Kbps&rpar; - 3.1GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180507-2018-2023-true-web-dl-1080p-avc-untouched-tamil-telugu-malayalam-hindi-kannada-aac-20-128kbps-31gb-esub/&do=findComment&comment=367244)
-- [2018 &lpar;2023&rpar; TRUE WEB-DL - 1080p - AVC - UNTOUCHED - [Tamil + Telugu + Malayalam + Hindi + Kannada] - &lpar;AAC 2.0 - 128Kbps&rpar; - 3.1GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180507-2018-2023-true-web-dl-1080p-avc-untouched-tamil-telugu-malayalam-hindi-kannada-aac-20-128kbps-31gb-esub/&do=findComment&comment=367243)
-- [Shadow &lpar;2013&rpar;  Hindi -Tamil- Telugu JC TRUE WEB-DL - 1080p 9GB [G-Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/169834-shadow-2013-hindi-tamil-telugu-jc-true-web-dl-1080p-9gb-g-drive/&do=findComment&comment=367242)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
