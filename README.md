@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Karan Arjun &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 340Kbps&rpar; - 2.6GB - 1.3GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 200MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180521-karan-arjun-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-340kbps-26gb-13gb-850mb-x264-700mb-400mb-200mb/&do=findComment&comment=367269)
 - [Raja Marthanda &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180506-raja-marthanda-2024-tamil-true-web-dl-1080p-720p-avc-hevc-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=367268)
 - [Radhaa Madhavam &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180517-radhaa-madhavam-2024-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-25gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=367267)
 - [Suzhal.-.The.Vortex.S01.2160p.AMZN.WEB-DL.DDP5.1.H.265 &lpar;Direct Download&rpar;](https://www.1tamilmv.cz/index.php?/forums/topic/180520-suzhal-thevortexs012160pamznweb-dlddp51h265-direct-download/&do=findComment&comment=367266)
 - [Mirzapur.S01.2160p.AMZN.WEB-DL.DDP5.1.H.265 &lpar;Direct Download&rpar;](https://www.1tamilmv.cz/index.php?/forums/topic/180519-mirzapurs012160pamznweb-dlddp51h265-direct-download/&do=findComment&comment=367265)
-- [Brahmāstra- Part One – Shiva &lpar;2022&rpar; TRUE WEB-DL - 1080p - AVC - UNTOUCHED - [Tamil + Hindi + Telugu + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps &amp; AAC 2.0&rpar; - [8.4GB &amp; 4.8GB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180516-brahm%C4%81stra-part-one-%E2%80%93-shiva-2022-true-web-dl-1080p-avc-untouched-tamil-hindi-telugu-malayalam-kannada-dd51-192kbps-aac-20-84gb-48gb-esub/&do=findComment&comment=367264)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
