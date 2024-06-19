@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Raja Marthanda &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180506-raja-marthanda-2024-tamil-true-web-dl-1080p-720p-avc-hevc-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=367268)
+- [Radhaa Madhavam &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180517-radhaa-madhavam-2024-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-25gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=367267)
+- [Suzhal.-.The.Vortex.S01.2160p.AMZN.WEB-DL.DDP5.1.H.265 &lpar;Direct Download&rpar;](https://www.1tamilmv.cz/index.php?/forums/topic/180520-suzhal-thevortexs012160pamznweb-dlddp51h265-direct-download/&do=findComment&comment=367266)
+- [Mirzapur.S01.2160p.AMZN.WEB-DL.DDP5.1.H.265 &lpar;Direct Download&rpar;](https://www.1tamilmv.cz/index.php?/forums/topic/180519-mirzapurs012160pamznweb-dlddp51h265-direct-download/&do=findComment&comment=367265)
 - [Brahmāstra- Part One – Shiva &lpar;2022&rpar; TRUE WEB-DL - 1080p - AVC - UNTOUCHED - [Tamil + Hindi + Telugu + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps &amp; AAC 2.0&rpar; - [8.4GB &amp; 4.8GB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180516-brahm%C4%81stra-part-one-%E2%80%93-shiva-2022-true-web-dl-1080p-avc-untouched-tamil-hindi-telugu-malayalam-kannada-dd51-192kbps-aac-20-84gb-48gb-esub/&do=findComment&comment=367264)
-- [Adavi Ramudu &lpar;1977&rpar; Telugu HQ HDTV-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 4.5GB &amp; 2.8GB]](https://www.1tamilmv.cz/index.php?/forums/topic/180518-adavi-ramudu-1977-telugu-hq-hdtv-dl-1080p-720p-avc-aac-20-45gb-28gb/&do=findComment&comment=367263)
-- [Radhaa Madhavam &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180517-radhaa-madhavam-2024-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-25gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=367262)
-- [Sex Life &lpar;2021&rpar; S01 EP &lpar;01-08&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;Tamil + Telugu + Hindi + English&rpar; - 5.4GB - 2.4GB &amp; 1GB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/170981-sex-life-2021-s01-ep-01-08-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-english-54gb-24gb-1gb-esub/&do=findComment&comment=367261)
-- [Always &lpar;2011&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Kor&rpar; - 1.7GB &amp; 1GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180492-always-2011-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-kor-17gb-1gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=367260)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
