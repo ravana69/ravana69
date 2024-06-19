@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Paadiyum Paranjum | സിനിമാഗാനങ്ങൾ എഴുതുന്നത് സന്ദർഭത്തിനനുസരിച്ചു | പാടിയും പറഞ്ഞും |  K Jayakumar](https://www.youtube.com/watch?v=XOhlUX41tmg)
 - [Onnam Raagam Paadi | Thoovanathumbikal | Mohanlal | Parvathy | G Venugopal | Sound of Arts](https://www.youtube.com/watch?v=zdiRqT9kPyo)
 - [Madhu Malayalam Romantic Old Superhit Movie Song l Chembarathi Movie |  Raghavan, Roja Ramani](https://www.youtube.com/watch?v=Zf36x6Fv9pk)
 - [Madhavettanennum | Oru Marubhoomi Kadha #mohanlal #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=Gv4jQyz4NHY)
 - [Aakashadeepangal | Ravanaprabhu | Mohanlal | Revathi | Suresh Peters | K J Yesudas](https://www.youtube.com/watch?v=3LADfmAgNfo)
-- [Soothradharan Video Songs Jukebox | Dileep | Meera Jasmine | K J Yesudas | Raveendran | Sujatha](https://www.youtube.com/watch?v=m2U3Je4xsZE)
-- [എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala june 19th#rosarymalayalam](https://www.youtube.com/watch?v=ynYK0KFlV6E)
+- [Swargapithavu | Chithra Arun | Kuriakose Mathew | Christian Devotional Songs 2024 | Worship Songs](https://www.youtube.com/watch?v=-Qh5vnMbxLc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
