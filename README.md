@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [EE &lpar;2006&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DD+5.1 - 448Kbps&rpar; - 6.3GB - ESub](https://www.1tamilmv.eu/index.php?/forums/topic/180515-ee-2006-telugu-dvd9-untouched-480p-dd51-448kbps-63gb-esub/&do=findComment&comment=367252)
+- [Aadukalam &lpar;2011&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 4.4GB - GDFlix](https://www.1tamilmv.eu/index.php?/forums/topic/180514-aadukalam-2011-tamil-true-web-dl-1080p-avc-untouched-ddp51-44gb-gdflix/&do=findComment&comment=367251)
+- [Kalavani &lpar;2010&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 4.4GB - UE](https://www.1tamilmv.eu/index.php?/forums/topic/180513-kalavani-2010-tamil-true-web-dl-1080p-avc-untouched-aac20-44gb-ue/&do=findComment&comment=367250)
 - [Always.2011 [Hindi, Tamil, Telugu, Korean] .1080p, 720p .AMZN.WEB-DL.MULTI [Direct Download&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/180512-always2011-hindi-tamil-telugu-korean-1080p-720p-amznweb-dlmulti-direct-download/&do=findComment&comment=367249)
 - [Love.My.Scent.2023.[Hindi, Tamil, Telugu, Korean] .1080p, 720p .AMZN.WEB-DL.MULTI [Direct Download&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/180511-lovemyscent2023hindi-tamil-telugu-korean-1080p-720p-amznweb-dlmulti-direct-download/&do=findComment&comment=367248)
-- [Mood.of.the.Day.2016 [Hindi, Tamil, Telugu, Korean] .1080p, 720p .AMZN.WEB-DL.MULTI [Direct Download&rpar;](https://www.1tamilmv.eu/index.php?/forums/topic/180510-moodoftheday2016-hindi-tamil-telugu-korean-1080p-720p-amznweb-dlmulti-direct-download/&do=findComment&comment=367247)
-- [Bad Boys 1995 Blu-Ray REMASTERED 1080p AAC 2.0 Tamil-Telugu-DD5.1 Hindi -English DD 5.1 x264 ESub 12GB [G-Drive]](https://www.1tamilmv.eu/index.php?/forums/topic/180509-bad-boys-1995-blu-ray-remastered-1080p-aac-20-tamil-telugu-dd51-hindi-english-dd-51-x264-esub-12gb-g-drive/&do=findComment&comment=367246)
-- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [18-6-2024]](https://www.1tamilmv.eu/index.php?/forums/topic/180508-movies-collection-all-languages-4k-1080p-720p-576p-480p-18-6-2024/&do=findComment&comment=367245)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
