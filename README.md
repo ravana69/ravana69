@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Soothradharan Video Songs Jukebox | Dileep | Meera Jasmine | K J Yesudas | Raveendran | Sujatha](https://www.youtube.com/watch?v=m2U3Je4xsZE)
 - [എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala june 19th#rosarymalayalam](https://www.youtube.com/watch?v=ynYK0KFlV6E)
 - [Pularoli | Bhaskar the Rascal | Shorts #manoramamusic](https://www.youtube.com/watch?v=QeYkGr7Viag)
 - [Kaattum Thiramalayum | Kester | Graham Varghese #shorts #kester](https://www.youtube.com/watch?v=VM-kdywLru0)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 19th June 2024 # Novena to the Sacred Heart of Jesus 19th June 2024](https://www.youtube.com/watch?v=ijlLGnGwy2A)
 - [Snehathinte Alakadalil | Shymol Alex | Ginisha P Manuvel | Christian Video Song | Christian Song](https://www.youtube.com/watch?v=_kh3119vaH8)
-- [പഴയകാല പ്രഭാതഗാനങ്ങൾ കേട്ട് പ്രാർത്ഥിച്ചു ഉണരാം daily morning old worship songs with lyrics](https://www.youtube.com/watch?v=N3v8JCY84Tk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
