@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Moments from the Chithini Audio & Trailer Launch  #eastcoastvijayan #amithchakkalakkal #mokksha](https://www.youtube.com/watch?v=qaXVCRNG7I4)
+- [Swargathile Katturumbu | Trailer | Jespal Shanmugan | Bijibal | Dhyan Sreenivasan | Gayathri Ashokan](https://www.youtube.com/watch?v=khoUsIPfPPw)
+- [Bhaskar Oru Rascalanu | Bhaskar The Rascal | Lijosh Vezhapilly | Amresh Ganesh | Aji Dennis](https://www.youtube.com/watch?v=q1XsJERTSnI)
+- [Christian Superhit Songs | Bindhu Thomas | Christian Songs Malayalam | Joji Johns | Wilson Piravom](https://www.youtube.com/watch?v=0s78a9b3GOU)
 - [Angakale Video Song | Sathyam Sivam Sundaram | Kunchacko Boban | Shankar Mahadevan | Vidyasagar](https://www.youtube.com/watch?v=lFzaY10Kjbc)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 19th of June 2024](https://www.youtube.com/watch?v=efDgC-J3-q8)
-- [സ്നേഹം അതൊരു അനുഭവമാണ് ...😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=RoB_wLipt_E)
-- [Ananthamaam agaadhamaam | HD Video | Nagarangalil Chennu Raparkam | Raveendran | KJ Yesudas](https://www.youtube.com/watch?v=eee8zdoRH3Q)
-- [Chandanacholayil Video Song | Sallapam | KJ Yesudas | Dileep | Manju Warrier](https://www.youtube.com/watch?v=7MltMijVN2w)
-- [Maninaadam Muzhangi | Super Hit Christian Devotional Songs | K.G.Markose Christian Devotional Songs](https://www.youtube.com/watch?v=I6VUEtFtM5E)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
