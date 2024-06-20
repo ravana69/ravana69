@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രേക്ഷകഹൃദയം കവർന്ന മലയാളസിനിമയിലെ മെഗാഹിറ്റ് ഗാനങ്ങൾ | SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=UDkxcoqIDTs)
+- [പെണ്ണിന്റെ ചെഞ്ചുണ്ടിൽ | Penninte Chenchundil | Guruji Oru Vaak #malayalam](https://www.youtube.com/watch?v=PYef5mPf2uY)
 - [മനസ്സിൽ വർണപൂമഴ പെയ്‌ത മലയാളസിനിമയിലെ ശ്രവണ മനോഹര ഗാനങ്ങൾ | EVERGREEN HITS MALAYALAM](https://www.youtube.com/watch?v=6I_F90MOAPs)
 - [லால் சலாம் - ஏ புள்ள தமிழ் பாடல்வரிகள் | ஏ. ஆர். ரகுமான்](https://www.youtube.com/watch?v=eZZ71kMgFbs)
 - [Kumbhappuzha | Partners #jassiegift #dhyansreenivasan #bkharinarayanan #shortsfeed #shortsvideo](https://www.youtube.com/watch?v=YbOVejzUM0k)
 - [Minnadi Minnadi |  Live with UNTAGGED | Cover Version | Anila Rajeev  | Deepak Dev | Kaithapram](https://www.youtube.com/watch?v=yk5I04DGJ0w)
-- [ആവണിപ്പൂക്കൾ | Aavanippookkal | Festival Songs Vol.04 | K.J.Yesudas | Sound of Arts](https://www.youtube.com/watch?v=uMGI5Wa2CS0)
-- [Etho Varmukilin | Pookkalam Varavaay | KS Chithra | Ouseppachan | Kaithapram | Jayaram](https://www.youtube.com/watch?v=mRqgu7zJJjc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
