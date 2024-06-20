@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Armored &lpar;2009&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 1.7GB &amp; 900MB | x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180543-armored-2009-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-hindi-eng-17gb-900mb-x264-tam-hin-400mb-esub/&do=findComment&comment=367314)
 - [Armored &lpar;2009&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 192Kbps&rpar; &lpar;Tamil + Hindi + Eng&rpar; - 1.7GB &amp; 900MB | x264 - &lpar;Tam + Hin&rpar; - 400MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180543-armored-2009-bluray-original-audios-1080p-720p-x264-aac-20-192kbps-tamil-hindi-eng-17gb-900mb-x264-tam-hin-400mb-esub/&do=findComment&comment=367313)
 - [Jailer &lpar;2023&rpar; Tamil - TRUE WEB-DL - 4K &amp; 1080p - AVC / HEVC - UNTOUCHED - [DD+5.1&lpar;448kbps&rpar; Atmos + DD+5.1&lpar;640kbps&rpar;] - 18.4GB &amp; 10.7GB - ESub [GDrive]](https://www.1tamilmv.cz/index.php?/forums/topic/180542-jailer-2023-tamil-true-web-dl-4k-1080p-avc-hevc-untouched-dd51448kbps-atmos-dd51640kbps-184gb-107gb-esub-gdrive/&do=findComment&comment=367312)
 - [Bad Cop &lpar;2024&rpar; S01 EP &lpar;01-02&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.2GB - 750MB &amp; 250MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180541-bad-cop-2024-s01-ep-01-02-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-dd51-192kbps-22gb-750mb-250mb-esub/&do=findComment&comment=367311)
 - [Van der Valk &lpar;2020&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng]- 4GB - 1.9GB &amp; 700MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180540-van-der-valk-2020-s01-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-4gb-19gb-700mb-esub/&do=findComment&comment=367310)
-- [Yuvatha &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.4GB - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180530-yuvatha-2008-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-64gb-esub/&do=findComment&comment=367309)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
