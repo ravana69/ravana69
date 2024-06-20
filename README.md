@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Bad Cop &lpar;2024&rpar; S01 EP &lpar;01-02&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.2GB - 750MB &amp; 250MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180541-bad-cop-2024-s01-ep-01-02-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-malayalam-kannada-dd51-192kbps-22gb-750mb-250mb-esub/&do=findComment&comment=367311)
 - [Van der Valk &lpar;2020&rpar; S01 EP &lpar;01-06&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Eng]- 4GB - 1.9GB &amp; 700MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180540-van-der-valk-2020-s01-ep-01-06-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-eng-4gb-19gb-700mb-esub/&do=findComment&comment=367310)
 - [Yuvatha &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.4GB - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180530-yuvatha-2008-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-64gb-esub/&do=findComment&comment=367309)
 - [Visaranai &lpar;2015&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 3.7GB - 1.8GB &amp; 1GB - x264 - 700MB &amp; 400MB - MSub [GDrive]](https://www.1tamilmv.cz/index.php?/forums/topic/180539-visaranai-2015-tamil-true-web-dl-1080p-720p-avc-untouched-dd51640kbps-37gb-18gb-1gb-x264-700mb-400mb-msub-gdrive/&do=findComment&comment=367308)
 - [Radhaa Madhavam &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180517-radhaa-madhavam-2024-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-25gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=367307)
-- [Karan Arjun &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 340Kbps&rpar; - 2.6GB - 1.3GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 200MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180521-karan-arjun-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-340kbps-26gb-13gb-850mb-x264-700mb-400mb-200mb/&do=findComment&comment=367306)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
