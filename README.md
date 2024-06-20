@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Singappenney &lpar;2024&rpar; Tamil TRUE WEB-DL - [4080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.5GB - 1.3GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180526-singappenney-2024-tamil-true-web-dl-4080p-720p-avc-hevc-dd51-640kbps-25gb-13gb-900mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=367275)
 - [The.Acolyte.S01E04.Day.2160p.DSNP.WEB-DL.DDP5.1.Atmos.HDR &lpar;Direct Download&rpar;](https://www.1tamilmv.cz/index.php?/forums/topic/180525-theacolytes01e04day2160pdsnpweb-dlddp51atmoshdr-direct-download/&do=findComment&comment=367274)
 - [Today&#39;s Hollywood and Korean web series [Uncle.Samsik.S01, Blood.Free.S01, Vigilante.S01]](https://www.1tamilmv.cz/index.php?/forums/topic/180524-todays-hollywood-and-korean-web-series-unclesamsiks01-bloodfrees01-vigilantes01/&do=findComment&comment=367273)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [19-6-2024]](https://www.1tamilmv.cz/index.php?/forums/topic/180523-movies-collection-all-languages-4k-1080p-720p-576p-480p-19-6-2024/&do=findComment&comment=367272)
 - [Gam Gam Ganesha &lpar;2024&rpar; Telugu TRUE WEB-DL - [4080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180522-gam-gam-ganesha-2024-telugu-true-web-dl-4080p-720p-avc-hevc-dd51-640kbps-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=367271)
-- [Adavi Ramudu &lpar;1977&rpar; Telugu HQ HDTV-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 4.5GB &amp; 2.8GB]](https://www.1tamilmv.cz/index.php?/forums/topic/180518-adavi-ramudu-1977-telugu-hq-hdtv-dl-1080p-720p-avc-aac-20-45gb-28gb/&do=findComment&comment=367270)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
