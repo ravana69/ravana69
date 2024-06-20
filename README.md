@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kanapponnum  | Dileep | Biju Menon | Bhavana | Vidyasagar |Vayalar Sarathchandra Varma](https://www.youtube.com/watch?v=oL0qNZ4SLuQ)
+- [Ammakilikoodithil | Ammakkilikoodu  | Kaithapram | MG Sreekumar | Raveendran #SongOfTheDay](https://www.youtube.com/watch?v=RkHmb3dXjts)
 - [Aanaykkeduppathu Ponnunde Video Song | Dhanam | Mohanlal | Murali | KJ Yesudas | Raveendran](https://www.youtube.com/watch?v=9rNJwGaaMRg)
 - [ഭാവനായകൻ  മധുവിന്റെ എത്ര കേട്ടാലും മതി വരാത്ത സൂപ്പർഹിറ്റ് പഴയ ഗാനങ്ങൾ |HITS OF MADHU](https://www.youtube.com/watch?v=SmvCX6PZjOI)
 - [Christian Superhit Songs | Fahad C H | Christian Songs Malayalam | Joji Johns | Manoj Christy](https://www.youtube.com/watch?v=6fRvNNChoGQ)
 - [Neelaakasham | Saagaram Sakshi | KJ Yesudas | K S Chithra | Sharreth | Kaithapram](https://www.youtube.com/watch?v=zjZJfW38Km4)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 20th of June 2024](https://www.youtube.com/watch?v=zUoj1Pqqccc)
-- [മനസ്സുതകർന്നവരെ അവിടുന്ന് രക്ഷിക്കുന്നു...😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=juOY3SVFENc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
