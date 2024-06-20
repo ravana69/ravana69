@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 21st June 2024](https://www.youtube.com/watch?v=vbv5OImvQAw)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=a9sQR-lSqe4)
+- [ഇളംമഞ്ഞിൻ കുളിരുമായൊരു കുയിൽ..| കെ ജെ യേശുദാസ് | Janaki | Remastered songs |മലയാളചലച്ചിത്രഗാനങ്ങൾ](https://www.youtube.com/watch?v=24zoaYSijIw)
 - [എൻ്റെ മിഴിനീർ തുടയ്ക്കുന്ന സ്നേഹം.](https://www.youtube.com/watch?v=ZnI2Xh7Tb0E)
 - [Kanapponnum  | Dileep | Biju Menon | Bhavana | Vidyasagar |Vayalar Sarathchandra Varma](https://www.youtube.com/watch?v=oL0qNZ4SLuQ)
 - [Ammakilikoodithil | Ammakkilikoodu  | Kaithapram | MG Sreekumar | Raveendran #SongOfTheDay](https://www.youtube.com/watch?v=RkHmb3dXjts)
-- [Aanaykkeduppathu Ponnunde Video Song | Dhanam | Mohanlal | Murali | KJ Yesudas | Raveendran](https://www.youtube.com/watch?v=9rNJwGaaMRg)
-- [ഭാവനായകൻ  മധുവിന്റെ എത്ര കേട്ടാലും മതി വരാത്ത സൂപ്പർഹിറ്റ് പഴയ ഗാനങ്ങൾ |HITS OF MADHU](https://www.youtube.com/watch?v=SmvCX6PZjOI)
-- [Christian Superhit Songs | Fahad C H | Christian Songs Malayalam | Joji Johns | Manoj Christy](https://www.youtube.com/watch?v=6fRvNNChoGQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
