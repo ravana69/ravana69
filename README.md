@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Elam Vilayum | Swargathile Katturumbu |Pradeep Palluruthy | Sabu Arakuzha | Bijibal | Film Song 2024](https://www.youtube.com/watch?v=-ZsWRGZEYGo)
+- [Punchiriyude Poovilikalil | Unnikale Oru Kadha Parayam Movie Song | Mohanlal | Karthika | KJ Yesudas](https://www.youtube.com/watch?v=HrDyzmrAYfs)
+- [ORAYIRAM NANNI | ഒരായിരം നന്ദി ഏകിടാം | Vox : Christo S John | CHRISTIAN DEVOTIONAL #royputhur](https://www.youtube.com/watch?v=pEyt6fc3OtA)
+- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=jDbZoAO7PHI)
 - [പ്രേക്ഷകഹൃദയം കവർന്ന മലയാളസിനിമയിലെ മെഗാഹിറ്റ് ഗാനങ്ങൾ | SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=UDkxcoqIDTs)
 - [പെണ്ണിന്റെ ചെഞ്ചുണ്ടിൽ | Penninte Chenchundil | Guruji Oru Vaak #malayalam](https://www.youtube.com/watch?v=PYef5mPf2uY)
-- [മനസ്സിൽ വർണപൂമഴ പെയ്‌ത മലയാളസിനിമയിലെ ശ്രവണ മനോഹര ഗാനങ്ങൾ | EVERGREEN HITS MALAYALAM](https://www.youtube.com/watch?v=6I_F90MOAPs)
-- [லால் சலாம் - ஏ புள்ள தமிழ் பாடல்வரிகள் | ஏ. ஆர். ரகுமான்](https://www.youtube.com/watch?v=eZZ71kMgFbs)
-- [Kumbhappuzha | Partners #jassiegift #dhyansreenivasan #bkharinarayanan #shortsfeed #shortsvideo](https://www.youtube.com/watch?v=YbOVejzUM0k)
-- [Minnadi Minnadi |  Live with UNTAGGED | Cover Version | Anila Rajeev  | Deepak Dev | Kaithapram](https://www.youtube.com/watch?v=yk5I04DGJ0w)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
