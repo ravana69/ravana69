@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nilaave Nilaave | Chattakkaari | Shorts  #manoramamusic](https://www.youtube.com/watch?v=VNwO-tAKefc)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 20th June 2024 # Novena to the Sacred Heart of Jesus 20th June 2024](https://www.youtube.com/watch?v=cQM_-WDPDGA)
 - [ഒരിക്കൽ കേട്ടാൽ വീണ്ടും കേൾക്കുന്ന ഗാനങ്ങൾ | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=5g-HhuvpneM)
 - [Japamala 20th of June 2024 # Mathavinte Japamala # Prakashathinte Rahasyangal 20th of June  2024](https://www.youtube.com/watch?v=qGwabaWPqCc)
 - [എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala june 20th#rosarymalayalam](https://www.youtube.com/watch?v=kFdYXd0V0G0)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=MAmSFfqWyS0)
-- [പ്രഭാത പ്രാര്‍ത്ഥന June 20 # Athiravile Prarthana 20th of June 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=B8_Jq2j3GVI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
