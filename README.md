@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Divyasnehathe Namukkunalkiya Yeshudevante Karalaliyippikkunna Ganangal |Christian Devotional Songs](https://www.youtube.com/watch?v=Oj7Yi870UkA)
+- [മനസ്സിൽ ഒത്തിരി നൊമ്പരപ്പാടുകൾ നൽകിയ മലയാളസിനിമയിലെ മറക്കാനാവാത്ത സിനിമാഗാനങ്ങൾ |SAD SONGS MALAYALAM](https://www.youtube.com/watch?v=t3Qattahh1w)
+- [മലയാളികൾ നെഞ്ചിലേറ്റിയ സിനിമ ഗാനങ്ങൾ | Nostalgic Malayalam Film Songs | Satyam Audios](https://www.youtube.com/watch?v=UsLsJ5bpiuk)
+- [Virunnu Vannu Snehathin - Agnisharam (1981) | K J Yesudas | Sreekumaran Thampi | M K Arjunan](https://www.youtube.com/watch?v=6snplkseda4)
+- [PAVIZHAM | FALAH ALI | PAVITHRAN AMACHAL | @JinoKunnumpurathu | FR. MICHALE PANACHICKAL V C](https://www.youtube.com/watch?v=FbPheMYq1Q4)
 - [Kaatru Veliyide Kannamma | Thanmathra | Lyrical + Karaoke Video | Mohanlal | Blessy | Mohan Sithara](https://www.youtube.com/watch?v=QwsFgc0-fso)
-- [World Music Day - Malayalam Hits | Ashubha Mangalakaari | Thumbi Vaa | Mazha Pattu](https://www.youtube.com/watch?v=3QU4kslVWow)
-- [ഭാവഗീതങ്ങൾ | Bhavageethangal | K.J. Yesudas | M.B.Sreenivasan | Kaavalam | Sound of Arts](https://www.youtube.com/watch?v=mYFXd9UzeFc)
-- [Vellinila Thullikalo | Varnappakittu | Mohanlal | Divya Unni | Vidyasagar | I V Sasi | K S Chithra](https://www.youtube.com/watch?v=9W4dwA-kO-k)
-- [Omane Thankame | Mizhi Randilum | Dileep | Kavya Madhavan | Ranjith | Raveendran | K J Yesudas](https://www.youtube.com/watch?v=SEd1Lf4G1ic)
-- [Sheela Romantic Old Superhit Malayalam Song l Beena Movie |  Madhu, Jayabharathi, Sudheer](https://www.youtube.com/watch?v=1k_NbH_ecok)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
