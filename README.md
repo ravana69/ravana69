@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Thavamai Thavamiruntu [Thavamai Thavamirundhu] &lpar;2005&rpar; Tamil PROPER DVDRip - Xvid - AC3 - &lpar;DD5.1&rpar; - 1.7GB - ESub - GDFlix](https://www.1tamilmv.cz/index.php?/forums/topic/180577-thavamai-thavamiruntu-thavamai-thavamirundhu-2005-tamil-proper-dvdrip-xvid-ac3-dd51-17gb-esub-gdflix/&do=findComment&comment=367378)
+- [Thavamai Thavamiruntu [Thavamai Thavamirundhu] &lpar;2005&rpar; Tamil PROPER DVDRip - Xvid - AC3 - &lpar;DD5.1&rpar; - 1.7GB - ESub - GDFlix](https://www.1tamilmv.cz/index.php?/forums/topic/180577-thavamai-thavamiruntu-thavamai-thavamirundhu-2005-tamil-proper-dvdrip-xvid-ac3-dd51-17gb-esub-gdflix/&do=findComment&comment=367377)
 - [Kazhugu &lpar;1981&rpar; Tamil PROPER DVDRip - Xvid - AC3 - &lpar;DD2.0&rpar; - 1.7GB - GDFlix](https://www.1tamilmv.cz/index.php?/forums/topic/180576-kazhugu-1981-tamil-proper-dvdrip-xvid-ac3-dd20-17gb-gdflix/&do=findComment&comment=367376)
 - [Jailer &lpar;2023&rpar; Tamil - TRUE WEB-DL - 4K &amp; 1080p - AVC / HEVC - UNTOUCHED - [DD+5.1&lpar;448kbps&rpar; Atmos + DD+5.1&lpar;640kbps&rpar;] - 18.4GB &amp; 10.7GB - ESub [GDrive]](https://www.1tamilmv.cz/index.php?/forums/topic/180542-jailer-2023-tamil-true-web-dl-4k-1080p-avc-hevc-untouched-dd51448kbps-atmos-dd51640kbps-184gb-107gb-esub-gdrive/&do=findComment&comment=367375)
 - [Visaranai &lpar;2015&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 3.7GB - 1.8GB &amp; 1GB - x264 - 700MB &amp; 400MB - MSub [GDrive]](https://www.1tamilmv.cz/index.php?/forums/topic/180539-visaranai-2015-tamil-true-web-dl-1080p-720p-avc-untouched-dd51640kbps-37gb-18gb-1gb-x264-700mb-400mb-msub-gdrive/&do=findComment&comment=367374)
-- [Trigger Warning &lpar;2024&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.2GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 500MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180564-trigger-warning-2024-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-32gb-14gb-x264-tam-tel-hin-500mb-esub/&do=findComment&comment=367373)
-- [Freelance &lpar;2023&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.2GB &amp; 1.2GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180555-freelance-2023-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-32gb-12gb-x264-tamil-telugu-hindi-400mb-esub/&do=findComment&comment=367372)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
