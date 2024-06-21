@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Athmeeya Soukyam # Feat. John Britto Augustin, Diya Ratheesh, M D Reghunath](https://www.youtube.com/watch?v=WpRE2iWvn1I)
+- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=r_U6mufvvfI)
 - [Divyasnehathe Namukkunalkiya Yeshudevante Karalaliyippikkunna Ganangal |Christian Devotional Songs](https://www.youtube.com/watch?v=Oj7Yi870UkA)
 - [മനസ്സിൽ ഒത്തിരി നൊമ്പരപ്പാടുകൾ നൽകിയ മലയാളസിനിമയിലെ മറക്കാനാവാത്ത സിനിമാഗാനങ്ങൾ |SAD SONGS MALAYALAM](https://www.youtube.com/watch?v=t3Qattahh1w)
 - [മലയാളികൾ നെഞ്ചിലേറ്റിയ സിനിമ ഗാനങ്ങൾ | Nostalgic Malayalam Film Songs | Satyam Audios](https://www.youtube.com/watch?v=UsLsJ5bpiuk)
 - [Virunnu Vannu Snehathin - Agnisharam (1981) | K J Yesudas | Sreekumaran Thampi | M K Arjunan](https://www.youtube.com/watch?v=6snplkseda4)
-- [PAVIZHAM | FALAH ALI | PAVITHRAN AMACHAL | @JinoKunnumpurathu | FR. MICHALE PANACHICKAL V C](https://www.youtube.com/watch?v=FbPheMYq1Q4)
-- [Kaatru Veliyide Kannamma | Thanmathra | Lyrical + Karaoke Video | Mohanlal | Blessy | Mohan Sithara](https://www.youtube.com/watch?v=QwsFgc0-fso)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
