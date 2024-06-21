@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 22nd June 2024](https://www.youtube.com/watch?v=9TICy8ELwzE)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=vHdQLR3uzwg)
 - [ക്ലേശങ്ങൾ എന്നിൽ ഏറും നാളിൽ ആശ്വാസമായെന്നിൽ തെളിഞ്ഞീടണം.](https://www.youtube.com/watch?v=kN5m_X1Bps4)
 - [Chil chil Chilamboli Thalam | Usthad | Vidyasagar | MG Sreekumar | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=_UtO2WH0Z90)
 - [Kadha Paranjurangiya  | Biju Menon | Samyuktha Varma | KJ Yesudas | Vidyasagar| Yusufali Kecheri](https://www.youtube.com/watch?v=d2kn12nenqk)
 - [Ellam Ormakal | Oru Vilipadakale | P Bhaskaran | Jerry Amaldev | P Jayachandran | S Janaki](https://www.youtube.com/watch?v=R6iBfCYtts8)
-- [Songs Of The Week | Wilson Piravom | Christian Melody Songs | Kester | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=bdSixEHSTjY)
-- [Hey Viewers Here Is The Vibe Of the Week | Nadanna Sambhavam | |Biju Menon | Ankit Menon | #ytshort](https://www.youtube.com/watch?v=A1ED6OhEinw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
