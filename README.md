@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Chil chil Chilamboli Thalam | Usthad | Vidyasagar | MG Sreekumar | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=_UtO2WH0Z90)
+- [Kadha Paranjurangiya  | Biju Menon | Samyuktha Varma | KJ Yesudas | Vidyasagar| Yusufali Kecheri](https://www.youtube.com/watch?v=d2kn12nenqk)
 - [Ellam Ormakal | Oru Vilipadakale | P Bhaskaran | Jerry Amaldev | P Jayachandran | S Janaki](https://www.youtube.com/watch?v=R6iBfCYtts8)
 - [Songs Of The Week | Wilson Piravom | Christian Melody Songs | Kester | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=bdSixEHSTjY)
 - [Hey Viewers Here Is The Vibe Of the Week | Nadanna Sambhavam | |Biju Menon | Ankit Menon | #ytshort](https://www.youtube.com/watch?v=A1ED6OhEinw)
 - [GOLDEN MEMORIES|Shri V S Achudhananthan|@JinoKunnumpurathu #shorts #vsachudanandhan #goldenmemories](https://www.youtube.com/watch?v=aWptNyVNq04)
-- [Kannalane - Video Song | DNA | TS Suresh Babu | Ashkar Saudan | Rai Lakshmi | Sharath](https://www.youtube.com/watch?v=KqBW7f4Xp2o)
-- [Kanni Vasantham Kattil Moolum Video Song | Kuberan | Dileep |Uma Shankari |KJ Yesudas |Sujatha Mohan](https://www.youtube.com/watch?v=B8UM1EK5_aU)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
