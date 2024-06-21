@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Trigger Warning &lpar;2024&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 3.2GB &amp; 1.4GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 500MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180564-trigger-warning-2024-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-32gb-14gb-x264-tam-tel-hin-500mb-esub/&do=findComment&comment=367360)
 - [PT Sir &lpar;2024&rpar; AMZN WEB-DL DDP5.1 Esubs - 2160p | 1080p | 720p - 14 GB | 7.6 GB | 3.9 GB](https://www.1tamilmv.cz/index.php?/forums/topic/180563-pt-sir-2024-amzn-web-dl-ddp51-esubs-2160p-1080p-720p-14-gb-76-gb-39-gb/&do=findComment&comment=367359)
 - [Aranmanai. 4 &lpar;2024&rpar; DSNP WEB-DL Multi DDP5.1 Esubs - 2160p | 1080p - 14.1 GB | 4 GB](https://www.1tamilmv.cz/index.php?/forums/topic/180562-aranmanai-4-2024-dsnp-web-dl-multi-ddp51-esubs-2160p-1080p-141-gb-4-gb/&do=findComment&comment=367358)
 - [PT Sir &lpar;2024&rpar; Tamil - AMZN WEB-DL - 4K &amp; 1080p - AVC / HEVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 13.9GB - 7.6GB - 3.4GB &amp; 1.2GB - ESub [GDrive]](https://www.1tamilmv.cz/index.php?/forums/topic/180561-pt-sir-2024-tamil-amzn-web-dl-4k-1080p-avc-hevc-untouched-dd51640kbps-139gb-76gb-34gb-12gb-esub-gdrive/&do=findComment&comment=367357)
 - [Rasavathi &lpar;2024&rpar; Tamil - AMZN &amp; SS WEB-DL - 4K , 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - [DD+5.1&lpar;640kbps&rpar; + DD+5.1&lpar;448kbps&rpar;Atmos] - 6.7GB - 6.2GB - 3.3GB - 3GB - 1.9GB &amp; 1.3GB - ESub [GDrive]](https://www.1tamilmv.cz/index.php?/forums/topic/180560-rasavathi-2024-tamil-amzn-ss-web-dl-4k-1080p-720p-avc-hevc-untouched-dd51640kbps-dd51448kbpsatmos-67gb-62gb-33gb-3gb-19gb-13gb-esub-gdrive/&do=findComment&comment=367356)
-- [Ghilli &lpar;2004&rpar; REMASTERED - Tamil - SS WEB-DL - 4K , 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;192kbps&rpar; - 7.9GB - 4GB &amp; 2.2GB - ESub [GDrive]](https://www.1tamilmv.cz/index.php?/forums/topic/180558-ghilli-2004-remastered-tamil-ss-web-dl-4k-1080p-720p-avc-untouched-dd51192kbps-79gb-4gb-22gb-esub-gdrive/&do=findComment&comment=367355)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
