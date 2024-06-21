@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kalki 2898 AD &lpar;2024&rpar; Release Trailer - [ Tamil + Telugu + Hindi + Malayalam + Kannada ] | Prabhas | Amitabh | Kamal Haasan | Deepika](https://www.1tamilmv.cz/index.php?/forums/topic/180588-kalki-2898-ad-2024-release-trailer-tamil-telugu-hindi-malayalam-kannada-prabhas-amitabh-kamal-haasan-deepika/&do=findComment&comment=367402)
+- [Hear Me &lpar;2024&rpar; S01 EP&lpar;01-33&rpar; TRUE WEB-DL - [720p &amp; 360p - x264 - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Tur] - 14GB &amp; 3.8GB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180581-hear-me-2024-s01-ep01-33-true-web-dl-720p-360p-x264-aac-20-tamil-telugu-hindi-tur-14gb-38gb-esub/&do=findComment&comment=367401)
+- [PT Sir &lpar;2024&rpar; Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.8GB &amp; 1.4GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180587-pt-sir-2024-telugu-true-web-dl-1080p-720p-avc-dd51-640kbps-28gb-14gb-x264-700mb-400mb-esub/&do=findComment&comment=367400)
 - [Thirupaachi &lpar;2005&rpar; - DVD9 - 1080P - AI UPSCALED - HEVC - AAC5.1 &lpar;Aspect Ratio Corrected&rpar; - 5.2GB &lpar;BIRTHDAY SPECIAL&rpar;](https://www.1tamilmv.cz/index.php?/forums/topic/180586-thirupaachi-2005-dvd9-1080p-ai-upscaled-hevc-aac51-aspect-ratio-corrected-52gb-birthday-special/&do=findComment&comment=367399)
 - [Freelance.2023.1080p, 720p  [English, Hindi, tamil, telugu].AMZN.WEB-DL.MULTI.DDP5.1](https://www.1tamilmv.cz/index.php?/forums/topic/180585-freelance20231080p-720p-english-hindi-tamil-teluguamznweb-dlmultiddp51/&do=findComment&comment=367398)
-- [Rasavathi &lpar;2024&rpar; Tamil TRUE WEB-DL - [4K ,1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar;](https://www.1tamilmv.cz/index.php?/forums/topic/180584-rasavathi-2024-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps/&do=findComment&comment=367397)
-- [Aranmanai 4 &lpar;2024&rpar; Multi &lpar;MUSIC VIDEO ALBUM&rpar; 4K-SDR True-HD UNTOUCHED - HEVC - [Tamil DD+5.1 Atmos &lpar;448Kbps&rpar;]-[Tam+Tel+Mal+Kan DD+5.1 &lpar;192Kbps&rpar;] E-Sub By-SaiKo](https://www.1tamilmv.cz/index.php?/forums/topic/180583-aranmanai-4-2024-multi-music-video-album-4k-sdr-true-hd-untouched-hevc-tamil-dd51-atmos-448kbps-tamtelmalkan-dd51-192kbps-e-sub-by-saiko/&do=findComment&comment=367396)
-- [Aranmanai 4 &lpar;2024&rpar; Multi &lpar;MUSIC VIDEO ALBUM&rpar; 1080p True-HD UNTOUCHED - AVC - [Tamil DD+5.1 Atmos &lpar;448Kbps&rpar;]-[Tam+Tel+Mal+Kan DD+5.1 &lpar;192Kbps&rpar;] E-Sub By-SaiKo](https://www.1tamilmv.cz/index.php?/forums/topic/180582-aranmanai-4-2024-multi-music-video-album-1080p-true-hd-untouched-avc-tamil-dd51-atmos-448kbps-tamtelmalkan-dd51-192kbps-e-sub-by-saiko/&do=findComment&comment=367395)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
