@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kannalane - Video Song | DNA | TS Suresh Babu | Ashkar Saudan | Rai Lakshmi | Sharath](https://www.youtube.com/watch?v=KqBW7f4Xp2o)
+- [Kanni Vasantham Kattil Moolum Video Song | Kuberan | Dileep |Uma Shankari |KJ Yesudas |Sujatha Mohan](https://www.youtube.com/watch?v=B8UM1EK5_aU)
 - [ഒരുദിവസം ദൈവം നമ്മുടെ പ്രാർത്ഥന കേൾക്കും'.😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=Is3R9uogsP8)
 - [Time To Dance For Nadanna Sambhavam |Biju Menon | Vishnu Narayan | Ankit Menon | #ytshorts](https://www.youtube.com/watch?v=1isXQR9I3KI)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 21st of June 2024](https://www.youtube.com/watch?v=06d5WgvZYiU)
 - [Ezhu Swarangal Video Song | Samudram | P Jayachandran | P Madhuri | Yusufali Kecher](https://www.youtube.com/watch?v=Eg17Oc5Tg88)
-- [Pavizhamallippoovurangi | HD video Song | Vazhiyorakazchakal | SP Venkitesh | KS Chithra |](https://www.youtube.com/watch?v=RTJIysSAGhA)
-- [Athmeeya Soukyam # Feat. John Britto Augustin, Diya Ratheesh, M D Reghunath](https://www.youtube.com/watch?v=WpRE2iWvn1I)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
