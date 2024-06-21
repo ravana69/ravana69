@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ക്ലേശങ്ങൾ എന്നിൽ ഏറും നാളിൽ ആശ്വാസമായെന്നിൽ തെളിഞ്ഞീടണം.](https://www.youtube.com/watch?v=kN5m_X1Bps4)
 - [Chil chil Chilamboli Thalam | Usthad | Vidyasagar | MG Sreekumar | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=_UtO2WH0Z90)
 - [Kadha Paranjurangiya  | Biju Menon | Samyuktha Varma | KJ Yesudas | Vidyasagar| Yusufali Kecheri](https://www.youtube.com/watch?v=d2kn12nenqk)
 - [Ellam Ormakal | Oru Vilipadakale | P Bhaskaran | Jerry Amaldev | P Jayachandran | S Janaki](https://www.youtube.com/watch?v=R6iBfCYtts8)
 - [Songs Of The Week | Wilson Piravom | Christian Melody Songs | Kester | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=bdSixEHSTjY)
 - [Hey Viewers Here Is The Vibe Of the Week | Nadanna Sambhavam | |Biju Menon | Ankit Menon | #ytshort](https://www.youtube.com/watch?v=A1ED6OhEinw)
-- [GOLDEN MEMORIES|Shri V S Achudhananthan|@JinoKunnumpurathu #shorts #vsachudanandhan #goldenmemories](https://www.youtube.com/watch?v=aWptNyVNq04)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
