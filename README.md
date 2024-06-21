@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Yuvatha &lpar;2008&rpar; Telugu - DVD9 - UNTOUCHED - 480p - &lpar;DTS - 754Kbps &amp; DD+5.1 - 448Kbps&rpar; - 6.4GB - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180530-yuvatha-2008-telugu-dvd9-untouched-480p-dts-754kbps-dd51-448kbps-64gb-esub/&do=findComment&comment=367393)
 - [Ghilli &lpar;2004&rpar; REMASTERED - SS WEB-DL - 4K - HEVC - UNTOUCHED - [DD+5.1&lpar;192kbps&rpar;] - 8GB - Thalapathy Vijay Birthday Special Tamil BD50 Bluray Remux - [Pokkiri, Thuppakki, Thalaivaa] - 117GB](https://www.1tamilmv.cz/index.php?/forums/topic/168954-ghilli-2004-remastered-ss-web-dl-4k-hevc-untouched-dd51192kbps-8gb-thalapathy-vijay-birthday-special-tamil-bd50-bluray-remux-pokkiri-thuppakki-thalaivaa-117gb/&do=findComment&comment=367392)
 - [Azhagi &lpar;2002&rpar; Tamil HD DVDRip - 1080p - AVC - &lpar;DD.5.1&rpar; - 4.4GB - ESub - UE](https://www.1tamilmv.cz/index.php?/forums/topic/180580-azhagi-2002-tamil-hd-dvdrip-1080p-avc-dd51-44gb-esub-ue/&do=findComment&comment=367391)
 - [Ghilli &lpar;2004&rpar; REMASTERED - Tamil - SS WEB-DL - 4K , 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;192kbps&rpar; - 7.9GB - 4GB &amp; 2.2GB - ESub [GDrive]](https://www.1tamilmv.cz/index.php?/forums/topic/180558-ghilli-2004-remastered-tamil-ss-web-dl-4k-1080p-720p-avc-untouched-dd51192kbps-79gb-4gb-22gb-esub-gdrive/&do=findComment&comment=367390)
 - [Ghilli &lpar;2004&rpar; REMASTERED - SS WEB-DL - 4K - HEVC - UNTOUCHED - [DD+5.1&lpar;192kbps&rpar;] - 8GB - Thalapathy Vijay Birthday Special Tamil BD50 Bluray Remux - [Pokkiri, Thuppakki, Thalaivaa] - 117GB](https://www.1tamilmv.cz/index.php?/forums/topic/168954-ghilli-2004-remastered-ss-web-dl-4k-hevc-untouched-dd51192kbps-8gb-thalapathy-vijay-birthday-special-tamil-bd50-bluray-remux-pokkiri-thuppakki-thalaivaa-117gb/&do=findComment&comment=367389)
-- [Aayutha Ezhuthu &lpar;2004&rpar; UPSCALED - Tamil - AYN DVD - 1080p &amp; 720p - AVC - UNTOUCHED - [DTS5.1&lpar;768kbps&rpar; + DD5.1&lpar;448kbps&rpar;] - 9.8GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB - ESub [GDrive]](https://www.1tamilmv.cz/index.php?/forums/topic/180579-aayutha-ezhuthu-2004-upscaled-tamil-ayn-dvd-1080p-720p-avc-untouched-dts51768kbps-dd51448kbps-98gb-55gb-27gb-14gb-x264-700mb-400mb-esub-gdrive/&do=findComment&comment=367388)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
