@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഭാവഗീതങ്ങൾ | Bhavageethangal | K.J. Yesudas | M.B.Sreenivasan | Kaavalam | Sound of Arts](https://www.youtube.com/watch?v=mYFXd9UzeFc)
+- [Vellinila Thullikalo | Varnappakittu | Mohanlal | Divya Unni | Vidyasagar | I V Sasi | K S Chithra](https://www.youtube.com/watch?v=9W4dwA-kO-k)
+- [Omane Thankame | Mizhi Randilum | Dileep | Kavya Madhavan | Ranjith | Raveendran | K J Yesudas](https://www.youtube.com/watch?v=SEd1Lf4G1ic)
 - [Sheela Romantic Old Superhit Malayalam Song l Beena Movie |  Madhu, Jayabharathi, Sudheer](https://www.youtube.com/watch?v=1k_NbH_ecok)
 - [Kumbhappuzha | Partners #jassiegift #dhyansreenivasan #bkharinarayanan #shortsfeed #shortsvideo](https://www.youtube.com/watch?v=DX74GWlmVyw)
 - [Kumbhappuzha | Partners #jassiegift #dhyansreenivasan #bkharinarayanan #shortsfeed #shortsvideo](https://www.youtube.com/watch?v=8eXVgsR4QpU)
-- [Kumbhappuzha | Partners #jassiegift #dhyansreenivasan #bkharinarayanan #shortsfeed #shortsvideo](https://www.youtube.com/watch?v=SCxJoKJMOug)
-- [Krushithante Hrudhayam Pole Day 21](https://www.youtube.com/watch?v=10QcQHrH19U)
-- [Kudukude Chirikkana | Mayavi | Luttappi |Balarama  #manoramamusic #ytshortsvideo](https://www.youtube.com/watch?v=s-Gx60l3kWA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
