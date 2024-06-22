@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളികൾ മുടങ്ങാതെ കേൾക്കുന്ന ഹൃദയത്തിനുള്ളിൽ ഇടം നേടിയ മെലഡി ഗാനങ്ങൾ | MELODY SONGS MALAYALAM](https://www.youtube.com/watch?v=p6Rvc486mFs)
+- [Christian Melody Songs | Biju Narayanan | Chithra Arun | Christian Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=DHJdudiSD_Q)
 - [Now Share Your Vibe of Nadanna Sambhavam To The 🌎|Biju Menon | Vishnu Narayan |Ankit Menon |#ytshort](https://www.youtube.com/watch?v=ZAWY3SYh2VQ)
 - [PAVIZHAM |FALAH ALI | PAVITHRAN AMACHAL | @JinoKunnumpurathu  | FR. MICHALE PANACHICKAL V C #shorts](https://www.youtube.com/watch?v=D3d4ks0veKI)
 - [വേദനയുടെ താഴ്‌വരയിൽ ക്ഷമയോടെ കാത്തിരിക്കുക ..😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=DFrktcqi3cQ)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 22nd of June 2024](https://www.youtube.com/watch?v=8vBhcx8YHX4)
-- [Raajashilpi Video Song | Panchavankaadu | P Susheela #shorts](https://www.youtube.com/watch?v=8VLcETRY8H0)
-- [Nithya Sahaya Mathave Video Song | Kadamattathachan | Malayalam Songs | Prem Nazir |Sumithra #song](https://www.youtube.com/watch?v=ygSvTuDvOfs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
