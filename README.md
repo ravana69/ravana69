@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Prabhutva Juniour Kalasala &lpar;2024&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.cz/index.php?/forums/topic/180615-prabhutva-juniour-kalasala-2024-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=367448)
 - [Chathuram &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 2GB &amp; 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180614-chathuram-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-20-2gb-13gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=367447)
 - [Kuruvi &lpar;2008&rpar; - Tamil Video Songs - 1080p - Blu-Ray - UNTOUCHED - [DD5.1 + LPCM5.1] - ESubs](https://www.1tamilmv.cz/index.php?/forums/topic/180613-kuruvi-2008-tamil-video-songs-1080p-blu-ray-untouched-dd51-lpcm51-esubs/&do=findComment&comment=367446)
 - [Sugarless &lpar;2024&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 320Kbps&rpar; - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180612-sugarless-2024-tamil-web-dl-1080p-720p-avc-hevc-aac-51-320kbps-26gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=367445)
 - [Sriranga Neethulu &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180607-sriranga-neethulu-2024-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=367444)
-- [Chinna Chinna Kangal [From The Greatest Of All Time] &lpar;2024&rpar; Tamil - [24bit / 16bit - FLAC] - [320kbps / 128kbps - MP3] - 57.6MB - 33.1MB - 10.3MB &amp; 4.1MB [GDrive]](https://www.1tamilmv.cz/index.php?/forums/topic/180611-chinna-chinna-kangal-from-the-greatest-of-all-time-2024-tamil-24bit-16bit-flac-320kbps-128kbps-mp3-576mb-331mb-103mb-41mb-gdrive/&do=findComment&comment=367443)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
