@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nadanna Sambhavam On Trend Listen Now | |Biju Menon | Vishnu Narayan | Ankit Menon | #ytshort](https://www.youtube.com/watch?v=fTKwB3J9ulw)
+- [Sreeragamo Thedunnu | Pavithram | Mohanlal | Sharreth | Onv Kuruppu | KJ Yesudas](https://www.youtube.com/watch?v=r-9w4lm2fRQ)
+- [Rithbedha Kalpana | Mangalam Nerunnu | Sreenath | Shanthi Krishna | K J Yesudas](https://www.youtube.com/watch?v=Q2QJy96Y4mo)
+- [Manchadi Mazha | Rock N Roll #mohanlal #madhubalakrishnan #sujatha #shortsfeed #shorts #shortsvideo](https://www.youtube.com/watch?v=aTf7qC9UmXc)
 - [Jayabharathi Romantic Old Superhit Malayalam Song l Beena Movie | Madhu, Sheela,](https://www.youtube.com/watch?v=Oj5o6vNq6eg)
 - [Akkare Ikkare | Thilothama | Folk Film Songs Reels   #manoramamusic](https://www.youtube.com/watch?v=ek-IKs_3Y8I)
-- [Azhake Ninakkay | Kayapola | Myjohn Britto  #manoramamusic](https://www.youtube.com/watch?v=5O0oBQlDV8A)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 22nd June 2024 # Novena to the Sacred Heart of Jesus 22nd June 2024](https://www.youtube.com/watch?v=Ou1mXDAFsGw)
-- [Christian Video Songs Malayalam | KG Markose | Kester | Chithra Arun | Christian Superhit Songs](https://www.youtube.com/watch?v=ZBQkfW-V_9w)
-- [രാവിലെ കേൾക്കാൻ ഏറ്റവും നല്ല ഗാനങ്ങൾ daily worship songs | christian devotional songs malayalam](https://www.youtube.com/watch?v=k2QYar6GpNA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
