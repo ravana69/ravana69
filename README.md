@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kazhugu &lpar;1981&rpar; Tamil PROPER DVDRip - Xvid - AC3 - &lpar;DD2.0&rpar; - 1.7GB - GDFlix](https://www.1tamilmv.cz/index.php?/forums/topic/180576-kazhugu-1981-tamil-proper-dvdrip-xvid-ac3-dd20-17gb-gdflix/&do=findComment&comment=367420)
+- [Cooku With Comali &lpar;2024&rpar; Tamil - S05 EP17 TRUE WEB-DL - [1080p, 720p, 360p - AVC - UNTOUCHED - 1.4GB - 650MB &amp; 300MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180594-cooku-with-comali-2024-tamil-s05-ep17-true-web-dl-1080p-720p-360p-avc-untouched-14gb-650mb-300mb/&do=findComment&comment=367419)
+- [Nadanna Sambhavam &lpar;2024&rpar; Malayalam HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.cz/index.php?/forums/topic/180572-nadanna-sambhavam-2024-malayalam-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=367418)
 - [Cooku With Comali &lpar;2024&rpar; Tamil - S05 EP17 TRUE WEB-DL - [1080p, 720p, 360p - AVC - UNTOUCHED - 1.4GB - 650MB &amp; 300MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180594-cooku-with-comali-2024-tamil-s05-ep17-true-web-dl-1080p-720p-360p-avc-untouched-14gb-650mb-300mb/&do=findComment&comment=367417)
 - [25 Hollywood Movies - BluRay/WEB-DL - H264/H265 - [Tamil + Telugu + Hindi + Eng] - ESub - [4K &amp; 1080p - 80GB [GDrive]](https://www.1tamilmv.cz/index.php?/forums/topic/125573-25-hollywood-movies-blurayweb-dl-h264h265-tamil-telugu-hindi-eng-esub-4k-1080p-80gb-gdrive/&do=findComment&comment=367416)
-- [Rail &lpar;2024&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.cz/index.php?/forums/topic/180571-rail-2024-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=367415)
-- [Maharaj &lpar;2024&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; [Tamil + Telugu + Hindi] - 6.5GB - 2.9GB - 1.5GB &amp; 950MB] - [x264 - 800MB - 450MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180578-maharaj-2024-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-tamil-telugu-hindi-65gb-29gb-15gb-950mb-x264-800mb-450mb-esub/&do=findComment&comment=367414)
-- [Laandhar &lpar;2024&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.cz/index.php?/forums/topic/180565-laandhar-2024-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=367413)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
