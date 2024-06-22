@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നാവിൽ നീയേ | NAAVIL NEEYE |FR.LIBIN VARGHES|FR.JERIN VALIYAPARAMBIL| ROY PUTHUR #newchristiansongs](https://www.youtube.com/watch?v=sIFZx4zpqLc)
+- [Minnadi Minnadi | Animation Version |  കെ എസ് ചിത്ര ആലപിച്ച സൂപ്പർഹിറ്റ് സിനിമ ഗാനം അനിമേഷൻ രൂപത്തിൽ](https://www.youtube.com/watch?v=tMGDxG8Xt9U)
 - [Nadanna Sambhavam On Trend Listen Now | |Biju Menon | Vishnu Narayan | Ankit Menon | #ytshort](https://www.youtube.com/watch?v=fTKwB3J9ulw)
 - [Sreeragamo Thedunnu | Pavithram | Mohanlal | Sharreth | Onv Kuruppu | KJ Yesudas](https://www.youtube.com/watch?v=r-9w4lm2fRQ)
 - [Rithbedha Kalpana | Mangalam Nerunnu | Sreenath | Shanthi Krishna | K J Yesudas](https://www.youtube.com/watch?v=Q2QJy96Y4mo)
 - [Manchadi Mazha | Rock N Roll #mohanlal #madhubalakrishnan #sujatha #shortsfeed #shorts #shortsvideo](https://www.youtube.com/watch?v=aTf7qC9UmXc)
-- [Jayabharathi Romantic Old Superhit Malayalam Song l Beena Movie | Madhu, Sheela,](https://www.youtube.com/watch?v=Oj5o6vNq6eg)
-- [Akkare Ikkare | Thilothama | Folk Film Songs Reels   #manoramamusic](https://www.youtube.com/watch?v=ek-IKs_3Y8I)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
