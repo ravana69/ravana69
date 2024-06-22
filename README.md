@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Krushithante Hrudhayam Pole Day 22](https://www.youtube.com/watch?v=UN61GJZt4ZU)
-- [Kumbhappuzha | Partners #jassiegift #dhyansreenivasan #bkharinarayanan #shortsfeed #shortsvideo](https://www.youtube.com/watch?v=6F-gf7hKmMU)
-- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=avKONf6pxzY)
-- [തൊണ്ണൂറുകളിൽ മലയാളിമനസുകളിൽ മോഹമുണർത്തിയ മനോഹര ഗാനങ്ങൾ | 90s hit songs malayalam](https://www.youtube.com/watch?v=2UhdWIcadNY)
-- [ശ്രീജയദേവേ..| Sreejayadeva| Thaniyavarthanam Movie Song | M. G. Sreekumar | Mammootty | Parvathy](https://www.youtube.com/watch?v=Xr26CF1rtq0)
-- [Enik Kootai Mara Kurishilae Esho | Tonn Thomas | Oru Cheru Appamai | Christian Devotional Song](https://www.youtube.com/watch?v=leBskKrWiW0)
+- [Now Share Your Vibe of Nadanna Sambhavam To The 🌎|Biju Menon | Vishnu Narayan |Ankit Menon |#ytshort](https://www.youtube.com/watch?v=ZAWY3SYh2VQ)
+- [PAVIZHAM |FALAH ALI | PAVITHRAN AMACHAL | @JinoKunnumpurathu  | FR. MICHALE PANACHICKAL V C #shorts](https://www.youtube.com/watch?v=D3d4ks0veKI)
+- [വേദനയുടെ താഴ്‌വരയിൽ ക്ഷമയോടെ കാത്തിരിക്കുക ..😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=DFrktcqi3cQ)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 22nd of June 2024](https://www.youtube.com/watch?v=8vBhcx8YHX4)
+- [Raajashilpi Video Song | Panchavankaadu | P Susheela #shorts](https://www.youtube.com/watch?v=8VLcETRY8H0)
+- [Nithya Sahaya Mathave Video Song | Kadamattathachan | Malayalam Songs | Prem Nazir |Sumithra #song](https://www.youtube.com/watch?v=ygSvTuDvOfs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
