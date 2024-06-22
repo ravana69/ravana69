@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 23rd June 2024](https://www.youtube.com/watch?v=RSv5MifzQh4)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=OkMxjdMeeBw)
 - [നിൻ മനമിളക്കാതെ, നിൻ മനം പതറാതെ](https://www.youtube.com/watch?v=WHG2ARK52cY)
 - [pandorikkal oru karimpoocha | Poochakkoru Mookkuthi | Chunakkara Ramankutty](https://www.youtube.com/watch?v=EfxgmGItdqw)
 - [ഒഴിവുസമയങ്ങൾ  ആസ്വദിക്കാൻ മലയാളസിനിമയിലെ മികച്ച ഗാനങ്ങൾ കേൾക്കാം ! Best Songs Malayalam](https://www.youtube.com/watch?v=09dFZZZDYII)
 - [Poove Oru Mazha Mutham | Kaiyethum Doorath | Ouseppachan |Sujatha Mohan|S Ramesan Nair #SongOfTheDay](https://www.youtube.com/watch?v=2Yua_3UtndE)
-- [മലയാളികൾ മുടങ്ങാതെ കേൾക്കുന്ന ഹൃദയത്തിനുള്ളിൽ ഇടം നേടിയ മെലഡി ഗാനങ്ങൾ | MELODY SONGS MALAYALAM](https://www.youtube.com/watch?v=p6Rvc486mFs)
-- [Christian Melody Songs | Biju Narayanan | Chithra Arun | Christian Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=DHJdudiSD_Q)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
