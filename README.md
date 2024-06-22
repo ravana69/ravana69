@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Sriranga Neethulu &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180607-sriranga-neethulu-2024-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=367442)
+- [Chinna Chinna Kangal &lpar;From &quot;The G.O.A.T&quot;&rpar; 2nd Single - &lpar;2024&rpar; - Tamil MP3 [320Kbps &amp; 128Kbps] - Yuvan Musical](https://www.1tamilmv.cz/index.php?/forums/topic/180610-chinna-chinna-kangal-from-the-goat-2nd-single-2024-tamil-mp3-320kbps-128kbps-yuvan-musical/&do=findComment&comment=367441)
 - [Chinna Chinna Kangal &lpar;From &quot;The G.O.A.T&quot;&rpar; 2nd Single - &lpar;2024&rpar; - Tamil MP3 [320Kbps &amp; 128Kbps] - Yuvan Musical](https://www.1tamilmv.cz/index.php?/forums/topic/180610-chinna-chinna-kangal-from-the-goat-2nd-single-2024-tamil-mp3-320kbps-128kbps-yuvan-musical/&do=findComment&comment=367440)
 - [Demonte Colony &lpar;2015&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;192kbps&rpar; - 3.6GB - 1.8GB &amp; 1GB - x264 - 700MB &amp; 400MB [GDrive]](https://www.1tamilmv.cz/index.php?/forums/topic/180609-demonte-colony-2015-tamil-true-web-dl-1080p-720p-avc-untouched-dd51192kbps-36gb-18gb-1gb-x264-700mb-400mb-gdrive/&do=findComment&comment=367439)
 - [ROWDY &lpar;2014&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p True-HD UNTOUCHED - AVC - [Telugu DD 5.1 &lpar;448Kbps&rpar;] E-Sub By-SaiKo](https://www.1tamilmv.cz/index.php?/forums/topic/180608-rowdy-2014-telugu-music-video-album-1080p-true-hd-untouched-avc-telugu-dd-51-448kbps-e-sub-by-saiko/&do=findComment&comment=367438)
-- [Sriranga Neethulu &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180607-sriranga-neethulu-2024-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=367437)
-- [Annadurai &lpar;2017&rpar; Tamil - SUNNXT WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;192kbps&rpar; - 4.5GB - 2.3GB &amp; 1GB [GDrive]](https://www.1tamilmv.cz/index.php?/forums/topic/180606-annadurai-2017-tamil-sunnxt-web-dl-1080p-720p-avc-untouched-dd51192kbps-45gb-23gb-1gb-gdrive/&do=findComment&comment=367436)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
