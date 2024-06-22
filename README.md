@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നിൻ മനമിളക്കാതെ, നിൻ മനം പതറാതെ](https://www.youtube.com/watch?v=WHG2ARK52cY)
 - [pandorikkal oru karimpoocha | Poochakkoru Mookkuthi | Chunakkara Ramankutty](https://www.youtube.com/watch?v=EfxgmGItdqw)
 - [ഒഴിവുസമയങ്ങൾ  ആസ്വദിക്കാൻ മലയാളസിനിമയിലെ മികച്ച ഗാനങ്ങൾ കേൾക്കാം ! Best Songs Malayalam](https://www.youtube.com/watch?v=09dFZZZDYII)
 - [Poove Oru Mazha Mutham | Kaiyethum Doorath | Ouseppachan |Sujatha Mohan|S Ramesan Nair #SongOfTheDay](https://www.youtube.com/watch?v=2Yua_3UtndE)
 - [മലയാളികൾ മുടങ്ങാതെ കേൾക്കുന്ന ഹൃദയത്തിനുള്ളിൽ ഇടം നേടിയ മെലഡി ഗാനങ്ങൾ | MELODY SONGS MALAYALAM](https://www.youtube.com/watch?v=p6Rvc486mFs)
 - [Christian Melody Songs | Biju Narayanan | Chithra Arun | Christian Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=DHJdudiSD_Q)
-- [Now Share Your Vibe of Nadanna Sambhavam To The 🌎|Biju Menon | Vishnu Narayan |Ankit Menon |#ytshort](https://www.youtube.com/watch?v=ZAWY3SYh2VQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
