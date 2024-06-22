@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Sugarless &lpar;2024&rpar; Tamil WEB-DL - [1080p &amp; 720p - AVC / HEVC - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180612-sugarless-2024-tamil-web-dl-1080p-720p-avc-hevc-26gb-14gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=367445)
 - [Sriranga Neethulu &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180607-sriranga-neethulu-2024-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=367444)
 - [Chinna Chinna Kangal [From The Greatest Of All Time] &lpar;2024&rpar; Tamil - [24bit / 16bit - FLAC] - [320kbps / 128kbps - MP3] - 57.6MB - 33.1MB - 10.3MB &amp; 4.1MB [GDrive]](https://www.1tamilmv.cz/index.php?/forums/topic/180611-chinna-chinna-kangal-from-the-greatest-of-all-time-2024-tamil-24bit-16bit-flac-320kbps-128kbps-mp3-576mb-331mb-103mb-41mb-gdrive/&do=findComment&comment=367443)
 - [Sriranga Neethulu &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180607-sriranga-neethulu-2024-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=367442)
 - [Chinna Chinna Kangal &lpar;From &quot;The G.O.A.T&quot;&rpar; 2nd Single - &lpar;2024&rpar; - Tamil MP3 [320Kbps &amp; 128Kbps] - Yuvan Musical](https://www.1tamilmv.cz/index.php?/forums/topic/180610-chinna-chinna-kangal-from-the-goat-2nd-single-2024-tamil-mp3-320kbps-128kbps-yuvan-musical/&do=findComment&comment=367441)
-- [Chinna Chinna Kangal &lpar;From &quot;The G.O.A.T&quot;&rpar; 2nd Single - &lpar;2024&rpar; - Tamil MP3 [320Kbps &amp; 128Kbps] - Yuvan Musical](https://www.1tamilmv.cz/index.php?/forums/topic/180610-chinna-chinna-kangal-from-the-goat-2nd-single-2024-tamil-mp3-320kbps-128kbps-yuvan-musical/&do=findComment&comment=367440)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
