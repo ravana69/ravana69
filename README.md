@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Krushithante Hrudhayam Pole Day 22](https://www.youtube.com/watch?v=UN61GJZt4ZU)
+- [Kumbhappuzha | Partners #jassiegift #dhyansreenivasan #bkharinarayanan #shortsfeed #shortsvideo](https://www.youtube.com/watch?v=6F-gf7hKmMU)
 - [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=avKONf6pxzY)
 - [തൊണ്ണൂറുകളിൽ മലയാളിമനസുകളിൽ മോഹമുണർത്തിയ മനോഹര ഗാനങ്ങൾ | 90s hit songs malayalam](https://www.youtube.com/watch?v=2UhdWIcadNY)
 - [ശ്രീജയദേവേ..| Sreejayadeva| Thaniyavarthanam Movie Song | M. G. Sreekumar | Mammootty | Parvathy](https://www.youtube.com/watch?v=Xr26CF1rtq0)
 - [Enik Kootai Mara Kurishilae Esho | Tonn Thomas | Oru Cheru Appamai | Christian Devotional Song](https://www.youtube.com/watch?v=leBskKrWiW0)
-- [നാവിൽ നീയേ | NAAVIL NEEYE |FR.LIBIN VARGHES|FR.JERIN VALIYAPARAMBIL| ROY PUTHUR #newchristiansongs](https://www.youtube.com/watch?v=sIFZx4zpqLc)
-- [Minnadi Minnadi | Animation Version |  കെ എസ് ചിത്ര ആലപിച്ച സൂപ്പർഹിറ്റ് സിനിമ ഗാനം അനിമേഷൻ രൂപത്തിൽ](https://www.youtube.com/watch?v=tMGDxG8Xt9U)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
