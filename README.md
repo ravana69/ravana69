@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Sivappu Manjal Pachai &lpar;2019&rpar; Tamil - SUNNXT WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;192kbps&rpar; - 5.2GB - 2.7GB &amp; 1.2GB [GDrive]](https://www.1tamilmv.cz/index.php?/forums/topic/180627-sivappu-manjal-pachai-2019-tamil-sunnxt-web-dl-1080p-720p-avc-untouched-dd51192kbps-52gb-27gb-12gb-gdrive/&do=findComment&comment=367469)
+- [Sriranga Neethulu &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar; - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180607-sriranga-neethulu-2024-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-640kbps-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=367468)
+- [Thozha &lpar;2016&rpar; Tamil - SUNNXT WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;192kbps&rpar; - 5.2GB - 2.6GB &amp; 916MB [GDrive]](https://www.1tamilmv.cz/index.php?/forums/topic/180626-thozha-2016-tamil-sunnxt-web-dl-1080p-720p-avc-untouched-dd51192kbps-52gb-26gb-916mb-gdrive/&do=findComment&comment=367467)
+- [Thank You Doctor &lpar;2024&rpar; S01 EP&lpar;01-40&rpar; TRUE WEB-DL - [720p &amp; 360p - x264 - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Chi] - 13GB &amp; 3.8GB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180625-thank-you-doctor-2024-s01-ep01-40-true-web-dl-720p-360p-x264-aac-20-tamil-telugu-hindi-chi-13gb-38gb-esub/&do=findComment&comment=367466)
 - [Thank You Doctor &lpar;2024&rpar; S01 EP&lpar;01-40&rpar; TRUE WEB-DL - [720p &amp; 360p - x264 - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Chi] - 13GB &amp; 3.8GB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180625-thank-you-doctor-2024-s01-ep01-40-true-web-dl-720p-360p-x264-aac-20-tamil-telugu-hindi-chi-13gb-38gb-esub/&do=findComment&comment=367465)
-- [Rathasaatchi &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.4GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/170706-rathasaatchi-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-34gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=367464)
-- [This week Latest Updated Movies and web series collection](https://www.1tamilmv.cz/index.php?/forums/topic/180624-this-week-latest-updated-movies-and-web-series-collection/&do=findComment&comment=367463)
-- [​​The.Handmaids.Tale.S01,S2,S3,S4,S5 .2160p.HULU.WEB-DL.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.cz/index.php?/forums/topic/180623-%E2%80%8B%E2%80%8Bthehandmaidstales01s2s3s4s5-2160phuluweb-dlddp51-direct-download/&do=findComment&comment=367462)
-- [Top Cooku Dupe Cooku &lpar;2024&rpar; Tamil - S01 EP06 TRUE WEB-DL - [1080p, 720p, 360p - AVC - UNTOUCHED - 1.2GB - 650MB &amp; 300MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180622-top-cooku-dupe-cooku-2024-tamil-s01-ep06-true-web-dl-1080p-720p-360p-avc-untouched-12gb-650mb-300mb/&do=findComment&comment=367461)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
