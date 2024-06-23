@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thithai Thithai | Kanmashi | S Rameshan Nair | M Jayachandran | K.J.Yesudas #SongOfTheDay](https://www.youtube.com/watch?v=wr1dShcY53w)
+- [Ananthamaam agaadhamaam | Nagarangalil Chennu Raparkam | Raveendran | KJ Yesudas](https://www.youtube.com/watch?v=daUt9WfQosw)
 - [Chori Mujhe Kya Huva | Mangalam Veettil Manaseswary Guptha | HD Video Song  | PK Mishra](https://www.youtube.com/watch?v=rWfeDQIa1VM)
 - [ദൈവത്തിൽ പ്രത്യാശ വയ്ക്കുക ...😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=ubKLlEvGsXY)
 - [Share Your Vibe To The Universe Dance For Nadanna Sambhavam | |Biju Menon | Ankit Menon | #ytshort](https://www.youtube.com/watch?v=UOBy54IeLHE)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 23rd of June 2024](https://www.youtube.com/watch?v=TrWmxKoXorA)
-- [Kalikkalam Ithu Kalikkalam Video Song | Ramji Rao Speaking | SP Balasubrahmanyam | Bichu Thirumala](https://www.youtube.com/watch?v=ZeVTL3BJwFA)
-- [Madymalle Ee Sarvanasham | Christian Video Song | Francis Roy | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=bAPsIYiUpvQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
