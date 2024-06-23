@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Pirates of the Caribbean &lpar;2003 - 2017&rpar; 720p BDRip - [Tamil + Telugu + Hindi + Eng] - x264 - 6.2GB](https://www.1tamilmv.cz/index.php?/forums/topic/118281-pirates-of-the-caribbean-2003-2017-720p-bdrip-tamil-telugu-hindi-eng-x264-62gb/&do=findComment&comment=367455)
+- [Chinna Chinna Kangal &lpar;From &quot;The Greatest Of All Time&quot;&rpar; Master Quality 24bit - FLAC - Yuvan Shankar Raja Musical - 70 MB](https://www.1tamilmv.cz/index.php?/forums/topic/180618-chinna-chinna-kangal-from-the-greatest-of-all-time-master-quality-24bit-flac-yuvan-shankar-raja-musical-70-mb/&do=findComment&comment=367454)
 - [Aaha Kalyanam &lpar;2014&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 9.9GB - ESub - GDFlix](https://www.1tamilmv.cz/index.php?/forums/topic/180599-aaha-kalyanam-2014-tamil-true-web-dl-1080p-hq-avc-untouched-ddp51-99gb-esub-gdflix/&do=findComment&comment=367453)
 - [Bayamariya Brammai &lpar;2024&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.cz/index.php?/forums/topic/180616-bayamariya-brammai-2024-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=367449)
 - [Prabhutva Juniour Kalasala &lpar;2024&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.cz/index.php?/forums/topic/180615-prabhutva-juniour-kalasala-2024-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=367448)
-- [Chathuram &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 2.0&rpar; - 2GB &amp; 1.3GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180614-chathuram-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-20-2gb-13gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=367447)
-- [Kuruvi &lpar;2008&rpar; - Tamil Video Songs - 1080p - Blu-Ray - UNTOUCHED - [DD5.1 + LPCM5.1] - ESubs](https://www.1tamilmv.cz/index.php?/forums/topic/180613-kuruvi-2008-tamil-video-songs-1080p-blu-ray-untouched-dd51-lpcm51-esubs/&do=findComment&comment=367446)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
