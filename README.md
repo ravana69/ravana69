@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Thank You Doctor &lpar;2024&rpar; S01 EP&lpar;01-40&rpar; TRUE WEB-DL - [720p &amp; 360p - x264 - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Chi] - 13GB &amp; 3.8GB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180625-thank-you-doctor-2024-s01-ep01-40-true-web-dl-720p-360p-x264-aac-20-tamil-telugu-hindi-chi-13gb-38gb-esub/&do=findComment&comment=367465)
 - [Rathasaatchi &lpar;2022&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 384Kbps&rpar; - 3.4GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/170706-rathasaatchi-2022-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-384kbps-34gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=367464)
 - [This week Latest Updated Movies and web series collection](https://www.1tamilmv.cz/index.php?/forums/topic/180624-this-week-latest-updated-movies-and-web-series-collection/&do=findComment&comment=367463)
 - [​​The.Handmaids.Tale.S01,S2,S3,S4,S5 .2160p.HULU.WEB-DL.DDP5.1 &lpar;Direct Download&rpar;](https://www.1tamilmv.cz/index.php?/forums/topic/180623-%E2%80%8B%E2%80%8Bthehandmaidstales01s2s3s4s5-2160phuluweb-dlddp51-direct-download/&do=findComment&comment=367462)
-- [Saindhav &lpar;2024&rpar; Hindi TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2GB &amp; 1GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180620-saindhav-2024-hindi-true-web-dl-1080p-720p-avc-dd51-192kbps-2gb-1gb-x264-700mb-400mb/&do=findComment&comment=367459)
-- [Swargathile Katturumbu &lpar;2024&rpar; Malayalam HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.cz/index.php?/forums/topic/180573-swargathile-katturumbu-2024-malayalam-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=367458)
+- [Top Cooku Dupe Cooku &lpar;2024&rpar; Tamil - S01 EP06 TRUE WEB-DL - [1080p, 720p, 360p - AVC - UNTOUCHED - 1.2GB - 650MB &amp; 300MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180622-top-cooku-dupe-cooku-2024-tamil-s01-ep06-true-web-dl-1080p-720p-360p-avc-untouched-12gb-650mb-300mb/&do=findComment&comment=367461)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
