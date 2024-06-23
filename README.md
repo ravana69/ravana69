@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kalki 2898 AD (Malayalam) - Release Trailer | Prabhas | Amitabh | Kamal Haasan | Deepika |Nag Ashwin](https://www.youtube.com/watch?v=f8Vbbq4cU8o)
+- [Manmadhanalle Video Song | Inspector Garud | Dileep | Kavya Madhavan| Vineeth Sreenivasan| Rimi Tomy](https://www.youtube.com/watch?v=jY5UyYv0wBI)
+- [Padakaali Chandi Changari Full Video Song HD | Yodha Movie Song | REMASTERED |](https://www.youtube.com/watch?v=EK3oQ4rNt9c)
+- [Hey Dance For Nadanna Sambhavam | Biju Menon | Vishnu Narayan | Ankit Menon | #ytshort](https://www.youtube.com/watch?v=3YNfog35REo)
+- [Anandabadram Video Songs Jukebox | PrithViraj | Kavya Madhavan | MG Radhakrishnan | Santhosh Sivan](https://www.youtube.com/watch?v=43j72_6yM5c)
 - [Sheela Old Malayalam Movie Songs | Bheekara Nimishangal Remastered Malayalam Songs | P. Susheela](https://www.youtube.com/watch?v=e__o724iOWc)
-- [ഓം മഹാഗണപതെ | Vinayaka Devotional Songs | K J Yesudas | Raveendran | Sound of Arts](https://www.youtube.com/watch?v=xhsXWW-hxJQ)
-- [Kumbhappuzha | Partners #jassiegift #dhyansreenivasan #bkharinarayanan #shortsfeed #shortsvideo](https://www.youtube.com/watch?v=LU141vrFHBw)
-- [Kudukude Chirikkana | Mayavi | Luttappi |Balarama  #manoramamusic #ytshortsvideo](https://www.youtube.com/watch?v=i5pJo77gQbk)
-- [Manjin Thooval Aviyal | Shorts  #manoramamusic #filmshorts](https://www.youtube.com/watch?v=zzqVWshmrxk)
-- [ജീവിത പ്രശ്നങ്ങൾ ശാന്തം ആക്കിയ ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Christian Songs](https://www.youtube.com/watch?v=uHjHy_MhyNs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
