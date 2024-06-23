@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഓം മഹാഗണപതെ | Vinayaka Devotional Songs | K J Yesudas | Raveendran | Sound of Arts](https://www.youtube.com/watch?v=xhsXWW-hxJQ)
 - [Kumbhappuzha | Partners #jassiegift #dhyansreenivasan #bkharinarayanan #shortsfeed #shortsvideo](https://www.youtube.com/watch?v=LU141vrFHBw)
 - [Kudukude Chirikkana | Mayavi | Luttappi |Balarama  #manoramamusic #ytshortsvideo](https://www.youtube.com/watch?v=i5pJo77gQbk)
 - [Manjin Thooval Aviyal | Shorts  #manoramamusic #filmshorts](https://www.youtube.com/watch?v=zzqVWshmrxk)
 - [ജീവിത പ്രശ്നങ്ങൾ ശാന്തം ആക്കിയ ഗാനങ്ങൾ | Christian Devotional Songs Malayalam | Christian Songs](https://www.youtube.com/watch?v=uHjHy_MhyNs)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 23rd June 2024 # Novena to the Sacred Heart of Jesus 23rd June 2024](https://www.youtube.com/watch?v=6rYjfxeBBUI)
-- [Japamala 23rd of June 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 23rd of June  2024](https://www.youtube.com/watch?v=dxbr4szy3WQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
