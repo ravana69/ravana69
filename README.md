@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 24th June 2024](https://www.youtube.com/watch?v=1PcaniPQIT4)
+- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=ERelFcTKt4I)
 - [ഋതുസംക്രമപ്പക്ഷി പാടീ..| കെ ജെ യേശുദാസ് | K S Chitra | Remastered songs |മലയാളചലച്ചിത്രഗാനങ്ങൾ](https://www.youtube.com/watch?v=jy9Y8cqHY4A)
 - [പുലർക്കാലദീപമായ് എന്നാത്മാവിൽ വാഴാൻ വരൂ യേശുവേ..](https://www.youtube.com/watch?v=tEetXFEFclY)
 - [Thithai Thithai | Kanmashi | S Rameshan Nair | M Jayachandran | K.J.Yesudas #SongOfTheDay](https://www.youtube.com/watch?v=wr1dShcY53w)
 - [Ananthamaam agaadhamaam | Nagarangalil Chennu Raparkam | Raveendran | KJ Yesudas](https://www.youtube.com/watch?v=daUt9WfQosw)
-- [Chori Mujhe Kya Huva | Mangalam Veettil Manaseswary Guptha | HD Video Song  | PK Mishra](https://www.youtube.com/watch?v=rWfeDQIa1VM)
-- [ദൈവത്തിൽ പ്രത്യാശ വയ്ക്കുക ...😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=ubKLlEvGsXY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
