@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ദൈവത്തിൽ പ്രത്യാശ വയ്ക്കുക ...😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=ubKLlEvGsXY)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 23rd of June 2024](https://www.youtube.com/watch?v=TrWmxKoXorA)
+- [Kalikkalam Ithu Kalikkalam Video Song | Ramji Rao Speaking | SP Balasubrahmanyam | Bichu Thirumala](https://www.youtube.com/watch?v=ZeVTL3BJwFA)
+- [Madymalle Ee Sarvanasham | Christian Video Song | Francis Roy | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=bAPsIYiUpvQ)
 - [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=BllD1vWkBsk)
 - [നാവിൽ നീയേ നാമം നീയേ | CHRISTIAN DEVOTIONAL SONG | ROY PUTHUR #christiandevotionalsongs](https://www.youtube.com/watch?v=hXMu6lwRdQ8)
-- [Thulasi Vili Kelkoo | Kaattuthulasi (1965) |Vayalar | MS Baburaj | |Everegreen Malayalam Film Songs](https://www.youtube.com/watch?v=pdKBXHnB81k)
-- [ആയർപ്പെൺ കിടാവേ നിൻ പാൽക്കുടം... Melle melle mukhapadam | Parvathy | Devan](https://www.youtube.com/watch?v=JeNe0AC3r1U)
-- [லியோ - நா ரெடி தமிழ் பாடல்வரிகள் | அனிருத்](https://www.youtube.com/watch?v=eUuvt9l3Ok8)
-- [Kumbhappuzha | Partners #jassiegift #dhyansreenivasan #bkharinarayanan #shortsfeed #shortsvideo](https://www.youtube.com/watch?v=wW3ZiubAFyk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
