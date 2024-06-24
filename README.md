@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Baahubali The Beginning &lpar;2015&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 8.9GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB - MSub [GDrive]](https://www.1tamilmv.cz/index.php?/forums/topic/180642-baahubali-the-beginning-2015-tamil-true-web-dl-1080p-720p-avc-untouched-dd51640kbps-89gb-55gb-27gb-14gb-x264-700mb-400mb-msub-gdrive/&do=findComment&comment=367503)
 - [Furiosa: A Mad Max Saga &lpar;2024&rpar; Tamil HD - [1080p &amp; 720p - x264 - 2.8GB &amp; 1.4GB | x264 - 450MB] - HQ Clean Audio](https://www.1tamilmv.cz/index.php?/forums/topic/179973-furiosa-a-mad-max-saga-2024-tamil-hd-1080p-720p-x264-28gb-14gb-x264-450mb-hq-clean-audio/&do=findComment&comment=367502)
 - [Furiosa: A Mad Max Saga &lpar;2024&rpar; Tamil HD - [1080p &amp; 720p - x264 - 2.8GB &amp; 1.4GB | x264 - 450MB] - HQ Clean Audio](https://www.1tamilmv.cz/index.php?/forums/topic/179973-furiosa-a-mad-max-saga-2024-tamil-hd-1080p-720p-x264-28gb-14gb-x264-450mb-hq-clean-audio/&do=findComment&comment=367501)
 - [Kung Fu Master Su Golden Pirate &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264- &lpar;Tamil + Telugu + Hindi + Chi&rpar; - 1.7GB &amp; 950MB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180636-kung-fu-master-su-golden-pirate-2022-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-chi-17gb-950mb-x264-tamil-telugu-hindi-400mb-esub/&do=findComment&comment=367500)
 - [Kung Fu Master Su Golden Pirate &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264- &lpar;Tamil + Telugu + Hindi + Chi&rpar; - 1.7GB &amp; 950MB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180636-kung-fu-master-su-golden-pirate-2022-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-chi-17gb-950mb-x264-tamil-telugu-hindi-400mb-esub/&do=findComment&comment=367499)
-- [Furiosa: A Mad Max Saga &lpar;2024&rpar; English TRUE WEB-DL - [4K,1080p &amp; 720p - x264 - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 13GB - 3GB - 1.5GB &amp; 400MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180635-furiosa-a-mad-max-saga-2024-english-true-web-dl-4k1080p-720p-x264-dd51-atmos-768kbps-13gb-3gb-15gb-400mb-esub/&do=findComment&comment=367498)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
