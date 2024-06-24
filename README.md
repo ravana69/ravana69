@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Indraneelimayolum | ഇന്ദ്രനീലിമയോലും| Vaishali Movie Video Song | KS Chithra | Bombay Ravi,ONV Kurup](https://www.youtube.com/watch?v=CDJJeW9rDVI)
+- [Krushithante Hrudhayam Pole Day 24](https://www.youtube.com/watch?v=eg_HEQ6m5i4)
+- [Parvatha Nandhini | Thenaruvi (1973) | G Devarajan | Vayalar Ramavarma |  KJ Yesudas | Prem Nazir](https://www.youtube.com/watch?v=eg1ABQbCO20)
 - [Kumbhappuzha | Partners #jassiegift #dhyansreenivasan #bkharinarayanan #shortsfeed #shortsvideo](https://www.youtube.com/watch?v=mksO7XxC7o0)
 - [Kannaranthumbi  | Thalsamayam Oru Penkutty | Mano | Murugan Kattakkada | Sharreth | Unni Mukundan](https://www.youtube.com/watch?v=JsKVI59mejA)
 - [Pulinelloor Aattiloru | Folk Song #naadanpaattu #shortsfeed #shortsvideo #reels #naadanpattukal](https://www.youtube.com/watch?v=lBtFwwEUBe4)
-- [Snehithan Video Song Jukebox | Kunjakko Boban | Mohan Sithara | KJ Yesudas | Yusufali Kecheri](https://www.youtube.com/watch?v=BSKaDFqSCzg)
-- [Kaayamboo - Sleep Lofi | Nadhi | G. Devarajan | K.J. Yesudas | Chris Wayne](https://www.youtube.com/watch?v=456ZOL1w2D8)
-- [അയ്യപ്പഭക്തിഗാനങ്ങൾ vol. 11| Devotional Songs Lord Ayyappa Vol. 11 | K J Yesudas  | Sound of Arts](https://www.youtube.com/watch?v=uOSbf67UVVY)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
