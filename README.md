@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Malli Raava 2017 SUNNXT WEB-DL 1080p - 720p [ 3.08 GB &amp; 1.62 GB ] ×264 [Telugu &lpar;DD+ 5.1 - 192kbps&rpar;]_White_](https://www.1tamilmv.cz/index.php?/forums/topic/180639-malli-raava-2017-sunnxt-web-dl-1080p-720p-308-gb-162-gb-%C3%97264-telugu-dd-51-192kbps_white_/&do=findComment&comment=367491)
 - [House of the Dragon &lpar;2024&rpar; S02 EP02 TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi + Kannada + Eng]](https://www.1tamilmv.cz/index.php?/forums/topic/180638-house-of-the-dragon-2024-s02-ep02-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-kannada-eng/&do=findComment&comment=367490)
 - [Doraemon.S19.[Hindi, Tamil, Telugu] MULTi.1080p.Hotstar.WEB-DL.AAC2.0](https://www.1tamilmv.cz/index.php?/forums/topic/180637-doraemons19hindi-tamil-telugu-multi1080photstarweb-dlaac20/&do=findComment&comment=367489)
 - [Kung Fu Master Su Golden Pirate &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264- &lpar;Tamil + Telugu + Hindi + Chi&rpar; - 1.7GB &amp; 950MB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180636-kung-fu-master-su-golden-pirate-2022-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-chi-17gb-950mb-x264-tamil-telugu-hindi-400mb-esub/&do=findComment&comment=367488)
 - [Furiosa: A Mad Max Saga &lpar;2024&rpar; English TRUE WEB-DL - [4K,1080p &amp; 720p - x264 - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 13GB - 3GB - 1.5GB &amp; 400MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180635-furiosa-a-mad-max-saga-2024-english-true-web-dl-4k1080p-720p-x264-dd51-atmos-768kbps-13gb-3gb-15gb-400mb-esub/&do=findComment&comment=367486)
-- [Furiosa: A Mad Max Saga &lpar;2024&rpar; English TRUE WEB-DL - [4K,1080p &amp; 720p - x264 - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 13GB - 3GB - 1.5GB &amp; 400MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180635-furiosa-a-mad-max-saga-2024-english-true-web-dl-4k1080p-720p-x264-dd51-atmos-768kbps-13gb-3gb-15gb-400mb-esub/&do=findComment&comment=367485)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
