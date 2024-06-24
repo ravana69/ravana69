@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Doraemon.S19.[Hindi, Tamil, Telugu] MULTi.1080p.Hotstar.WEB-DL.AAC2.0](https://www.1tamilmv.cz/index.php?/forums/topic/180637-doraemons19hindi-tamil-telugu-multi1080photstarweb-dlaac20/&do=findComment&comment=367508)
+- [Arai Enn 305-Il Kadavul &lpar;2008&rpar; Tamil HDTV WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;DD.5.1&rpar; - 3.2GB - GDFlix](https://www.1tamilmv.cz/index.php?/forums/topic/180537-arai-enn-305-il-kadavul-2008-tamil-hdtv-web-dl-1080p-hq-avc-untouched-dd51-32gb-gdflix/&do=findComment&comment=367507)
 - [S S Rajamouli Filmography &lpar;2001 - 2022&rpar; - 1080p - x264 - AVC - DD5.1/AAC2.0 - ESub - 30GB [GDRIVE]](https://www.1tamilmv.cz/index.php?/forums/topic/124730-s-s-rajamouli-filmography-2001-2022-1080p-x264-avc-dd51aac20-esub-30gb-gdrive/&do=findComment&comment=367506)
 - [Adventures of Mahaan &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 320Kbps&rpar; - 3GB - 1.5GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180643-adventures-of-mahaan-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-320kbps-3gb-15gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=367505)
 - [Adventures of Mahaan &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 320Kbps&rpar; - 3GB - 1.5GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180643-adventures-of-mahaan-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-320kbps-3gb-15gb-850mb-x264-700mb-400mb-250mb/&do=findComment&comment=367504)
-- [Baahubali The Beginning &lpar;2015&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 8.9GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB - MSub [GDrive]](https://www.1tamilmv.cz/index.php?/forums/topic/180642-baahubali-the-beginning-2015-tamil-true-web-dl-1080p-720p-avc-untouched-dd51640kbps-89gb-55gb-27gb-14gb-x264-700mb-400mb-msub-gdrive/&do=findComment&comment=367503)
-- [Furiosa: A Mad Max Saga &lpar;2024&rpar; Tamil HD - [1080p &amp; 720p - x264 - 2.8GB &amp; 1.4GB | x264 - 450MB] - HQ Clean Audio](https://www.1tamilmv.cz/index.php?/forums/topic/179973-furiosa-a-mad-max-saga-2024-tamil-hd-1080p-720p-x264-28gb-14gb-x264-450mb-hq-clean-audio/&do=findComment&comment=367502)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
