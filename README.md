@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [BTS Of K - For Kalyanam  | Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=VrN-I1akC90)
+- [Puthumazhayayi Pozhiyaam|Mudra|Mammootty|Sudheesh| #mudra #mohansithara](https://www.youtube.com/watch?v=3P3PPMC6hog)
+- [PAVIZHAM |FALAH ALI | PAVITHRAN AMACHAL  | FR. MICHALE PANACHICKAL V C @JinoKunnumpurathu  #reel 2](https://www.youtube.com/watch?v=em9A5WBAw0k)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 24th of June 2024](https://www.youtube.com/watch?v=GLo-U_Rh6rI)
 - [Kettiyone Pattichu Video Songs | Malayalam Song | Kadamattathachan | Old Malayalam Songs](https://www.youtube.com/watch?v=5YMLEnNd4ew)
 - [യഹോവ എന്റെ ജീവന്റെ ബലം ..😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=7KndxXeTuUg)
-- [അഞ്ജനക്കണ്ണെഴുതി | Thacholi Othenan | S Janaki #shorts](https://www.youtube.com/watch?v=stVI85TPekk)
-- [Kattile Kannan | Animation Video #kattilekannan #animation #malayalamcartoon #shorts #shortsfeed](https://www.youtube.com/watch?v=_E6QRQOyXVs)
-- [Dayana Dayana  | Animation Version Film Songs #shortsfeed #shortsvideo #reels  #animation](https://www.youtube.com/watch?v=0mWzuhXFoZE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
