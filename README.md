@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Yadukula Gopike | Mohanlal | KS Chithra | Unni Menon | SP Venkitesh | Shibu Chakravarthy](https://www.youtube.com/watch?v=P2ZhpWCUZ_E)
+- [Vennakkal kottaaravaathil | Ammakkilikoodu  | Kaithapram | KJ Yesudas | Raveendran #SongOfTheDay](https://www.youtube.com/watch?v=T-2N3R6L_VU)
 - [Unknown Side Of K for Kalyanam BTS  | Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=p5C0PBgIbi0)
 - [ഏവരും കേൾക്കാനാഗ്രഹിക്കുന്ന മലയാളസിനിമയിലെ സുന്ദര ഗാനങ്ങൾ | EVERGREEN HIT SONGS MALAYALAM](https://www.youtube.com/watch?v=mdXOJ24aNxI)
 - [Christian Superhit Songs | Manoj Christy | Kester |Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=Ou_xcJOtTnQ)
 - [GOLDEN MEMORIES | M.Jayachandhran |@JinoKunnumpurathu  #shorts #vsachudanandhan #goldenmemories](https://www.youtube.com/watch?v=GCq2QT9LCVE)
-- [Vilikathirunnalum | Ishtamaanu Pakshe (1980) | Ambika | K.J.Yesudas | Malayalam Superhit Song](https://www.youtube.com/watch?v=8KU29eB8BRE)
-- [BTS Of K - For Kalyanam  | Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=VrN-I1akC90)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
