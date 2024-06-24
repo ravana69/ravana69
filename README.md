@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Jumbochan | Animation for Kids #shorts  #manoramamusic #ytshortsvideo](https://www.youtube.com/watch?v=qvCOFCPPj70)
-- [Kaathil Aro Mozhinju | Aviyal | Shorts  #manoramamusic #filmshorts](https://www.youtube.com/watch?v=46r1v2cLnHo)
-- [Prabhatha Geethangal | Kuttiyachan | Christian Superhit Songs | Morning Prayer Songs | Joji Johns](https://www.youtube.com/watch?v=c0t8kCp4q1c)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 24th June 2024 # Novena to the Sacred Heart of Jesus 24th June 2024](https://www.youtube.com/watch?v=21ONFiyMGFk)
-- [Japamala  24th of June  2024 # Mathavinte Japamala # Santhoshathinte Rahasyangal 24th of June  2024](https://www.youtube.com/watch?v=yWk2RINdqBM)
-- [എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala june 24th#rosarymalayalam](https://www.youtube.com/watch?v=0S_oBGQqAy8)
+- [അയ്യപ്പഭക്തിഗാനങ്ങൾ vol. 11| Devotional Songs Lord Ayyappa Vol. 11 | K J Yesudas  | Sound of Arts](https://www.youtube.com/watch?v=uOSbf67UVVY)
+- [Sathyan Old Malayalam Movie Songs | Bharya Remastered Malayalam Songs |  A.M. Rajah,P. Susheela](https://www.youtube.com/watch?v=WZ5gCOskEJ8)
+- [Athyunnathanam | Dr.Ezhamkulam Samkutty | Christian Shorts  #malayalamchristiansongs #ytshortsvideo](https://www.youtube.com/watch?v=ADZ9MYvVkfQ)
+- [Athyunnathanam | Dr.Ezhamkulam Samkutty | Christian Shorts  #malayalamchristiansongs #ytshortsvideo](https://www.youtube.com/watch?v=jZKgK8_r1hk)
+- [Athyunnathanam | Dr.Ezhamkulam Samkutty | Christian Shorts  #malayalamchristiansongs #ytshortsvideo](https://www.youtube.com/watch?v=M4LLkexYFVs)
+- [Athyunnathanam | Dr.Ezhamkulam Samkutty | Christian Shorts  #malayalamchristiansongs #ytshortsvideo](https://www.youtube.com/watch?v=bmcN-vK40bQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
