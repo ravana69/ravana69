@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kung Fu Master Su Golden Pirate &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264- &lpar;Tamil + Telugu + Hindi + Chi&rpar; - 1.7GB &amp; 950MB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180636-kung-fu-master-su-golden-pirate-2022-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-chi-17gb-950mb-x264-tamil-telugu-hindi-400mb-esub/&do=findComment&comment=367499)
+- [Furiosa: A Mad Max Saga &lpar;2024&rpar; English TRUE WEB-DL - [4K,1080p &amp; 720p - x264 - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 13GB - 3GB - 1.5GB &amp; 400MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180635-furiosa-a-mad-max-saga-2024-english-true-web-dl-4k1080p-720p-x264-dd51-atmos-768kbps-13gb-3gb-15gb-400mb-esub/&do=findComment&comment=367498)
 - [Furiosa: A Mad Max Saga &lpar;2024&rpar; English TRUE WEB-DL - [4K,1080p &amp; 720p - x264 - &lpar;DD+5.1 ATMOS - 768Kbps&rpar; - 13GB - 3GB - 1.5GB &amp; 400MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180635-furiosa-a-mad-max-saga-2024-english-true-web-dl-4k1080p-720p-x264-dd51-atmos-768kbps-13gb-3gb-15gb-400mb-esub/&do=findComment&comment=367496)
 - [Ghostbusters: Frozen Empire &lpar;2024&rpar; TRUE WEB-DL - [4K ,1080p &amp; 720p - x264 - [ English] - &lpar;DD+5.1 - 640Kbps&rpar;]](https://www.1tamilmv.cz/index.php?/forums/topic/180641-ghostbusters-frozen-empire-2024-true-web-dl-4k-1080p-720p-x264-english-dd51-640kbps/&do=findComment&comment=367495)
 - [Furiosa: A Mad Max Saga &lpar;2024&rpar; English TRUE WEB-DL - [4K,1080p &amp; 720p - x264 - &lpar;DD+5.1 ATMOS - 768Kbps&rpar;](https://www.1tamilmv.cz/index.php?/forums/topic/180640-furiosa-a-mad-max-saga-2024-english-true-web-dl-4k1080p-720p-x264-dd51-atmos-768kbps/&do=findComment&comment=367494)
-- [Raja Rani &lpar;2013&rpar; Tamil 2160p BluRay - 10Bit - x265 - DD5.1 - ESub - 3.6GB [GDRIVE]](https://www.1tamilmv.cz/index.php?/forums/topic/124721-raja-rani-2013-tamil-2160p-bluray-10bit-x265-dd51-esub-36gb-gdrive/&do=findComment&comment=367493)
-- [Malli Raava 2017 SUNNXT WEB-DL 1080p - 720p [ 3.08 GB &amp; 1.62 GB ] ×264 [Telugu &lpar;DD+ 5.1 - 192kbps&rpar;]_White_](https://www.1tamilmv.cz/index.php?/forums/topic/180639-malli-raava-2017-sunnxt-web-dl-1080p-720p-308-gb-162-gb-%C3%97264-telugu-dd-51-192kbps_white_/&do=findComment&comment=367491)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
