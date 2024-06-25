@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Rakshakanaya Yeshuvinu Nandiyekidunna Manohara Ganangal | Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=7V7RoGOZuvs)
+- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=U5y8TDrchqg)
+- [Krushithante Hrudhayam Pole Day 25](https://www.youtube.com/watch?v=8E5OzgkymFk)
 - [മാതൃവാത്സല്യം തുളുമ്പുന്ന മലയാളസിനിമയിലെ അതിമനോഹര ഗാനങ്ങൾ  | SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=EQS96YrLoRw)
 - [Tata Tata..... | Thenaruvi | Vayalar | G Devarajan | KJ Yesudas | Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=lzMkgETn0i8)
 - [Mele Vellithinkal | Thanmathra | Video | Mohanlal | Blessy | Mohan Sithara | Kaithapram | Karthik](https://www.youtube.com/watch?v=RpRnvQCEDyo)
-- [Junile Nilamazhayil | Nammal Thammil | Gireesh Puthencherry  #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=sazlyUD_y50)
-- [Alliyambal Kadavil - Ambient Lofi | Rosi | Job | K.J. Yesudas | Joyal MJ](https://www.youtube.com/watch?v=iO9gtguibww)
-- [Kananachayakal Neele | Oru Sayahnathinte Swapnam | Suhasini | Mammoottty | K S Chithra](https://www.youtube.com/watch?v=PjLKzguQp-A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
