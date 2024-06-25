@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [This Was The Effort Given At The Back Stage  | Guruvayoorambala Nadayil | Prithviraj |#ytshorts](https://www.youtube.com/watch?v=rTKqtp65MEg)
+- [മലയാളിമനസുകൾ കീഴടക്കിയ സൂപ്പർഹിറ്റ് സിനിമാപാട്ടുകൾ | SUPERHIT MELODY SONGS MALAYALAM](https://www.youtube.com/watch?v=eOk3v60EXDY)
+- [Singer Of The Week | Midhila Michael | Christian Melody Songs | Joji Johns | Christian Songs](https://www.youtube.com/watch?v=U-5s5eXrJJU)
 - [Kaashi Thumba Kavayi  Video Song | Mookkilla Rajyathu | MG Sreekumar | Ouseppachan | Kaithapram](https://www.youtube.com/watch?v=rf2-_c7IZNw)
 - [നിന്നെക്കുറിച്ച്  ദൈവത്തിനു ചില പദ്ധതികളുണ്ട്....😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=i8GVta10QS8)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 25th of June 2024](https://www.youtube.com/watch?v=Nx-aj0PzgE0)
-- [Do You Know What Was Happening BTS | Guruvayoorambala Nadayil | Prithviraj #ytshorts](https://www.youtube.com/watch?v=2tCJss6pV_Q)
-- [Pullanenikku Ninte Video Song | Unniyarcha | P Leela | AM Raja | K Raghavan](https://www.youtube.com/watch?v=90I2Ld1WMs8)
-- [Rakthpushpam Vidarnna | HD Video | Janam | S. P. Venkatesh  | Yesudas | KS Chithra l ONV Kurup](https://www.youtube.com/watch?v=RyGQl_i1RzM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
