@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Maas &lpar;2015&rpar; - Don Don Donuuu 1080p DD5.1&lpar;448kbps&rpar; Video Song](https://www.1tamilmv.cz/index.php?/forums/topic/179395-maas-2015-don-don-donuuu-1080p-dd51448kbps-video-song/&do=findComment&comment=367573)
+- [Arya &lpar;2004&rpar; 1080p KAD DVD9 Ai Upscaled Rip - x264 [ 12GB + 6GB ] - &lpar;DD 5.1 - 448kbps &amp; DTS 5.1 1 510kbps&rpar; - Shyam](https://www.1tamilmv.cz/index.php?/forums/topic/178914-arya-2004-1080p-kad-dvd9-ai-upscaled-rip-x264-12gb-6gb-dd-51-448kbps-dts-51-1-510kbps-shyam/&do=findComment&comment=367572)
 - [Oh Meri Laila &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 320Kbps&rpar; - 2.9GB - 1.4GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180672-oh-meri-laila-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-320kbps-29gb-14gb-900mb-x264-700mb-400mb-250mb/&do=findComment&comment=367571)
 - [Furiosa: A Mad Max Saga &lpar;2024&rpar; TRUE WEB-DL - [4K,1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - [Tamil + Telugu + Hindi + Eng] - 15GB - 3GB - 1.5GB &amp; 400MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180656-furiosa-a-mad-max-saga-2024-true-web-dl-4k1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-15gb-3gb-15gb-400mb-esub/&do=findComment&comment=367570)
 - [Furiosa: A Mad Max Saga &lpar;2024&rpar; AMZN WEB DL - H264/H265 - [Tamil + Telugu + Hindi + Eng] - &lpar;DDP5.1 - 640Kbps&rpar; - ESub - [4K, 1080p &amp; 720p - 16.2GB - 12GB - 4.5GB - 2GB] [GDRIVE]](https://www.1tamilmv.cz/index.php?/forums/topic/144068-furiosa-a-mad-max-saga-2024-amzn-web-dl-h264h265-tamil-telugu-hindi-eng-ddp51-640kbps-esub-4k-1080p-720p-162gb-12gb-45gb-2gb-gdrive/&do=findComment&comment=367569)
-- [Furiosa : A Mad Max Saga &lpar;2024&rpar; AMZN WEB-DL - 4K , 1080p &amp; 720p - AVC / HEVC - UNTOUCHED - [Tamil + Telugu + Hindi + English] - DD+5.1&lpar;640kbps&rpar; - 17.8GB - 12.1GB &amp; 6.4GB - MSub [GDrive]](https://www.1tamilmv.cz/index.php?/forums/topic/180662-furiosa-a-mad-max-saga-2024-amzn-web-dl-4k-1080p-720p-avc-hevc-untouched-tamil-telugu-hindi-english-dd51640kbps-178gb-121gb-64gb-msub-gdrive/&do=findComment&comment=367566)
-- [Ditto.2022. [HINDI | TAMIL | TELUGU | KOREAN] 1080p, 720p .AMZN.WEB-DL.MULTI.AAC2.0 &lpar;Direct Download&rpar;](https://www.1tamilmv.cz/index.php?/forums/topic/180677-ditto2022-hindi-tamil-telugu-korean-1080p-720p-amznweb-dlmultiaac20-direct-download/&do=findComment&comment=367565)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
