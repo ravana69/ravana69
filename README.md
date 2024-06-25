@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതൃവാത്സല്യം തുളുമ്പുന്ന മലയാളസിനിമയിലെ അതിമനോഹര ഗാനങ്ങൾ  | SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=EQS96YrLoRw)
+- [Tata Tata..... | Thenaruvi | Vayalar | G Devarajan | KJ Yesudas | Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=lzMkgETn0i8)
 - [Mele Vellithinkal | Thanmathra | Video | Mohanlal | Blessy | Mohan Sithara | Kaithapram | Karthik](https://www.youtube.com/watch?v=RpRnvQCEDyo)
 - [Junile Nilamazhayil | Nammal Thammil | Gireesh Puthencherry  #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=sazlyUD_y50)
 - [Alliyambal Kadavil - Ambient Lofi | Rosi | Job | K.J. Yesudas | Joyal MJ](https://www.youtube.com/watch?v=iO9gtguibww)
 - [Kananachayakal Neele | Oru Sayahnathinte Swapnam | Suhasini | Mammoottty | K S Chithra](https://www.youtube.com/watch?v=PjLKzguQp-A)
-- [Ponvanam Ee Kaikalil | Anuragakkottaram | Dileep | Suvalakshmi | ilayaraja | Vinayan](https://www.youtube.com/watch?v=Eoi7Id8LuA4)
-- [Radhaykorunal | Mayavi | Balarama #ytshorts  #manoramamusic](https://www.youtube.com/watch?v=sQVnHjLIpZk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
