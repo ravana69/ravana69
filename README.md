@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Junile Nilamazhayil | Nammal Thammil | Gireesh Puthencherry  #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=sazlyUD_y50)
+- [Alliyambal Kadavil - Ambient Lofi | Rosi | Job | K.J. Yesudas | Joyal MJ](https://www.youtube.com/watch?v=iO9gtguibww)
+- [Kananachayakal Neele | Oru Sayahnathinte Swapnam | Suhasini | Mammoottty | K S Chithra](https://www.youtube.com/watch?v=PjLKzguQp-A)
+- [Ponvanam Ee Kaikalil | Anuragakkottaram | Dileep | Suvalakshmi | ilayaraja | Vinayan](https://www.youtube.com/watch?v=Eoi7Id8LuA4)
 - [Radhaykorunal | Mayavi | Balarama #ytshorts  #manoramamusic](https://www.youtube.com/watch?v=sQVnHjLIpZk)
 - [Mazhaneer Thullikal | Beautiful | Shorts  #manoramamusic #filmshorts](https://www.youtube.com/watch?v=97QHsWGQeFE)
-- [Aakashame Kelkka | Christian Melody Songs | Praise and Worship Songs | Binoy Chacko](https://www.youtube.com/watch?v=JWDHjurJ3Zg)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 25th June 2024 # Novena to the Sacred Heart of Jesus 25th June 2024](https://www.youtube.com/watch?v=OOmqwsbx5eU)
-- [Japamala 25th of June 2024 # Mathavinte Japamala # Dhukhathinte Rahasyangal 25th of June  2024](https://www.youtube.com/watch?v=iU9iWTcAglQ)
-- [എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala june 25th#rosarymalayalam](https://www.youtube.com/watch?v=0JckXS5gtFs)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
