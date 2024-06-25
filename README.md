@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Furiosa: A Mad Max Saga &lpar;2024&rpar; TRUE WEB-DL - [4K,1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - [Tamil + Telugu + Hindi + Eng] - 15GB - 3GB - 1.5GB &amp; 400MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180656-furiosa-a-mad-max-saga-2024-true-web-dl-4k1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-15gb-3gb-15gb-400mb-esub/&do=findComment&comment=367526)
+- [Furiosa: A Mad Max Saga &lpar;2024&rpar; TRUE WEB-DL - [4K,1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - [Tamil + Telugu + Hindi + Eng] - 15GB - 3GB - 1.5GB &amp; 400MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180656-furiosa-a-mad-max-saga-2024-true-web-dl-4k1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-15gb-3gb-15gb-400mb-esub/&do=findComment&comment=367525)
+- [Furiosa: A Mad Max Saga &lpar;2024&rpar; TRUE WEB-DL - [4K,1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - [Tamil + Telugu + Hindi + Eng] - 15GB - 3GB - 1.5GB &amp; 400MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180656-furiosa-a-mad-max-saga-2024-true-web-dl-4k1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-15gb-3gb-15gb-400mb-esub/&do=findComment&comment=367524)
 - [Furiosa: A Mad Max Saga &lpar;2024&rpar; TRUE WEB-DL - [4K,1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - [Tamil + Telugu + Hindi + Eng] - 15GB - 3GB - 1.5GB &amp; 400MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180656-furiosa-a-mad-max-saga-2024-true-web-dl-4k1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng-15gb-3gb-15gb-400mb-esub/&do=findComment&comment=367522)
 - [Furiosa: A Mad Max Saga &lpar;2024&rpar; WEB-DL DDP5.1 Atmos Esubs - 2160p [HDR10-DoVi] | 1080p - 25.8 GB | 7.5 GB](https://www.1tamilmv.cz/index.php?/forums/topic/180655-furiosa-a-mad-max-saga-2024-web-dl-ddp51-atmos-esubs-2160p-hdr10-dovi-1080p-258-gb-75-gb/&do=findComment&comment=367521)
-- [The Xpose &lpar;2014&rpar; Hindi &lpar;MUSIC VIDEO ALBUM&rpar; 1080p True-HD UNTOUCHED - AVC - [Hindi DD 5.1 &lpar;448Kbps&rpar;] E-Sub By-SaiKo](https://www.1tamilmv.cz/index.php?/forums/topic/180654-the-xpose-2014-hindi-music-video-album-1080p-true-hd-untouched-avc-hindi-dd-51-448kbps-e-sub-by-saiko/&do=findComment&comment=367520)
-- [House Of The Dragon S02E02 JC WEB-DL AAC2.0 Esubs x264 - 2160p | 1080p - 8.7 GB | 4.6 GB](https://www.1tamilmv.cz/index.php?/forums/topic/180653-house-of-the-dragon-s02e02-jc-web-dl-aac20-esubs-x264-2160p-1080p-87-gb-46-gb/&do=findComment&comment=367519)
-- [Haikyuu!! S01 &lpar;2014&rpar; 1080p BluRay REMUX AVC [Hindi-Tamil-Telugu DDP 2.0+ Japanese-English DTS-HD MA 2.0] [Direct Download&rpar;](https://www.1tamilmv.cz/index.php?/forums/topic/180652-haikyuu-s01-2014-1080p-bluray-remux-avc-hindi-tamil-telugu-ddp-20-japanese-english-dts-hd-ma-20-direct-download/&do=findComment&comment=367518)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
