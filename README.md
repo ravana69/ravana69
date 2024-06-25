@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Mele Vellithinkal | Thanmathra | Video | Mohanlal | Blessy | Mohan Sithara | Kaithapram | Karthik](https://www.youtube.com/watch?v=RpRnvQCEDyo)
 - [Junile Nilamazhayil | Nammal Thammil | Gireesh Puthencherry  #shortsfeed #shortsvideo #shorts #reels](https://www.youtube.com/watch?v=sazlyUD_y50)
 - [Alliyambal Kadavil - Ambient Lofi | Rosi | Job | K.J. Yesudas | Joyal MJ](https://www.youtube.com/watch?v=iO9gtguibww)
 - [Kananachayakal Neele | Oru Sayahnathinte Swapnam | Suhasini | Mammoottty | K S Chithra](https://www.youtube.com/watch?v=PjLKzguQp-A)
 - [Ponvanam Ee Kaikalil | Anuragakkottaram | Dileep | Suvalakshmi | ilayaraja | Vinayan](https://www.youtube.com/watch?v=Eoi7Id8LuA4)
 - [Radhaykorunal | Mayavi | Balarama #ytshorts  #manoramamusic](https://www.youtube.com/watch?v=sQVnHjLIpZk)
-- [Mazhaneer Thullikal | Beautiful | Shorts  #manoramamusic #filmshorts](https://www.youtube.com/watch?v=97QHsWGQeFE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
