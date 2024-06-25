@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Rakshakanaya Yeshuvinu Nandiyekidunna Manohara Ganangal | Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=7V7RoGOZuvs)
-- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=U5y8TDrchqg)
-- [Krushithante Hrudhayam Pole Day 25](https://www.youtube.com/watch?v=8E5OzgkymFk)
-- [മാതൃവാത്സല്യം തുളുമ്പുന്ന മലയാളസിനിമയിലെ അതിമനോഹര ഗാനങ്ങൾ  | SUPERHIT SONGS MALAYALAM](https://www.youtube.com/watch?v=EQS96YrLoRw)
-- [Tata Tata..... | Thenaruvi | Vayalar | G Devarajan | KJ Yesudas | Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=lzMkgETn0i8)
-- [Mele Vellithinkal | Thanmathra | Video | Mohanlal | Blessy | Mohan Sithara | Kaithapram | Karthik](https://www.youtube.com/watch?v=RpRnvQCEDyo)
+- [Kaashi Thumba Kavayi  Video Song | Mookkilla Rajyathu | MG Sreekumar | Ouseppachan | Kaithapram](https://www.youtube.com/watch?v=rf2-_c7IZNw)
+- [നിന്നെക്കുറിച്ച്  ദൈവത്തിനു ചില പദ്ധതികളുണ്ട്....😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=i8GVta10QS8)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 25th of June 2024](https://www.youtube.com/watch?v=Nx-aj0PzgE0)
+- [Do You Know What Was Happening BTS | Guruvayoorambala Nadayil | Prithviraj #ytshorts](https://www.youtube.com/watch?v=2tCJss6pV_Q)
+- [Pullanenikku Ninte Video Song | Unniyarcha | P Leela | AM Raja | K Raghavan](https://www.youtube.com/watch?v=90I2Ld1WMs8)
+- [Rakthpushpam Vidarnna | HD Video | Janam | S. P. Venkatesh  | Yesudas | KS Chithra l ONV Kurup](https://www.youtube.com/watch?v=RyGQl_i1RzM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
