@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [നിഴലുപോൽ മറയുമീ ജന്മമെന്നാലും](https://www.youtube.com/watch?v=yIX4qWGJ5m8)
+- [Aavanipoovin  | CID Unnikrishnan B.A. B.Ed | Johnson l  KS Chithra | P Jayachandran](https://www.youtube.com/watch?v=v9Q0pMf4WAQ)
+- [Chandra Hridayam | Sathyam Sivam Sundaram | Vidyasagar | K J Yesudas | Kaithapram #SongOfTheDay](https://www.youtube.com/watch?v=iWUYiSvM1gU)
 - [Vibe For K For Krishna Join Your Hands| Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=JW98eT0MAuY)
 - [Christian Superhit Songs | Wilson Piravom | Christian Devotional Songs Malayalam | Narayana Krishna](https://www.youtube.com/watch?v=dknLBRCBjME)
 - [Vibe For K For Kalyanam Join Your Hands| Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=FNMRqKe9qIk)
-- [PAVIZHAM |FALAH ALI | PAVITHRAN AMACHAL  | FR. MICHALE PANACHICKAL V C | @JinoKunnumpurathu  #reel 3](https://www.youtube.com/watch?v=FKMZtnoGesM)
-- [Kandal Nalloru Video Song | Malayalam Song | Kadamattathachan | Old Malayalam Songs](https://www.youtube.com/watch?v=W9nANmM127c)
-- [Pranayakala Vallabha | Thenaruvi (1973) | G Devarajan | Vayalar Ramavarma | P Susheela](https://www.youtube.com/watch?v=JLURZckV6zQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
