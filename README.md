@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Jeevamrutham Pakarum Eeshoganangal | Super Hit Christian Devotional Songs | Jesus Malayalam Songs](https://www.youtube.com/watch?v=z9spA3CFUCQ)
-- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=vNEsdwwtTNg)
-- [Thattikko | Kunddala Puranam | Blesson Thomas | Shorts  #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=66SterQSny4)
-- [Thattikko | Kunddala Puranam | Blesson Thomas | Shorts  #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=blw1B2NlY5M)
-- [Manchadi Mazha | Amal C Ajith | Rijosh VA #cover  #manoramamusic](https://www.youtube.com/watch?v=Z4HWycocM3I)
-- [Manchadi Mazha | Amal C Ajith | Rijosh VA #cover  #manoramamusic](https://www.youtube.com/watch?v=1uSmaxm_JiA)
+- [Kandal Nalloru Video Song | Malayalam Song | Kadamattathachan | Old Malayalam Songs](https://www.youtube.com/watch?v=W9nANmM127c)
+- [Pranayakala Vallabha | Thenaruvi (1973) | G Devarajan | Vayalar Ramavarma | P Susheela](https://www.youtube.com/watch?v=JLURZckV6zQ)
+- [ദൈവം അറിയാത്ത ഒരു പ്രശ്നവും ഇല്ല ....😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=Td1ncPMzwNk)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 26th of June 2024](https://www.youtube.com/watch?v=AqTLoR02UeE)
+- [Kalyana Praayathil|Bada Dosth|Suresh Gopi|Meghna Naidu|](https://www.youtube.com/watch?v=tFJV2VboSWo)
+- [Kannu Nattu Video Song | Kathavasheshan | P Jayachandran | Dileep #shorts](https://www.youtube.com/watch?v=xqBrruDfjz4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
