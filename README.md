@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 27th June 2024](https://www.youtube.com/watch?v=LZQAtZAhcgs)
 - [നിഴലുപോൽ മറയുമീ ജന്മമെന്നാലും](https://www.youtube.com/watch?v=yIX4qWGJ5m8)
 - [Aavanipoovin  | CID Unnikrishnan B.A. B.Ed | Johnson l  KS Chithra | P Jayachandran](https://www.youtube.com/watch?v=v9Q0pMf4WAQ)
 - [Chandra Hridayam | Sathyam Sivam Sundaram | Vidyasagar | K J Yesudas | Kaithapram #SongOfTheDay](https://www.youtube.com/watch?v=iWUYiSvM1gU)
 - [Vibe For K For Krishna Join Your Hands| Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=JW98eT0MAuY)
 - [Christian Superhit Songs | Wilson Piravom | Christian Devotional Songs Malayalam | Narayana Krishna](https://www.youtube.com/watch?v=dknLBRCBjME)
-- [Vibe For K For Kalyanam Join Your Hands| Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=FNMRqKe9qIk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
