@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Bayamariya Brammai &lpar;2024&rpar; Tamil HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.cz/index.php?/forums/topic/180616-bayamariya-brammai-2024-tamil-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=367588)
+- [Furiosa: A Mad Max Saga &lpar;2024&rpar; AMZN WEB DL - H264/H265 - [Tamil + Telugu + Hindi + Eng] - &lpar;DDP5.1 - 640Kbps&rpar; - ESub - [4K, 1080p &amp; 720p - 16.2GB - 12GB - 4.5GB - 2GB] [GDRIVE]](https://www.1tamilmv.cz/index.php?/forums/topic/144068-furiosa-a-mad-max-saga-2024-amzn-web-dl-h264h265-tamil-telugu-hindi-eng-ddp51-640kbps-esub-4k-1080p-720p-162gb-12gb-45gb-2gb-gdrive/&do=findComment&comment=367587)
 - [Mirzapur &lpar;2018 &amp; 20&rpar; [S01 &amp; S02] TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Telugu + Hindi] - &lpar;DD+5.1 - 192Kbps&rpar; - 6.3GB - 3GB &amp; 1GB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180683-mirzapur-2018-20-s01-s02-true-web-dl-1080p-720p-avc-tamil-telugu-hindi-dd51-192kbps-63gb-3gb-1gb-esub/&do=findComment&comment=367586)
 - [Furiosa: A Mad Max Saga &lpar;2024&rpar; AMZN WEB DL - H264/H265 - [Tamil + Telugu + Hindi + Eng] - &lpar;DDP5.1 - 640Kbps&rpar; - ESub - [4K, 1080p &amp; 720p - 16.2GB - 12GB - 4.5GB - 2GB] [GDRIVE]](https://www.1tamilmv.cz/index.php?/forums/topic/144068-furiosa-a-mad-max-saga-2024-amzn-web-dl-h264h265-tamil-telugu-hindi-eng-ddp51-640kbps-esub-4k-1080p-720p-162gb-12gb-45gb-2gb-gdrive/&do=findComment&comment=367585)
 - [[4KHDR10] Furiosa: A Mad Max Saga &lpar;2024&rpar; AMZN WEB-DL Multi DDP5.1 Esubs - 2160p [HDR10] | 1080p - 20.4 GB | 12,1 GB](https://www.1tamilmv.cz/index.php?/forums/topic/180679-4khdr10-furiosa-a-mad-max-saga-2024-amzn-web-dl-multi-ddp51-esubs-2160p-hdr10-1080p-204-gb-121-gb/&do=findComment&comment=367584)
-- [Furiosa - A Mad Max Saga &lpar;2024&rpar; 4K 2160p HDR10 DV WEBRip HEVC Multi Original Audios [ Telugu + Tamil + Hindi &lpar;Org AMZN DDP5.1~640Kbps&rpar; + English &lpar;DD5.1&rpar; ] - x265 - ESubs.mkv [7.3 GB]](https://www.1tamilmv.cz/index.php?/forums/topic/180681-furiosa-a-mad-max-saga-2024-4k-2160p-hdr10-dv-webrip-hevc-multi-original-audios-telugu-tamil-hindi-org-amzn-ddp51~640kbps-english-dd51-x265-esubsmkv-73-gb/&do=findComment&comment=367583)
-- [25 Tamil Movies - AMZN / SS / NF / JC WEB DL - H.264 / H265 - DD5.1 - [2160p &amp; 1080p &amp; 720p - 250GB] [GDRIVE]](https://www.1tamilmv.cz/index.php?/forums/topic/136621-25-tamil-movies-amzn-ss-nf-jc-web-dl-h264-h265-dd51-2160p-1080p-720p-250gb-gdrive/&do=findComment&comment=367582)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
