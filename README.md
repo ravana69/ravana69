@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Parayatharike | Award Winning Film Songs Reels #shortsvideo #shorts  #manoramamusic #ytshortsvideo](https://www.youtube.com/watch?v=wjgkcEfZkrs)
+- [Manjin Thooval Aviyal | Shorts  #manoramamusic #filmshorts](https://www.youtube.com/watch?v=YvLWQmOnWHs)
 - [Salemin Rajavu | Christian Video Song | Binny Mathew | Praise and Worship Songs |  Aji Puthoor](https://www.youtube.com/watch?v=byv81xsfStY)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 26th June 2024 # Novena to the Sacred Heart of Jesus 26th June 2024](https://www.youtube.com/watch?v=XK07l0mYgp4)
 - [Japamala  26th of June  2024 # Mathavinte Japamala # Mahimayude Rahasyangal 26th of June  2024](https://www.youtube.com/watch?v=3NkbVrnTk8A)
 - [എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala June 26th#rosarymalayalam](https://www.youtube.com/watch?v=-Ml4dI2MTvU)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=bmlEV7cdYZo)
-- [രാവിലെ പ്രാര്‍ത്ഥന June 26 # Athiravile Prarthana 26th of June 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=ZyYq-k_29mM)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
