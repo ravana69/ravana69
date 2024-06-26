@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thattikko | Kunddala Puranam | Blesson Thomas | Shorts  #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=66SterQSny4)
+- [Thattikko | Kunddala Puranam | Blesson Thomas | Shorts  #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=blw1B2NlY5M)
+- [Manchadi Mazha | Amal C Ajith | Rijosh VA #cover  #manoramamusic](https://www.youtube.com/watch?v=Z4HWycocM3I)
+- [Manchadi Mazha | Amal C Ajith | Rijosh VA #cover  #manoramamusic](https://www.youtube.com/watch?v=1uSmaxm_JiA)
 - [Kannil Kannil | Swargathile Katturumbu | Shorts  #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=mjhfkwkfipA)
-- [Kannil Kannil | Swargathile Katturumbu | Shorts  #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=Y5FTuAtr9Ug)
-- [Elam Vilayum | Swargathile Katturumbu |Shorts  #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=WiJXO9QZD4Y)
-- [Elam Vilayum | Swargathile Katturumbu |Shorts  #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=eq4lIaWNt7I)
-- [Kannil Kannil | Swargathile Katturumbu | Shorts  #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=Lf2jWv79JYM)
-- [Kannil Kannil Swargathile Katturumbu Reel 01](https://www.youtube.com/watch?v=3q9N9J-YGk4)
+- [Thattikko | Kunddala Puranam | Blesson Thomas | Shorts  #manoramamusic #shortsvideo](https://www.youtube.com/watch?v=j64hPxVx950)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
