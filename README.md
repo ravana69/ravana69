@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Recent Hollywood movies and Web series &lpar;Collection&rpar;](https://www.1tamilmv.cz/index.php?/forums/topic/180692-recent-hollywood-movies-and-web-series-collection/&do=findComment&comment=367602)
+- [Pathu.Thala.2023.1080p.HDTV-DL.[No-Ads].Hindi.AAC2.0.x264](https://www.1tamilmv.cz/index.php?/forums/topic/180691-pathuthala20231080phdtv-dlno-adshindiaac20x264/&do=findComment&comment=367601)
+- [Khakee 2017 Telugu Original Version 1080p AMZN WEB-DL ×264 [6.47 GB &amp; 9.9 GB] [&lpar;Telugu&rpar; DD+ 5.1 - 640kbps] Esub](https://www.1tamilmv.cz/index.php?/forums/topic/180690-khakee-2017-telugu-original-version-1080p-amzn-web-dl-%C3%97264-647-gb-99-gb-telugu-dd-51-640kbps-esub/&do=findComment&comment=367600)
 - [Contract Killers &lpar;2014&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180684-contract-killers-2014-hd-original-audios-1080p-720p-x264-tamil-hindi-eng-2gb-1gb-x264-tamil-hindi-400mb/&do=findComment&comment=367599)
 - [The Contractor &lpar;2007&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.8GB &amp; 1GB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180689-the-contractor-2007-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-18gb-1gb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=367598)
-- [The Contractor &lpar;2007&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.8GB &amp; 1GB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180689-the-contractor-2007-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-18gb-1gb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=367597)
-- [Alaipayuthey &lpar;2000&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - AAC2.0&lpar;128kbps&rpar; - 3.1GB - 1.8GB &amp; 1GB - x264 - 700MB &amp; 400MB [GDrive]](https://www.1tamilmv.cz/index.php?/forums/topic/180688-alaipayuthey-2000-tamil-true-web-dl-1080p-720p-avc-untouched-aac20128kbps-31gb-18gb-1gb-x264-700mb-400mb-gdrive/&do=findComment&comment=367596)
-- [Ghilli &lpar;2004&rpar; Tamil &lpar;MUSIC VIDEO ALBUM&rpar; 1080p Simply South WEB-HD UNTOUCHED - AVC - [Tamil DD+5.1 &lpar;192Kbps&rpar;] By-SaiKo](https://www.1tamilmv.cz/index.php?/forums/topic/180687-ghilli-2004-tamil-music-video-album-1080p-simply-south-web-hd-untouched-avc-tamil-dd51-192kbps-by-saiko/&do=findComment&comment=367595)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
