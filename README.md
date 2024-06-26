@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Vibe For K For Krishna Join Your Hands| Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=JW98eT0MAuY)
+- [Christian Superhit Songs | Wilson Piravom | Christian Devotional Songs Malayalam | Narayana Krishna](https://www.youtube.com/watch?v=dknLBRCBjME)
+- [Vibe For K For Kalyanam Join Your Hands| Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=FNMRqKe9qIk)
 - [PAVIZHAM |FALAH ALI | PAVITHRAN AMACHAL  | FR. MICHALE PANACHICKAL V C | @JinoKunnumpurathu  #reel 3](https://www.youtube.com/watch?v=FKMZtnoGesM)
 - [Kandal Nalloru Video Song | Malayalam Song | Kadamattathachan | Old Malayalam Songs](https://www.youtube.com/watch?v=W9nANmM127c)
 - [Pranayakala Vallabha | Thenaruvi (1973) | G Devarajan | Vayalar Ramavarma | P Susheela](https://www.youtube.com/watch?v=JLURZckV6zQ)
-- [ദൈവം അറിയാത്ത ഒരു പ്രശ്നവും ഇല്ല ....😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=Td1ncPMzwNk)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 26th of June 2024](https://www.youtube.com/watch?v=AqTLoR02UeE)
-- [Kalyana Praayathil|Bada Dosth|Suresh Gopi|Meghna Naidu|](https://www.youtube.com/watch?v=tFJV2VboSWo)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
