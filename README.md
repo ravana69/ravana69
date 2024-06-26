@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Guruvayoorambala Nadayil &lpar;2024&rpar; TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Telugu + Hindi + Kannada] - 14GB - 2.9GB &amp; 1.5GB] - [x264 - 850MB &amp; 500MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180695-guruvayoorambala-nadayil-2024-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-telugu-hindi-kannada-14gb-29gb-15gb-x264-850mb-500mb-esub/&do=findComment&comment=367605)
+- [Guruvayoorambala Nadayil &lpar;2024&rpar; Malayalam TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 14GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180694-guruvayoorambala-nadayil-2024-malayalam-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-14gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=367604)
+- [Guruvayoorambala Nadayil &lpar;2024&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 14GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180693-guruvayoorambala-nadayil-2024-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-14gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=367603)
 - [Recent Hollywood movies and Web series &lpar;Collection&rpar;](https://www.1tamilmv.cz/index.php?/forums/topic/180692-recent-hollywood-movies-and-web-series-collection/&do=findComment&comment=367602)
 - [Pathu.Thala.2023.1080p.HDTV-DL.[No-Ads].Hindi.AAC2.0.x264](https://www.1tamilmv.cz/index.php?/forums/topic/180691-pathuthala20231080phdtv-dlno-adshindiaac20x264/&do=findComment&comment=367601)
-- [Khakee 2017 Telugu Original Version 1080p AMZN WEB-DL ×264 [6.47 GB &amp; 9.9 GB] [&lpar;Telugu&rpar; DD+ 5.1 - 640kbps] Esub](https://www.1tamilmv.cz/index.php?/forums/topic/180690-khakee-2017-telugu-original-version-1080p-amzn-web-dl-%C3%97264-647-gb-99-gb-telugu-dd-51-640kbps-esub/&do=findComment&comment=367600)
-- [Contract Killers &lpar;2014&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180684-contract-killers-2014-hd-original-audios-1080p-720p-x264-tamil-hindi-eng-2gb-1gb-x264-tamil-hindi-400mb/&do=findComment&comment=367599)
-- [The Contractor &lpar;2007&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Hindi + Eng&rpar; - 1.8GB &amp; 1GB | x264 - &lpar;Tamil + Hindi&rpar; - 400MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180689-the-contractor-2007-bluray-original-audios-1080p-720p-x264-tamil-hindi-eng-18gb-1gb-x264-tamil-hindi-400mb-esub/&do=findComment&comment=367598)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
