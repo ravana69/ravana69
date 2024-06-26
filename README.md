@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Krushithante Hrudhayam Pole Day 26](https://www.youtube.com/watch?v=wHw-PvnzpYQ)
+- [Evergreen Malayalam Evergreen Hits |കേൾക്കാൻ കൊതിക്കുന്ന പ്രണയഗാനങ്ങൾ|K S Chithra|Evergreen Melodies](https://www.youtube.com/watch?v=8jrF1_w0a6o)
+- [Daivakripa Vol-1 | Nonstop Malayalam Devotional Songs | Popular Malayalam Christian Songs](https://www.youtube.com/watch?v=jrUF7flcrOM)
+- [Pacha Theeyanu Nee | Bahubali 1#prabhas #ssrajamouli #shortsfeed #shortsvideo #shorts #mmkeeravani](https://www.youtube.com/watch?v=risnOUJ1RY4)
 - [Jukebox | Nonstop Movie Songs | SuperHit Malayalam Film Songs | Mr.Brahmachari |Pattanathil Bhootham](https://www.youtube.com/watch?v=Q9w19HDRTkw)
 - [Parayatharike | Award Winning Film Songs Reels #shortsvideo #shorts  #manoramamusic #ytshortsvideo](https://www.youtube.com/watch?v=wjgkcEfZkrs)
-- [Manjin Thooval Aviyal | Shorts  #manoramamusic #filmshorts](https://www.youtube.com/watch?v=YvLWQmOnWHs)
-- [Salemin Rajavu | Christian Video Song | Binny Mathew | Praise and Worship Songs |  Aji Puthoor](https://www.youtube.com/watch?v=byv81xsfStY)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 26th June 2024 # Novena to the Sacred Heart of Jesus 26th June 2024](https://www.youtube.com/watch?v=XK07l0mYgp4)
-- [Japamala  26th of June  2024 # Mathavinte Japamala # Mahimayude Rahasyangal 26th of June  2024](https://www.youtube.com/watch?v=3NkbVrnTk8A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
