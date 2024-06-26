@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Badri &lpar;2001&rpar; Tamil HD DVD - 720p - AVC - UNTOUCHED - &lpar;DDP.5.1&rpar; - 1.5GB - UE](https://www.1tamilmv.cz/index.php?/forums/topic/180682-badri-2001-tamil-hd-dvd-720p-avc-untouched-ddp51-15gb-ue/&do=findComment&comment=367579)
+- [Furiosa - A Mad Max Saga &lpar;2024&rpar; 4K 2160p HDR10 DV WEBRip HEVC Multi Original Audios [ Telugu + Tamil + Hindi &lpar;Org AMZN DDP5.1~640Kbps&rpar; + English &lpar;DD5.1&rpar; ] - x265 - ESubs.mkv [7.3 GB]](https://www.1tamilmv.cz/index.php?/forums/topic/180681-furiosa-a-mad-max-saga-2024-4k-2160p-hdr10-dv-webrip-hevc-multi-original-audios-telugu-tamil-hindi-org-amzn-ddp51~640kbps-english-dd51-x265-esubsmkv-73-gb/&do=findComment&comment=367578)
+- [Potugadu &lpar;2013&rpar; Telugu &lpar;MUSIC VIDEO ALBUM&rpar; 1080p True-HD UNTOUCHED - AVC - [Telugu DD 5.1 &lpar;448Kbps&rpar;] E-Sub By-SaiKo](https://www.1tamilmv.cz/index.php?/forums/topic/180680-potugadu-2013-telugu-music-video-album-1080p-true-hd-untouched-avc-telugu-dd-51-448kbps-e-sub-by-saiko/&do=findComment&comment=367577)
 - [[4KHDR10] Furiosa: A Mad Max Saga &lpar;2024&rpar; AMZN WEB-DL Multi DDP5.1 Esubs - 2160p [HDR10] | 1080p - 20.4 GB | 12,1 GB](https://www.1tamilmv.cz/index.php?/forums/topic/180679-4khdr10-furiosa-a-mad-max-saga-2024-amzn-web-dl-multi-ddp51-esubs-2160p-hdr10-1080p-204-gb-121-gb/&do=findComment&comment=367576)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [25-6-2024]](https://www.1tamilmv.cz/index.php?/forums/topic/180678-movies-collection-all-languages-4k-1080p-720p-576p-480p-25-6-2024/&do=findComment&comment=367575)
-- [Guru &lpar;2007&rpar; Tamil TRUE WEB-DL - 1080p HQ - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 7GB - GDFlix](https://www.1tamilmv.cz/index.php?/forums/topic/179943-guru-2007-tamil-true-web-dl-1080p-hq-avc-untouched-aac20-7gb-gdflix/&do=findComment&comment=367574)
-- [Maas &lpar;2015&rpar; - Don Don Donuuu 1080p DD5.1&lpar;448kbps&rpar; Video Song](https://www.1tamilmv.cz/index.php?/forums/topic/179395-maas-2015-don-don-donuuu-1080p-dd51448kbps-video-song/&do=findComment&comment=367573)
-- [Arya &lpar;2004&rpar; 1080p KAD DVD9 Ai Upscaled Rip - x264 [ 12GB + 6GB ] - &lpar;DD 5.1 - 448kbps &amp; DTS 5.1 1 510kbps&rpar; - Shyam](https://www.1tamilmv.cz/index.php?/forums/topic/178914-arya-2004-1080p-kad-dvd9-ai-upscaled-rip-x264-12gb-6gb-dd-51-448kbps-dts-51-1-510kbps-shyam/&do=findComment&comment=367572)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
