@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Christian Superhit Songs | MG Sreekumar | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=u2PNRg1E5G8)
+- [Dance to The Beats Of #Vatteppam with #anarkalimarikar #Mandakini | Dabzee #shorts #ytshorts](https://www.youtube.com/watch?v=kTs4OSSyR8o)
+- [ഇരുമെയ്യും ഒരുമനസോടെ കേൾക്കാനാഗ്രഹിക്കുന്ന റൊമാന്റിക് ഗാനങ്ങൾ  | EVERGREEN ROMANTIC SONGS MALAYALAM](https://www.youtube.com/watch?v=CozEvnOmxyY)
 - [മലയാളത്തിലെ പ്രശസ്‌തമായ മെലഡിഗാനങ്ങളിൽ നിന്ന് ആസ്വാദകർക്കായി തെരെഞ്ഞെടുത്ത മനോഹര ഗാനങ്ങൾ](https://www.youtube.com/watch?v=YyVdwHKHemA)
 - [Kumbhappuzha | Partners #jassiegift #dhyansreenivasan #bkharinarayanan #shortsfeed #shortsvideo](https://www.youtube.com/watch?v=lXFynCDrW7w)
 - [കുട്ടി ഗായികയുടെ കുട്ടിവിശേഷങ്ങൾ 🥰 🧡 | @MeghnaSumesh @JinoKunnumpurathu](https://www.youtube.com/watch?v=mFvgKdL5NsY)
-- [Kukku Kukku Kuyile | Nakshathragal Parayathirunnathu | MG Sreekumar | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=7-Y25JrJS2M)
-- [ഇന്നോളം ഞാൻ ചോദിച്ചതെന്നും കർത്താവെ നീ തള്ളിയില്ല ;](https://www.youtube.com/watch?v=lTTWk9J7W7o)
-- [നിന്റെ മുറിവുകൾ വേഗം സൗഖ്യപ്പെടും  ....😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=4U_yIFCpt8k)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
