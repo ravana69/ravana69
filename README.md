@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=N3KvVD-j1hk)
-- [മലയാളികളെല്ലാവരും മനഃപാഠമാക്കിയ മലയാളസിനിമയിലെ മഹത്തായ ഗാനങ്ങൾ | EVERGREEN HITS MALAYALAM](https://www.youtube.com/watch?v=GoVjpRTDRZo)
-- [Oru Nizhalayi | Melvin Michael | Vineeth Sreenivasan | Akshay Ashok |  Raavanan | Dr. Rohit Rajeeve](https://www.youtube.com/watch?v=bjwOPNgBiw4)
-- [Pularumbo Thotte Lyrical Video | KundalaPuranam | Abhaya Hiranmayi | Blesson Thomas |Film Songs 2024](https://www.youtube.com/watch?v=CSWzW_F2KpY)
-- [Omal Kanmani  | Cover Song | Naran |  Amrutha Sudheesh | Prem C Prathap | Band KAAVA](https://www.youtube.com/watch?v=y-92j0MC0Aw)
-- [Can't You See Porattu Drama - Audio | Jo & Jo | Nikhila Vimal, Mathew, Naslen | Govind Vasantha |ADJ](https://www.youtube.com/watch?v=2wKuNHTHEHY)
+- [നിന്റെ മുറിവുകൾ വേഗം സൗഖ്യപ്പെടും  ....😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=4U_yIFCpt8k)
+- [Hare Krishna Listen To Our K- For Krishna | Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=823d3kNC0bo)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 27th of June 2024](https://www.youtube.com/watch?v=23RIpmcuAW8)
+- [Akkare Ninnoru Kottaram Video Song | Swagatham | MG Sreekumar | Minmini](https://www.youtube.com/watch?v=cKaaLzOc6rw)
+- [Ponnin Vala Kilukki | Njangal Santhushtaranu | Super Hit Malayalam Movie Song | Jayaram | Abhirami](https://www.youtube.com/watch?v=DHZe4IEBhKs)
+- [Anivaira Kallumaala | Kudamattam | KJ Yesudas | KS Chithra | Johnson | Kaithapram](https://www.youtube.com/watch?v=OFvFvbj3SMc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
