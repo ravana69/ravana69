@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളത്തിലെ പ്രശസ്‌തമായ മെലഡിഗാനങ്ങളിൽ നിന്ന് ആസ്വാദകർക്കായി തെരെഞ്ഞെടുത്ത മനോഹര ഗാനങ്ങൾ](https://www.youtube.com/watch?v=YyVdwHKHemA)
+- [Kumbhappuzha | Partners #jassiegift #dhyansreenivasan #bkharinarayanan #shortsfeed #shortsvideo](https://www.youtube.com/watch?v=lXFynCDrW7w)
+- [കുട്ടി ഗായികയുടെ കുട്ടിവിശേഷങ്ങൾ 🥰 🧡 | @MeghnaSumesh @JinoKunnumpurathu](https://www.youtube.com/watch?v=mFvgKdL5NsY)
+- [Kukku Kukku Kuyile | Nakshathragal Parayathirunnathu | MG Sreekumar | Mohan Sithara | Kaithapram](https://www.youtube.com/watch?v=7-Y25JrJS2M)
+- [ഇന്നോളം ഞാൻ ചോദിച്ചതെന്നും കർത്താവെ നീ തള്ളിയില്ല ;](https://www.youtube.com/watch?v=lTTWk9J7W7o)
 - [നിന്റെ മുറിവുകൾ വേഗം സൗഖ്യപ്പെടും  ....😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=4U_yIFCpt8k)
-- [Hare Krishna Listen To Our K- For Krishna | Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=823d3kNC0bo)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 27th of June 2024](https://www.youtube.com/watch?v=23RIpmcuAW8)
-- [Akkare Ninnoru Kottaram Video Song | Swagatham | MG Sreekumar | Minmini](https://www.youtube.com/watch?v=cKaaLzOc6rw)
-- [Ponnin Vala Kilukki | Njangal Santhushtaranu | Super Hit Malayalam Movie Song | Jayaram | Abhirami](https://www.youtube.com/watch?v=DHZe4IEBhKs)
-- [Anivaira Kallumaala | Kudamattam | KJ Yesudas | KS Chithra | Johnson | Kaithapram](https://www.youtube.com/watch?v=OFvFvbj3SMc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
