@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kaavalan &lpar;2011&rpar; [Tamil - 1080p SS WEBRip - x264 - [DD5.1 ] - 3.4GB - ESub]](https://www.1tamilmv.cz/index.php?/forums/topic/180706-kaavalan-2011-tamil-1080p-ss-webrip-x264-dd51-34gb-esub/&do=findComment&comment=367621)
 - [Cars &lpar;2006&rpar; 1080p [DPHS Tamil &lpar;AAC 2.0 -128Kbps&rpar; + English] 2GB .mkv](https://www.1tamilmv.cz/index.php?/forums/topic/180701-cars-2006-1080p-dphs-tamil-aac-20-128kbps-english-2gb-mkv/&do=findComment&comment=367616)
+- [Kalki 2898 AD &lpar;2024&rpar; Telugu HQ PreDVD - [1080p &amp; 720p - x264 - 2.6GB - 1.4GB &amp; 900MB | x264 - 700MB - 400MB &amp; 250MB] - HQ Clean Audio](https://www.1tamilmv.cz/index.php?/forums/topic/180699-kalki-2898-ad-2024-telugu-hq-predvd-1080p-720p-x264-26gb-14gb-900mb-x264-700mb-400mb-250mb-hq-clean-audio/&do=findComment&comment=367614)
 - [Detective Dee: Ninth Floor Demon Tower &lpar;2022&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Chi&rpar; - 1GB &amp; 600MB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 350MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180698-detective-dee-ninth-floor-demon-tower-2022-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-chi-1gb-600mb-x264-tamil-telugu-hindi-350mb-esub/&do=findComment&comment=367613)
 - [Guruvayoor Ambalanadayil &lpar;2024&rpar; DSNP WEB-DL Multi DDP5.1 Atmos Esubs - 2160p | 1080p - 13.2 GB | 4.5 GB](https://www.1tamilmv.cz/index.php?/forums/topic/180697-guruvayoor-ambalanadayil-2024-dsnp-web-dl-multi-ddp51-atmos-esubs-2160p-1080p-132-gb-45-gb/&do=findComment&comment=367612)
-- [Guruvayoorambala Nadayil &lpar;2024&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 14GB - 2.9GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180693-guruvayoorambala-nadayil-2024-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-14gb-29gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=367611)
-- [Guruvayoorambala Nadayil &lpar;2024&rpar; TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; [Telugu + Hindi + Kannada] - 14GB - 2.9GB &amp; 1.5GB] - [x264 - 850MB &amp; 500MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180695-guruvayoorambala-nadayil-2024-true-web-dl-4k-1080p-720p-avc-hevc-dd51-192kbps-telugu-hindi-kannada-14gb-29gb-15gb-x264-850mb-500mb-esub/&do=findComment&comment=367610)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
