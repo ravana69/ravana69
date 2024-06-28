@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Get Into The Beats Of Vatteppam | Mandakini | Dabzee | Altaf Salim | Bibin Ashok | #shorts #ytshorts](https://www.youtube.com/watch?v=oSqGy1JYSnk)
+- [Sing For Vatteppam And Vibe With Your Playlist| Mandakini | Dabzee | Altaf Salim | #shorts #ytshorts](https://www.youtube.com/watch?v=W77PAyEMVRA)
 - [28 June 2024](https://www.youtube.com/watch?v=N_AvvSM38A0)
 - [Harimuraleeravam | Aaraam Thamburaan | Raveendran | K J Yesudas | Gireesh Puthenchery #songoftheday](https://www.youtube.com/watch?v=oJBrBk7fl0o)
 - [Kakkala Kannamma | Mohanlal | Sivaji Ganesan | Ilayaraja | MG Sreekumar | SP Balasubrahmanyam](https://www.youtube.com/watch?v=Y5Fb0EViZaQ)
 - [GOLDEN MEMORIES | P.Jayachandhran | @JinoKunnumpurathu  #shorts #vsachudanandhan #goldenmemories](https://www.youtube.com/watch?v=R7HfUmNIUZE)
-- [Songs Of The Week | Manoj Christy | Christian Melody Songs | Cicily | Christian Songs Malayalam](https://www.youtube.com/watch?v=QXT23FpRr1k)
-- [Kattupenninte | Kaattuchembakam (2002) | Mohan Sithara | MG Sreekumar | Jayasurya | Charmy Kaur](https://www.youtube.com/watch?v=NvB-SbrtM4c)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
