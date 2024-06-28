@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Jayabharathi Malayalam Romantic Old Superhit Movie l Nrithasaala Movie | Prem Nazir](https://www.youtube.com/watch?v=SdtvRkUIVDA)
+- [അയ്യപ്പ ഭക്തിഗാനങ്ങൾ | Ayyappa Devotional Songs Vol.06 | K J Yesudas | Gangai Amaran | Sound of Arts](https://www.youtube.com/watch?v=DaFjKdO7_zs)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 28th June 2024 # Novena to the Sacred Heart of Jesus 28th June 2024](https://www.youtube.com/watch?v=_sGzlOPNbKo)
 - [അതിമനോഹരമായ പഴയകാല ഗാനങ്ങൾ old christian songs malayalam with lyrics ! daily worship songs malayalam](https://www.youtube.com/watch?v=W13gwp77UW4)
 - [Daivam Ninne Sbehikkunnu |Babyjohn Kalayanthani |Joji Johns | Manoj Christy | Christian Melody Songs](https://www.youtube.com/watch?v=SPvb9WWpHUw)
 - [Japamala 28th of June 2024 # Mathavinte Japamala # Dhukhathinte Rahasyangal 28th of June  2024](https://www.youtube.com/watch?v=8rwkR6REzic)
-- [എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala june 28th#rosarymalayalam](https://www.youtube.com/watch?v=5fL0sTyNkVc)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=CtI9eo6y9Hw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
