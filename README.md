@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [GOLDEN MEMORIES | P.Jayachandhran | @JinoKunnumpurathu  #shorts #vsachudanandhan #goldenmemories](https://www.youtube.com/watch?v=R7HfUmNIUZE)
+- [Songs Of The Week | Manoj Christy | Christian Melody Songs | Cicily | Christian Songs Malayalam](https://www.youtube.com/watch?v=QXT23FpRr1k)
+- [Kattupenninte | Kaattuchembakam (2002) | Mohan Sithara | MG Sreekumar | Jayasurya | Charmy Kaur](https://www.youtube.com/watch?v=NvB-SbrtM4c)
 - [Maarunna Kaalam - Video Song | Nadanna Sambavam | Kapil Kapilan, Anumita Nadesan | Ankit Menon](https://www.youtube.com/watch?v=_ljHVL_N-6s)
 - [Aayiram poo vidarnnu Video Song | Kadamattathachan | Vani Jairam | Malayalam Songs](https://www.youtube.com/watch?v=cM_yr_gM9Xw)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 28th of June 2024](https://www.youtube.com/watch?v=e6dkkbgGvVY)
-- [നീ പോകുന്നിടത്തെല്ലാം ഞാൻ നിന്നെ കാത്തുരക്ഷിക്കും ..😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=0lZnFXqoTPw)
-- [കൊട്ടും ഞാന്‍ കേട്ടില്ല | Thacholi Othenan | MS Baburaj #shorts](https://www.youtube.com/watch?v=qUW6uq3ylZs)
-- [Karkkidaka | Shorts Video | Sathyathil Sambhavichathu #filmsongs #ytshorts](https://www.youtube.com/watch?v=xKWy97p7d5A)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
