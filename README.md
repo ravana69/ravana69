@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Karineela Kannilenthedi | Lyrical + Karaoke Video | Chakkaramuthu | Vineeth Sreenivasan | Sujatha](https://www.youtube.com/watch?v=zUEud_8qvyA)
 - [Bhroohi krishna | Ingane Oru Nilapakshi | Kunchacko Boban | Sneha | K S Chithra | Andhara Choudhary](https://www.youtube.com/watch?v=ye_4b1S2v7I)
 - [Aarari Rariraaro | Kangaroo | Malayalam Lullaby Film Songs #kjyesudas #shortsfeed #shortsvideo #reel](https://www.youtube.com/watch?v=0uaJ-889Hqw)
 - [Jayabharathi Malayalam Romantic Old Superhit Movie l Nrithasaala Movie | Prem Nazir](https://www.youtube.com/watch?v=SdtvRkUIVDA)
 - [അയ്യപ്പ ഭക്തിഗാനങ്ങൾ | Ayyappa Devotional Songs Vol.06 | K J Yesudas | Gangai Amaran | Sound of Arts](https://www.youtube.com/watch?v=DaFjKdO7_zs)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 28th June 2024 # Novena to the Sacred Heart of Jesus 28th June 2024](https://www.youtube.com/watch?v=_sGzlOPNbKo)
-- [അതിമനോഹരമായ പഴയകാല ഗാനങ്ങൾ old christian songs malayalam with lyrics ! daily worship songs malayalam](https://www.youtube.com/watch?v=W13gwp77UW4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
