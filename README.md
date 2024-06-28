@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 28th June 2024 # Novena to the Sacred Heart of Jesus 28th June 2024](https://www.youtube.com/watch?v=_sGzlOPNbKo)
+- [അതിമനോഹരമായ പഴയകാല ഗാനങ്ങൾ old christian songs malayalam with lyrics ! daily worship songs malayalam](https://www.youtube.com/watch?v=W13gwp77UW4)
+- [Daivam Ninne Sbehikkunnu |Babyjohn Kalayanthani |Joji Johns | Manoj Christy | Christian Melody Songs](https://www.youtube.com/watch?v=SPvb9WWpHUw)
+- [Japamala 28th of June 2024 # Mathavinte Japamala # Dhukhathinte Rahasyangal 28th of June  2024](https://www.youtube.com/watch?v=8rwkR6REzic)
+- [എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala june 28th#rosarymalayalam](https://www.youtube.com/watch?v=5fL0sTyNkVc)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=CtI9eo6y9Hw)
-- [പ്രഭാത പ്രാര്‍ത്ഥന June 28 # Athiravile Prarthana 28th of June 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=CPJCgFywCKo)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 28th June 2024](https://www.youtube.com/watch?v=tHpj2CIFwPg)
-- [Thozhukai Koopi Unarum | Boeing Boeing | Raghu Kumar | K J Yesudas | Mohanlal #SongOfTheDay](https://www.youtube.com/watch?v=f_PUOks2vXo)
-- [Ponnambili Ponnambili | Malsaram | S Ramesan Nair | M Jayachandran | KJ Yesudas](https://www.youtube.com/watch?v=Ad9RO1OMVOQ)
-- [Christian Superhit Songs | MG Sreekumar | Christian Devotional Songs Malayalam | Joji Johns](https://www.youtube.com/watch?v=u2PNRg1E5G8)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
