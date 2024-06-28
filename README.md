@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Summer in Red &lpar;2023&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;AAC 2.0 - 256Kbps&rpar; &lpar;Tamil + Telugu + Hindi + Spa&rpar; - 2GB &amp; 1GB | x264 - &lpar;Tam + Tel + Hin&rpar; - 400MB] - HC-ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180733-summer-in-red-2023-hd-original-audios-1080p-720p-x264-aac-20-256kbps-tamil-telugu-hindi-spa-2gb-1gb-x264-tam-tel-hin-400mb-hc-esub/&do=findComment&comment=367724)
 - [Indian 2 - Audio Songs - Anirudh - DD5.1 + DTSHD5.1 + PCM5.1 &lpar;Lossless 24Bit FLAC Upmixed&rpar; with Chapters](https://www.1tamilmv.cz/index.php?/forums/topic/180757-indian-2-audio-songs-anirudh-dd51-dtshd51-pcm51-lossless-24bit-flac-upmixed-with-chapters/&do=findComment&comment=367723)
 - [Higuita &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.2GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180756-higuita-2023-malayalam-true-web-dl-1080p-720p-avc-aac-20-22gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=367722)
 - [35 Tamil Movies - 720p - BluRay/HDRip - x264 - AVC - DD5.1/AAC - ESub - 50GB](https://www.1tamilmv.cz/index.php?/forums/topic/125110-35-tamil-movies-720p-blurayhdrip-x264-avc-dd51aac-esub-50gb/&do=findComment&comment=367721)
 - [30 Tamil Movies - 720p - BluRay/HDRip - x264 - AVC - DD5.1/AAC - ESub - 45GB](https://www.1tamilmv.cz/index.php?/forums/topic/136619-30-tamil-movies-720p-blurayhdrip-x264-avc-dd51aac-esub-45gb/&do=findComment&comment=367720)
-- [Bad Boys Trilogy &lpar;1995-2020&rpar; BluRay - 1080p - x264 - Original Audios - [Tamil + Telugu + Hindi + Eng] - &lpar;DD+5.1 - 640Kbps &amp; AAC&rpar; - ESub - 10GB](https://www.1tamilmv.cz/index.php?/forums/topic/165957-bad-boys-trilogy-1995-2020-bluray-1080p-x264-original-audios-tamil-telugu-hindi-eng-dd51-640kbps-aac-esub-10gb/&do=findComment&comment=367719)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
