@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Kaththi &lpar;2014&rpar; Tamil [1080p GPlay - WEBDL - 10bit HEVC - x265 - [Tamil + Hindi] - DDP5.1 - 3.4GB Esub](https://www.1tamilmv.cz/index.php?/forums/topic/180742-kaththi-2014-tamil-1080p-gplay-webdl-10bit-hevc-x265-tamil-hindi-ddp51-34gb-esub/&do=findComment&comment=367694)
 - [Inga Naan Thaan Kingu &lpar;2024&rpar; Tamil TRUE WEB-DL - [4K, 1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 640Kbps&rpar;](https://www.1tamilmv.cz/index.php?/forums/topic/180741-inga-naan-thaan-kingu-2024-tamil-true-web-dl-4k-1080p-720p-avc-hevc-dd51-640kbps/&do=findComment&comment=367693)
 - [Replicas.2018.[ENGLISH | HINDI | TAMIL | TELUGU] 1080p,720p .AMZN.WEB-DL.MULTI.DDP2.0](https://www.1tamilmv.cz/index.php?/forums/topic/180740-replicas2018english-hindi-tamil-telugu-1080p720p-amznweb-dlmultiddp20/&do=findComment&comment=367692)
 - [Civil War &lpar;2024&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar;](https://www.1tamilmv.cz/index.php?/forums/topic/180739-civil-war-2024-hd-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-eng/&do=findComment&comment=367691)
 - [[4K] Inga Naan Thaan Kingu &lpar;2024&rpar; AMZN WEB-DL DDP5.1 Esubs - 2160p | 1080p - 14.2 GB | 8.1 GB](https://www.1tamilmv.cz/index.php?/forums/topic/180738-4k-inga-naan-thaan-kingu-2024-amzn-web-dl-ddp51-esubs-2160p-1080p-142-gb-81-gb/&do=findComment&comment=367689)
-- [[4KHDR10] The Boys S04E05 AMZN WEB-DL Multi DDP5.1 Esubs - 2160p [HDR10] | 1080p - 8.1 GB | 5.5 GB](https://www.1tamilmv.cz/index.php?/forums/topic/180737-4khdr10-the-boys-s04e05-amzn-web-dl-multi-ddp51-esubs-2160p-hdr10-1080p-81-gb-55-gb/&do=findComment&comment=367688)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
