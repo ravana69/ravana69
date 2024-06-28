@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Krushithante Hrudhayam Pole Day 28](https://www.youtube.com/watch?v=XZddKxNDZbI)
-- [Johny Mone Johny  | Animation Version Film Songs #shortsfeed #shortsvideo #reels  #animation](https://www.youtube.com/watch?v=ztGdBpEhPDc)
-- [ദേവികുളം മലയില്‍ തേനരുവിക്കരയില്‍ | Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=nAYXAGdsDsw)
-- [Aaraanu Athu - Audio Song | Jo & Jo | Nikhila Vimal, Mathew, Neslen | Govind Vasantha | Arun D Jose](https://www.youtube.com/watch?v=4rvqXCiCWkA)
-- [എന്നും മനസ്സിൽ തങ്ങിനിൽക്കുന്ന സിനിമാ ഗാനങ്ങൾ | Malayalam Film Songs | Satyam Audios](https://www.youtube.com/watch?v=Uzh6myXlnrA)
-- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=Dkyhd0BVTV8)
+- [Aayiram poo vidarnnu Video Song | Kadamattathachan | Vani Jairam | Malayalam Songs](https://www.youtube.com/watch?v=cM_yr_gM9Xw)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 28th of June 2024](https://www.youtube.com/watch?v=e6dkkbgGvVY)
+- [നീ പോകുന്നിടത്തെല്ലാം ഞാൻ നിന്നെ കാത്തുരക്ഷിക്കും ..😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=0lZnFXqoTPw)
+- [കൊട്ടും ഞാന്‍ കേട്ടില്ല | Thacholi Othenan | MS Baburaj #shorts](https://www.youtube.com/watch?v=qUW6uq3ylZs)
+- [Karkkidaka | Shorts Video | Sathyathil Sambhavichathu #filmsongs #ytshorts](https://www.youtube.com/watch?v=xKWy97p7d5A)
+- [DNA - Official Teaser 1 | TS Suresh Babu | Ashkar Saudan | Rai Lakshmi](https://www.youtube.com/watch?v=Z3frG4j373w)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
