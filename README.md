@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [പ്രഭാത പ്രാര്‍ത്ഥന June 30 # Athiravile Prarthana 30th of June 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=goJOMzHChgQ)
+- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=OevmplTHyTo)
+- [പരിഹസിച്ചു തർക്കാൻ വരുമ്പോൾ സ്നേഹം നൽകി നേരിടാൻ..](https://www.youtube.com/watch?v=peNxZR4RdMo)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 30th June 2024](https://www.youtube.com/watch?v=d0sFKyaOyxM)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=jNC_LOVhyc4)
 - [Aravindha Nayana | Fahad Fazil | Sujatha Mohan | Ouseppachan | S Ramesan Nair](https://www.youtube.com/watch?v=zg6rjdtDzfo)
-- [Allikalil | Praja | MG Radhakrishnan | MG Sreekumar | Gireesh Puthenchery #SongOfTheDay](https://www.youtube.com/watch?v=aCgi_6uMZQ8)
-- [Onnam Vattam Kandappam|Chandralekha|Mohanlal|Pooja Badra|](https://www.youtube.com/watch?v=3VAM73FjO4M)
-- [എല്ലാവര്ക്കും ഒരുപോലെ ഇഷ്ടമുള്ള മലയാളസിനിമയിലെ നല്ല ഗാനങ്ങൾ | FAVOURITE SONGS MALAYALAM](https://www.youtube.com/watch?v=oLRRs6bcSRA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
