@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Onnam Vattam Kandappam|Chandralekha|Mohanlal|Pooja Badra|](https://www.youtube.com/watch?v=3VAM73FjO4M)
+- [എല്ലാവര്ക്കും ഒരുപോലെ ഇഷ്ടമുള്ള മലയാളസിനിമയിലെ നല്ല ഗാനങ്ങൾ | FAVOURITE SONGS MALAYALAM](https://www.youtube.com/watch?v=oLRRs6bcSRA)
+- [ദൈവത്തിൻ സ്നേഹം നിരന്തരം അനുഭവിക്കാൻ ശക്തിയേകും ഗാനങ്ങൾ | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=NLZMCJ9tjhI)
 - [ദൈവം നിനക്കായി വാതിൽ തുറക്കും ...😇 | Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=w_DZo0PqUGs)
 - [പഴയ ചലച്ചിത്രഗാനങ്ങൾ | Old Malayalam Film Songs | Old Malayalam Songs |](https://www.youtube.com/watch?v=y-eJZehS8b4)
 - [Is This Songs Plays In Your Playlist Everyday Mandakini | Dabzee | Altaf Salim | #shorts #ytshorts](https://www.youtube.com/watch?v=mbpQHtkR71E)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 29th of June 2024](https://www.youtube.com/watch?v=7kIMd8ScCNU)
-- [Theerchayillaa Janam Video Song | Ustaad | Mohanlal | Innocent | Sidhique](https://www.youtube.com/watch?v=csupmDMt-a0)
-- [Chittaram Kattil | Thazhvaram | Mohanlal | KJ Yesudas | Kaithapram | Bharathan](https://www.youtube.com/watch?v=PAmKK7Wq9IE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
