@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Padikkadha Pakkangal &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - 2.4GB - 1.2GB &amp; 800MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180725-padikkadha-pakkangal-2024-tamil-true-web-dl-1080p-720p-avc-hevc-24gb-12gb-800mb-x264-700mb-400mb-250mb/&do=findComment&comment=367738)
+- [Higuita &lpar;2023&rpar; Malayalam TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.2GB &amp; 1.3GB] - [x264 - 700MB &amp; 400MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180756-higuita-2023-malayalam-true-web-dl-1080p-720p-avc-aac-20-22gb-13gb-x264-700mb-400mb-esub/&do=findComment&comment=367737)
 - [Mozhi &lpar;2007&rpar; Tamil PROPER DVDRip - Xvid - AC3 - &lpar;DD5.1&rpar; - 1.7GB - GDFlix](https://www.1tamilmv.cz/index.php?/forums/topic/180763-mozhi-2007-tamil-proper-dvdrip-xvid-ac3-dd51-17gb-gdflix/&do=findComment&comment=367736)
 - [Thanga Padhakkam &lpar;1974&rpar; Tamil TRUE WEB-DL - 576p - AVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 3.3GB - ESub - UE](https://www.1tamilmv.cz/index.php?/forums/topic/180762-thanga-padhakkam-1974-tamil-true-web-dl-576p-avc-untouched-ddp20-33gb-esub-ue/&do=findComment&comment=367735)
 - [Inga Naan Thaan Kingu &lpar;2024&rpar; Tamil &lpar;MUSIC VIDEO ALBUM&rpar; 4K-CBR True-HD UNTOUCHED - HEVC - [DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-SaiKo](https://www.1tamilmv.cz/index.php?/forums/topic/180761-inga-naan-thaan-kingu-2024-tamil-music-video-album-4k-cbr-true-hd-untouched-hevc-dd51-640kbps-e-sub-by-saiko/&do=findComment&comment=367734)
-- [Inga Naan Thaan Kingu &lpar;2024&rpar; Tamil &lpar;MUSIC VIDEO ALBUM&rpar; 1080p True-HD UNTOUCHED - AVC - [DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-SaiKo](https://www.1tamilmv.cz/index.php?/forums/topic/180760-inga-naan-thaan-kingu-2024-tamil-music-video-album-1080p-true-hd-untouched-avc-dd51-640kbps-e-sub-by-saiko/&do=findComment&comment=367733)
-- [Pagalariyaan &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180721-pagalariyaan-2024-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=367732)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
