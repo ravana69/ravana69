@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=jEPBZ1JAFHw)
+- [Yeshu Mathi Maname | Paul Joseph | Bejoy Thomas | Cherian Mathew | Malayalam Christian Songs 2024](https://www.youtube.com/watch?v=s2pMzBtT8Ug)
 - [Jeevithaveedhiyil Arivinte Velicham Pakarnna Yeshudevante Manohara Ganangal | Malayalam Jesus Songs](https://www.youtube.com/watch?v=QXwBhFPXzts)
 - [Adhiyil Vachanam | Chithra Arun | Kuriakose Mathew #ytshorts #shortsvideo   #malayalamchristiansongs](https://www.youtube.com/watch?v=XELvhGvRgVQ)
 - [Adhiyil Vachanam | Chithra Arun | Kuriakose Mathew #ytshorts #shortsvideo   #malayalamchristiansongs](https://www.youtube.com/watch?v=ae4P64XW71o)
 - [എല്ലാ മലയാളികളും മനസുകൊണ്ട് ഏറെ ഇഷ്ടപെട്ട മലയാളസിനിമാഗാനങ്ങൾ | EVERGREEN FILM SONGS MALAYALAM](https://www.youtube.com/watch?v=wIdwJywJWvw)
-- [𝐓𝐡𝐢𝐫𝐮𝐦𝐮𝐫𝐢𝐩𝐩𝐚𝐝𝐮𝐤𝐚𝐥𝐢𝐥 | 𝐒𝐭 𝐓𝐡𝐨𝐦𝐚𝐬 𝐒𝐨𝐧𝐠 | 𝐄𝐧𝐭𝐞 𝐊𝐚𝐫𝐭𝐡𝐚𝐯𝐞 𝐄𝐧𝐭𝐞 𝐃𝐚𝐢𝐯𝐚𝐦𝐞 | 𝐖𝐢𝐥𝐬𝐨𝐧 𝐏𝐢𝐫𝐚𝐯𝐨𝐦 | 𝐆𝐢𝐫𝐢𝐬𝐡 𝐏𝐞𝐭𝐞𝐫](https://www.youtube.com/watch?v=HQTFZ_iZHCw)
-- [വി . കുർബാനയിൽ സ്ഥിരമായി ആലപിക്കുന്ന  വിസ്മയഗാനങ്ങൾ | Christian Video Songs | Holy Mass Songs](https://www.youtube.com/watch?v=AYYHbeayWiA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
