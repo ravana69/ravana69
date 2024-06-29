@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 29th June 2024 # Novena to the Sacred Heart of Jesus 29th June 2024](https://www.youtube.com/watch?v=IUlPzIZIoNA)
+- [ലുത്തിനിയ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #luthiniya Malayalam for June 29th 2024](https://www.youtube.com/watch?v=PK2SmGMnQeU)
+- [Japamala 29th of June 2024 # Mathavinte Japamala # Santhoshathinte Rahasyangal 29th of June 2024](https://www.youtube.com/watch?v=oTwMZ4zIp4M)
+- [എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala june 29th#rosarymalayalam](https://www.youtube.com/watch?v=ffCKw6M3jPM)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=OAD9j_hTqVA)
 - [രാവിലെ പ്രാർത്ഥന June 29 # Athiravile Prarthana 29th of June 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=jfy4MGq1kGc)
-- [Kanal mazhayil | St. Paul's Song | Fr. justin Kaliyaniyil CMI | Dharmaram Drama Song | Snehagni](https://www.youtube.com/watch?v=PoMiZFb9gds)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 29th June 2024](https://www.youtube.com/watch?v=FVZSdzaG2pI)
-- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=LXe3sBVNh5A)
-- [Get Into The Beats Of Vatteppam | Mandakini | Dabzee | Altaf Salim | Bibin Ashok | #shorts #ytshorts](https://www.youtube.com/watch?v=oSqGy1JYSnk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
