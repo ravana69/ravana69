@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nadanna Sambavam - Sneak Peek | Biju Menon | Vishnu Narayan | Ankit Menon](https://www.youtube.com/watch?v=veH27NM2sCU)
+- [Krushithante Hrudhayam Pole Day 29](https://www.youtube.com/watch?v=LjMWkwQmv9g)
+- [Adiyodadi X Veeran Pirakkanu - Video Mashup | Sam CS | Shaan Rahman | Fejo](https://www.youtube.com/watch?v=ZvaVn7aqVhw)
+- [Amma Urngnu | Uthara Swayamvaram  #shortsfeed #shortsvideo #reels #manoramamusic #shorts #jayasurya](https://www.youtube.com/watch?v=2P70lVhW9lc)
+- [ഏവരുടെയും ഹൃദയം കീഴടക്കിയ വിസ്‌മയ ഗാനങ്ങൾ | EVERGREEN MALAYALAM FILM SONGS | MOVIEWORLD MUSIC](https://www.youtube.com/watch?v=jnFHOsxvmFk)
 - [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=jEPBZ1JAFHw)
-- [Yeshu Mathi Maname | Paul Joseph | Bejoy Thomas | Cherian Mathew | Malayalam Christian Songs 2024](https://www.youtube.com/watch?v=s2pMzBtT8Ug)
-- [Jeevithaveedhiyil Arivinte Velicham Pakarnna Yeshudevante Manohara Ganangal | Malayalam Jesus Songs](https://www.youtube.com/watch?v=QXwBhFPXzts)
-- [Adhiyil Vachanam | Chithra Arun | Kuriakose Mathew #ytshorts #shortsvideo   #malayalamchristiansongs](https://www.youtube.com/watch?v=XELvhGvRgVQ)
-- [Adhiyil Vachanam | Chithra Arun | Kuriakose Mathew #ytshorts #shortsvideo   #malayalamchristiansongs](https://www.youtube.com/watch?v=ae4P64XW71o)
-- [എല്ലാ മലയാളികളും മനസുകൊണ്ട് ഏറെ ഇഷ്ടപെട്ട മലയാളസിനിമാഗാനങ്ങൾ | EVERGREEN FILM SONGS MALAYALAM](https://www.youtube.com/watch?v=wIdwJywJWvw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
