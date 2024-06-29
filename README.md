@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Jurassic &lpar;Park &amp; World&rpar; Collection Hexalogy &lpar;1993 - 2022&rpar; &lpar;Blu-Ray/WEBDL Original Audios&rpar; - [4K - 2160p &amp; 1080p &amp; 720p - &lpar;DD+5.1/2.0&rpar; - &lpar;Tamil + Telugu + Hindi + Eng&rpar; - 10GB - 10GB - 7GB - 10GB - 10GB - 8GB &amp; 4GB - 3GB | x264  - 1.5GB -  1GB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/166157-jurassic-park-world-collection-hexalogy-1993-2022-blu-raywebdl-original-audios-4k-2160p-1080p-720p-dd5120-tamil-telugu-hindi-eng-10gb-10gb-7gb-10gb-10gb-8gb-4gb-3gb-x264-15gb-1gb-esub/&do=findComment&comment=367749)
 - [Kadaikutty Singam &lpar;2018&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 10.3GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB [GDrive]](https://www.1tamilmv.cz/index.php?/forums/topic/180767-kadaikutty-singam-2018-tamil-true-web-dl-1080p-720p-avc-untouched-dd51640kbps-103gb-55gb-27gb-14gb-x264-700mb-400mb-gdrive/&do=findComment&comment=367748)
 - [Ambuli &lpar;2012&rpar; Tamil SUNNXT WEBRip - 1080p &amp; 720p - AVC - [DD+5.1 &amp; AAC  2.0]3.2 GB/1.5GB]-[576p &amp; 480p - AVC - [AAC2.0] 700MB/400MB](https://www.1tamilmv.cz/index.php?/forums/topic/180766-ambuli-2012-tamil-sunnxt-webrip-1080p-720p-avc-dd51-aac%C2%A0-2032-gb15gb-576p-480p-avc-aac20-700mb400mb/&do=findComment&comment=367747)
 - [The Whirlwind &lpar;2024&rpar; S01 EP &lpar;01-12&rpar; TRUE WEB-DL - [1080p - 720p - AVC - [Tamil + Hindi + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 4GB - 1.8GB &amp; 800MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180730-the-whirlwind-2024-s01-ep-01-12-true-web-dl-1080p-720p-avc-tamil-hindi-eng-dd51-192kbps-4gb-18gb-800mb-esub/&do=findComment&comment=367746)
 - [Cooku With Comali &lpar;2024&rpar; Tamil - S05 EP19 TRUE WEB-DL - [1080p, 720p, 360p - AVC - UNTOUCHED - 1.4GB - 650MB &amp; 300MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180764-cooku-with-comali-2024-tamil-s05-ep19-true-web-dl-1080p-720p-360p-avc-untouched-14gb-650mb-300mb/&do=findComment&comment=367745)
-- [Iravan &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 320Kbps&rpar; - 2.7GB - 1.3GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180765-iravan-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-320kbps-27gb-13gb-900mb-x264-700mb-400mb-250mb/&do=findComment&comment=367744)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
