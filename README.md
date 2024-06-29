@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [വി . കുർബാനയിൽ സ്ഥിരമായി ആലപിക്കുന്ന  വിസ്മയഗാനങ്ങൾ | Christian Video Songs | Holy Mass Songs](https://www.youtube.com/watch?v=AYYHbeayWiA)
+- [Mazhathulli Palunkukal | Animation Version Video | സൂപ്പർ ഹിറ്റ് സിനിമ ഗാനം അനിമേഷൻ രൂപത്തിൽ](https://www.youtube.com/watch?v=6rwmGyYzqjI)
 - [കാട്ടുപെണ്ണിന്റെ കണ്ണിൽ പൂക്കണ പൂത്തിരി കണ്ടോ മാളോരേ .... Kattuchembkam Movie Songs](https://www.youtube.com/watch?v=06m9ZPcCsA8)
+- [Balli Balli Video Song | Porattu Naadakam | Rahul Raj | Sanuja Pradeep | Fiza Jahangeer | Noushad](https://www.youtube.com/watch?v=kBjpfpju7V0)
 - [Tharam Valkkannadi | Keli | Jayaram | Charmila | Bharathan | K S Chithra](https://www.youtube.com/watch?v=y-nZds_opuM)
 - [Aaro Paadunnu | Kadha Thudarunnu #hariharan #kschithra #ilayaraja #shortsfeed #shortsvideo #shorts](https://www.youtube.com/watch?v=F0QTEnsPAe8)
-- [Never Ending Vibe| Mandakini | Dabzee | Altaf Salim | Bibin Ashok | #shorts #ytshorts](https://www.youtube.com/watch?v=SMhgWMc6YyA)
-- [Oru Vasantham Virunnu Vannu | Anuragi | Mohanlal | K J Yesudas | Gangai Amaran | Sound of Arts](https://www.youtube.com/watch?v=k0YhxS1zY3E)
-- [Jayabharathi Malayalam Romantic Old Superhit Movie l Nrithasaala Movie | Prem Nazir](https://www.youtube.com/watch?v=HcfJEP3qNJ0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
