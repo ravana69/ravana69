@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Mozhi &lpar;2007&rpar; Tamil PROPER DVDRip - Xvid - AC3 - &lpar;DD5.1&rpar; - 1.7GB - GDFlix](https://www.1tamilmv.cz/index.php?/forums/topic/180763-mozhi-2007-tamil-proper-dvdrip-xvid-ac3-dd51-17gb-gdflix/&do=findComment&comment=367736)
+- [Thanga Padhakkam &lpar;1974&rpar; Tamil TRUE WEB-DL - 576p - AVC - UNTOUCHED - &lpar;DDP.2.0&rpar; - 3.3GB - ESub - UE](https://www.1tamilmv.cz/index.php?/forums/topic/180762-thanga-padhakkam-1974-tamil-true-web-dl-576p-avc-untouched-ddp20-33gb-esub-ue/&do=findComment&comment=367735)
 - [Inga Naan Thaan Kingu &lpar;2024&rpar; Tamil &lpar;MUSIC VIDEO ALBUM&rpar; 4K-CBR True-HD UNTOUCHED - HEVC - [DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-SaiKo](https://www.1tamilmv.cz/index.php?/forums/topic/180761-inga-naan-thaan-kingu-2024-tamil-music-video-album-4k-cbr-true-hd-untouched-hevc-dd51-640kbps-e-sub-by-saiko/&do=findComment&comment=367734)
 - [Inga Naan Thaan Kingu &lpar;2024&rpar; Tamil &lpar;MUSIC VIDEO ALBUM&rpar; 1080p True-HD UNTOUCHED - AVC - [DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-SaiKo](https://www.1tamilmv.cz/index.php?/forums/topic/180760-inga-naan-thaan-kingu-2024-tamil-music-video-album-1080p-true-hd-untouched-avc-dd51-640kbps-e-sub-by-saiko/&do=findComment&comment=367733)
 - [Pagalariyaan &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;DD+5.1 - 192Kbps&rpar; - 2.6GB - 1.4GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180721-pagalariyaan-2024-tamil-true-web-dl-1080p-720p-avc-hevc-dd51-192kbps-26gb-14gb-850mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=367732)
-- [Inga Naan Thaan Kingu &lpar;2024&rpar; Tamil AMZN WEB-DL - H264/H265 - DDP5.1 - [4K, 1080p - 720p - 14GB - 8GB - 3.6GB - 1.4GB][GDRIVE]](https://www.1tamilmv.cz/index.php?/forums/topic/135469-inga-naan-thaan-kingu-2024-tamil-amzn-web-dl-h264h265-ddp51-4k-1080p-720p-14gb-8gb-36gb-14gbgdrive/&do=findComment&comment=367731)
-- [Guruvayoor Ambalanadayil &lpar;2024&rpar; SS/HS WEB-DL - H264/H265 - DDP5.1 [Tam+ Mal+ Tel + Hin + Kan] - [4K, 1080p &amp; 720p - 5.9GB - 4.4GB - 2.6GB] [GDRIVE]](https://www.1tamilmv.cz/index.php?/forums/topic/137709-guruvayoor-ambalanadayil-2024-sshs-web-dl-h264h265-ddp51-tam-mal-tel-hin-kan-4k-1080p-720p-59gb-44gb-26gb-gdrive/&do=findComment&comment=367730)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
