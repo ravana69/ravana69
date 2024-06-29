@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Oru Vasantham Virunnu Vannu | Anuragi | Mohanlal | K J Yesudas | Gangai Amaran | Sound of Arts](https://www.youtube.com/watch?v=k0YhxS1zY3E)
+- [Jayabharathi Malayalam Romantic Old Superhit Movie l Nrithasaala Movie | Prem Nazir](https://www.youtube.com/watch?v=HcfJEP3qNJ0)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 29th June 2024 # Novena to the Sacred Heart of Jesus 29th June 2024](https://www.youtube.com/watch?v=IUlPzIZIoNA)
 - [ലുത്തിനിയ കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം #luthiniya Malayalam for June 29th 2024](https://www.youtube.com/watch?v=PK2SmGMnQeU)
 - [Japamala 29th of June 2024 # Mathavinte Japamala # Santhoshathinte Rahasyangal 29th of June 2024](https://www.youtube.com/watch?v=oTwMZ4zIp4M)
 - [എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala june 29th#rosarymalayalam](https://www.youtube.com/watch?v=ffCKw6M3jPM)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=OAD9j_hTqVA)
-- [രാവിലെ പ്രാർത്ഥന June 29 # Athiravile Prarthana 29th of June 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=jfy4MGq1kGc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
