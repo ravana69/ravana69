@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Jog 101 &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 320Kbps&rpar; - 2.5GB - 1.2GB &amp; 850MB] - [x264 - 700MB - 400MB &amp; 200MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180716-jog-101-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-320kbps-25gb-12gb-850mb-x264-700mb-400mb-200mb/&do=findComment&comment=367767)
+- [Iravan &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 320Kbps&rpar; - 2.7GB - 1.3GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180765-iravan-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-320kbps-27gb-13gb-900mb-x264-700mb-400mb-250mb/&do=findComment&comment=367766)
 - [Sarkaar &lpar;2024&rpar; S04 EP07 Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.3GB &amp; 700MB] - [x264 - 450MB] - [Google Drive]](https://www.1tamilmv.cz/index.php?/forums/topic/180769-sarkaar-2024-s04-ep07-telugu-true-web-dl-1080p-720p-avc-aac-20-13gb-700mb-x264-450mb-google-drive/&do=findComment&comment=367765)
 - [Sarkaar &lpar;2024&rpar; S04 EP07 Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.3GB &amp; 700MB] - [x264 - 450MB] - [Google Drive]](https://www.1tamilmv.cz/index.php?/forums/topic/180769-sarkaar-2024-s04-ep07-telugu-true-web-dl-1080p-720p-avc-aac-20-13gb-700mb-x264-450mb-google-drive/&do=findComment&comment=367764)
 - [Mahabharatham &lpar;EP 1-257&rpar; ALL Episodes 1080p - FHD - MAX QUALITY - Dual Audio [Tamil &lpar;256Kbps&rpar;+ Hindi] [FULL SCREEN] Gdrive](https://www.1tamilmv.cz/index.php?/forums/topic/160694-mahabharatham-ep-1-257-all-episodes-1080p-fhd-max-quality-dual-audio-tamil-256kbps-hindi-full-screen-gdrive/&do=findComment&comment=367763)
-- [Mahabharatham &lpar;EP 1-257&rpar; ALL Episodes 1080p - FHD - MAX QUALITY - Dual Audio [Tamil &lpar;256Kbps&rpar;+ Hindi] [FULL SCREEN] Gdrive](https://www.1tamilmv.cz/index.php?/forums/topic/160694-mahabharatham-ep-1-257-all-episodes-1080p-fhd-max-quality-dual-audio-tamil-256kbps-hindi-full-screen-gdrive/&do=findComment&comment=367762)
-- [Remember &lpar;2022&rpar; &lpar;BluRay + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;DD+5.1 - 640Kbps&rpar; - &lpar;Tamil + Telugu + Hindi + Kor&rpar;](https://www.1tamilmv.cz/index.php?/forums/topic/180775-remember-2022-bluray-original-audios-1080p-720p-x264-dd51-640kbps-tamil-telugu-hindi-kor/&do=findComment&comment=367761)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
