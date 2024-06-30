@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Sarkaar &lpar;2024&rpar; S04 EP07 Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.3GB &amp; 700MB] - [x264 - 450MB] - [Google Drive]](https://www.1tamilmv.cz/index.php?/forums/topic/180769-sarkaar-2024-s04-ep07-telugu-true-web-dl-1080p-720p-avc-aac-20-13gb-700mb-x264-450mb-google-drive/&do=findComment&comment=367758)
+- [My Lady Jane &lpar;2024&rpar; Complete S01 EP &lpar;01-08&rpar; Merged TRUE WEB-DL - [720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 3GB &amp; 1GB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180770-my-lady-jane-2024-complete-s01-ep-01-08-merged-true-web-dl-720p-avc-tamil-telugu-hindi-malayalam-kannnada-eng-dd51-192kbps-3gb-1gb-esub/&do=findComment&comment=367757)
+- [The Lord Of Rings Trilogy &lpar;2001-2003&rpar; BDRip - 720p - x265 - HEVC - Original Audios - &lpar;AAC +2.0&rpar; - [Tamil + English] - AAC - 1.5GB - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180773-the-lord-of-rings-trilogy-2001-2003-bdrip-720p-x265-hevc-original-audios-aac-20-tamil-english-aac-15gb-esub/&do=findComment&comment=367756)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [29-6-2024]](https://www.1tamilmv.cz/index.php?/forums/topic/180772-movies-collection-all-languages-4k-1080p-720p-576p-480p-29-6-2024/&do=findComment&comment=367755)
 - [Predator Trilogy &lpar;1987 to 2010&rpar; - [BD-Rip&#39;s - 720p - x264 - &lpar;Tamil + Telugu + Hindi + English&rpar; Esub](https://www.1tamilmv.cz/index.php?/forums/topic/180771-predator-trilogy-1987-to-2010-bd-rips-720p-x264-tamil-telugu-hindi-english-esub/&do=findComment&comment=367754)
-- [My Lady Jane &lpar;2024&rpar; Complete S01 EP &lpar;01-08&rpar; Merged TRUE WEB-DL - [720p - AVC - [Tamil + Telugu + Hindi + Malayalam + Kannnada + Eng] - &lpar;DD+5.1 - 192Kbps&rpar; - 3GB &amp; 1GB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180770-my-lady-jane-2024-complete-s01-ep-01-08-merged-true-web-dl-720p-avc-tamil-telugu-hindi-malayalam-kannnada-eng-dd51-192kbps-3gb-1gb-esub/&do=findComment&comment=367753)
-- [Sarkaar &lpar;2024&rpar; S04 EP07 Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.3GB &amp; 700MB] - [x264 - 450MB] - [Google Drive]](https://www.1tamilmv.cz/index.php?/forums/topic/180769-sarkaar-2024-s04-ep07-telugu-true-web-dl-1080p-720p-avc-aac-20-13gb-700mb-x264-450mb-google-drive/&do=findComment&comment=367752)
-- [Healing Food, Healing Love &lpar;2022&rpar; S01 EP&lpar;01-23&rpar; TRUE WEB-DL - [720p &amp; 360p - x264 - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Man] - 5GB &amp; 1.7GB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180768-healing-food-healing-love-2022-s01-ep01-23-true-web-dl-720p-360p-x264-aac-20-tamil-telugu-hindi-man-5gb-17gb-esub/&do=findComment&comment=367751)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
