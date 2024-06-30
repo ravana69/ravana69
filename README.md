@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Manassilayiram |  Bhaskar The Rascal #mammootty #shortsfeed #shortsvideo #shorts #reels #deepakdev](https://www.youtube.com/watch?v=mokBg0J8CPU)
-- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=m1zGKE02WZs)
-- [രാജകീയ ലുക്കിൽ ലാലേട്ടന്റെ എൻട്രി | Amma General Body Meeting 2024](https://www.youtube.com/watch?v=rQ-rFuZrCbQ)
-- [ചുള്ളൻ ചെക്കനായി ടോവിനോ 'അമ്മ മീറ്റിങ്ങിനു എത്തിയപ്പോൾ ! Amma General Body Meeting 2024](https://www.youtube.com/watch?v=GKeAdVW6-n0)
-- [നാടൻ ലുക്കിൽ സാരി ഉടുത്തു സുന്ദരിയായി ഹണി റോസ് | Amma General Body Meeting 2024](https://www.youtube.com/watch?v=ZbjA1C6Aykk)
-- [Panchavarna Thatha | Video Song | Haricharan | Jyothsna | Santhosh Varma | M Jayachandran](https://www.youtube.com/watch?v=iU5i15j88m0)
+- [നിന്റെ പരാജയം കാണൻ ആഗ്രഹിക്കുന്നവരുടെ മുന്നിൽ ദൈവം നിന്നെ ഉയർത്തും😇 Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=siUWwhQ1rcw)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 30th of June 2024](https://www.youtube.com/watch?v=vgDMBRGpVOw)
+- [പരസ്‌പരം കെട്ടിപിടിച്ച് സന്തോഷം പങ്കുവെച്ച് ആസിഫ് അലിയും മഞ്ജുവാര്യരും Amma general body meeting2024](https://www.youtube.com/watch?v=qGpF2ZARCs8)
+- [K for Kalyanam Vibe Has Been Spread |Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=bepH9VbRe_4)
+- [ജനിചവര്‍ക്കെല്ലാം മരണമുണ്ട്🎶 | Thacholi Othenan | P Leela #shorts](https://www.youtube.com/watch?v=S4QlVdRezrw)
+- [മോഡേൺ ലുക്കിലും  സംവൃത സുന്ദരിതന്നെയെന്ന് ആരാധകർ |  Amma general body meeting 2024](https://www.youtube.com/watch?v=swo95gcxWmQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
