@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Prem Nazir Malayalam Romantic Old Superhit Movie l Nrithasaala Movie | Jayabharathi](https://www.youtube.com/watch?v=IQoLtNPavXc)
 - [Krushithante Hrudhayam Pole Day 30](https://www.youtube.com/watch?v=MW-o2fV1Rh0)
 - [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 30th June 2024 # Novena to the Sacred Heart of Jesus 30th June 2024](https://www.youtube.com/watch?v=Pje6bwnQOA4)
 - [എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala June 30th#rosarymalayalam](https://www.youtube.com/watch?v=tWb9pG7s-U4)
 - [Japamala 30th of June 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 30th of June  2024](https://www.youtube.com/watch?v=6SFmnsyfCSc)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=s5ETe_nkDBE)
-- [പ്രഭാത പ്രാര്‍ത്ഥന June 30 # Athiravile Prarthana 30th of June 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=goJOMzHChgQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
