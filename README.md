@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [രാവിലെ പ്രാര്‍ത്ഥന July 1 # Athiravile Prarthana 1st of July 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=oGhD9NYQ9x4)
+- [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=Ju2vbcnXtHg)
 - [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 1st July 2024](https://www.youtube.com/watch?v=mkbFb9lEKv8)
 - [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=CCPzsnsH7VI)
 - [സാധ്യമെല്ലന്നോർത്തതാം മഹാത്ഭുതങ്ങൾ നീ ചെയ്തു..](https://www.youtube.com/watch?v=b4a32AjyRCQ)
 - [Doore Karalil Urukumoru | Mohanlal | Manju Warrier | KJ Yesudas | Gireesh Puthenchery](https://www.youtube.com/watch?v=q3dCLI-skz4)
-- [Manikuttikkurumbulla | Kaliyoonjaa | Vidyasagar |  Ilayaraja | Kaithapram | KJ Yesudas #SongOfTheDay](https://www.youtube.com/watch?v=RsXDqbUz10w)
-- [സത്യവചനം | SATHYA VACHANAM | CHRISTIAN DEVOTIONAL | ROY PUTHUR | #christiandevotionalsongs](https://www.youtube.com/watch?v=kiVGWG5Op7w)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
