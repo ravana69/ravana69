@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Panchavarna Thatha | Video Song | Haricharan | Jyothsna | Santhosh Varma | M Jayachandran](https://www.youtube.com/watch?v=iU5i15j88m0)
 - [Gramaphone Video Song Jukebox | Dileep | Meera Jasmine | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=qb51jRTjlK4)
 - [Happening Of Kalyanam |K For Kalyanam Join Your Hands| Guruvayoorambala Nadayil | Basil |#ytshorts](https://www.youtube.com/watch?v=fk0w0p-PZwI)
 - [Nizhakkoottile Neela | Kinnaripuzhayoran | Sreenivasan | Devayani | Siddique | M G Sreekumar](https://www.youtube.com/watch?v=f6YvAenNL7s)
 - [Enunde | Mukalparappu |  Folk Film Songs #shortsvideo #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=gke56SV4ZPI)
 - [Prem Nazir Malayalam Romantic Old Superhit Movie l Nrithasaala Movie | Jayabharathi](https://www.youtube.com/watch?v=IQoLtNPavXc)
-- [Krushithante Hrudhayam Pole Day 30](https://www.youtube.com/watch?v=MW-o2fV1Rh0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
