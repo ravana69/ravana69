@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Gramaphone Video Song Jukebox | Dileep | Meera Jasmine | Vidyasagar | Gireesh Puthanchery](https://www.youtube.com/watch?v=qb51jRTjlK4)
+- [Happening Of Kalyanam |K For Kalyanam Join Your Hands| Guruvayoorambala Nadayil | Basil |#ytshorts](https://www.youtube.com/watch?v=fk0w0p-PZwI)
+- [Nizhakkoottile Neela | Kinnaripuzhayoran | Sreenivasan | Devayani | Siddique | M G Sreekumar](https://www.youtube.com/watch?v=f6YvAenNL7s)
+- [Enunde | Mukalparappu |  Folk Film Songs #shortsvideo #shortsfeed #shorts #reels](https://www.youtube.com/watch?v=gke56SV4ZPI)
 - [Prem Nazir Malayalam Romantic Old Superhit Movie l Nrithasaala Movie | Jayabharathi](https://www.youtube.com/watch?v=IQoLtNPavXc)
 - [Krushithante Hrudhayam Pole Day 30](https://www.youtube.com/watch?v=MW-o2fV1Rh0)
-- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 30th June 2024 # Novena to the Sacred Heart of Jesus 30th June 2024](https://www.youtube.com/watch?v=Pje6bwnQOA4)
-- [എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala June 30th#rosarymalayalam](https://www.youtube.com/watch?v=tWb9pG7s-U4)
-- [Japamala 30th of June 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 30th of June  2024](https://www.youtube.com/watch?v=6SFmnsyfCSc)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=s5ETe_nkDBE)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
