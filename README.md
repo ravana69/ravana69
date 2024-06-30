@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Nuvva Nena &lpar;2012&rpar; Telugu Hybrid 1080p CBR AMZN WEB-DL - x264 - [DD 5.1 &lpar;448kbps&rpar; + DTS 5.1 &lpar;754kbps&rpar;] - 8.9GB - ESub-DUSTIN.mkv [8.93 GB]](https://www.1tamilmv.cz/index.php?/forums/topic/180781-nuvva-nena-2012-telugu-hybrid-1080p-cbr-amzn-web-dl-x264-dd-51-448kbps-dts-51-754kbps-89gb-esub-dustinmkv-893-gb/&do=findComment&comment=367780)
+- [Ko &lpar;2011&rpar; Tamil BluRay [1080p &amp; 720p - x264 - DD5.1 &lpar;192Kbps&rpar; &amp; AAC 2.0] 2.7GB&amp;1.5GB - Esub](https://www.1tamilmv.cz/index.php?/forums/topic/180780-ko-2011-tamil-bluray-1080p-720p-x264-dd51-192kbps-aac-20-27gb15gb-esub/&do=findComment&comment=367779)
 - [Cars &lpar;2006&rpar; 1080p [DPHS Tamil &lpar;AAC 2.0 -128Kbps&rpar; + English] 2GB .mkv](https://www.1tamilmv.cz/index.php?/forums/topic/180701-cars-2006-1080p-dphs-tamil-aac-20-128kbps-english-2gb-mkv/&do=findComment&comment=367778)
 - [Abhiyum Naanum &lpar;2008&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 2GB - UE](https://www.1tamilmv.cz/index.php?/forums/topic/180779-abhiyum-naanum-2008-tamil-true-web-dl-1080p-avc-untouched-aac20-2gb-ue/&do=findComment&comment=367777)
 - [S S Rajamouli Filmography &lpar;2001 - 2022&rpar; - 1080p - x264 - AVC - DD5.1/AAC2.0 - ESub - 30GB](https://www.1tamilmv.cz/index.php?/forums/topic/124730-s-s-rajamouli-filmography-2001-2022-1080p-x264-avc-dd51aac20-esub-30gb/&do=findComment&comment=367776)
-- [Krack &lpar;2021&rpar; Dual &lpar;MUSIC VIDEO ALBUM&rpar; 1080p True-HD UNTOUCHED - AVC - [Tel DD+5.1 &lpar;384Kbps&rpar;]-[Mal DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-SaiKo](https://www.1tamilmv.cz/index.php?/forums/topic/180778-krack-2021-dual-music-video-album-1080p-true-hd-untouched-avc-tel-dd51-384kbps-mal-dd51-640kbps-e-sub-by-saiko/&do=findComment&comment=367775)
-- [Cars &lpar;2006&rpar; 1080p [DPHS Tamil &lpar;AAC 2.0 -128Kbps&rpar; + English] 2GB .mkv](https://www.1tamilmv.cz/index.php?/forums/topic/180701-cars-2006-1080p-dphs-tamil-aac-20-128kbps-english-2gb-mkv/&do=findComment&comment=367774)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
