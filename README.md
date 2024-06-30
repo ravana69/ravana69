@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഈശോയുടെ തിരുഹൃദയ വണക്കമാസം 30th June 2024 # Novena to the Sacred Heart of Jesus 30th June 2024](https://www.youtube.com/watch?v=Pje6bwnQOA4)
+- [എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala June 30th#rosarymalayalam](https://www.youtube.com/watch?v=tWb9pG7s-U4)
+- [Japamala 30th of June 2024 # Mathavinte Japamala # Mahimayude Rahasyangal 30th of June  2024](https://www.youtube.com/watch?v=6SFmnsyfCSc)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=s5ETe_nkDBE)
 - [പ്രഭാത പ്രാര്‍ത്ഥന June 30 # Athiravile Prarthana 30th of June 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=goJOMzHChgQ)
 - [അമ്മ നിൻറെ 5 മിനിറ്റ് യാചിക്കുന്നു l marian l miraculous prayer l powerful prayer](https://www.youtube.com/watch?v=OevmplTHyTo)
-- [പരിഹസിച്ചു തർക്കാൻ വരുമ്പോൾ സ്നേഹം നൽകി നേരിടാൻ..](https://www.youtube.com/watch?v=peNxZR4RdMo)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 30th June 2024](https://www.youtube.com/watch?v=d0sFKyaOyxM)
-- [പ്രഭാത ഗാനങ്ങൾ അതിരാവിലെ കേൾക്കുവാൻ പറ്റിയ ക്രിസ്തീയ ഭക്തിഗാനങ്ങൾ | Early Morning Worship Songs](https://www.youtube.com/watch?v=jNC_LOVhyc4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
