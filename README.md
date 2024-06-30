@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
-- [Nuvva Nena &lpar;2012&rpar; Telugu Hybrid 1080p CBR AMZN WEB-DL - x264 - [DD 5.1 &lpar;448kbps&rpar; + DTS 5.1 &lpar;754kbps&rpar;] - 8.9GB - ESub-DUSTIN.mkv [8.93 GB]](https://www.1tamilmv.cz/index.php?/forums/topic/180781-nuvva-nena-2012-telugu-hybrid-1080p-cbr-amzn-web-dl-x264-dd-51-448kbps-dts-51-754kbps-89gb-esub-dustinmkv-893-gb/&do=findComment&comment=367780)
-- [Ko &lpar;2011&rpar; Tamil BluRay [1080p &amp; 720p - x264 - DD5.1 &lpar;192Kbps&rpar; &amp; AAC 2.0] 2.7GB&amp;1.5GB - Esub](https://www.1tamilmv.cz/index.php?/forums/topic/180780-ko-2011-tamil-bluray-1080p-720p-x264-dd51-192kbps-aac-20-27gb15gb-esub/&do=findComment&comment=367779)
-- [Cars &lpar;2006&rpar; 1080p [DPHS Tamil &lpar;AAC 2.0 -128Kbps&rpar; + English] 2GB .mkv](https://www.1tamilmv.cz/index.php?/forums/topic/180701-cars-2006-1080p-dphs-tamil-aac-20-128kbps-english-2gb-mkv/&do=findComment&comment=367778)
-- [Abhiyum Naanum &lpar;2008&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 2GB - UE](https://www.1tamilmv.cz/index.php?/forums/topic/180779-abhiyum-naanum-2008-tamil-true-web-dl-1080p-avc-untouched-aac20-2gb-ue/&do=findComment&comment=367777)
-- [S S Rajamouli Filmography &lpar;2001 - 2022&rpar; - 1080p - x264 - AVC - DD5.1/AAC2.0 - ESub - 30GB](https://www.1tamilmv.cz/index.php?/forums/topic/124730-s-s-rajamouli-filmography-2001-2022-1080p-x264-avc-dd51aac20-esub-30gb/&do=findComment&comment=367776)
+- [Iravan &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 320Kbps&rpar; - 2.7GB - 1.3GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180765-iravan-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-320kbps-27gb-13gb-900mb-x264-700mb-400mb-250mb/&do=findComment&comment=367786)
+- [Tera Kya Hoga Lovely &lpar;2024&rpar; Hindi HDTV - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.6GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180782-tera-kya-hoga-lovely-2024-hindi-hdtv-1080p-720p-avc-aac-20-26gb-12gb-x264-700mb-400mb/&do=findComment&comment=367785)
+- [Isaignani Ilaiyaraaja - Divya Pasurams - Audio Jukebox - 1080P - DD5.1 + DTSHD5.1 + PCM5.1 &lpar;Lossless 24Bit FLAC Upmix&rpar; + 24BIT FLAC &lpar;Mediafire Links&rpar;](https://www.1tamilmv.cz/index.php?/forums/topic/180784-isaignani-ilaiyaraaja-divya-pasurams-audio-jukebox-1080p-dd51-dtshd51-pcm51-lossless-24bit-flac-upmix-24bit-flac-mediafire-links/&do=findComment&comment=367784)
+- [Cooku With Comali &lpar;2024&rpar; Tamil - S05 EP20 TRUE WEB-DL - [1080p, 720p, 360p - AVC - UNTOUCHED - 1.8GB - 800MB &amp; 300MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180776-cooku-with-comali-2024-tamil-s05-ep20-true-web-dl-1080p-720p-360p-avc-untouched-18gb-800mb-300mb/&do=findComment&comment=367783)
+- [Vettaiyaadu Vilaiyaadu &lpar;2001&rpar; &lpar;Harris Jayaraj&rpar; &lpar;HIT musics&rpar; [ACD RIP-WAV]](https://www.1tamilmv.cz/index.php?/forums/topic/180783-vettaiyaadu-vilaiyaadu-2001-harris-jayaraj-hit-musics-acd-rip-wav/&do=findComment&comment=367782)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
