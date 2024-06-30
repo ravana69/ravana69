@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Abhiyum Naanum &lpar;2008&rpar; Tamil TRUE WEB-DL - 1080p - AVC - UNTOUCHED - &lpar;AAC.2.0&rpar; - 2GB - UE](https://www.1tamilmv.cz/index.php?/forums/topic/180779-abhiyum-naanum-2008-tamil-true-web-dl-1080p-avc-untouched-aac20-2gb-ue/&do=findComment&comment=367788)
+- [Tera Kya Hoga Lovely &lpar;2024&rpar; Hindi HDTV - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.6GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180782-tera-kya-hoga-lovely-2024-hindi-hdtv-1080p-720p-avc-aac-20-26gb-12gb-x264-700mb-400mb/&do=findComment&comment=367787)
 - [Iravan &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 320Kbps&rpar; - 2.7GB - 1.3GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180765-iravan-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-320kbps-27gb-13gb-900mb-x264-700mb-400mb-250mb/&do=findComment&comment=367786)
 - [Tera Kya Hoga Lovely &lpar;2024&rpar; Hindi HDTV - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.6GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180782-tera-kya-hoga-lovely-2024-hindi-hdtv-1080p-720p-avc-aac-20-26gb-12gb-x264-700mb-400mb/&do=findComment&comment=367785)
 - [Isaignani Ilaiyaraaja - Divya Pasurams - Audio Jukebox - 1080P - DD5.1 + DTSHD5.1 + PCM5.1 &lpar;Lossless 24Bit FLAC Upmix&rpar; + 24BIT FLAC &lpar;Mediafire Links&rpar;](https://www.1tamilmv.cz/index.php?/forums/topic/180784-isaignani-ilaiyaraaja-divya-pasurams-audio-jukebox-1080p-dd51-dtshd51-pcm51-lossless-24bit-flac-upmix-24bit-flac-mediafire-links/&do=findComment&comment=367784)
-- [Cooku With Comali &lpar;2024&rpar; Tamil - S05 EP20 TRUE WEB-DL - [1080p, 720p, 360p - AVC - UNTOUCHED - 1.8GB - 800MB &amp; 300MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180776-cooku-with-comali-2024-tamil-s05-ep20-true-web-dl-1080p-720p-360p-avc-untouched-18gb-800mb-300mb/&do=findComment&comment=367783)
-- [Vettaiyaadu Vilaiyaadu &lpar;2001&rpar; &lpar;Harris Jayaraj&rpar; &lpar;HIT musics&rpar; [ACD RIP-WAV]](https://www.1tamilmv.cz/index.php?/forums/topic/180783-vettaiyaadu-vilaiyaadu-2001-harris-jayaraj-hit-musics-acd-rip-wav/&do=findComment&comment=367782)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
