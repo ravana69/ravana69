@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [ഹൃദയങ്ങളിൽ വാഴാൻ കൊതിക്കുന്ന യേശുവിന് കരുണാർദ്ര ഗാനങ്ങൾ  |Songs Of Love Of Jesus | Joji Johns](https://www.youtube.com/watch?v=YL1FME_4IoM)
 - [Chandrachooda - Deep Lofi | Karmayogi | Navneeth Sundar | Anoop Shankar | Nitrixx](https://www.youtube.com/watch?v=xeLNX7IDe_o)
 - [നിന്റെ പരാജയം കാണൻ ആഗ്രഹിക്കുന്നവരുടെ മുന്നിൽ ദൈവം നിന്നെ ഉയർത്തും😇 Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=siUWwhQ1rcw)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 30th of June 2024](https://www.youtube.com/watch?v=vgDMBRGpVOw)
 - [പരസ്‌പരം കെട്ടിപിടിച്ച് സന്തോഷം പങ്കുവെച്ച് ആസിഫ് അലിയും മഞ്ജുവാര്യരും Amma general body meeting2024](https://www.youtube.com/watch?v=qGpF2ZARCs8)
 - [K for Kalyanam Vibe Has Been Spread |Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=bepH9VbRe_4)
-- [ജനിചവര്‍ക്കെല്ലാം മരണമുണ്ട്🎶 | Thacholi Othenan | P Leela #shorts](https://www.youtube.com/watch?v=S4QlVdRezrw)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
