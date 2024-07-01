@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മുളം‌ തുമ്പീ ഇളം‌ തുമ്പീ | Mulam Thumbi | Kadathanadan Ambadi Video Song | Mohanlal | K. S. Chithra](https://www.youtube.com/watch?v=7yiR1eI5DP0)
+- [#guruvayoorambalanadayi Vibe | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=0FvYJNpaZQg)
 - [Prema Malayalam Romantic Old Superhit Movie l Nrithasaala Movie | Jayabharathi, Prem Nazir](https://www.youtube.com/watch?v=fHmojh8QZWw)
 - [Japamala 1st of July  2024 # Mathavinte Japamala # Santhoshathinte Rahasyangal 1st of July 2024](https://www.youtube.com/watch?v=rRSBXJc_6IU)
 - [എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala juky1st #rosarymalayalam](https://www.youtube.com/watch?v=CLgItvBcyzc)
 - [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=hfO-aivsXf8)
-- [Swayamvara Chandrike | Chronic Bachelor | Deepak Dev | Jayachandran & Sujatha Mohan | Hi-Res Audio](https://www.youtube.com/watch?v=2I1SoUxQlSs)
-- [Ponneduthu | Sami Potta Mudichu | Ilaiyaraaja | Mano & K.S.Chithra | Hi-Res Audio](https://www.youtube.com/watch?v=mrV7imvE-R4)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
