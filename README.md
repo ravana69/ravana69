@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [സുഖകരമായ നിമിഷങ്ങൾ സമ്മാനിക്കും  മലയാള സിനിമകളിലെ  പ്രശസ്ത ഗാനങ്ങൾ  | Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=gCFx9PBP1DA)
+- [Entha Parayya Short #enthaparrayya song Mathew  T Johnn Evan Jinesh, Lakshya Sigeesh, Neha Ninoy](https://www.youtube.com/watch?v=2QIIZ6tViao)
 - [Aadhi Raath | Aami | Video Song |  Roop | Gulzar | Taufiq Qureshi | Manju Warrier | Tovino Thomas](https://www.youtube.com/watch?v=jWUsX9r0nk0)
 - [മുളം‌ തുമ്പീ ഇളം‌ തുമ്പീ | Mulam Thumbi | Kadathanadan Ambadi Video Song | Mohanlal | K. S. Chithra](https://www.youtube.com/watch?v=7yiR1eI5DP0)
 - [#guruvayoorambalanadayi Vibe | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=0FvYJNpaZQg)
 - [Prema Malayalam Romantic Old Superhit Movie l Nrithasaala Movie | Jayabharathi, Prem Nazir](https://www.youtube.com/watch?v=fHmojh8QZWw)
-- [Japamala 1st of July  2024 # Mathavinte Japamala # Santhoshathinte Rahasyangal 1st of July 2024](https://www.youtube.com/watch?v=rRSBXJc_6IU)
-- [എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala juky1st #rosarymalayalam](https://www.youtube.com/watch?v=CLgItvBcyzc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
