@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kaayale Kayale Karaoke with Lyrics | Thottappan Film Songs Lyrics | Malayalam Film Karaoke](https://www.youtube.com/watch?v=YUhqFA4kSIU)
+- [Innolam | Partners #dhyansreenivasan #ksharisankar #bkharinarayanan #shortsfeed #shortsvideo #reels](https://www.youtube.com/watch?v=4n1sbm25gMM)
 - [സുരേഷ്‌ഗോപിയെ സ്നേഹത്തോടെ വട്ടമിട്ട് പൊതിഞ്ഞു താരങ്ങൾ 😍😍😍 Amma General Body Meeting 2024](https://www.youtube.com/watch?v=JaohXDLgsl0)
 - [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=Az9mMzgdhaw)
 - [സുഖകരമായ നിമിഷങ്ങൾ സമ്മാനിക്കും  മലയാള സിനിമകളിലെ  പ്രശസ്ത ഗാനങ്ങൾ  | Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=gCFx9PBP1DA)
 - [Entha Parayya Short #enthaparrayya song Mathew  T Johnn Evan Jinesh, Lakshya Sigeesh, Neha Ninoy](https://www.youtube.com/watch?v=2QIIZ6tViao)
-- [Azhakaayi Ente Arikil Video Song | Charles G Thomas | Sreekanth Hariharan | Mridula Warrier](https://www.youtube.com/watch?v=xgrvif-9kb4)
-- [Aadhi Raath | Aami | Video Song |  Roop | Gulzar | Taufiq Qureshi | Manju Warrier | Tovino Thomas](https://www.youtube.com/watch?v=jWUsX9r0nk0)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
