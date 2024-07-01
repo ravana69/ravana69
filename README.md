@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
-- [Kaayale Kayale Karaoke with Lyrics | Thottappan Film Songs Lyrics | Malayalam Film Karaoke](https://www.youtube.com/watch?v=YUhqFA4kSIU)
-- [Innolam | Partners #dhyansreenivasan #ksharisankar #bkharinarayanan #shortsfeed #shortsvideo #reels](https://www.youtube.com/watch?v=4n1sbm25gMM)
-- [സുരേഷ്‌ഗോപിയെ സ്നേഹത്തോടെ വട്ടമിട്ട് പൊതിഞ്ഞു താരങ്ങൾ 😍😍😍 Amma General Body Meeting 2024](https://www.youtube.com/watch?v=JaohXDLgsl0)
-- [ഡേറ്റ് ഇട്ടു പ്രാർത്ഥിക്കുക l Kreupasanam powerful prayer l miraculous prayer l marian](https://www.youtube.com/watch?v=Az9mMzgdhaw)
-- [സുഖകരമായ നിമിഷങ്ങൾ സമ്മാനിക്കും  മലയാള സിനിമകളിലെ  പ്രശസ്ത ഗാനങ്ങൾ  | Evergreen Malayalam Film Songs](https://www.youtube.com/watch?v=gCFx9PBP1DA)
-- [Entha Parayya Short #enthaparrayya song Mathew  T Johnn Evan Jinesh, Lakshya Sigeesh, Neha Ninoy](https://www.youtube.com/watch?v=2QIIZ6tViao)
+- [K For Kalayanam | Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=YBsHf4ZmRuw)
+- [തളരുന്ന മനസ്സിന് പുതുജീവൻ നൽകുന്ന സ്നേഹമാണ് ദൈവം  😇 Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=TKgFI0YGfI0)
+- [Paaduvan Ormmakalil Video Song | Vellanakalude Nadu | M G Sreekumar | Sujatha | Malayalam Song](https://www.youtube.com/watch?v=SKDGl8RIjDQ)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 1st of July 2024](https://www.youtube.com/watch?v=B-_OOHMi1rQ)
+- [Puzhayarikathu Dumm - Audio Song | Jo & Jo | Nikhila Vimal, Mathew, Neslen | Govind Vasantha | Arun](https://www.youtube.com/watch?v=aE9pFJZ9BiA)
+- [Ding Dong Video Song | Samudram | G Devarajan | Prem Nazir | Sheela](https://www.youtube.com/watch?v=OYAp6n43rMk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
