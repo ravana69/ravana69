@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Nadanna Sambavam - Sneak Peek 2 | Biju Menon | Suraj Venjaramoodu | Vishnu Narayan | Ankit Menon](https://www.youtube.com/watch?v=x8ORu5eB-sw)
 - [K For Kalayanam | Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=YBsHf4ZmRuw)
 - [തളരുന്ന മനസ്സിന് പുതുജീവൻ നൽകുന്ന സ്നേഹമാണ് ദൈവം  😇 Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=TKgFI0YGfI0)
 - [Paaduvan Ormmakalil Video Song | Vellanakalude Nadu | M G Sreekumar | Sujatha | Malayalam Song](https://www.youtube.com/watch?v=SKDGl8RIjDQ)
 - [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 1st of July 2024](https://www.youtube.com/watch?v=B-_OOHMi1rQ)
 - [Puzhayarikathu Dumm - Audio Song | Jo & Jo | Nikhila Vimal, Mathew, Neslen | Govind Vasantha | Arun](https://www.youtube.com/watch?v=aE9pFJZ9BiA)
-- [Ding Dong Video Song | Samudram | G Devarajan | Prem Nazir | Sheela](https://www.youtube.com/watch?v=OYAp6n43rMk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
