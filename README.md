@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Kaatte Nee Veesharuthippol | Kaattu Vannu Vilichappol | M G Radhakrishnan | Chithra #SongOfTheDay](https://www.youtube.com/watch?v=VNKkisVvsB0)
+- [Ponmurali Oothum Kaatil  | Mohanlal | Ramya Krishnan | Monisha | MG Sreekumar | Sujatha Mohan](https://www.youtube.com/watch?v=Pehw6qELctE)
+- [Palaruvi kuliraniyum | HD Video |  Kaakkathollaayiram  | Kaithapram | Johnson | MG Sreekumar](https://www.youtube.com/watch?v=y9_iwCfBQDk)
+- [വാനവദൂതർ പാടി സ്തുതിച്ച വിണ്ണിൻ മധുര സംഗീതം | Songs Of Heaven | Malayalam Christian Devotional Songs](https://www.youtube.com/watch?v=IJr-gqqxuFg)
 - [Nadanna Sambavam - Sneak Peek 2 | Biju Menon | Suraj Venjaramoodu | Vishnu Narayan | Ankit Menon](https://www.youtube.com/watch?v=x8ORu5eB-sw)
 - [K For Kalayanam | Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=YBsHf4ZmRuw)
-- [തളരുന്ന മനസ്സിന് പുതുജീവൻ നൽകുന്ന സ്നേഹമാണ് ദൈവം  😇 Rev. Aneesh P Joseph | #shorts #motivation](https://www.youtube.com/watch?v=TKgFI0YGfI0)
-- [Paaduvan Ormmakalil Video Song | Vellanakalude Nadu | M G Sreekumar | Sujatha | Malayalam Song](https://www.youtube.com/watch?v=SKDGl8RIjDQ)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 1st of July 2024](https://www.youtube.com/watch?v=B-_OOHMi1rQ)
-- [Puzhayarikathu Dumm - Audio Song | Jo & Jo | Nikhila Vimal, Mathew, Neslen | Govind Vasantha | Arun](https://www.youtube.com/watch?v=aE9pFJZ9BiA)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
