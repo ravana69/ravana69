@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [30-6-2024]](https://www.1tamilmv.cz/index.php?/forums/topic/180788-movies-collection-all-languages-4k-1080p-720p-576p-480p-30-6-2024/&do=findComment&comment=367795)
+- [Mirzapur &lpar;2020&rpar; Complete S02 EP&lpar;01-10&rpar; Merged TRUE WEB-DL - [720p - AVC - [Tamil + Telugu + Hindi] - &lpar;DD+5.1 - 192Kbps&rpar; - 3GB &amp; 1GB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180787-mirzapur-2020-complete-s02-ep01-10-merged-true-web-dl-720p-avc-tamil-telugu-hindi-dd51-192kbps-3gb-1gb-esub/&do=findComment&comment=367794)
 - [Tera Kya Hoga Lovely &lpar;2024&rpar; Hindi HDTV - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 2.6GB &amp; 1.2GB] - [x264 - 700MB &amp; 400MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180782-tera-kya-hoga-lovely-2024-hindi-hdtv-1080p-720p-avc-aac-20-26gb-12gb-x264-700mb-400mb/&do=findComment&comment=367793)
 - [Nuvva Nena &lpar;2012&rpar; Telugu Hybrid 1080p CBR AMZN WEB-DL - x264 - [DD 5.1 &lpar;448kbps&rpar; + DTS 5.1 &lpar;754kbps&rpar;] - 8.9GB - ESub-DUSTIN.mkv [8.93 GB]](https://www.1tamilmv.cz/index.php?/forums/topic/180781-nuvva-nena-2012-telugu-hybrid-1080p-cbr-amzn-web-dl-x264-dd-51-448kbps-dts-51-754kbps-89gb-esub-dustinmkv-893-gb/&do=findComment&comment=367792)
 - [The.Staircase.S01. 2160p.MAX.WEB-DL.DDP5.1.Atmos.DV.HDR.H.265 [Direct Download]](https://www.1tamilmv.cz/index.php?/forums/topic/180786-thestaircases01-2160pmaxweb-dlddp51atmosdvhdrh265-direct-download/&do=findComment&comment=367791)
-- [Healing Food, Healing Love &lpar;2022&rpar; S01 EP&lpar;01-23&rpar; TRUE WEB-DL - [720p &amp; 360p - x264 - &lpar;AAC 2.0&rpar; [Tamil + Telugu + Hindi + Man] - 5GB &amp; 1.7GB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180768-healing-food-healing-love-2022-s01-ep01-23-true-web-dl-720p-360p-x264-aac-20-tamil-telugu-hindi-man-5gb-17gb-esub/&do=findComment&comment=367790)
-- [Kaashmora &lpar;2016&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+2.0&lpar;224kbps&rpar; - 11GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB - ESub [GDrive]](https://www.1tamilmv.cz/index.php?/forums/topic/180785-kaashmora-2016-tamil-true-web-dl-1080p-720p-avc-untouched-dd20224kbps-11gb-55gb-27gb-14gb-x264-700mb-400mb-esub-gdrive/&do=findComment&comment=367789)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
