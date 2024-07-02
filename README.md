@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Thomasleehaye | St.Thomas Day | ദുക്റാന | @JinoKunnumpurathu #shorts #christianshorts #status](https://www.youtube.com/watch?v=LEpIT2qq1Y0)
 - [തിരക്കൊഴിയുമ്പോൾ നൽകാനായി മാറ്റിവയ്ക്കുന്ന ഒന്നാകരുത് സ്നേഹം...😇 Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=jzXIFJkqzjo)
+- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 2nd of July 2024](https://www.youtube.com/watch?v=Nko6Xp1NZeg)
 - [ദുക്റാന തിരുനാൾ ആശംസകൾ.. #frshajithumpechirayilssong #cicily](https://www.youtube.com/watch?v=VJY1Yg45VqE)
 - [Karukavayal Kuruvi Video Song | Dhruvam | Mammootty | Gouthami | Jayaram | KS Chithra | G Venugopal](https://www.youtube.com/watch?v=laH774xYAY4)
 - ["ഇടവേളകളില്ലാതെ " പുസ്‌തകപ്രകാശനം ചെയ്‌ത് കേന്ദ്രമന്ത്രി സുരേഷ്‌ഗോപി Amma general body Meeting 2024](https://www.youtube.com/watch?v=a9GNt3FlrLs)
-- [Aadiyil Vachanamundayirunnu | Super Hit Malayalam Christian Devotional Songs | Kester Songs|](https://www.youtube.com/watch?v=z_2RWKZJcz8)
-- [തീർച്ചയില്ല ജനം🕺🎶👌 | Ustaad | Mohanlal #shorts](https://www.youtube.com/watch?v=yaPCEkkH0lk)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
