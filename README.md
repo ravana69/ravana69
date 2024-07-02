@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Dhosth Songs Jukebox | Dileep | Kavya Madhavan | Kunchakko Boban | Vidyasagar](https://www.youtube.com/watch?v=yIEwOdMhufI)
+- [കുടുംബസമേതം | Kudumbasametham | Malayalam Film Songs | K J Yesudas | Sound of Arts](https://www.youtube.com/watch?v=B876nvCvpno)
+- [Pattil Ee Pattil | Violin Cover #shortsfeed #shortsvideo #reels #manoramamusic #shorts](https://www.youtube.com/watch?v=38iildXAy2A)
 - [Azhake Ninakkay | Kayapola | Myjohn Britto  #manoramamusic](https://www.youtube.com/watch?v=XFbbxzbk60U)
 - [Japamala 2nd of July 2024 # Mathavinte Japamala # Dhukhathinte Rahasyangal 2nd of July 2024](https://www.youtube.com/watch?v=B4_WN5zwJ1k)
 - [എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala July 2nd #rosarymalayalam](https://www.youtube.com/watch?v=KN-fdp7QQBQ)
-- [Morning Prayer Short video | Malayalam Morning Short video | Christian Short video](https://www.youtube.com/watch?v=g2gyx8kN6tE)
-- [രാവിലെ പ്രാര്‍ത്ഥന  July 2 # Athiravile Prarthana 2nd of July 2024 Morning Prayer & Songs](https://www.youtube.com/watch?v=YYOUUfFm7dc)
-- [മാതാവിനോടുള്ള പ്രഭാത സംരക്ഷണ പ്രാര്‍ത്ഥന The Immaculate Heart of Mother Mary Prayer 2nd July 2024](https://www.youtube.com/watch?v=K8bXKHPX-Bc)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
