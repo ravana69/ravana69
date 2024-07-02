@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Darbar &lpar;2020&rpar; Telugu Original Version AMZN WEB-DL [2160p &amp; 1080p &amp; 720p] ×265 [&lpar;Telugu&rpar; DD+ 5.1 - 640kbps] Esub_White_](https://www.1tamilmv.cz/index.php?/forums/topic/180825-darbar-2020-telugu-original-version-amzn-web-dl-2160p-1080p-720p-%C3%97265-telugu-dd-51-640kbps-esub_white_/&do=findComment&comment=367845)
+- [Geethanjali Malli Vachindhi &lpar;2024&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil + Malayalam + Kannada] - &lpar;DD+2.0 - 224Kbps&rpar; - 2.9GB - 1.6GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180824-geethanjali-malli-vachindhi-2024-true-web-dl-1080p-720p-avc-hevc-tamil-malayalam-kannada-dd20-224kbps-29gb-16gb-950mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=367844)
 - [Riwan Adithya &lpar;2024&rpar; Tamil TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - &lpar;AAC 5.1 - 320Kbps&rpar; - 2.7GB - 1.3GB &amp; 900MB] - [x264 - 700MB - 400MB &amp; 250MB]](https://www.1tamilmv.cz/index.php?/forums/topic/180823-riwan-adithya-2024-tamil-true-web-dl-1080p-720p-avc-hevc-aac-51-320kbps-27gb-13gb-900mb-x264-700mb-400mb-250mb/&do=findComment&comment=367843)
 - [The.Bloody.Hundredth.2160p.ATVP.WEB-DL.DDP5.1.Atmos [9.09 GB]  [Direct Download]](https://www.1tamilmv.cz/index.php?/forums/topic/180822-thebloodyhundredth2160patvpweb-dlddp51atmos-909-gb%C2%A0-direct-download/&do=findComment&comment=367842)
 - [Constellation.S01.2160p.ATVP.WEB-DL.DDP5.1.Atmos.DV.HDR [Direct Download]](https://www.1tamilmv.cz/index.php?/forums/topic/180821-constellations012160patvpweb-dlddp51atmosdvhdr-direct-download/&do=findComment&comment=367841)
-- [Varuthapadatha Valibar Sangam &lpar;2013&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 10.5GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB - ESub [GDrive]](https://www.1tamilmv.cz/index.php?/forums/topic/180820-varuthapadatha-valibar-sangam-2013-tamil-true-web-dl-1080p-720p-avc-untouched-dd51640kbps-105gb-55gb-27gb-14gb-x264-700mb-400mb-esub-gdrive/&do=findComment&comment=367840)
-- [Kaliyugam Pattanamlo &lpar;2024&rpar; TRUE WEB-DL - [1080p &amp; 720p - AVC / HEVC - [Tamil + Malayalam + Kannada] - &lpar;DD+5.1 - 192Kbps&rpar; - 2.9GB - 1.6GB &amp; 950MB] - [x264 - 700MB - 400MB &amp; 250MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180819-kaliyugam-pattanamlo-2024-true-web-dl-1080p-720p-avc-hevc-tamil-malayalam-kannada-dd51-192kbps-29gb-16gb-950mb-x264-700mb-400mb-250mb-esub/&do=findComment&comment=367839)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
