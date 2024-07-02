@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Allu Arjun Filmography &lpar;2003 - 2021&rpar; - 1080p - x264 - AVC - DD5.1/AAC2.0 - ESub - 50GB](https://www.1tamilmv.cz/index.php?/forums/topic/118577-allu-arjun-filmography-2003-2021-1080p-x264-avc-dd51aac20-esub-50gb/&do=findComment&comment=367829)
 - [Harris Jayaraj - Ayan &lpar;2009&rpar; &lpar;Original Motion Picture Soundtrack&rpar; &lpar;900kbps&rpar; FLAC 16bit](https://www.1tamilmv.cz/index.php?/forums/topic/180813-harris-jayaraj-ayan-2009-original-motion-picture-soundtrack-900kbps-flac-16bit/&do=findComment&comment=367828)
 - [The Plan Man &lpar;2014&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Kor&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180812-the-plan-man-2014-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-kor-24gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=367827)
 - [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [1-7-2024]](https://www.1tamilmv.cz/index.php?/forums/topic/180811-movies-collection-all-languages-4k-1080p-720p-576p-480p-1-7-2024/&do=findComment&comment=367826)
 - [Exorcist Trilogy &lpar;1973 - 2005&rpar; 720p BD-Rips [Tamil + Hindi + Eng] - [1GBRips] Esubs](https://www.1tamilmv.cz/index.php?/forums/topic/180810-exorcist-trilogy-1973-2005-720p-bd-rips-tamil-hindi-eng-1gbrips-esubs/&do=findComment&comment=367825)
-- [Sarkaar &lpar;2024&rpar; S04 EP08 Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.3GB &amp; 700MB] - [x264 - 500MB] - [Google Drive]](https://www.1tamilmv.cz/index.php?/forums/topic/180809-sarkaar-2024-s04-ep08-telugu-true-web-dl-1080p-720p-avc-aac-20-13gb-700mb-x264-500mb-google-drive/&do=findComment&comment=367824)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
