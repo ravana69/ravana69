@@ -23,11 +23,11 @@
 ### 🎬 1tamilmv RSS Feed
 
 <!-- BLOG-POST-LIST:START -->
+- [Harris Jayaraj - Ayan &lpar;2009&rpar; &lpar;Original Motion Picture Soundtrack&rpar; &lpar;900kbps&rpar; FLAC 16bit](https://www.1tamilmv.cz/index.php?/forums/topic/180813-harris-jayaraj-ayan-2009-original-motion-picture-soundtrack-900kbps-flac-16bit/&do=findComment&comment=367828)
+- [The Plan Man &lpar;2014&rpar; &lpar;HD + Original Audios&rpar; - [1080p &amp; 720p - x264 - &lpar;Tamil + Telugu + Hindi + Kor&rpar; - 2.4GB &amp; 1.4GB | x264 - &lpar;Tamil + Telugu + Hindi&rpar; - 450MB] - ESub](https://www.1tamilmv.cz/index.php?/forums/topic/180812-the-plan-man-2014-hd-original-audios-1080p-720p-x264-tamil-telugu-hindi-kor-24gb-14gb-x264-tamil-telugu-hindi-450mb-esub/&do=findComment&comment=367827)
+- [Movies Collection All Languages [4K, 1080p, 720p, 576p, 480p] - [1-7-2024]](https://www.1tamilmv.cz/index.php?/forums/topic/180811-movies-collection-all-languages-4k-1080p-720p-576p-480p-1-7-2024/&do=findComment&comment=367826)
 - [Exorcist Trilogy &lpar;1973 - 2005&rpar; 720p BD-Rips [Tamil + Hindi + Eng] - [1GBRips] Esubs](https://www.1tamilmv.cz/index.php?/forums/topic/180810-exorcist-trilogy-1973-2005-720p-bd-rips-tamil-hindi-eng-1gbrips-esubs/&do=findComment&comment=367825)
 - [Sarkaar &lpar;2024&rpar; S04 EP08 Telugu TRUE WEB-DL - [1080p &amp; 720p - AVC - &lpar;AAC 2.0&rpar; - 1.3GB &amp; 700MB] - [x264 - 500MB] - [Google Drive]](https://www.1tamilmv.cz/index.php?/forums/topic/180809-sarkaar-2024-s04-ep08-telugu-true-web-dl-1080p-720p-avc-aac-20-13gb-700mb-x264-500mb-google-drive/&do=findComment&comment=367824)
-- [Krack &lpar;2021&rpar; Dual &lpar;MUSIC VIDEO ALBUM&rpar; 1080p True-HD UNTOUCHED - AVC - [Tel DD+5.1 &lpar;384Kbps&rpar;]-[Mal DD+5.1 &lpar;640Kbps&rpar;] E-Sub By-SaiKo](https://www.1tamilmv.cz/index.php?/forums/topic/180778-krack-2021-dual-music-video-album-1080p-true-hd-untouched-avc-tel-dd51-384kbps-mal-dd51-640kbps-e-sub-by-saiko/&do=findComment&comment=367823)
-- [Sarpatta Parambarai &lpar;2021&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+5.1&lpar;640kbps&rpar; - 11.6GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB - ESub [GDrive]](https://www.1tamilmv.cz/index.php?/forums/topic/180805-sarpatta-parambarai-2021-tamil-true-web-dl-1080p-720p-avc-untouched-dd51640kbps-116gb-55gb-27gb-14gb-x264-700mb-400mb-esub-gdrive/&do=findComment&comment=367822)
-- [Kaashmora &lpar;2016&rpar; Tamil - TRUE WEB-DL - 1080p &amp; 720p - AVC - UNTOUCHED - DD+2.0&lpar;224kbps&rpar; - 11GB - 5.5GB - 2.7GB &amp; 1.4GB - x264 - 700MB &amp; 400MB - ESub [GDrive]](https://www.1tamilmv.cz/index.php?/forums/topic/180785-kaashmora-2016-tamil-true-web-dl-1080p-720p-avc-untouched-dd20224kbps-11gb-55gb-27gb-14gb-x264-700mb-400mb-esub-gdrive/&do=findComment&comment=367821)
 <!-- BLOG-POST-LIST:END -->
 
 ## 🎧 Malayalam Songs Feed
