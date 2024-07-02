@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Podimeesha Mulakkana Kaalam | Animated Film Song Video | Animation Song Videos | Cartoon Videos](https://www.youtube.com/watch?v=z8USUQtZZLQ)
+- [Ambotty Chemboth| Kottaram Veettile Apputtan| Jayaram| Kalabhavan Mani| Rajasenan| Bearny Ignatius](https://www.youtube.com/watch?v=Ncs0iV0AC0w)
 - [Dhosth Songs Jukebox | Dileep | Kavya Madhavan | Kunchakko Boban | Vidyasagar](https://www.youtube.com/watch?v=yIEwOdMhufI)
 - [കുടുംബസമേതം | Kudumbasametham | Malayalam Film Songs | K J Yesudas | Sound of Arts](https://www.youtube.com/watch?v=B876nvCvpno)
 - [Pattil Ee Pattil | Violin Cover #shortsfeed #shortsvideo #reels #manoramamusic #shorts](https://www.youtube.com/watch?v=38iildXAy2A)
 - [Azhake Ninakkay | Kayapola | Myjohn Britto  #manoramamusic](https://www.youtube.com/watch?v=XFbbxzbk60U)
-- [Japamala 2nd of July 2024 # Mathavinte Japamala # Dhukhathinte Rahasyangal 2nd of July 2024](https://www.youtube.com/watch?v=B4_WN5zwJ1k)
-- [എൻറെ കർത്താവിൻറെ അമ്മയുടെ ജപമാല കേട്ട് ഇന്നത്തെ ദിവസം ആരംഭിക്കാം#japamala July 2nd #rosarymalayalam](https://www.youtube.com/watch?v=KN-fdp7QQBQ)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
