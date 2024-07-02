@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [മലയാളികളുടെ മനസ്സിൽ തങ്ങിയ എം ജി ശ്രീകുമാർ ആലപിച്ച മനോഹര ഗാനങ്ങൾ | HITS OF MG SREEKUMAR](https://www.youtube.com/watch?v=5F3eFoJQzYU)
+- [നടൻ സിദ്ധിഖിന് ആശ്വാസം പകർന്ന് താരങ്ങൾ ! amma general body meeting 2024](https://www.youtube.com/watch?v=lCjXWw5DT2w)
 - [Eeran Mudithumbil | Aathmaragam | Sithara | MG Radhakrishnan | K Shiburaj](https://www.youtube.com/watch?v=_gl33Rf-Ihw)
 - [Pachakarikaya Thattil | പച്ചക്കറിക്കായ തട്ടിൽ  | Kilukkampetti Video Song | Jayaram | MG Sreekumar](https://www.youtube.com/watch?v=V4wweSTEAmk)
 - [Paadiyum Paranjum | അപസ്വരങ്ങളിൽ തുടങ്ങിയ ഹിറ്റ് ഗാനങ്ങൾ  | പാടിയും പറഞ്ഞും | Sreekumaran Thampi](https://www.youtube.com/watch?v=VylCuAjBrjE)
 - [Podimeesha Mulakkana Kaalam | Animated Film Song Video | Animation Song Videos | Cartoon Videos](https://www.youtube.com/watch?v=z8USUQtZZLQ)
-- [Ambotty Chemboth| Kottaram Veettile Apputtan| Jayaram| Kalabhavan Mani| Rajasenan| Bearny Ignatius](https://www.youtube.com/watch?v=Ncs0iV0AC0w)
-- [Dhosth Songs Jukebox | Dileep | Kavya Madhavan | Kunchakko Boban | Vidyasagar](https://www.youtube.com/watch?v=yIEwOdMhufI)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
