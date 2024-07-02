@@ -32,12 +32,12 @@
 
 ## 🎧 Malayalam Songs Feed
 <!-- BLOGPOSTS:START -->
+- [Poovay Virinju | Mammootty | MG Sreekumar | Ilayaraja | ONV Kurup | Adharvam](https://www.youtube.com/watch?v=ral7_jbE1PU)
+- [Unarumee Gaanam | Moonnaampakkam |  Ilayaraja #SongOfTheDay](https://www.youtube.com/watch?v=5lE3cSd3www)
 - [Kalyanam Is Not Kalyanam When You Did Not Vibe Like This | Guruvayoorambala Nadayil  |#ytshorts](https://www.youtube.com/watch?v=zaF8hD9dyQg)
 - [സംഗീതാസ്വാദകർ നെഞ്ചോട് ചേർത്ത ഏറ്റവും നല്ല ക്രിസ്തീയ ഗാനങ്ങൾ  | Christian Devotional Songs Malayalam](https://www.youtube.com/watch?v=GEG8qDRN6Wk)
 - [Thomasleehaye | St.Thomas Day | ദുക്റാന | @JinoKunnumpurathu #shorts #christianshorts #status](https://www.youtube.com/watch?v=LEpIT2qq1Y0)
 - [തിരക്കൊഴിയുമ്പോൾ നൽകാനായി മാറ്റിവയ്ക്കുന്ന ഒന്നാകരുത് സ്നേഹം...😇 Rev. Aneesh P Joseph | #shorts](https://www.youtube.com/watch?v=jzXIFJkqzjo)
-- [This Vibe Has Not Ended | K For Krishna | Guruvayoorambala Nadayil | Prithviraj | Basil |#ytshorts](https://www.youtube.com/watch?v=PzJU7KE-2GY)
-- [ഉറങ്ങും മുൻപ് ദൈവ സന്നിധിയിൽ # Night Prayer and Worship # Rathri Japam 2nd of July 2024](https://www.youtube.com/watch?v=Nko6Xp1NZeg)
 <!-- BLOGPOSTS:END -->
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=2000&color=00FF00&multiline=true&width=1500&height=114&lines=%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D%3D)](https://git.io/typing-svg)
